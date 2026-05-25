@@ -108,7 +108,6 @@ représenteraient mal. Nous publierons donc des index
 - Jusque-là nous ne ferons que des catalogues. Provisoïi=
 rement nos abonnés pourront eux-mêmes se composer
 des index appropriés à leurs besoins.
-gt LIBRAIRIE DES CAHIERS
 Dans leur deuxième série les Cahiers de la Quinzaine
 ont publié
 le programme de l'École des Hautes Études Sociales
@@ -303,7 +302,6 @@ Nous envoyons franco à domicile à Paris aux mêmes
 Nous envoyons franco à domicile en province et
 l'étranger aux prix marqués pour toute commande
 Nous envoyons franco à domicile en province avec
-PRE A “4 RS dar die, du
 treizième cahier de la deuxième série
 les plus fortes réductions usuelles, c'est-à-dire exac- ES
 tement aux prix de l''Odéon, pour toute commande
@@ -332,7 +330,6 @@ annonçons ces honnêtes livres, non pas en les jugeant
 et en les absolvant, mais en disant en bref, du mieux
 que nous pouvons, toutes les fois que nous le pouvons, 4
 
-ne LIBRAIRIE DES CAHIERS F
 ce qu'il y a dedans. C'est dire que nous procédons le
 plus souvent par voie de citations, tables et résumés.
 Nous attirons l'attention de nos abonnés sur ce qu'il
@@ -478,7 +475,6 @@ cahiers le dossier du boycottage que nous subissons.
 Nous publierons le dossier du boycottag'e exercé contre
 le Mouvement Socialiste quand nous publierons un
 ou plusieurs comptes rendus que nous avons du congrès
-de Lyon. : À
 Nous publions aujourd'hui un dossier du boycottage
 exercé contre les Temps nouveaux et un dossier de la
 Coopération des idées. g.
@@ -519,17 +515,14 @@ sur son tombeau
 servateurs et r
 Si Proudhon est
 En jetant les yeux s
-1) Il faut remarquer q
 spécial pour le socialisme !
 fait bourgeois, d'aprés c
 Nous avons reçu cette lettre : : Ÿ x .
-DE LIBRAIRIE ET D'ÉDITION le 18 Juin 1901
 PARIS C'est moi qui ai rendu n.
 Téléphone 801-04 tration de la Société Nouvelle du
 roman de M. Lavergne. Je suis obligé
 d'opposer un démenti catégorique aux propos que vous
 Veuillez insérer cette lettre dans votre prochain cahier. De
-Je maïntiens.
 Je prépare un mémoire pour assurer définitivement
 ma défense personnelle et celle des cahiers. F à
 Ce mémoire ne sera pas publié dans les séries des

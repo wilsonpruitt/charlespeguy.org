@@ -7,11 +7,7 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 25727
 ---
-#3 DRPRINIO pre CLR LIRE UN NT ar rt Een et Se
-|: chärcheolofie: classique 3% 2% LASER NE LR 00
-|
 s Beta Histoire de Pantone ie oise LEQue et 000
-à De pra Die 0 Cie PR LP Rise 41
 | a) Langue et littérature allemandes................ 42
 b) Langue et littérature anglaises................... 43
 c) Langues et littératures romanes.................. 4h
@@ -22,18 +18,12 @@ c) Langues et littératures romanes.................. 4h
 SL d) Langues et littératures slaves.................... 46
 Ë 9° Sanskrit et linguistique comparée.................. 47
 ÿ Indianistes et indo-germanistes. ................... 47
-ï PDO traniéenne si. RAS... A AR ne 48
 
-| b) l'Extrême-Orient .........................../..... 50
-L MN SClenees d'Rlab 2 EM RN  reeue 51
 É Philologie celtique; archéologie préhistorique; antiquités mexicaines; phonétique générale et expé-
-| rimentale; philologie byzantine...............:... 53
 
-ji ee neuvième cahier M Ar dei la s ept èm B. série k
 | Deuxième section. — Les Facultés des Sciences Rs.
 5 _ françaiseset les Philosophische Fakultaeten d'Alle- TÉREATE . 1h
 
-ë 2° P. C. N. français et enseignement pharmaceutique Fr
 FR 42 Landwirthschaft et Économie agraire..............\ 56 Re à
 | Doubles emplois à Paris, et assimilations............ 56, 20% Fe
 | Allemagne 1904. — Tableau statistique. — Facultés et
@@ -42,46 +32,24 @@ de philosophie; section des sciences mathématiques, re Ra
 physiques et naturelles; personnel enseignant. 58et59 2
 à France 190%. — Tableau statistique. — Facultés des è 1
 Sciences et Écoles spéciales; personnel enseignant. 6oet6r #0
-fé ‘r° et »° Mathématiques et astronomie................. 62 CU
 | Chimie. 21/25..22- nice vien ace miel nee ee ere OS
 ne 5° Minéralogie, géologie, paléontologie................ 64 Fe ÿ
-: parée.ni2.0i0i. at // IRL ri. LIANT RENE
-Phopiiieer.LL.5 :u40e HU Pen on MMS a:
 
-ut ni TABLE toi NN, ANCAERES
-SAR _ CxarirRe III. — Les lacunes du personnel re A
 ru enseignant des Facultés des Lettres et de ts 4
-a CnaP1TRE IV. — Le Privat-Dozentisme......... 88 :
-di Nos cahiers Sont édités" SEE, IC ANR ANUMeMEen à
 es Nous avons donné le bon à tirer après corrections Mt
 | pour deux mille exemplaires de ce neuvième cahier ÿ 1e
 et pour seize exemplaires sur whatman le mardi ‘4
-ER # Le gérant : CHARLES PÉGUY ñ à
 en Ce cahier a été composé et tiré au tarif des ouvriers syndiqués LAS
-
-avt hs CASE RCI FI PAC ESRE DOUTE) CN AT Le x
-AR A A PA NRA à SG ee JE ET ARR E c ir à
-FE PA AN RAR PR et AE APE ee DL een LÉ REUTERS DUREE
-| É “ER CES PAT
-| ‘TS
-| F5 (.- FERRER
-ee VUS de vai. 14 Hs
-PA Lara x ESA DR LE PRET RP ET. à
-
-LE NE Ares à > Les * f Le < <
-FC HR RES RE eee Pr PRÉ PT de ES FSC
 
 Il est impossible de suivre honnêtement le mouve- _  …
 ment littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Cahiers 5
-de la Quinzaine. 5 se pe
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers, 5
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième 254
 arrondissement. On recevra en spécimens six cahiers :
-de la deuxième, de la troisième, de la quatrième, et Es.
 de la cinquième série. ; 3
 
 Pour savoir “i a paru dans les cinq premières ES
@@ -105,33 +73,14 @@ Nous mettons le présent cahier dans le commerce;
 neuvième cahier de la septième série; un cahier jaune … …
 de XXIV + 108 pages; in-18 grand jésus; nous le 5
 
->" *
 les frères ennemis
 
 paraissant vingt fois par an
 | 8, rue de la Sorbonne, au rez-de-chaussée
 
-RSR AN PAU RINE UE idee lus le
-Lol ve = NA NE NE
-
-ASTON Sens MARNE DER NE RER NE fie FREE TS à
-RS ir Es je Dee gi # TENTE ED ASIE AANELE US RSR TT EUR PNR PRE
-Et C2 RE PAT ee we re" JA Se AY re ‘ £ PP:
-à LIT ÉNOONNE $ ? Le USA 42 pe” PA EL cle
-RICE à YF AIETAR) PRERIRES LE pi TU
-: CPE NUE NE PPS ANA LC" T HT HAUTS is PAR Ÿ Frie MR
-| L'AUONE SIREN ar AR SAN EE REA ES À HET SKA RMERSS +
-Le ie RARE PS her ARTS 2 À ARE ni LEA CALE Lire :7 1 RO URSS
-D dE Te: (RAR MM MCE PSE VITRE Et nue
-HET ON LEUR “ de: SN A ERA RARE PARU et :
-
-RU NE du js Ad E je Du.
-
 Nous avons publié dans nos éditions antérieures et
 nes dans nos cinq premières séries, 1900-1904, un Si ;
 : grand nombre de documents, de textes formant dos-. à du
-
-siers, de renseignements et de commentaires; — un. HUE
 
 7e si grand nombre de cahiers de lettres, — nouvelles, ; PRE
 romans, drames, dialogues, poèmes et contes; — un HU
@@ -193,33 +142,17 @@ Dr peut consulter, — provisoirement, — la petite table RUES
 ( 1 . analytique très sommaire que nous avons publiée en fin
 A de ce cahier index. 4
 
-Fe HAN he Mon An cu Fe 7e F ere Ne
-
-Et [re ” TE REX Mecs F4
-# f PR | Lg
-
-HER) SEE + +41 Nu ee QE de FLEURS # VA TEA
-| LES ANCIENS ‘20
-LOT Ce 2e, di j î ue, :
-1 AR SIERRA k RER f { PARA NAT ne Fa
-
-HE LAS NE A Ael RE ee Le se, AR OP T RADAS EME EME
-
 a en vente à la librairie des cahiers | Me:
-EE sommaire : OU
 fs Jérôme et Jean Tharaud, — Le Coltineur débile : 41130
 % VÉchafaudage, la Merveille, sur les routes, la PPT Par
 
 de Détresse>. 11700000 2% deux francs 0
-ne —  — la Lumière : le navire, le magicien, Rue #
 ces RTC Dingley, Yillustre écrivain... un franc 140 4
-E —  — La légende de la Vierge, dans le AE:
 te premier Cahier de Noël; cinq contes : du moine G ‘Te
 Fe qui voulut voir Notre Dame; l'image; les trois D.
 rs roses de Notre Dame Sainte Marie; du cierge qui LR ETS
 3 vint se poser sur la viole de Pierre de Syglar; du £ De &
 # clere qui priait Notre Dame pour sa luxure, un franc 196 ETS pres
-et È De f :! AMIARCYRES
 74 Henri Lebeau, Jérôme et Jean Tharaud, — Moines de APE 4,
 Jérôme et Jean Tharaud, — les hobereaux, — histoire ë 2 F5
 HS vraie; — et trois annonces d'éditions chez Pelletan.. _ si
@@ -233,13 +166,7 @@ Wa voleurs; la Vierge aux oiseaux; celui qui fit pleurer FES Le
 £ la rose; la jongleresse qui fut en danger d'être VE A
 Ÿ noyée; la statue de Dionysos ........... vingtfrancs Lie
 
-“c Ole et < [i DURS €
 DR les frère D
-
-Et Rte A ns E FT M ANNEE SEE ANR DAS 2 À |
-dat LE NUE LT pou FARRIENES : PROS |
-| Re |
-| : DAMES" |
 
 M vint s'établir à Genève dans les premières
 années du seizième siècle. Sa femme étant morte en
@@ -271,12 +198,9 @@ la couleur de ses yeux, et s'il ressemblait à un enfant de Fribourg ou de Padou
 — Il ressemble à un ange, répondait messer
  Maisil remarquait non sans tristesse que jamais et
 elle ne s'inquiétait du garçon qu'il avait eu de son L :
-| premier lit.
 Souvent elle suppliait son mari de l'emmener dans | i
 un de ses voyages; il refusait toujours, alléguant J î û
 
-: LES FRÈRES ENNEMIS AE ce
-| qu:
 l'insécurité des routes, dangereuses même pour les : N.,
 postes du roi de France. &
 Or, un matin que Guido Moroni surveillait le à
@@ -295,7 +219,6 @@ femme. Elle interrogea des yeux son mari, qui se (or
 contenta de sourire. hé
 — Merci, dit-elle, d'avoir tenu votre promesse; h
 mais, je vous prie, lequel de ces beaux garçons est VERS
-le mien ? “fe
 — Je m'étonne, répondit le banquier, que vous ÿ
 n'ayez pas encore deviné les raisons de ma conduite. . fs
 Si je vous ai sevré de votre fils, ce n'est ni cruauté, f?
@@ -359,7 +282,6 @@ continuerai de ne pas les distinguer dans mon s
 — Puisque vous ne vous lassez point, lui dit-il, #
 | de me tourmenter nuit et jour, vous allez être satis-
 A ce moment la porte s'ouvrit et Jean-Baptiste |
-| parut. « à
 ‘ — Voici votre fils, dit messer Guido. F
 Elle se jeta sur l'enfant, le dévora de baisers.
 Comment n'avait-elle pas vu que Jean-Baptiste était
@@ -424,7 +346,6 @@ et femmes, même à ceux qui jamais ne furent en
 \ en la grande salle de Boyttet, près du Molard, à
 
 Ki Jérôme et Jean Tharaud M.
-ni l'enseigne de la Croix d'or. Et si guérit beaucoup de ; “1
 f maladies pour rien. » $ È
 Affections de l'âme et non du corps, que guéris- |
 | sait Froment, avec le seul baume du pur Évangile.
@@ -448,7 +369,6 @@ Ami, tantôt faisait le guet, tantôt servait de gaide, ;
 ee rame. Un amour ingénu des coups, ne
 
 A que des sermons, l'engageait dans la suite du out
-PAL TAEENX & FA CES À ! NOTE dis
 nouveau prophète; il était tour à tour le lac 10
 aus voluptueux ou le Rhône héroïque ; il avait la gaieté ER %,
 __ batailleuse de Genève, la ville des seigneurs et des AE
@@ -458,7 +378,6 @@ _ riches marchands, des filles et des auberges, la
 Le  Écritures et prêchant les serviteurs à qui son humeur #i)
 pan triste inspirait un étonnement mêlé de crainte. | ire
 Barbe Moroni leur partageait son cœur. 404
-|A UE 2:
 
 R, les gens de Genève inclinaient chaque jour
 plus à l'Évangile et, cette année-là, on proclama à son de trompe une grande dispute théo- L.
@@ -476,9 +395,7 @@ sous la condition d'une foi sincère.
 Les prêtres dirent qu'ils ne savaient rien répondre, : |
 mais qu'ils étaient simples, qu'ils avaientaccoutumé
 de vivre comme leurs pères leur avaient appris, et
-ne
 
-Juin nr AE GES ENS ARE Ne nie TARN
 qu'ils croyaient fermement que le précieux corps de
 Jésus-Christ, en chair et en os, était en l'hostie
 autant que dans le ventre de la bienheureuse Vierge
@@ -525,7 +442,6 @@ la ville; les nonnes les suivirent, accompagnées 4
 
 pe gneurs qui les menèrent à leur bras, comme des 14 :
 
-L fl
 EULE, de toutes les religieuses de Genève,
 Marion de Penneroz, fille d'un petit seigneur :
 savoisien, voulut demeurer dans la ville. On la crut
@@ -612,7 +528,6 @@ pa: de la tyrannie, il courait les rues, rossant quelqu'un
 * en dérision du psaume de Marot : * HS
 “4 Vers toi, mon Dieu, mon cœur monte! . vi “4
 
-Ron fera j LES‘ FRÈRES ENNEMIS | DRE st
 4 i Sa mère redoutait pour lui les châtiments que 5
 à la Seigneurie réservait aux libertins. 4
 à Le conseiller Pierre Ameau avait dû faire amende à
@@ -710,7 +625,6 @@ Bu porte Baudet où étaient passées les ribaudes.
 
 on partait seul, sans manteau, sans argent, sans : 1
 tu bâton, avec, pour tout réconfort, l'Evangile et les ne
-| psaumes. FENTE
 #3 L serait vain de rapporter ici la douleur de 1
 Nb A Barbe Moroni quand on lui ramena un corps AU
  inanimé et qu'on lui apprit le nom du meurtrier. FER
@@ -764,25 +678,12 @@ assemblée. Alors une voix s'élança :
 __ Quand Guido et Barbe Moroni furent rentrés
 dans leur maison vide, le Padouan dit à sa fl SLT
 
-AR) ce RL EN « à pee à ing
 70 C'est trop de deux enfants à pleurer; au M
 vais-je vous dire lequel était le vôtre. 1 La 5:
 
 104 Barbe Moroni lui prit les mains : NS
 D: — Gardez votre secret, dit-elle, ils ne sont plus
 __ qu'une flamme dans mon cœur. FRIC
-Le D À as . Qu nt S 4
-
-FN Pile APR DETE HE CES
-He: les F6 À $ ÿ j Ya RE de
-
-HA nur FPS (NP (022 TRE RE ee POI LE ES Le EL
-
-ON EMRPANTAIIONENESS nt RUN ASE ee
-
-LA ue 3 ; ; Le LUS Lie
-
-_ LARTOSRERNE { ot de FA 132 Àà FPT A7 ie ,
 
 Vient de paraître : Re
 
@@ -792,20 +693,11 @@ Yun tous les dessins originaux; l'autre un dessin original Es
 sur chacun des faux titres, plus une double suite d'épreuves “à
 ë 12 exemplaires, — de 3 à 14, — sur japon ancien, contenant ; a
 une collection d'épreuves d'artiste de toutes les gravures, ne
-| IN-8° JÉSUS En
 _ 25 exemplaires, — de 15 à 39, — sur chine, au prix net à #4
 _ 186 exemplaires, — de 4o à 225, — sur vélin à la cuve des ne.
-k papeteries du Marais, filigrané KTHMA EX AEÏI, au +4
 Ë Il sera tiré en outre : ar
 Le 5 collections d'épreuves d'artiste signées, sur japon, au j k
 _ 10 collections d'épreuves d'artiste signées, sur chine, au it
-
-A ans mt Ra D x MTS TES STEEL T CAR
-rt: È É 2 TÉL AT 137 ATEN ne
-ÿà it Vox à Le UT x
-nie: ru mA Eu {EST RE
-4 k:4 Perrk ” LS fric « Fe eo + LE
-de: as  . DRE URI
 
 En outre, Jérôme et Jean Tharaud collaborent assez <
 régulièrement, chez Pelletan, à l'Almanach du Bibliophile. <
@@ -820,25 +712,12 @@ Came MoniEr. — Résumé de Sociologie.
 Emize CoRRA. — La Philosophie positive.
 
 — Les Devoirs naturels de l'homme.
-— La Morale sociale.
 
-ANATOLE FRANCE. — L'Église et la République.
 | — Pour le Prolétariat, 2 volumes.
-
-P. GRIMANELLI. — La Femme et le Positivisme.
 
 Pour paraître successivement :
 
-ANATOLE Francs. — L'Impérialisme.
-
 Emice CorrA. — L'Education positive.
-
-— L'Humanité.
-
-— La Religion.
-
-— La République occidentale.
-— La Patrie.
 
 CAMILLE MonIER. — Exposé populaire du Positivisme.
 
@@ -853,12 +732,6 @@ D:° Pauz Duguisson. — La Morale théorique.
 Il est tiré, de chaque ouvrage, quelques exemplaires
 à réimposés et numérotés, sur papier de Hollande.
 
-L'AUTRE 7 px RTE ae
-LR SNA INT REY des
-Fi oi F ET HI Rae
-Mon F EURE
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, ;
 rez-de-chaussée, Paris, cinquième arrondissement. <
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur + À
 la rédaction ni sur l'administration ; ces fonctions
@@ -884,11 +757,6 @@ naturellement aux inscriptions les plus anciennes; c'est
 _ numéro du tirage réservé à chacun des souscripteurs ;
 l'édition sur whatman est strictement limitée au
 
-| NES LISE
-
-FSC MERE PERRIErE IA ‘ DAS RM RENE Cet
-
-ie 5. LT Ses D NNIESeEt ES ARR NUE , (US PARUS
 , Pour tout changement d'adresse envoyer soixante +
 centimes, quatre timbres de quinze centimes. :
 Nous engageons nos abonnés de certains pays à nous
@@ -923,9 +791,6 @@ appartiennent aux cahiers, du seul fait de cette publi-
 ; et sans autre signification ni contrat; les manuscrits
 ; non insérés ne sont pas rendus.
 
-RENE CE AS AT RM ET RAA A ae Re ns
-
-| CAHIERS DE LA QUINZAINE
 Si j'avais quelque souci de ma réputation littéraire, je à
 me garderais de mettre de ma prose après un conte des
 b Tharaud. Mais je n'ai aucun souci de ma réputation
@@ -942,7 +807,6 @@ Wu chacun une force brève, une brièveté forte si personnelle et si originale 
 \ éditeurs futurs qu'il serait extrêmement difficile de faire
 L avec les Tharaud un volume de trois contes. Ces
 p contes-ci ont chacun une personnalité, une originalité si
-ou
 
 marquée, si impérieuse, qu'elle n'admet pas même ë
 le partage, avec nulle autre, du papier du même volume,
@@ -975,8 +839,6 @@ quelque reproche littéraire que ce soit à un pauvre
 gérant qui fait honnêtement et petitement son métier de
 quinzenier. Ceux qui écrivent mal, ce sont les perpétuels |
 hommes de talent, les taximètres. à
-
-Lui SAT BA CURE VRP OM CNE ON ME APS Der MEN ENESERO
 
 Nos abonnés ont reçu, tous et sans aucune exception,
 sous leur étiquette même des cahiers, l'annonce de
@@ -1045,7 +907,6 @@ définitivement épuisés, en langage ordinaire quand il 4
 M. Gabriel Monod, dont je m'honore d'être un ancien k
 élève dans l'ancienne école normale, était, je pense, un ;
 
-fn CAHIERS DE LA QUINZAINE 4
 de ces anciens abonnés qui se sont un peu demandé
 quelquefois si j'avais bien les qualités requises d'un
 : administrateur ; l'événement les a rassurés ; ma réponse : 1
@@ -1073,7 +934,6 @@ davantage avec les prix de nos exemplaires. Pareillement en effet nous n'avons j
 douze, de huit, de seize, et peut-être de vingt francs, le :
 prix marqué d'épuisement des exemplaires qui nous
 venaient en épuisement, quel que fût le degré de cet
-| épuisement.
 
 j Sous cette réserve, sous cette seule réserve que nous
 ne jouons pas à la Bourse, que nous ne spéculons pas, -
@@ -1191,7 +1051,6 @@ détail, cet argent. 1
 Je suis assuré, Lagardelle, par exemple, que s'il nous ;
 donnait une étude complète et aussi approfondie qu'il |
 
-jee CAHIERS DE LA QUINZAINE : ET
 -_ pourrait de toute l'histoire propre du Mouvement |
 gd Socialiste depuis sa fondation et depuis même avant sa À
 fondation, de ses tribulations financières, de ses amitiés
@@ -1220,7 +1079,6 @@ matériel autant que moral, s'il nous disait tout, il nous
 D: supérieur à toutes les éloquences du monde, parce que
 Ÿ d'abord il serait un monument de réalité, Et cette occuja ñ
 
-| Charles Péguy NU
 pation qu'il se ferait aurait au moins ce premier résultat - |
 et cet avantage que nous n'assisterions plus à ce spectacle, à ce contraste grotesque, d'un homme qui prétend
 gouverner les deux mondes, au moins par le moyen de ;
@@ -1251,11 +1109,6 @@ geable, au lieu d'aller quémander pitoyable des exemples b
 règle de modestie, c'est encore, et bien plus essentielle- ;
 
 ment, la grande règle de méthode, de toute méthode. Je
-
-#
-ni
-
-#d che 119
 
 prendrais uniquement les cahiers, l'exemple de ces
 cahiers, je conterais leur histoire politique, économique
@@ -1365,7 +1218,6 @@ fait-il que tous ces articles et que tous ces discours,
 
 versel inavoué : que perpétuellement il y a un perpétuel
 
-Or, j'ai le regret de le dire, — et je prends en bref le
 temps de le leur dire, ce temps que je vole à nos déma-
 
 gogies bimensuelles, — d'une expérience personnelle
@@ -1378,7 +1230,6 @@ déjà longue, il résulte jusqu'à l'évidence qu'il n'y a aucun
 
 ‘1 Un député peut demander à la fois qu'on accroisse les
 À charges du budget de l'État et qu'on diminue les impôts ;
-de
 
 un conseiller municipal peut demander à la fois qu'on
 accroisse les charges du budget de la ville et qu'on
@@ -1413,7 +1264,6 @@ Tous ces politiciens parlementaires démagogues ex-
 
 ploitent plus ou moins confusément le postulat plus ou
 moins inavoué, — inavouable, — de quelque miracle
-Or, j'ai le regret de le dire, et je prends encore le
 temps de le leur dire, il n'y a pas d'exemple que l'on ait
 vu un miracle économique; c'est peut-être la seule
 matière du monde où la célèbre loi de la conservation
@@ -1604,8 +1454,6 @@ Jean-Christophe qui nous restent, il nous devenait É
 | impossible de continuer à les vendre deux francs dans à
 le même temps que la librairie Ollendorff mettait en FL
 
-it ON AS OA, ARE NI
-ua CAHIERS DE LA QUINZAINE une ne
 ‘ vente sa nouvelle édition, à trois francs cinquante; il
 ë c'était pour nous une question de bonne tenue envers A
 l'auteur même et envers ses nouveaux éditeurs.
@@ -1685,7 +1533,6 @@ M. Gabriel Monod et à lui donner un simple renseignement de l'administration de
 faire, je n'ai pu lui donner un commencement de rensei- $
 gnement sans glisser malgré moi à toute une théorie, à
 tout un commencement d'analyse de la consommation,
-du travail et de la fabrication, de la répartition, de la
 communication, de la relation économique. C'est que
 
 F tout se tient en pareille matière et qu'il est véritablement pénible d'entendre partout autour de soi parler et
@@ -1785,7 +1632,6 @@ dreyfusistes notoires, anciens membres de notre ancien 4
 naturellement lente, — ne m'étaient venus, —bien tard,
 — sur la correction de plusieurs de nos démarches, de ?
 plusieurs des démarches que nous fimes pendant cette à
-inoubliable affaire. L:
 Je dirai donc deux mots de la question en elle-même, 4
 et sans m'en référer à cet illustre précédent. Quelquesuns de nos plus anciens abonnés se rappellent peut-être L
 encore un certain nombre de démonstrations que je
@@ -1795,7 +1641,6 @@ des personnalités. Le sophisme que nous pouvons nommer sophisme des personnalit
 universellement répandu, et qui réussit, qui pullule si #
 parfaitement aux démagogies que je ne pouvais manquer »
 
-CAHIERS DE LA QUINZAINE de,
 de m'y heurter dès le commencement du déblaiement de rs
 toutes sortes, déblaiement intellectuel et moral, qui fut,
 entre autres, la raison d'être toute première de ces
@@ -1858,7 +1703,6 @@ indépendant du premier, pour ce qui est de la personnalité, si vous êtes quel
 
 72 3
 
-Ne D Me oo IR
 existez, si vous savez être, et seulement regarder,
 publique ou privée votre lettre sera personnelle,
 comme tout.ce que vous faites, comme tout ce
@@ -1898,7 +1742,6 @@ Fr Voilà ce que c'est que la personnalité. 44
 Br; Mais si vous êtes membre ou fondateur d'un comité
 2" de la Ligue française pour la défense des Droits de 4
 < T Homme et du Citoyen et que vous écriviez à un délégué 8}
-di L important de la Ligue dans le Midi, à un secrétaire eu
 e président de section, à Toulouse, et, ce qui est plus # Ë
 & important, à un délégué moral important et respon-
 % sable, qui répond pour vous, garantie et autorité,
@@ -1920,10 +1763,7 @@ Der votre lettre puisse être une lettre privée, que cette opé-
 Se une opération privée. Votre opération est publique,
 F votre lettre est publique, essentiellement publique,
 publique entièrement, que vous le vouliez ou non,et
-va 2 LE cn MEET <
 
-10 CAHIERS DE LA QUINZAINE ché
-#+ Pa
 3 quoi que vous fassiez. Toutes les précautions super2. ficielles, toutes les formalités, tous les déguisements Fa
 matériels n'empêcheront pas qu'elle soit publique. Ce R
 qui revient à dire qu'en matière publique, matière
@@ -2009,7 +1849,6 @@ définitions; je ne sais pas, je ne veux pas savoir ce que
 
 c'est qu'une définition, que la définition, scolaire; la
 définition qui s'interdit d'employer, de faire intervenir
-| le défini ou quelqu'un de sa famille, un rejeton de la
 même souche, de la même race, un mot de la même
 racine, se condamne automatiquement par là même à
 remplacer le mot juste par une injuste périphrase, le
@@ -2049,7 +1888,6 @@ en quelque manière son garant, au contraire, si vous ne :
 à d mettez pas le défini dans la définition, si le défini n'est À
 | pas présent dans la définition, vous n'êtes plus assuré « Ê de rien, alors; vous ne savez plus du tout si votre défiKe: RE
 
-à LS mt FA En A LA QUINZAINE #1 TS
 à Fe _ nition est bonne; et même vous êtes assuré qu'elle est 5e
 É mauvaise; vous ne savez plus du tout comment votre me.
 _ définition se comporte envers le défini qui était à définir; 15
@@ -2074,15 +1912,12 @@ B ils se comportaient, à présent. Fe
 1 question difficile de la définition et de la distinction; ee
 ; mais j'en ai pu dire assez pour me permettre d'avancer 54%
 4 un peu dans l'examen des exemples qui se sont trouvés ; 0%
-| sur le chemin de ma réponse.] à à
-# É
 , En résumé la question de personnalité est une ques- ER:
 tion d'auteur; publique ou privée, oflicielle ou non-off- CS
 ? cielle, une opération est personnelle au sens et dans la 3 *
 ; mesure où l'auteur de cette opération est une personne ; 152
 ; elle est impersonnelle au sens et dans la mesure où l'au- La
 teur de cette opération n'est pas une personne; Si Vous . Ée
-je ee
 
 É Fe Charles Péguy 7 et"
 “ êtes une personne, vous ne pourrez rien faire, vous ne E° "
@@ -2151,7 +1986,6 @@ dans cet exemple particulier, par le jeu de trois paires
 venues de trois ordres de considérations, nous obtenons
 - huit cas particuliers, huit combinaisons tout élémentaires.
 
-MERS: Charles Pégay LE RES
 e & a) ou première combinaison élémentaire : opération
 ss personnelle publique officielle; exemples : quand um
 “2 chef de gouvernement, qui est une personne, accomplit,
@@ -2176,7 +2010,6 @@ pus officieuse : quand un chef de gouvernement, qui est une
 8 culier la distance qu'il y a du Journal officiel aux jour
 4 naux officieux, aux journaux inspirés, représente et
 
-Æ È mesure assez bien la distance qu'il y a de l'officiel à 4
 “4 lofficieux; ou, si l'on veut, cette distance apparaît dans
 FE un exemple encore plus resserré, par la distance qu'ily
 
@@ -2286,12 +2119,6 @@ que moi aussi je dresse des tableaux, en attendant des
 statistiques; et que je donne à nos excellents compositeurs ordinaires l'occasion de dessiner une fois de plus
 quelqu'une de leurs savantes typographies :
 
-Ne Re ne HT EE nes
-DE LME ep È S Es
-> Æ » #EFCR
-K à ps sé re Le e % Q F
-ne Ca oi È 4 3 L s Toi: M PL TRS
-
 % On voit mieux ainsi comment les discriminations se ;
 = font par paires; dans ce cas où toutes les combinaisons
 ; primitives elles-mêmes vont par paires; si nous n'avions ;
@@ -2328,7 +2155,6 @@ publié cette lettre que je publiais. C'est un grief qui fait
 toujours beaucoup d'effet. Ma réponse n'en fera pas
 autant. Il dit vrai. Je n'ai pas entièrement publié cette ;
 lettre. Je pourrais me le reprocher. Mais ce n'est pas à
-lui à me le reprocher. Car la seule phrase de la lettre À
 -_ que je n'ai pas publiée, une toute petite phrase, était
 une phrase qui lui eût paru beaucoup moins publiable +
 encore que le reste de la lettre, puisqu'il y s'agissait
@@ -2388,9 +2214,6 @@ publiques, par ses articles, discours, lettres, interviews,
 récemment encore sa situation prise dans l'affaire de la
 candidature Scheil au Collège de France, — une situation morale singulière, il s'est constitué une sorte de
 
-|
-
-| ne Poe DR Lo
 = magistère officieux qui apporte avec lui beaucoup
 Fe d'honneur, mais qui entraîne avec lui une lourde responsabilité. Quand un homme a une fois commencé à
 : exercer ce magistère, il ne peut plus s'arrêter, jamais,
@@ -2418,7 +2241,6 @@ et quand il n'est pas là, son absence est publique, et
 quand il ne parle pas, son silence publiquement parle …
 pour lui. Combien de fois ne nous avait-on pas dit, 3
 
-k CAHIERS DE LA QUINZAINE : ee
 combien de gens ne nous avaient-ils pas dit : La preuve A
 qu'il n'y a rien de répréhensible dans la délation gou- 4
 vernementale organisée, c'est que Gabriel Monod n'a ée
@@ -2505,7 +2327,6 @@ aujourd'hui qu'il n'en avait pas été de même pour les
 grands seigneurs de nos armées; c'est toujours la même
 histoire, l'histoire de toutes les guerres; les simples
 Je ne pouvais imaginer et j'ai, comme on dit, été
-|
 
 5 _ péniblement impressionné d'apprendre que pendant ce
 si temps nos grands chefs, comme tous les grands chefs
@@ -2543,7 +2364,6 @@ quand nos passions amicales demeuraient frappées de ;
 É stérilité, nous brisions. Nous rompions un parentage, 4
 
 _ une amitié de vingt ans, nous qui n'avions guère passé
-[on Est
 XIE vingt-cinq ans, nous brisions avec une sorte d'ivresse 358
 ss _ farouche, d'amertume âpre, comme nous nous fussions 2 nn
 rompu le bras droit : Si ta main te scandalise, coupe- 208 je
@@ -2564,20 +2384,15 @@ analytique sommaire ; notre petite table analytique a F4 F
 nu provisoire très sommaire de notre sixième série .. 2 CR
 Le Pdnadame Sonia Darbell 2350 Teens 5 cs
 Du même auteur, en vente à la librairie des FR
-à JÉROME ET JEAN THARAUD. — Jes frères Eu
-F7: Posttenebras le Re eh ta D 9 1
 48 Or/lesrens de (fenêpé:s 12 00e 20 AR:
 “HTTNES Seule, de toutes les religieuses ...... ............. 93 DRE
 
-| TE RSR ; DIS NT CSM PR RS
 _ dixième cahier de la septième série
 
 #2 ‘ Saint-Germain, Paris, vient de paraître : Jérôme FL
 “à 7 et Jean Tharaud, l'ami de l'ordre, épisode de la ë ”
 ne Chez le même, Almanach du Bibliophile et Biblio- Re
 18 thèque sociale et philosophique à soïxante cen- 2
-#. UT RO RS RE A M PR nue “0
 es Vannonce de l'Union pour la vérité; M. Paul Des- /
 RER jardins; l'ancienne Union pour l'action morale; :
-: Romain Rolland. — Jean-Christophe.............. 48 :
 # : Une rectification de M. Gabriel Monod............ 68

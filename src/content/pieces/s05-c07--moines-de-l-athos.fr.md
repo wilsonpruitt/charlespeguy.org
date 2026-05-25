@@ -9,13 +9,11 @@ wordCount: 15075
 ocrSource: "Extracted 2026-05-25 from conflated s05-c07--notes-sur-la-hollande.fr.md (lines 1125–3019; running header 'Lebeau et Tharaud' identifies these lines)."
 translationNotes: "OCR garble remains throughout. Le fichier original s05-c07--notes-sur-la-hollande.fr.md contenait par erreur la totalité du cahier : Notes sur la Hollande (Henri Michel), Moines de l'Athos (Henri Lebeau + Jérôme et Jean Tharaud), et un Bulletin de l'Office du travail sur la grève des tisseurs d'Armentières. Cette portion Athos est extraite ici."
 ---
-
 | à Le courrier que l'on va lire a été publié pour la,
 : (1 mière fois, mais abrégé de plusieurs pages, dan
 | 12 Renaissance latine ; aujourd'hui nous en publion
 |" AURONE texte entier ; ce courrier a été rédigé en commun
 Ex : M. Henri Lebeau, et par Jérôme et Jean Tharaud :
-#1 #
 
 e voyageur qui désire visiter les monastères de ;
 hos doit, à Constantinople, se munir d'une double re- k:
@@ -169,7 +167,6 @@ nue, rassemblés autour d'une large ouverture carrée
 _ découpée dans le pont. Un prêtre officie à fond de cale
 | et les paysans assistent à l'office, groupés dérrière lui
 
-É - rs exe TU és
 Lebeau et Tharaud /
 
 dans un profond recueillement : ceux qui n'ont pu 4
@@ -209,7 +206,6 @@ points blancs, les monastères etles skites.— On nomme 4 |
 ainsi des couvents en quelque sorte secondaires, par- 1
 fois très considérables et très peuplés, mais n'ayant
 
-| MOINES DE L'ATHOS
 pas le rang officiel de couvent, parce qu'ils n'envoient
 pas de délégué au conseil central de Karyès. — Un de
 nos voisins, un moine grec à la taille imposante, nous
@@ -512,8 +508,6 @@ café. Puis on cause :
 sonner à l'oreille des moines. Et, tout aussitôt, la question que l'on nous posera, à peine arrivés, dans tous
 les couvents :
 
-| L
-
 Lebeau et Tharaud |
 | — Combien de jours pensez-vous rester ici? Quand
 partez-vous ?
@@ -552,7 +546,6 @@ donne un aspect inachevé et lourd. On y voit de très
 vieilles fresques, malheureusement bien effacées, une
 belle iconostase, un trésor d'or et d'argent, des sculp-
 
-MOINES DE L'ATHOS ae
 tures sur bois d'une finesse admirable. Des moines
 barbus débitent des psaumes d'une voix monotone,
 debout dans leurs stalles. Tout est noirci, les murs, les
@@ -585,8 +578,6 @@ nous raconte qu'il est de Céphalonie, que sa mère est
 une Française de Châlons-sur-Marne, qu'il a fait ses
 études de médecine à Sienne, puis à Paris. À la suite
 de malheurs, qu'il ne s'explique pas, il s'est engagé à
-
-| DO D
 
 4 Lebeau et Tharaud
 la légion étrangère, a servi trois ans à Saïda. Il est à
@@ -724,7 +715,6 @@ nous fait le récit de cette conquête, tandis que nous
 chevauchons dans la montagne par des sentiers de fo- À
 rêts, précédés d'un agoyate macédonien au pas merveilleusement souple et rapide. Le père n'aime pas
 beaucoup le régime des monastères russes : toujours
-de la soupe et du poisson, du poisson et de la soupe !
 Au moins les Grecs se permettent-ils, à certains jours,
 de la viande, des liqueurs! Ils peuvent fumer! Par
 exemple, le couvent où nous allons gun caviar excellent ! Ce moine botté, énorme, à cheval sur une énorme
@@ -848,7 +838,6 @@ un Christ en croix.
 
 — Aussi bien, répond le père, le cadavre du pèlerin
 n'est pas roulé dedans. On pose cette bande de toile
-sur SOn COrps nu.
 
 A la porte notre compagnon de voyage, le moujik
 de Saratof, nous écoute parler et nous regarde avec ses
@@ -1048,8 +1037,6 @@ s: pierres de prix. Jadis, selon la légende, cette figure à
 108) dont les traits apparaissent fixés sur la toile en
 
 vertu de son pouvoir surnaturel. C'est là l'origine
-
-|
 
 du nom même du couvent : Zôgraphe, qui signifie k
 L'église est riche aussi en reliquaires d'argent. Le à
@@ -1316,7 +1303,6 @@ marier. Mais après... après ?
 
 Son imagination lui représente une éternité de
 
-| délices.
 É Ce jeune homme nous donne, nous ne savons pour-
 ; quoi, une impression de chrétien des premiers temps
 du christianisme : un jeune Syrien, adorateur de
@@ -1372,7 +1358,6 @@ Fe Assis pêle-mêle sur des tas de foin odorant qu'on vient
 # admirons la sveltesse et l'élégance des bateliers, des
 | © marins de Longos, où la race grecque s'est conservée
 x: pure de tout mélange.
-| . 29 juin
 ; D'Iviron à Lavra la route est longue : nous n'arrivors
 È qu'à la nuit au couvent fondé par saint Athanase à
 ! 1: l'extrémité méridionale de l'Aghion Oros. Précédés
@@ -1385,7 +1370,6 @@ par de périlleux escaliers ou le long d'argiles glis-
 ne. dans les arbres. Sur un escarpement rocheux qui
 k s'avance en éperon dans la mer se dresse une tour
 
-| MOINES DE L'ATHOS .
 carrée à baies en ogive; derrière, là où cesse le rocher,
 s'étend un vaste enclos où des bosquets d'oliviers, de
 cyprès, se mêlent aux prés fleuris et aux pièces
@@ -1570,7 +1554,6 @@ emporté une photo-jumelle quelconque. Pour ces esprits
 simples un appareil photographique est encore une
 
 | machine mystérieuse, et qui confère de l'autorité à son
-| porteur.
 
 C'est de Lavra que l'on part pour faire, en deux
 
@@ -1611,8 +1594,6 @@ demander s'il avait une permission du sultan. L'épitrope a mis le fonctionnaire
 
 ù Et ce sultan en soutane ajoute, en fermant à demi ses
 gros yeux bleus à fleur de tête, que traversent parfois
-
-|. rt MES Listes AR AN PTT NT PEER TT | 4 FA
 
 — Ah! si vous saviez le russe, je vous en raconterais,
 
@@ -1904,4 +1885,3 @@ capables de tout!
 regardons la pointe de l'Athos s'éclairer des rayons du
 soleil levant. C'est à demi endormis que nous entendons notre voisin fou s'écrier, avec son étrange rire:
 — Et tout ça avec la devise : Tout pour le bon
-

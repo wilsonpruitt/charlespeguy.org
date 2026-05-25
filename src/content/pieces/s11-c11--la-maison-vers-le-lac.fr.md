@@ -7,94 +7,36 @@ author: joseph-melon
 isAvertissement: false
 wordCount: 14322
 ---
-ARTE APN PEU CRU ne A EEE ch
-RU Le SPMREE PAR ET ee APR TERRE CAPES ARE DE ft
-"ré \L 7 Re e rx R PA Vi TETE
-MAAF Le Ex is” PARUS.
-| ERA RC TE TE FAT K:3 AS NT UE TES
-
 Dans les dix-neuf cahiers de leur septième série, cr
 année scolaire 1905-1906, nos cahiers ont publié : :
 tique du catalogue eaers Al 2 sommaire et table
 analytique très sommaire de la sixième série......, 7 »
-Vil-2. — CHARLES Ricner. — La paix et la guerre 1 »
 VII-3. — CnarLes PéÉGuyx. — notre patrie.......... 1 »
-VI-4. — RaouL ALLIER. — la séparation au Sénat 4 » 4
-VIL-5. — ÉTIENNE AVENARD. — le 22 janvier nouveauistyle,: 14:55 Re UE RERO RRENEER g
-VII-6. — E.-D. MoreL et PIERRE Mie. — le Congo c
 VIl-7. — CHarLes PÉGUY. — les suppliants parallèles. — FRANÇoIs PorcHÉ. — les suppliants......... 2 »
-È VIl-9. — FErpINanD Lor. — De la situation faite à $
 l'enseignement supérieur en France. —1......... 2 »
-VIl-10. — JÉRÔME ET JEAN THARAUD. — les frères
-Vll-11. — FerDINAND Lor. — De la situation faite pe |
 | à l'enseignement supérieur en France. — IL...... 3 » #
-VIl-12. — FécicEN CHALLAYE. — Le Congo français 2 » Ta
 réforme. — de la situation faite à la défense mili- l
-VIl-14. — GABRIEL TRARIEUX. — Les Vaincus. —
 VIl-15. — les cahiers d'Arnold Scherer ......... 2 » re
 VIl-17. — JEAN ScHLUMBERGER. — Heureux qui 14
 comme Ulysse.:....5..,5247RR ORNE RTS i$
 ‘ VII18. — Roman RocLanp. — Vies des hommes ne
 illustres. — la vie de Michel-Ange. — I. — la lutte.. ÉPUISÉ 4
 , Vil19. — Émize MoseLzy. — les retours. — les AE:
-haleurs, le:soldat 1517.08 NN REP RNA EE A
 Voir à l'intérieur en fin des autres cahiers les condi- s k
 tions et le prix de l'abonnement. { À
 Nous mettons le présent cahier dans le commerce; | 12
 dixième cahier de la onzième série; un cahier jaune. | +"
 de 116 pages; in-18 grand jésus; nous le vendons "On
-deux francs. : MA RRAR
-
-A Ed A Re CU tn AR De Un CR
 
 Ja maison vers le lac
 
 _ périodique paraissant tous les deux dimanches LS
 , rue de la Sorbonne, au rez-de-chaussée È
 
-M Prius SRE SAN AE 10 PAR ES
-
-| — {ETES ÉTAT EMA RER) | Ex
-M 0 ve je
-HE ù x mas PAU CU, à + La NN rat 0 50e
-# , 74 Lars EN VAS A TER LA RO: À
-
-PARA res ON RTE FN PNADMREN ET FN:
-
-Re se ÉQ SRE DES ES TÉORGS ; Re à
-D D D AO ei Pa dur) ne tb
-MR Re ea er L RSR RENTE PA nt CARRE TEL
-ne NAS UE RAS
-
-de : ‘ DETENTE MATE
-LT D dE ve PA AUE
-| GE PE 1 ; FÉES 4
-
-TL LT a CARS Tee Eve Sa TS
-La sea SES PRE) SR
-
-IDR Eee et Fes fps Se
-
-rate ne Re SHARE SEE 8 EE
-
-RTL PRE ARE DES RARES PR Eee RS re "ST CEA < A NRNERRREr | : sr
-RAR Ru ARS RONA Can x te NET de
-Pete Pur < +7" UTRERETEES PES À NE ATOS
-
-ML Cr COR FRS ESC SR ENTER Je ras
-
-mi F X DE NS RE Cr OST
-
 la maison vers le lac ra
 
-Dur AE TE de 24 RL / LS RATER
-LENS a A Ars C2 SAR FR DES
-Re) or de 127 PACE
 FE 3 DANCE 4 AA est Free
-Are. i FAIRE Rat Se
-FEU ae « ne CONS È
 
-L'15e Les frères LE
 ] ES vœux sages et nets dans un modeste enclos ‘2
 Fe É Où notre humble destin serait ouvert et clos, æ
 F2 e très simples travaux, des heures non hâtives 3 k.
@@ -136,8 +78,6 @@ Le firmament grandit, recule et se dilate, 0
 : Le ciel est vertical — le jour il semble un toit, 254
 Mais à l'heure des nuits n'est plus que la paroi } ; M,
 
-Lure cl Ml CM Tee) D ES LL Erin CE nat # F0
-| HERO ET ESS LES FRÈRES | $
 Se. D'un puits mystérieux où l'Humanité ronge ,
 É _ L'immonde et noir lichen du doute et du mensonge. sa
 # es: La nuit a résorbé dans l'horreur de son sein :
@@ -155,8 +95,6 @@ _ Jusqu'au tour du chemin j'ai reconduit mon frère, 3
 _ Et mon cœur est tout blanc de mystiques amours i
 _. Comme un verger nombreux d'arbres serrés et lourds!
 
-CAN CE fe e e fe ANT:
-de te te Ne te \\Ute \\Ute ES
 à } x! les rondes d'enfants aux pentes des pelouses! RE:
 Æ O Rondes de celles qui deviendront les épouses ! 54
 Ë Que leurs petites voix, qui causent aux jardins, 4
@@ -166,7 +104,6 @@ Qui semblent, sous le jour, ne pas avoir de causes 2]
 Et n'être qu'un décor qu'on pose au ras du sol Me
 Sous l'outremer joyeux d'un vaste parasol. G ne $
 Ils ne voient point la nuit qui crève et qui déforme + À “4
-Les yeux de la Couleur et les bras de la Forme, é ‘3 é
 Et qui, pour travailler seule dans les sillons iosbe De,
 Jette au puits où l'on dort les êtres par millions; AGE 2
 Et si parfois l'enfant s'éveille, sans rancune, à S si
@@ -199,7 +136,6 @@ _  Suis-moi donc, je connais un vieux magicien SE
 C'est à l'heure où la lune à travers le vitrail TR.
 _Tend d'un souple tapis le bureau du travail, rs
 
-la maison pers le NA EE NSRERENE"0
 : Et d'un regard ami qui m'invite et m'obsède EN.
 M'accompagne à la table où son pas me précède. OR.
 | Le beau globe en cristal qu'aucun fil ne retient, É F
@@ -231,7 +167,6 @@ Le désir insensé de vivre et d'être fort? a
 7 Une nef lourde d'or, de feux et de prières 4
 * _ Te conduit lentement aux rives de la mort! 3 à
 
-C * L'ÉRIE TE LA PAS ie
 + IL faut d'abord grandir - RARE.
 | à faut d'abord grandir; c'est un long temps qui passe xt
 re A se bâtir un corps, à se créer des sens St
@@ -240,16 +175,13 @@ re A se bâtir un corps, à se créer des sens St
 On perd ses meilleurs ans à songer à la race, ‘ SAP
 Fe À la Patrie! on vit dans un fou contre-sens, c Le
 Eh On bâtit des futurs sans giîter aux présents, AS Le À
-AE ê Le lendemain plus vide à la veille s'enlace. y F: 20TE
 Éd Que la vie est donc brève et falot le destin, CR LS
 + PER Et que le soir d'un jour est près de son matin; A NET HE {
 Comme insensiblement le sablier s'écoule! De PRE.
 pe - Avant Sagesse, Mort entre malgré le bruit; NN
 PTE Le palais supputé m'apparaît un réduit, es 3
 1 ° Plus rien entre les murs, tout glisse, tout s'écroule! x FPE |
-> T SA PARE SES &
 
-RP ER M A ee ANS EX NOR LEUR: Vite ie
 TS L'échelle de Jacob PARUS
 LKR O° abrite un instant sous de frêles poitrines TES
 [ES Le rêve clair obscur que des morts ont rêvé, LARASE
@@ -306,11 +238,7 @@ Le à Le masque antique et lourd et qui pleure et qui rit %
 14 Sur la brutalité consciente de l'esprit! 4
 Me. Ê Dans mon cœur vide et clair, hélas! plus d'hirondelles, 34
 a Plus de reflets mouvants, plus d'images, plus d'ailes !. s 44
-de se e. n
 
-| F 5 Ë PONRTRRRT ei Lo eS
-je j LP AY Sax
-ie S NAT ne
 LES CIGARE O sol! en te frappant mes pas sont très joyeux THE ER
 Es De sentir que tu sers de sarcophage immense ! EU FEI
 re Tu satisfais mon cœur d'un désir de vengeance CA
@@ -322,15 +250,11 @@ Fe Écorchaient tes beaux flancs de leurs sillons boueux : T4
 Fr Ceux qui s'étaient construit d'élégantes demeures Se er a
 ; ne ; Afin de s'y distraire en profanant les heures, RSR SFA
 RE Ë Ceux qui pour ne pas voir pleurer les malheureux VESAESS
-cp El: TA URS
 PRIT A leurs palais tremblants du tumulte des fêtes Pense À
 ee _ Mettaient d'épais rideaux et des vitres discrètes. Res A Fe
 . _ Tu les renfermes tous — et je me sens joyeux! ONCREE
-2 TER de Rae
 
-5e Le crapaud %
 ES ie uR les confins d'un champ où nul bétail ne broute 5
-ES S Un marais minuscule, en marge de la route, k
 12 Dissimule au passant, d'un rempart de roseaux ;
 51 Les aspects croupissants et malsains de ses eaux. ë
 2 Nul bruit, nulle chanson lorsque la route est blanche
@@ -380,8 +304,6 @@ Le crapaud monstrueux et triste a pris la pose à
 De grotesque chanteur, de barde humilié 4
 Dans un cachot charnel par la laideur lié. : 2544
 
-nr 4 LE CRAPAUD
-
 à Sur le limon visqueux il se tend avec crainte, $
 
 à à Vibrante catapulte il projette la plainte
@@ -401,14 +323,12 @@ nr 4 LE CRAPAUD
 k. Vers le but à saisir.
 
 F2 Le sol durci répond, retentit et résonne ; <
-E. Le mobile talon
 É | : Lui reprend par l'élan la force qu'il lui donne $
 ES: Et fuit à l'horizon. =
 É L'enfant court en jouant, l'homme agit et s'empresse
 
 + Vers la femme ou l'ami;
 ++ Des rendez-vous lointains unissent l'allégresse
-+ . Du nord et du midi; ES
 de. Ils foulent en chantant le long ruban des routes 4
 à 4 Tordus dans les champs verts; ï
 2 Is vont ainsi portant leurs credos et leurs doutes à
@@ -419,11 +339,9 @@ ee. A deux, d'un même pas, .
 
 -la maison vers le lof SERA à
 Viennent très lentement sous la sollicitude LE TÉPRRNE
-De ce qu'ils ne voient pas, RIRE A TES * À
 Des arbres dans les champs, des astres dans la nue, LEE ee.
 Du doux crapaud chanteur. ‘ “ me.
 4 Ils ignorent ce soir la fatale advenue Aù L :
-é Du moment destructeur. ? +
 à Un mutuel amour les endort et les berce, de 4
 à Et ce sont des fourmis 3 + 7 4
 \ Qui refont des palais pour la dent de la herse | ‘4
@@ -437,36 +355,27 @@ RE TE Ils ne verront jamais que leur beauté provoque CA
 e. : Sous leurs pas lents, la mort que leur amour révoque 4
 ua Prépare ses déserts. 54
 a eue Adieu le bel amant ! assez la belle amante ! , h 2
-Le Ce n'était là qu'un prêt. re S
 st Rendez vos seins, vos yeux, il n'est plus rien qui mente, Ft
 Plus rien qui dise vrai! ir pe.
 - On va vous séparer, alors tout sera vide! Se
 è O seins, seins de mes nuits, fruits sous ma lèvre avide, ë Re À
-ie Ventre mouvant et chaud! | LS FC NT: |
 + O mes félicités précises et mystiques PE MT AS
 NE O jumelles ardeurs, à spasmes en cantique, Lines De ;
 ë ; Avez-vous même été! ù à ee : 3104
 
-EN ER Cup ne RES
 # f Les morts ne sont jamais dans la tombe ou dans l'urne Le
 RER Enfant pieux, mais fol, FN
 "PE Ton père, ce matin est mort, prends son cothurne, 3 #
 K RS , Sans peur frappe le sol! Re x
 _ Comme un essaim vibrant les allègres vaillances 4 0
-Se TE Issent du souvenir; se .
 _  Entends ses actions clamer leurs résistances, +2
 Me Et son cheval hennir. ss
 Dr: - Contemple l'arsenal; seraient-ce des dépouilles Re
-‘11280 Ces résolutions; 1
 228 Ces gloires que jamais n'entamèrent les rouilles :
- : . Des âpres passions. à
 T0 Or, il est là des arcs comme il est des cuirasses; ;
-ES Sa seule volonté bi
-# v1 3 #
 * 5 _ Les tordait au feu pris dans les désirs tenaces Si
 RSA De sa virilité. $ 4
 __ Ton père n'a laissé ni cadavre ni cendre : ji
-\ Le Il a laissé du sang! 5
 - Du sang vermeil et chaud que tu peux bien entendre NES
 LE Dans ses canaux puissants. LH
 re Tombeau mouvant, vivant, tu portes tes ancêtres ! 2
@@ -486,9 +395,7 @@ e k Sois le guerrier nouveau qui demeure et s'implante
 2h Sur de sages desseins ou des reins de chimères ,
 ae Chevauche l'horizon;
 1 EE Impose ton armure aux regards des mystères, \
-50 Ils s'y reflèteront.
 Es Suis le nuage d'or ! ou bats du fer aux forges, Ÿ
-#5 . : :
 5116 Agis pour toi, par toi! -
 1440 De multiples butins il faut que tu regorges
 3 ; Etant ta propre loi!
@@ -497,7 +404,6 @@ de La plainte du crapaud!
 < SE Ni le son de la cloche expirant dans la brune
 ES Au-dessus du hameau! ;
 
-| Moine
 É N peu d'herbe qu'on voit par le grillage noir
 U Que forment les barreaux d'une triste cellule,
 Un vol intéressant de quelque libellule
@@ -540,12 +446,10 @@ _ Mon cœur terrifié sent qu'il est averti. ë
 _ Oh! que souvent alors je cours à ma fenêtre TR
 _ Afin de voir passer l'archange ou bien le reître, e
 _ Qui me proclame un sort dont je restais hanté. ;
-Se de ne l'ai jamais vu, mais j'entends sa mourante f
 | Plainte, se renforcer tragique et si dolente En
 _ De l'écho du rocher d'où s'enfuit un corbeau SE
 … Dans l'effroi de mon cœur où surgit un tombeau! Se:
 
-| Vigny
 ; : IGNY, noble habitant des champs interstellaires,
 : V Dit le drame sacré des âmes solitaires;
 ! “ Il allume la cire ardente de son cœur, ;
@@ -575,7 +479,6 @@ _ Elle gémit d'espoir dans le vent qui s'en va HÉSES
 _ Porter à l'infini l'amour qu'elle rêva, TE ee
 _ Tandis que le rocher, le vallon et la dune RTE ES
 _  Absorbent l'âme fraiche et triste de la lune! AR.
-F: Le ch Een
 
 & el N° allons à pas lents vers un soir incertain. — 5
 s Le sentier tôt rompu, comme un fil qui se casse, 2
@@ -593,10 +496,7 @@ De ne Rêvons toujours — crois-tu qu'il soit encor lointain |
 * Il se peut que déjà, du haut de l'éther froid, L FE CE
 5 Une invisible nef descende au monde étroit, RUES
 fi Et que, déjà, la Mort vers nos fronts appareille
-100 Vip fé ni LR
 
-= fre A CE RATS ERNST
-. : rt nu Par
 En x! qu'il est triste d'être un inlassable cœur, BEA ENS 4 !
 a Re À Un chemineau d'amour sur d'incertaines routes, ASTRA
 4 se __ Naïf et tendre enfant qui, sans cesse aux écoutes, “+
@@ -611,7 +511,6 @@ _ D'un soir aromatique au fond de la vallée? UE
 Mes pleurs trop lourds, trop chauds, sont de mystiques fruits
 cs Pan sein délicieux qui nourrirait vos nuits! vs
 Pourquoi donc mépriser mon âme désolée! 5
-SANS u È ts
 
 Sonnet sans titre è
 E suis donc encor là; je rêve et me morfonds. 3
@@ -629,7 +528,6 @@ Mon cœur se gonfle ainsi qu'une voile latine, ÿ |
 Et si la Mort m'emporte à l'étoile voisine |
 AR Je vivrai sans aimer pour être heureux et pur! D |
 
-4 Les cygnes ä
 2 es cygnes ont passé de l'une à l'autre rive É
 | ; Cependant que mon cœur allait à la dérive, /
 
@@ -658,7 +556,6 @@ _ De son humilité plus fraîche que des linges! ‘4
 
 20 4
 
-PROPRES a APE re Ne EN 5 ME À
 Dans le puits très profond de mes renoncements ÿ:
 .. L'adorable reflet de vos rayons célestes res TA
 * S'infiltre et transfigure en des enchantements
@@ -667,12 +564,7 @@ L'infiniment petit de mes vertus modestes. de
 É ne Vous avez pénétré dans la chambre où j'adore, RTS
 * É Et mon cœur sous son toit construit de boue et d'os 3
 : ' Vibre comme une cloche en sa cage sonore. DA NE “4
-> # ré PART DAT IE À
-> ESS Fa NO PRENEE no: |
 
-PP Ne Le ee
-BR RP Re ne eus
-Cire ARE DE re I RS RE # FE
 PRES L'étrange passant > À Fate
 ET et dur passant que vous avez couvert SEINE
 ._ Li Du dédaigneux haïillon qui maudit et renonce, ANSE
@@ -689,7 +581,6 @@ _  Suivons-le pas à pas, pieds et fronts nus, sans bruit, “+
 __ Car, parfois il s'arrête, il regarde la nuit, TRE
 _ Et fait pleurer son cœur au fond des solitudes. Nes ÿ:
 
-Ë Le vent fou
 'AI déjà fait le tour des possibilités s
 J Et de vagues destins usé les avenues; —
 Les doigts frais du vent fou font aussi dans les nues 4
@@ -705,7 +596,6 @@ Or, je ne comprends rien au monde que je vois, .
 | Je n'entends rien non plus de son intime voix, #4 |
 dE Mais sa détresse aiguë est chère aux âmes veuves! -. 4
 
-| SCA N
 1 EST la voix gutturale et mâle des chanteurs %
 4 C Qui m'empoisonne ainsi d'indicibles langueurs, - 6
 É- Et qui me fait rêver des heures dissolues G
@@ -724,9 +614,6 @@ D _ Sous une nuit d'été très longue pour l'amour. %
 DS Du fardeau de savoir, et des vertus apprises! Ë
 __  Vibrer! mais seulement sous la force du vent, 4
 … Et non pas comme un luth qu'on tourmente souvent! %
-# 37 lac. — 3 È F:
-
-RE PE CRT RENE RCE PNR AN RON TE nes dE
 
 Lu la maison pers le lac EN 2
 ne 11 faut aller pleurer aux pieds d'une inconnue
@@ -737,7 +624,6 @@ a : La race a préparé pour l'amour, des esclaves AS 2 4
 
 Rene Brunes surtout — avec des lèvres, des yeux graves!
 
-ne e
 È à É passé ne fut point à ceux qui sont passés À
 3 Meilleur que le présent à qui soupire encore £
 _ Et marche sans qu'un dieu sous ses pieds harassés ?
@@ -754,7 +640,6 @@ Fe Ayant avec la vie hérité l'espoir vain, EF
 Va, par les soirs bénins offrander à la lune ?
 Un cœur plein d'idéal, d'émoi, de doux levain. è
 
-la maison vers le lac TT ne Re
 On apporte à Moloch de tendres consciences, $
 Des fruits de pur bonheur müris en des Corfous, 4
 Les pains blancs de l'esprit, les gâteaux des seiences | à
@@ -769,7 +654,6 @@ Le fracas de leur chute enseignera la race, 4
 C'est un flambeau foulé qui jamais ne s'éteint. 24
 
 ; Et puis, et puis ce sont des pleurs et des cantiques, 4
-Les attendrissements du juste et du petit, à
 Les modestes manteaux et les voiles pudiques, ‘ E |
 Les remords de l'ascète honteux d'un appétit. D |
 Pour qui donc tant de fleurs sur les parvis d'ivoire, 4
@@ -781,9 +665,6 @@ Ont guidé le vieillard au seuil mystérieux $ +
 D'un domaine qui s'ouvre où se ferme le monde, 4
 Et grâce à vous le mal est devenu le mieux. #
 
-ss = [ae y LME Shi Ève ART. Re e 7 "es ? 1 ne À De
-
-| dur D ee ve :
 her | Croyez-vous que jamais ces arcs et ces portiques,
 
 _ Ces temples aux degrés veinés de notre sang
@@ -798,10 +679,6 @@ __ O mortels obstinés dans vos nobles efforts; : 1
 4 cn Sur les frontons sans dieu que le héros repose, 5 54
 “2e Et consacrez le temple aux mânes de vos morts! :
 
-| Fe En
-
-à AAA 2 MARY nr) MAAN 1 7 PARRN 27) AAA . "CES ee:
-Les derniers soirs 54
 L ne faut plus chanter le soir des chants d'amour. — 4
 I Jette au flot courroucé ta vaine mandoline 4
 Et son rythme indolent qu'un vain désir domine, 2
@@ -818,7 +695,6 @@ Redis des chants pieux sur une austère corde. g ES. -#
 Il faut chanter, la nuit, sans l'espoir du matin, 7
 Un long cantique où l'âme à l'esprit pur s'accorde! ee |
 
-> EN : # MRVAS SA ‘ DAS è AN ë
 3 3
 : 4 A nuit m'a délivré de vos discours ingrats :
 54 1 Et me reprend au jour qui me tordait les bras; Ê
@@ -876,7 +752,6 @@ E Se tendent anxieux aux appels de l'azur,
 
 -S Dans l'étoile incertaine ils cherchent leur demeure ! ï
 
-| #
 UE de jours enfuis dans des ans disparus ;
 Q Sans qu'un chant de mon cœur ait modulé l'ivresse à
 De vivre, ni l''ardeur où notre amour s'empresse, 4
@@ -940,7 +815,6 @@ _ Le spectacle pompeux de l'auguste univers, 4
 
 | N'a jailli de mon cœur pour encenser la vie! k
 
-; :. la maison vers le GC ER
 O jour! superbes dons, à nuits, discrets bijoux, ESS #4
 Flots qui coùrez pareils aux larmes des poètes, - k E 3
 Clairs et féconds, lointains d'or de tant de retraites, 4
@@ -953,8 +827,6 @@ Pardon! le jour décroît; mes yeux sont fatigués à
 ; D'avoir cherché là-haut le geste qui pardonne; %
 : Je vois bien la Patrie où votre àme moissonne, à
 + £ Mais pour franchir la rive, où donc seront les gués 2. Bi
-
-; La tour
 
 A A tour est blanche au bord des flots indéfinis,
 ca M Puis un désert encor du désert la sépare;
@@ -970,12 +842,10 @@ E Des flottes de l'éther elle semble le phare,
 
 Et tes degrés d'ivoire attendront mes pieds nus!
 
-4 Or, je n'ai point de fils : à qui te laisserai-je ? : Û
 + Habitacle divin, d'où je vis Dieu souvent, +
 4 Puisses-tu par la nuit de Noël — pas avant! —
 à 4 . Te coucher solitaire en un linceul de neige!
 
-| La divine veilleuse 2 °4
 : UEL archet traduira la royauté des cœurs, è à
 Be Q Des cœurs ardents, des cœurs plus chauds que les poitrines! 3
 S Is sont les purs miroirs des figures divines, : 1°
@@ -991,8 +861,6 @@ Le cœur, le divin cœur, très doucement s'allume. Ki ie
 Meurt; — qui donc chantera ? — tous les regards descieux
 | Se penchent sur le cœur ardent qui se consume! : s 2
 
-à ART SAN rite D NE MU nt, QUITTÉ
-EE > Les volets. Re
 F Hs ERMONS soigneusement les lourds volets de bois! : 4
 LE F La nuit vient : elle est triste; et dans l'ombre elle allume rent
 _ Les phares presque obscurs qui dominent la brume : ner
@@ -1009,7 +877,6 @@ Te Ferme bien les volets : sphinx avide, la nuit à
 _ Dors; la lampe meurt, le feu meurt, là neige tombe, #
 _ Mais le temps, qui chez toi s'est fait familier, 2
 _ Frappe d'un marteau d'or sur le balancier! =
-_ Et si l'on voit la vie on la voit en estampes, ne
 _ Sous la protection circulaire des lampes! a
 
 Des maux, des mots. É
@@ -1027,7 +894,6 @@ Où processionneront de fortes Destinées. <#0
 Les lexiques sont pleins de mots... Dépêche-toi, ::
 | La Mort emporte jà des tuiles de ton toit, » +38
 Et ton seuil est fendu par le pied des années! un
-> 4 LE
 
 & A propos de « Dorian Gray » ee
 
@@ -1059,7 +925,6 @@ Et chacun y sourit au Retour si certain 4
 Et qu'on invitera pendant huit soirs, aux danses. ; 4
 Mais plus longtemps encore on irait écouter De
 Les récits merveilleux dont on voudrait douter. : 4
-Le matelot a vu la figure du globe 4
 En ses contours précis que l'océan englobe, d =
 Soit que le soleil nu, sur le sol africain, 1
 Fit pleuvoir ses traits d'or sur des faces d'airain, :4
@@ -1138,36 +1003,8 @@ Ses yeux sont des autels d'où sort toute lumière, É
 2 Et son sein est un dôme où flotte une prière! $
 È Les archanges vieillis attendaient, en extase; 4
 | Dans l'infini muet, le fini s'extravase.
-|
-| (N/A |
 
-CRAN RD ARR Eros PR EE en EU 49 UE GENRE PRE SA FR
-PORRENRES NS Des SE RCE at ï LÉO
-RÉ Ne SE SN SES RME UE RD oi
-& Ne EE SSSR RENNES MR ne con
-
-OX # es 4 - 7 2 CPE 1 > rm gr NME TITLE TES
-
-ar M PRE MES LES ME ae SE
 ‘rate FUME SERRE ne
-
-Me on < Re nes RU EN
-
-PR Le ve RD Ems ile PERS
-nv CE LEP SRE TN EN PRE SN see » ÿ
-RE VÉPU rooce AR D SE ir SN Ne PRENDRE
-(PIS THE PE. AE et RIRES PLATS x Eat SÉRRE SE NEC SR
-
-LA RE SR RE en:
-DE EN DAT ete UNS SRE PAR
-A A ie ne Lo OUT CI NE Ë MU:
-RÉEL ET US AE ST à ATEN TES SRE > Bite d TPE ts AS
-Ban HP RP TO IL ASUS ES
-MR TT EX 1 - PE et | RP ere ne En t ü "
-
-PAS OS DRM ” LATE NE Are FN ea
-5 RASE Se RE : RE re Ne PASSANTE RUE)
-Me sé È « TSF AE mie PMP SA Ve Er EE
 
 chacun d'environ 550 reproductions de dessins.
 Prix : 25 francs par volume. ;
@@ -1223,59 +1060,9 @@ de dessins ont exigé des recherches nombreuses et à
 mains des travailleurs, un instrument précieux. :
 - La presse a été unanime à louer ce beau travail. à
 
-É Dre ON Ce DE PRIOR LOST) RSR AE A RTE DEEE Vel
-SE ? + à À tes DU ve PB US
-EE Fos € : ; M ne Lien
-
-RS * £ 4e SW s RS AE et rm te A
-
-SR RENE 7 RAS EN sur
-PR ne ÉTARAUEE Tu ANR, PAT SN DPES
-ie Le
-a ce Es
-Fe Frs É n Le US LASNE)
-
-UNE ta M RE AE LENS TRE er RARE
-Fe RE PARC RA De LEHETTE PER Rte ES PRE Sen
-ARE PAR % rs pr | fs) pe 74
-LAS HUE TAN CE Rene
-LR a 5 ES nie RS Ne PER ARTE mr
-; PRANIN UE: MS ne tv DR ei 2
-MES El + AURONSE Fes DR
-rose DAS RES - ke SAS % ; “AE L
-
-D: Re orne re a rer ces ae 10
-Se RM de San ce ere Pau 13
-558 Put ADO SPANAIT ES ses css 14
-28 MR ME an nn et Un RMS puce 18
-n nice cube ado e Je OO A EU
-Se RE ER Re A dolus dia da dou sde Se de 30
-Fr ne tn dau ne ét TO
-LE PROTE RAMMI TES Le nnie eoo de eve Ve ce one 32 E
-Es RE an don de 0 o ve eo no D 0e 33
-
 onzième cahier de la onzième série
-
-Les volets... MÉR S E ï
 
 Inventaire général illustré des dessins du Musée |
 du Louvre et du Musée de Versailles, école fran- : #8
 çaise, par Jean Guiffrey, attaché au Musée du D
 Louvre, et Pierre Marcel, docteur es lettres... 6x 28
-Table de ce cahier: :.:.:::.16 RER GT 4
-
-BL ORM ESS ER ESES sé ; es Le
-Me un ns ji: >" * GS
-
-Re RE ae are ECO SON
-
-RS ET F Eee HA FRE > une 5,
-
-RSR » re HR TES EMI
-
-PTE 0 UTAEES des t ré DÉSERT set er
-
-FE NE STADE eu LL UT ON Pr
-SRE SEEN Lu CE ME EEE SU SRE RAR ï re
-
-ce sa k ; “ RES te.

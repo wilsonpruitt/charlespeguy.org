@@ -7,10 +7,8 @@ author: edouard-berth
 isAvertissement: false
 wordCount: 15595
 ---
-#0  ÉDOUARD BERTH |
 _ la politique anticléricale
 _ et le socialisme |
-ne po PARIS
 rue de la Sorbonne, au rez-de-chaussée
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
@@ -21,9 +19,6 @@ six cahiers de la deuxième et de la troisième série.
 Nous mettons ce cahier dans le commerce; nous le
 
 vendons un franc
-
-er NE er EURE à ; CEA:
-À TRE GA Ro pa le MAT à FE
 
 L'essai que l'on va lire a été publié pour la première
 fois dans la Revue Socialiste, numéro de novembre,
@@ -53,7 +48,6 @@ et le socialisme: personnellement je crois que je suis
 devenu anarchiste comme il ne l'est pas; toutes opinions
 libres sont librement discutables ; — ce qui est indiscutable, c'est qu'il y a plus, beaucoup plus de travail et
 beaucoup plus de réalité, beaucoup plus de pensée, beaucoup plus de réalité repensée, beaucoup plus de justice
-et de vérité dans ce simple article qu'il ny en a eu
 depuis trois ans dans tous les discours de tous les
 ministres, de tous les sénateurs, de tous les députés, de
 tous les conseillers généraux, de tous les conseillers
@@ -145,7 +139,6 @@ du ventre ». Le monde regorge de gens chez qui le
 “sentiment et l'idéal débordent, et qui voudraient
 calquer l'univers entier sur le patron rêvé par leur
 cœur généreux. Tous nos braves idéalistes partent
-en guerre, au nom de la Vérité, de la Justice, de la
 Raison... et de la Liberté, et n'ont rien tant à cœur
 que d'opprimer les gens assez obtus pour ne pas
 concevoir à leur manière la Vérité, la Justice, la
@@ -154,7 +147,6 @@ Raison et la Liberté.
 Que l'esprit du socialisme soit bien tel cependant
 et qu'il se caractérise essentiellement par l'opposi-
 
-| LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 tion à toute idéologie nouvelle, rien de plus clair et
 de plus certain : qu'est-ce, en définitive, que le
 socialisme ? Ce n'est pas autre chose qu'un mouvement social déterminé par la révolte du prolétariat
@@ -701,7 +693,6 @@ même temps qu'on amputait le vieux pouvoir gouvernemental de ses organes pureme
 on arrachait à une autorité qui usurpait la prééminence et se plaçait au-dessus de la société ses
 fonctions utiles pour les rendre aux agents responsables de la société même... En réalité, la constitution communale eût restitué au corps social toutes
 les forces absorbées jusque-là par l'État parasite
-qui se nourrit de la substance de la société et en
 paralyse le libre mouvement. Par ce seul fait, elle
 eût été le point de départ de la régénération de la
 France. » (x) Et Sorel nous semble avoir dorné la
@@ -791,7 +782,6 @@ vérité, on peut faire de beaux discours sur l'enseignement créateur de libert
 qu'il y a de plus sûr, c'est que la liberté ne s'en-
 
 ‘ seigne pas; et c'est par dérision sans doute qu'on a
-pu parler d'un « enseignement de la liberté ». La
 
 (1) Voir à ce sujet l'essai de Sorel sur l'Église et l'État, page 56.
 
@@ -856,7 +846,6 @@ l'unité laïque serait de nouveau compromise. Non,
 c'est à choisir : ou la liberté d'enseignement pleine
 et entière, pour les catholiques aussi bien que pour
 les autres, ou le monopole universitaire dans toute
-Sa rigueur.
 
 Dire : l'État seul, par son indépendance des inté- |
 rêts privés, locaux, des coteries et des sectes, peut
@@ -945,8 +934,6 @@ et Paul de Rousiers, sont catholiques : ont-ils
 
 | 39
 
-#
-
 l'esprit moins moderne que n'importe quel député
 du « Bloc républicain » ? La vie religieuse, c'est la
 vie intérieure, domaine complexe et mystérieux, —
@@ -993,8 +980,6 @@ méthodes d'enseignement sont excellentes, alors
 que les élèves des écoles techniques de l'État sont
 malaisément utilisés par l'industrie ou l'agriculture.
 C'est un exemple de la facilité d'adaptation de
-
-() Voir op. cit., page 40.
 
 l'Église à la civilisation moderne. On a beau dire :
 l'initiative individuelle est plus souple, plus inventive, qu'une administration, une bureaucratie. Et
@@ -1081,7 +1066,6 @@ par les socialistes, est faite pour inspirer les plus
 vives inquiétudes à tous les vrais amis de la liberté.
 Et quel paradoxe! La politique de défense républicaine est née de l'affaire Dreyfus ; c'est à la lumière
 de cet événement tragique, qui a secoué si violemment la société française, que le péril clérical est
-apparu et qu'on a vu la nécessité de reprendre
 l'offensive contre l'Église. Cependant, de quoi s'agissait-il, dans cette fameuse affaire ? — De droit indi45 ni.
 
 viduel, supérieur à toute raison d'État; le dreyfusisme, c'est lanégation intrépide, héroïque, obstinée,
@@ -1090,7 +1074,6 @@ farouche, de toute raison d'État. Or aujourd'hui,
 sa consultation aux Cahiers de la Quinzaine, (1) —
 on ne parle plus que de raison d'État de la pensée
 moderne; il n'est plus question que d'intérêt supé-
-rieur de la République, de la Démocratie, de la
 Raison. Et au nom de cet intérêt supérieur, on foule
 aux pieds tous les droits individuels, avec la même
 désinvolture, avec le même cynisme, qu'il y a quatre
@@ -1128,7 +1111,6 @@ qui le paie, comme si le socialisme n'était pas pré-
 cisément la révolte de la liberté contre tout patropat, collectif autant qu'individuel! On y lit des
 appels à l'arbitraire administratif contre des professeurs nationalistes, dans le même temps où l'on
 
-|
 proteste au nom de la liberté des professeurs socialistes. On y approuve l'idée monstrueuse du serment
 politique, renouvelée de l'Empire, et que M. Combes
 veut remettre en honneur. Nous enfin, qui journellement protestons contre l'emploi de l'armée dans
@@ -1151,7 +1133,6 @@ tout au moins, l'attitude du Parti ouvrier fran-
 individuelle, combien plus digne et plus haute! Le
 maire de Roubaix, Carrette, — le fait est cité par
 
-| LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 Briquet, (x) et mérite d'être signalé — faisait faire
 maigre aux enfants le vendredi dans les cantines
 scolaires instituées par la municipalité collectiviste.
@@ -1301,7 +1282,6 @@ croient plus, et s'ils pratiquent encore, s'ils mettent
 encore leurs enfants à l'école congréganiste, c'est
 que la crainte du seigneur... Capital est pour eux
 
-' le commencement de la piété et de la... sagesse.
 L'Église a été très habile d'ailleurs ; elle a multiplié les œuvres sociales, elle essaie de toute façon
 de demeurer une réalité rationnelle et pratique aux
 yeux du peuple. Prétant son appui au capitalisme,
@@ -1405,8 +1385,6 @@ décisive résorption dans le corps même de la société de ces deux oppresseur
 la liberté, l'Église et l'État.
 (1) Du Principe fédératif, page 121.
 
-|
-
 Sur les documents, renseignements, contributions et
 
 les œuvres intéressant le socialisme et la politique anti-
@@ -1445,8 +1423,6 @@ Sorbonne, rez-de-chaussée, Paris, cinquième arrondis-
 
 A peine ai-je besoin d'avertir que nous n'avons main-
 
-tenu ni le nom de cet instituteur, ni le nom de sa À
-
 commune ; écrasés entre la réaction des réactionnaires
 
 et la réaction des radicaux, entre la stupidité des foules }
@@ -1468,8 +1444,6 @@ homme pauvre; nous laissons aux politiciens ce jeu
 Nous prions notre correspondant de vouloir bien nous |
 
 continuer ses courriers.
-
-|
 
 C'est avec plaisir que je m'empresse de vous donner
 
@@ -1672,11 +1646,7 @@ Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce onzième cahier
 le mardi 3 février 1903.
 
-Le Gérant : CHARLES PÉGUY
-
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-
-[IMPRIMER DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 7087.
 
 Sur les courriers des cahiers, courriers de Chine,
 courriers d'Indo-Chine, courriers du Japon, courriers
@@ -1691,9 +1661,6 @@ courrier, inventaire des cahiers, en forme de catalogue,
 
 Nous avons reçu de M. Urbain Gohier la circulaire
 
-suivante : L
-
-Le Vieux Corde
 La première série du Vieux Cordelier s'est arrêtée au
 septième numéro, le 3 février 1794. Le premier rédacteur,
 Camille Desmoulins, est monté sur l'échafaud le 5 avril
@@ -1754,22 +1721,12 @@ journaux ; il ne peut faire les frais d'un aflichage; sa résur-
 . rection ou sa mort définitive dépend uniquement de la
 | réponse qu'il va recevoir.
 
-2 I tin d'NE \ VAR Ho MEL + NDS nt
-dés j' NME 3 HS TRE ANR ED VEN PALAU Pret et
-Dur EUR LA TAN SAN ANTRNES ANAL AMEN Mae
-M 4 La Y ‘ * es à PR EN ANR ONE Éi a sil
-DU PACA a RARE SA nt Nat
-I à à an Nr MON Dents
-HR NE ARR AS RENE de
-
 suelles ‘régulières et par des souscriptions extraordi-
 | naires; La souscription ne confère aucune autorité sur
 . la rédaction ni sur l'administration : ces fonctions ;
-54 Nous servons : ?
 a 4 _ des abonnements de souscription à cent francs;
 DE des abonnements ordinaires à vingt francs; j
 LL et des abonnements de propagande à douze francs.
-1 ER Il va de soi qu'il n'y a pas une seule différence de ; » rs ASS 2. F
 _ service entre ces différents abonnements. Nous vouJ 1 lons seulement que nos cahiers soient accessibles à tout
 4. le monde également.
 mr Le prix de nos abonnements ordinaires est à peu près

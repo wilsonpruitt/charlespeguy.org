@@ -136,7 +136,6 @@ responsabilité personnelle sincèrement et librement, AE
 vraiment. Il n'engagera pas le prochain. Leprochainne
 l'engagera pas. Il n'engagera pas l'administration des \ ::10
 cahiers. L'administration des cahiers ne l'engagera pas. à de.
-Il ne sera tenu qu'à user de sa liberté. à V2
 C'est dans ces conditions que nous avons demandé au
 citoyen Francis de Pressensé des cahiers de politique et
 d'action internationale. Non seulement il nous a promis
@@ -199,7 +198,6 @@ pour nous envoyer des courriers. Il nous enverra des Fr
 courriers de Chine. Un court billet qu'il m'envoie du
 bateau me promet un courrier sur le transport des Nate
 troupes expéditionnaires. Ce premier courrier pourra
-passer en janvier. dE
 Notre ami Henri Genevray, heureusement retourné 5 0 1
 parmi nous après deux ans de voyage intercontinental, ‘4
 nous donnera des cahiers de voyage. Il commencera par M 4 Ÿ
@@ -379,7 +377,6 @@ Je ne le revis pas. Une angine de poitrine le ter- LEO
 rassa en une demi-heure. Il en avait déjà subi les pre-
 mières atteintes en Savoie, maïs il se croyait rhumati
 sant et n'y prenait pas autrement garde. { =
-de” 7 f Par Pere
 TRE Nos anciens abonnés savent qu'outre les abonnements
 gratuits annoncés ci dessus nous servons:
 ï des abonnements de souscription à cent francs

@@ -10,51 +10,23 @@ wordCount: 34322
 Nous avons donné le bon à tirer après corrections Lu
 pour dix-sept cents exemplaires de ce sixième cahier NEA
 _ el pour quinze exemplaires sur whatman le mardi So]
-TE CARE Le gérant : CHARLES PÉGUY LDAAEE
 à Ë 4 Ce cahier a été composé et tiré par des ouvriers syndiqués TE
 _  Juzien CRéMI&U, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes, — 7672 + A
 
-LA CE RAA EU de ANR vi Lo RS QAR « 1 :
-HN CROSS RE DNS RES ONE A eee ICS OU SOLE DR OI pue ? NON
-
-| LL AR GLS ST EN RATES RE ge EN CE MENTION EAU TE
-RATE RENTE À AE MS PR MER AMEN { NE Mepur * NE ASE À si ie a SA Fo
-"RTABS A: PT HUE À (RS RTE AU he: Le QUE A rt A eu Er » & LATE
-MES ÈERS LE % l'onde: PEUR F6 CUVE
-AN ; 4 re ‘} Nm Dhs NE
-eh PE ; ce 1: ANA
-
-VMS: SA La ere ELA Le jifara pt AREAS
-: ès De DA sn TE Hu a Fo
-te TER do du.
-1 EN A NEA AE MAMA 4e A ect ENS RETOUR JAY DE ere LIENS TA
-LS AU PEU PRE DH A Et Pet] \ LE AE nel RAR à ES AU LV SMARE NE PRCENE
-| AURCIES SAR A | FAIT ANSE
-FAN TNN nt SUR ARE DAT HO fe AU LR PU ANT. C2)
-
 Dans les vingt et un cahiers de leur troisième série,
 année 1901-1902, nos cahiers ont publié : MEN ET
-IT-1. — CnarLes PÉGUY. — compte rendu de congrès. 1 » AS du
 Guizysse. — Les Universités Populaires et le ne
 I-3. — Grorces Sore. — De l'Eglise et de l'Etat, 1e
-HPASRENTS de A He AE erL Ne e MO IE el. Le Pete TE à
-IIT-4. — Cnarzes PÉGuy. — de la raison. — JEAN
 ILI-6. — Jean HuGues. — la Grève. — trois actes... 1 » S |
 III-8. — BerNARD-LAzARE.—1les Juifs en Roumanie. 2 » 5
 Ill-9. — Torsror. — une lettre inédite adressée à AS
-M Rorrain Rolland} "rue RE RICE. SCC RSR
 UI-10. — les Universités Populaires 1900-1901.Paris à
 Jl-11. — Roman RozLanpb.—le 14 Juillet, — action #
-Il-19. — CHar£es Pécuy. — Monographies. — Per- U
-II-15. — ANATOLE FRANCE. — Gahiers de la Quin- À
-PAR re le M AC ARE Pa NPC FASA EE CAUSE AS DER 4
 Ill-17. — cahier de courriers. — Félicien Challaye. — +
 impressions sur la vie japonaise. — Edmond Bernus. — À
 la Russie vue de la Vistule. — Jean Deck. — courrier :
 de Finlande, ; pes. eee see SSSR D
-BFADRIES 5 20 LU CURE SD o de ver ROi die SSI SR
 Ul-19. — Pierre QuicraRD. — Pour l'Arménie... 3 »
-IIL-0. — Les Universités Populaires 1900-1901.
 Pour tous renseignements sur les Cahiers de la
 Quinzaine et le prix de l'abonnement, demander à
 M. André Bourgeois, 8, rue de la Sorbonne, Paris, le 4
@@ -67,41 +39,8 @@ jaune de 96 pages; in-18 grand jésus; nous le vendons deux francs. 1
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
-| (|
-|
-
-le Go a AY
-
-PE FAO SE née SE UN ; NS AE Tarte ETATS TA
-PACOMET È 1, ENS ALT ri RE Le
-NUE Eye LATE QUE Le (R FN AMEN ATEN Su
-
-| Le 4 “0
-
-CETTE ae AR PRO EE NAN Te TER EE NP RSR ÉTAT ENRT er es ë
-De tee (SES tar AT MORE RE A NT SRE TP de PO PR MARIE à
-ses FR SN ARNO RSR MAN SEL FLN RUES
-MERE PRE AE Re M Un - Rire
-RIT ne hr: £ ÉRSers rer ne Ts JET $
-ie RENAN Vi N ON SRE AS VITAE ("eh
-
-DA NC Lun Cr vie MS C'ANEIRS
-
-TE Ne PR et un CPR ee RE AV RSA
-
-4 “PAS LEGS ARNO ERA PTT RE ie Ge ns RAA RER" HSE RS RE PHARES RES
-Di eme Feb à ; Le TÈAT D Aer De
-RD ET Ds: FES ne < ART à nie
 D dun à l'étude | NEA
 à des projets de Li ire TOUS
-|} LAN FENSESNRE S : ne é) e Feb HAN ER ES Le
-FCI réformes de l'enseignem un EU
-PRIE er SA AUS EUR
-
-nn ve RER L'ArRe
-AE JS SR LE ee rc Ne RARE ENTREE S£ Lee se RÉ LS ;
-
-LE ie
 
 Le système d'éducation qu'un régime politique
 sa valeur morale; il n'est pas de critérium plus certain,
@@ -172,7 +111,6 @@ de quoi nous avons signé les présentes, y avons fait apposer
 notre cachet, et icelles fait contresigner par notre Greflier,
 lesquelles ne vaudront qu'autant qu'il nous plaira seulement.
 Donné à Orléans, le septième. jour du mois d'Avril... mil
-| Ici était le Par le Commandement de
 Monsieur le Scholastique s
 1° Un maître d'École doit continuellement se représenter
 que la fonction qu'il exerce a toujours été regardée dans
@@ -185,7 +123,6 @@ apprendre, avant toutes choses, d'obéir à Dieu, et ensuite
 , à leurs parents; leur enseigner les principes de la Foi,
 l'Oraison dominicale, la Salutation angélique, le Symbole
 
-A ra Ab ea DNA ES ner AR SA US 1
 des Apôtres, et les Commandémens de Dieu et de l'Église; ue
 et afin de rendre cette instruction facile, le Maître sera tenu 10e
 d'avoir en son École un Tableau ou une Image représentant notre Seigneur crucifié, ou la Très-Sainte Vierge, #4
@@ -194,7 +131,6 @@ re devant laquelle, auparavant de commencer les Leçons, AL 2
 _. et à haute voix, par l'un d'entre eux, la Prière du matin à # Fs
 $ la classe du matin, et la Prière du soir à la classe du soir, Re. .
 telles qu'elles sont dans le Catéchisme du Diocèse. CHER
-> A À SLIDE
 à > Comme les instructions font ordinairement moins …
 d'impression sur l'esprit des enfans que les exemples, le Ke
 Maitre d'École réussira beaucoup plus sûrement à former
@@ -326,7 +262,6 @@ ouvrit à Reims, en 1684, un « Séminaire de maîtres
 d'écoles » où devaient être formés des maîtres pour les
 districts de campagne.
 
-A RE NE a ou GES
 A Quelques années après, en 1691, de La Salle ouvrait FE
 HU à Paris deux écoles et, en 1698, créait rue de Lourcine
 a un « séminaire urbain » pour la préparation des insti- | Dre
@@ -345,7 +280,6 @@ le sens d'élever, d'éduquer (voir Montaigne, Rabelais, à
 ”  continuèrent cependant, jusqu'à la Révolution française, se
 à porter les noms les plus divers, tels que : pédagogues,
 recteurs, etc., et même cuistres dans certaines régions
-. du Nord. NÉE
 ; C'est dans le Décret du 22 frimaire an E (12 décembre
 19792) que, pour la première fois, et sur l'initiative de ;
 Condorcet, ils sont officiellement désignés sous le nom &
@@ -399,7 +333,6 @@ des pasteurs et magistrats, c'est-à-dire officiers munici-
 paux dans les villes et bourgs, échevins et syndices dans s
 les villages, à iceux joints (si l'on veut) quatre des prin__  cipaux et notables habitants, et interrogés par experts
 
-RL DE up à
 connaisseurs. Il conviendrait encore que, parmi plu- de
 sieurs concurrents, on n'eût égard qu'au talent et au
 mérite, sans autre préférence. - :
@@ -445,7 +378,6 @@ nation, telles qu'elles avaient apparu dans les cahiers
 rédigés à l'approche et à l'occasion de la réunion des
 
 La première École normale, créée sous l'inspiration et
-à la suite du rapport de Lakanal, le 9 brumaire an III
 (30 octobre 1794), s'ouvrit à Paris le 1° pluviôse an III
 (20 janvier 1795); elle fut fermée quatre mois à peine
 après son ouverture solennelle (26 floréal-15 mai 1795).
@@ -483,8 +415,6 @@ nation des rares instituteurs qui exercent. Cependant,
 on peut établir qu'ils sont, ou élus par l'assemblée
 des pères de famille, ou choisis par l'autorité ecclé-
 
-ere OR D Ne
-PNR II. — Sous LA PREMIÈRE RÉPUBLIQUE Sa
 L'élection est la règle jusqu'au Consulat, en 1802; le re
 _ a) Les instituteurs sont choisis par les pères de Ne
 _ famille, ou ceux qui en tiennent lieu, sur une liste de e
@@ -492,18 +422,13 @@ ke « 24° . . # es » candidats reconnus éligibles par une commission ie
 _ spéciale (Décret du 7 brumaire an Il); 4
 _  b) Ils sont nommés par les représentants du peuple, À
 _ sur l'indication des sociétés populaires (Décret du :
-8 pluviôse an Il); à
 ._  c) Ils sont nommés par le peuple. Néanmoins, pendant
 ._ la durée du gouvernement révolutionnaire, ils sont élus à
 _ par un jury d'instruction composé de trois membres ;
 _ … désignés par l'administration du district et pris hors de …
 _ son sein par les pères de famille (Décret du 27 brumaire
 +2 d) Ils sont nommés:par les administrateurs du département sur la présentation des administrations munici- :
-pales (Loi du 3 brumraire an Ill); #
 e) Ils sont choisis par les maires et les conseils municipaux (Loi du 11 floréal an X).
-#
-; II, — sou LE PREMIER EMPIRE
-#
 Jusqu'en 1808, la loi du 11 floréal an X reste en :
 . vigueur. Maïs, à partir de la promulgation du décret
 impérial du 17 mars 1808, portant organisation de
@@ -511,7 +436,6 @@ impérial du 17 mars 1808, portant organisation de
 
 l'autorisation d'exercer délivrée par le Grand-Maître de
 l'Université sur la présentation du recteur de l'Académie. L'autorisation peut toujours leur être retirée.
-IV. — Sous LA RESTAURATION
 
 Pour les écoles fondées ou entretenues par les communes, les instituteurs sont présentés par le maire et le
 curé ou desservant. Si le maire et le curé ou desservant
@@ -529,17 +453,11 @@ comité cantonal, le recteur donne ou refuse l'autorisation
 Les mêmes règles sont applicables à la nomination
 des institutrices, sauf que le préfet exerce les attributions conférées au recteur (Instruction du 3 juin 1819).
 
-V. — Sous Louis-PHILIPPE
-
 La nomination des instituteurs est faite par le comité
 d'arrondissement sur la présentation du conseil municipal, après avis du comité communal (Loi du 28 juin
 1833). Cependant les instituteurs ne sont installés
 qu'après avoir reçu l'institution du ministre (Ordonnance du 16 juillet 1833). :
 
-| s
-VI. — Sous LA SECONDE RÉPUBLIQUE
-
-Les prescriptions de la loi du 28 juin 1833 et de
 l'ordonnance du 16 juillet 1833 restent en vigueur
 
 Puis les instituteurs sont nommés par le comité
@@ -565,8 +483,6 @@ Enfin, les instituteurs sont nommés par les recteurs,
 par délégation du ministre, les conseils municipaux
 entendus (Décret du 9 mars 1852).
 
-VII. — Sous LE SECOND EMPIRE L
-
 Jusqu'en 1854, les instituteurs sont nommés selon les
 prescriptions combinées de la loi du 15 mars 1850 et du
 décret du 9 mars 1852.
@@ -574,7 +490,6 @@ décret du 9 mars 1852.
 A partir de cette époque, la nomination est faite par
 M) le préfet, avec l'autorité du ministre de l'instruction -
 _ publique et sur le rapport de l'inspecteur d'académie
-(Loi du 14 juin 1854). VTT FES
 5 À La nomination des instituteurs et des institutrices
 reste ce qu'elle était sous le régime de la loi du 14 juin
 1854, jusqu'à la loi du 30 octobre 1886. ‘ Dei
@@ -590,7 +505,6 @@ Re Pour être nommé instituteur titulaire, il faut être : “6
 __ pourvu du certificat d'aptitude pédagogique. Res
 ; Les institutrices sont nommées dans les mêmes 5e
 formes que les instituteurs. is
-Le TITRES EXIGÉS cie
 | Jusqu'au décret impérial du 17 mars 1808, la capacité Er.
 D des instituteurs fut laissée à l'appréciation des autorités
 qui les nommaient; c'est en effet le premier des actes Ë
@@ -625,7 +539,6 @@ classe, dans une école publique ou libre, sans être
 pourvu du brevet de capacité pour l'enseignement
 primaire (Loi du 16 juin 1881, article 1‘).
 
-La situation actuelle
 Il serait souverainement injuste de nier la valeur des
 améliorations que, graduellement, la troisième République a introduites dans le service de l'enseignement
 primaire; c'est même le titre de gloire, qu'avec infiniment de raison, elle invoque et revendique avec le plus
@@ -701,7 +614,6 @@ surprenant que, dans l'application, aient apparu des
 
 . difficultés insoupçonnées tout d'abord, causes d'hésita2ù Naudy. — a
 
-Ne RS ati RAS Enr OS Litone ss LE at Ë \ ;
 tions et de tiraillements dans l'exécution, d'abandons ER
 | regrettables de prescriptions essentielles, de diverRe gences d'interprétation nuisibles à plus d'un titre ‘et
 ne toujours préjudiciables à la marche normale des ser
@@ -713,7 +625,6 @@ $ considérer la laïcité, la gratuité ét l'obligation de l'en- …
 2e .  seignement primaire comme les trois principes essen- 4
 tiels de sa foi politique, il en est fort peu qui ne
 souhaitent voir introduire des réformes sensibles dans
-x leur application. à A à
 Ces préoccupations de réforme ne sont pas d'ailleurs 468
 le privilège exclusif des hommes politiques, des parle- Fe à
 mentaires. Elles hantent depuis longtemps déjà les
@@ -733,7 +644,6 @@ amélioration devenue urgente par suite de l'augmentation ininterrompue des cond
 permit de tenir le rang que ses fonctions élargies In
 imposent. Plus encore, il souhaite un changement pro-
 
-os LES DONNÉES DU PROBLÈME ane
 ee nd de sa situation morale, qui ne correspond plus au ni
 _ sentiment qu'il a de sa dignité personnelle, ni du rôle
 considérable qu'il joue dans la société actuelle,
@@ -761,7 +671,6 @@ d'une loi nouvelle, bien homogène d'esprit et de texte,
 et tenant compte avant tout des besoins présents; d'une
 loi organique, et qui marque ; d'une loi qui constitue une
 
-- introduction EE Ne
 tentative sérieuse vers les progrès entrevus ; d'une loi
 enfin dont puissent être fiers les Républicains ; qui puisse
 recueillir les suffrages de la nation tout entière, parce
@@ -791,8 +700,6 @@ qui, depuis, ont suffi pour caractériser leurs doctrines
 gouvernementales; et pour ne citer que la plus connue,
 la plus néfaste, et qui cependant trouve encore son
 application en quelque article, qui ignore la signifi-
-
-RM NE AV Vo 1 FEAT re ae
 
 cation et la répercussion de la loi du 15 mars 1850?
 Quant aux lois de la troisième République, le caractère
@@ -826,12 +733,10 @@ l'instruction seule lui fournira les moyens de l'acquérir;
 de prouver qu'il peut être l'égal, souvent aussi le supé-
 rieur de ceux qui, jusqu'à ce jour, l'ont tenu éloigné du
 
-SR AE RE € en DS A MAN EL rater | NT RON de
 banquet, l'ont obligé à se tenir confiné dans L srangs
 et dans les occupations secondaires. Ilne veutpasêtre
 ie tout, non, mais il veut être l'égal de tous. Que lony
 | prenne garde, aucun obstacle ne le rebutera, aucun ‘2
-és déboire ne le découragera; il a eu assez de forcæetde
 volonté pour résister aux mauvais conseils de révolte 5e
 que lui ont parfois, et souvent même, donnés les partis …
 : politiques intéressés à sa perte; mais enfin il trouve que ne
@@ -855,9 +760,6 @@ L compose le problème qu'il convient de résoudre, pro- ù
 blème dont, nous le répétons encore, l'urgence devient …
 chaque jour plus manifeste et plus pressante, ;
 
-*E PR er dt et Oro
-PT Ke RAA CR RO re UN 1 LUS RE
-“ds LA SOLUTION DU PROBLEME
 _ Considérons d'abord les grandes lignes de l'organi- A
 _ sation administrative du service. ; LORS
 __ Actuellement, cette organisation comporte autant ie
@@ -877,8 +779,6 @@ lement installées au chef-lieu du département. Chaque
 _ professeurs dont le plus grand nombre proviennent des
 _ deux écoles normales primaires supérieures de Saint- .
 
-| CT
-la solution du problème ES FU
 Cloud et de Fontenay-aux-Roses, créations de Jules “2
 Il y a quelques exceptions à ces règles générales; |
 ainsi, un certain nombre d'arrondissemenis et de
@@ -894,7 +794,6 @@ erreurs commises dans la direction pédagogique des
 en ces dernières années pour parer au recrutement du
 ; personnel enseignant primaire et pour lui garantir
 l'impartialité et la sécurité à laquelle il a droit.
-Les inspections académiques
 Pénétrons dans le détail. Que voyons-nous ? Le chef
 du service départemental de l'enseignement primaire,
 l'inspecteur d'académie, gradé de l'enseignement secondaire, uniquement choisi parmi les professeurs de
@@ -904,7 +803,6 @@ un mystère pour personne que les raisons de santé et
 les influences politiques (pour ne parler que de ces
 deux ordres d'idées) déterminent les choix de l'Admi32
 
-Fret LES INSPECTIONS ACADÉMIQUES
 _ nistration supérieure, représentée en l'espèce par le
 Directeur de l'enseignement primaire au Ministère de
 . l'Instruction publique.
@@ -999,8 +897,6 @@ la vraie discipline, la discipline libérale, intelligente et
 féconde, disparaisse! Et pour tout dire, car il faut tout 2
 dire, que l'anarchie ait envahi cet important service!
 
-la solution du problème F ce Re
-
 N'est-ce pas, en effet, une situation anarchique, que REA
 celle résultant de l'application, dans les différentes
 circonscriptions d'un même département, de mesures È
@@ -1035,8 +931,6 @@ dis bien : autorité de contrôle et seulement autorité de
 contrôle) dans cette triste, pénible et préjudiciable
 
 0 0
-en Lo Le
-7 us INSPECTIONS ACADÉMIQUES ne
 _ alternative, ou de mal juger de son chef le plus élevé, ds
 — ou de désobéir à son chef le plus immédiat, d'encourir te
 son ressentiment et d'en avoir à supporter les risques, ;
@@ -1067,8 +961,6 @@ d'application opportune. On ne se grandit jamais, à
 vouloir s'arroger des droits que l'on ne tient ni de la
 loi, ni de la nature de ses fonctions. Chacun à son
 
-| SRE
-la solution du problème Fe va
 rang et à sa place; c'est ainsi que, par l'exemple,
 s'indique le devoir commun. = et
 Et que penser également des quelques Inspecteurs
@@ -1101,7 +993,6 @@ recrutement, de l'adaptation à ce milieu tout spécial?
 En tout cas, ce ‘sont des exceptions et, pour si honorables qu'elles soient, comme toutes les exceptions, j
 elles justifient la règle.
 
-jte dr Re LES INSPECTIONS ACADÉMIQUES
 Oui, j'entends bien : peut-on dire qu'un recrutement LE
 soit aussi défectueux, qui nous a donné M. Gréard? é
 celui que Jules Ferry, aux applaudissements de tout un L
@@ -1138,7 +1029,6 @@ mérites et l'estime en laquelle le plus grand nombre
 
 méritent d'être tenus. — Mais ce qu'il faut, c'est que
 
-Pa tre « la solntion du probe EU CAR
 les titres, si élevés sgient-ils, ne suffisent pa s pot Rex.
  . obtenir cette situation, et qu'avant d'en avoir Yh onneur
 et la charge on en ait montré l'aptitude, ou onenait
@@ -1160,7 +1050,6 @@ Lee qui s'intéressera aux réformes à introduire dans l'ensei- Le
 gnement secondaire et, pour le moment, tout au moins, < a.
 il ne nous appartient pas d'indiquer la solution que
 nous entrevoyons. S
-Les*Ecoles Normales CES S
 5 D'après la loi, disons plus même, d'après la logique, . sa
 les écoles normales devraient suffire à assurer le recru- TR
 5 tement total des instituteurs et des institutrices. Or, il
@@ -1198,7 +1087,6 @@ pourraient faire naître et exploiter en vue de leurs
 Et il n'est pas rare de rencontrer dans tous les dépar-
 |  tements des maîtres et des maîtresses qui ont été
 
-la solution du problème Le É
 nommés grâce à l'appui de personnages politiques, | "3
 après avoir échoué dans les concours d'entrée aux à
 écoles normales, bénéficiant ainsi des avantages que #4
@@ -1230,7 +1118,6 @@ qui font grand honneur à l'enseignement; maïs tous :
 vous diront la somme de travail et d'énergie qu'ils ont
 dû fournir pour se former ainsi seuls, sans directions
 
-ee LES ÉCOLES NORMALES
 _ préalables, à l'exercice d'une profession hérissée de
 
 _ tant de diflicultés, et pour acquérir l'expérience néces-
@@ -1301,7 +1188,6 @@ traversé toutes nos révolutions, prouvant, avec sa
 vitalité, la haute valeur de la conception qui l'a fait
 naître, et tellement nécessaire, que ses ennemis les
 
-Ha DES RD AE TR rt CE VE OT ER AE TERRA te FE Ce
 (S plus déclarés n'ont pas osé en tenter la suppression,
 _ même aux heures où toute liberté semblait compromise.
 ven _  « Ce sont les écoles normales, dont M. Guizot, leur
@@ -1314,8 +1200,6 @@ se mesurent sur ceux de ces établissements. » |
 avons en elles « l'outil nécessaire pour faire face aux
 | besoins et pour préparer l'avenir.. c'est l'adaptation,
 c'est l'aménagement intérieur dont il faut maintenant
-4 Une incise
-ds : L'ENSEIGNEMENT PRIVÉ
 Ex S'il est nécessaire, dans l'intérêt de l'enseignement
 ; comme dans l'intérêt des enfants, que tous les institu-
 
@@ -1333,9 +1217,6 @@ Ceux que leurs fonctions appellent à visiter les écoles
 privées peuvent seuls mesurer la différence profonde
 qui existe entre ces dernières et les écoles publiques;
 
-| 45 Naudy, — 3,
-
-DREAM SAR ATETE SN LE CS ES A ee D TOR NA GT EE RE je
 une incise RÉ.
 savoir à quel point, dans la plupart, l'enseignementest À
 mécanique, livresque et routinier; comment l'éducation |
@@ -1372,7 +1253,6 @@ C'est au prêtre, au pasteur, au rabbin ou à l'iman, et
 à lui seul, qu'il appartient d'instruire les enfants dans
 la religion, si tel est le désir de leurs parents; et ce
 
-se Govs : K L ENSEIGNEMENT PRIVE
 doit toujours être à l'église, au temple, à la synagogue
 ou à la mosquée que cet enseignement doit être donné,
 et jamais à l'école; les croyants devraient apprécier le
@@ -1546,7 +1426,6 @@ use reuse, une arme à deux tranchants, avec laquelle peut
 ct se blesser et se tuer celui qui veut s'en servir. Ale +
 4 réflexion, les vrais hommes de liberté, les vrais répu>
 __ blicains, les vrais prévoyants ne peuvent-en vouloir.
-5 à D'ailleurs, il va de soi qu'en jouant à l'avenir ée À -
 4 nouveau rôle, ce rôle si louable, les écoles privées
 ‘ devraient être soumises à un contrôle plus fréquen à à À
 
@@ -1631,7 +1510,6 @@ culture, les grandes questions d'ordre littéraire, historique, géographique et
 professeurs spéciaux, mais principalement en vue du
 bénéfice qu'en peut retirer le développement de l'intelligence et la formation du jugement; on apprendrait,
 
-guise LCA LES ÉCOLES NORMALES ;
 $ een somme, à étudier, à fouiller une question, ainsi
 qu'on le fait dans les différentes Facultés.
 Mais, ce qui constituerait l'originalité propre des
@@ -1659,8 +1537,6 @@ veux dire leurs moyens d'action et leur rôle vraiment
 la parole des maîtres les plus autorisés, où seraient
 traitées toutes les questions se rapportant à l'éducation ;
 de l'enfance.
-
-VC PEPASES Sie vie : à <- ; :
 
 Les écoles primaires élémentaires d'app ication, dites
 me. écoles annexes, qui sont actuellement jointes à chaque ;
@@ -1699,7 +1575,6 @@ prouver qu'ils ont tous reçu et acquis une somme suff- Si
 
 sante de connaissances générales, .
 
-| LrS ÉCOLES NORMALES &
 _ La durée des études serait de deux années. A la fin
 . A = de chaque année, tous les élèves, indistinctement, élèves
 boursiers et élèves payants, subiraient un examen
@@ -1770,7 +1645,6 @@ l'idée qu'un jeune homme ou qu'une jeune fille de dix-
 ÿ pour leur moralité, ne pas être internés jusqu'à l'achè-
 vement complet de leurs études. Ce serait à désespérer
 
-b du bon sens de la race, si de futurs éducateurs et de
 futures éducatrices ne pouvaient se conduire seuls, em
 réalité en un lieu rapproché de leurs familles, qui peuvent les surveiller et connaître jusqu'à leurs moindres
 actions, alors que les étudiants et les étudiantes des
@@ -1798,9 +1672,7 @@ a la lourde charge de former les instituteurs, m'ait plus
 à les connaître dès qu'ils sont sortis d'entre ses mains.
 1138 59
 
-on 05 la nomination POS TIRE
 Iwa plus à les suivre, ni à savoir le parti qu'ils ontsu
-re tirer de ses enseignements; il n'a pas à se formalis CEA CRE
 même pas à s'étonner si, après lui, ceux qui guident e MA
 contrôlent désormais leurs efforts, le font selon les pri
 __ cipes les plus contraires à ceux qu'il leur avait exposés. 4
@@ -1861,7 +1733,6 @@ presque la cause unique, de tous les ennuis, de tous les
 | mécomptes, de toutes les injustices dont le personnel
 | enseignant primaire a été la victime. C'est ainsi, c'est
 par suite de cette ingérence, que toutes les influences
-| 61 F Naudy, — 4
 
 la nomination s
 politiques ont pénétré dans l'école, que tous les personnages politiques se sont faits les solliciteurs empressés
@@ -1989,7 +1860,6 @@ __ les instituteurs avaient rendus à la République, qu'ils
 | en en défendant les principes, en élevant les jeunes
 générations dans le culte des idées de progrès, de jus-
 % tice et de liberté, en exposant même souvent pour eux,
-| 65 Naudy. — 4.
 
 la solution du problème ire 2
 les élus, et pour la République, leur situation et celle
@@ -2098,8 +1968,6 @@ De là, aussi, des tiraillements, des difficultés dans 5
 le service, des comparaisons parfois pénibles et toujours :
 regrettables pour le bon renom des écoles, parce e
 
-à ni
-
 | qu'elles peuvent parvenir jusqu'aux élèves et même
 ca _ Les deux écoles normales supérieures d'enseigne-
 | ment primaire, sont des créations de la Troisième
@@ -2179,8 +2047,6 @@ des établissements qui feraient double emploi et quiles
 priveraient, et qui les privent déjà, d'une partie de 5
 leur clientèle, peut-être la plus intéressante. ee
 
-| LES PROGRAMMES D'ENSEIGNEMENT
-
 sa Les professeurs qui enseigneraient dans les futures
 
 _ écoles normales, devenues des Facultés primaires,
@@ -2213,7 +2079,6 @@ cours complémentaires. Il offrirait un débouché sérieux
 aux instituteurs et aux institutrices les plus capables et
 les plus laborieux.
 
-Les programmes d'enseignement
 des Écoles Normales
 Actuellement, toutes les écoles normales de France
 et d'Algérie ont des programmes d'enseignement iden-
@@ -2264,8 +2129,6 @@ _ - Les avantages de ce système me semblent ressortir
 
 tee aisément pour tous. LEE
 
-; ._ Les Inspecteurs primaires cs,
-
 Le mode de recrutement des Inspecteurs primaires fe
 
 donne à la fois satisfaction aux vœux du personnel et “:
@@ -2303,7 +2166,6 @@ régulière, amena en quelques années l'amélioration
 première tentative, il réussit complètement, car il était
 aussi inteMigent que laborieux. Bientôt, ensuite, il se
 trouva assez rétabli pour fonder une famille; il se
-| maria.
 
 la solution du problème
 
@@ -2341,10 +2203,6 @@ rigueur un fonctionnaire dont le dossier ne renfermait
 que des éloges, et qu'il convenait de lui ténioigner des
 sentiments de bienveillance et d'équité, en lui fixant un
 poste qui constituât, sinon un avancement, tout au
-
-|
-
-ee LES INSPECTEURS PRIMAÏRES
 
 | moins une juste équivalence; et il citait un poste qui
 
@@ -2418,7 +2276,6 @@ C'est encore une question qui s'est souvent posée. ee
 . Dans certaines circonscriptions, en effet, principale "
 76 4
 
-(is _ LES INSPECTEURS PRIMAIRES
 ment dans celles que l'on est convenu d'appeler les
 __ circonscriptions de début, les circonscriptions en pays
 St . pauvres et de parcours difficile, il arrive la plupart du
@@ -2491,7 +2348,6 @@ C'est une circonscription endormie, qui n'a de la vie
 que l'apparence et qui, pour longtemps ensuite, sera
 rebelle à tout progrès.
 
-a mr 2 Fe : LES INSPECTEURS PRIMAIRES
 ei Le remède à ces deux situations opposées et .égale-
 | . ment fâcheuses consisterait à ne pas changer trop vite
 les inspecteurs de résidence, mais aussi à ne pas les
@@ -2615,8 +2471,6 @@ Pour être tout cela, pour faire tout cela, pour être
 toujours parfaitement au courant de l'état de sa circonscription, il n'a pas besoin, selon l'expression imagée,
 d'être constamment « sur le dos » de son personnel, de
 
-| Les ; LES INSPECTRICES PRIMAIRES
-
 | procéder chaque année à une inspection minutieuse,
 
 | détaillée et complète de tous, comme s'il les ignorait.
@@ -2654,7 +2508,6 @@ Depuis cette époque, quatre postes seulement, dans
 toute la France, ont été réservés à des Inspectrices :
 trois à Paris et le quatrième à Versailles. Aucun esprit
 
-CR PAR ES ee Ru RS ENS 3 À
 . _ de méthode n'a présidé à l'attribution des postes ainsi Ne à
 Ne passés à des femmes; aucune raison topique a pu ES :
 être donnée pour justifier cette transformation; auc né UE
@@ -2717,7 +2570,6 @@ soit étendue à tous les grands centres.
 1 85
 
 le grand État-Major de l'enseignement primaire
-Le Ministre :
 A titre de simple observation, faisons remarquer à
 combien est inexacte et injurieusement limitative la J
 dénomination de Ministère de l'Instruction publique N
@@ -2734,8 +2586,6 @@ L'institution des Inspecteurs généraux de l'enseignement primaire remonte à l
 s'est perpétuée sans changements notables jusqu'à nos
 Le décret du 18 janvier 1887, rendu en application de
 la loi du 3 octobre 1886, dit, à l'article 123 : « Les
-
-ie Gi LES INSPECTEURS GÉNÉRAUX
 
 ! Inspecteurs généraux sont nommés par le Président de
 Pi la République, sur la proposition du Ministre de
@@ -2756,7 +2606,6 @@ Comme texte législatif, c'est tout.
 
 Il en résulte qu'il n'est exigé aucun titre, aucun
 diplôme, aucune preuve d'aptitude, pour occuper le » poste le plus élevé dans la hiérarchie de l'enseignement
-primaire, et le choix du Ministre et du Président de la ÿ
 République, sans être taxé d'illégal, pourrait sé porter,
 ainsi qu'on le dit, sur le premier venu.
 
@@ -2775,9 +2624,6 @@ objet : d'abord et comme moyen essentiel d'informations, la visite des écoles n
 
 | nombre d'écoles primaires ; — ensuite l'appréciation
 
-#7
-
-M CO ROUGE RE TA RE pe NAT SN RER |
 MAN le grand État-Major de l'enseig nement primaire
 de approfondie des services et des mérites de hacun :
 Fe des fonctionnaires, inspecteurs d'académie, inspecteurs Es
@@ -2802,7 +2648,6 @@ Si nous ne nous rapportions qu'au décret de 1887, les 4
 échelon de plus dans la hiérarchie bureaucratique …
 _ primaire, leurs fonctions devant se limiter à l'étude des Se
 questions qui leur sont soumises par le Ministre. ; n.
-Au contraire, le rapport de M. F. Buisson, du 5 février à
 1880, leur attribue un rôle beaucoup plus élargi, beau- RE
 coup plus important. Il les destine à être les juges A
 souverains du personnel des écoles normales et de F
@@ -2811,7 +2656,6 @@ nettes et précises sur la valeur des méthodes, sur la E:
 marche de l'enseignement, sur les résultats obtenus. ‘4
 Voilà le désir exprimé. Qu'est la réalité? 43
 
-3 dpt | LES INSPECTEURS GÉNÉRAUX
 BU. out d'abord, nous nous trouvons en présence
 __ * terme de leur carrière, dont plusieurs même ont dépassé,
 Aa et de beaucoup, l'âge fixé pour la retraite du personnel
@@ -2912,7 +2756,6 @@ départ du département. Toutes les questions se rapportant au fonctionnement de
 dans le département, y ont leur place; de même tout
 ce qui concerne les œuvres post-scolaires, la marche
 
-de Abo
 “te Si : des écoles normales, le rôle de let perso à
 que l'autorité dont jouissent les inspecteurs primaires. ÿ
 Sore Donc, de même. que son opinion sur l'ensemble di
@@ -2921,7 +2764,6 @@ Sore Donc, de même. que son opinion sur l'ensemble di
 cabinet de l'Inspecteur d'académie, il est fixé sur la
 valeur professionnelle de tous et sur la marche des
 études dans les écoles : normales, supérieures &t
-Pi élémentaires. | TES
 Ko Viennent ensuite les visites aux Écoles Normales.
 ae Même entretien préalable, mêmes questions posées aux. he
 _ directeur et directrice, sans doute, toujours, afin d'avoir M.
@@ -2949,7 +2791,6 @@ l'importance de leurs fonctions, et aussi, à l'importance d
 | toute particulière que M. le Ministre (?) attache à
 e telle partie de lenseignement et de léducation. :
 _ Jamais il n'est fait la moindre allusion à la poli-
-| tique.
 _ Chacun des Inspecteurs reçoit aussi un très long
 - questionnaire qui devra être rempli et remis à un jour
 = déterminé, qui est habituellement le jour fixé pourla À
@@ -3055,7 +2896,6 @@ ES Cependant, le Ministre, en certaines occasions, à des
 à périodes variables, plutôt qu'à des époques détermier nées à l'avance et toujours les mêmes, a besoin d'être Dre
 ï renseigné autrement que par les rapports ordinaires :374 Ê
 : des chefs de service. Il peut désirer être fixé sur la
-6 portée de tel ou tel enseignement. Il a le devoir de se pe
 rendre compte des résultats obtenus par telle ou telle ;
 réforme. Il lui est indispensable d'avoir de temps en
 . temps des vues d'ensemble sur telle ou telle partie du à
@@ -3145,10 +2985,6 @@ avant de se rendre dans leur famille. F
 
 Personne n'ignore que le travail dans les bureaux est |
 
-# |
-
-ARE nai LES BUREAUX DU MINISTÈRE
-
 _ si considérable, que les employés ne suffisent pas à S
 
 laccomplir en entier et qu'ils doivent se résoudre, tant
@@ -3187,9 +3023,6 @@ et la démoralisation qu'ils occasionnent!
 Ce nombre, toujours très élevé, parfois excessif des
 employés, loin de hâter l'expédition des affaires, est au
 
-A ne
-
-DR MINT RER ENTRE ee Der
 Ë le grand État-Major de l'enseignement primaire - ;
 ë contraire la cause qui, le plus ordinairement, eve arde. AE
 Les mêmes questions, en effet, même les plus insignifiantes, étant examinées successivement par plusieurs,
@@ -3222,7 +3055,6 @@ elle est ensuite expédiée ; cependant on garde précieusement les minutes dans
 Ce sont là les cas simples, les cas qui peuvent être F
 dits de solution rapide; néanmoins, ainsi qu'on en peut :
 juger, ils nécessitent d'assez longs délais. Mais, souvent, |
-|
 
 au contraire, le dossier de l'affaire, à son passage chez À
 | le chef de service ou chez l'un des agents intermédiaires,
@@ -3252,10 +3084,8 @@ témoignent de leur travail persévérant et du degré élevé
 de leur intelligence. Ce sont, par surcroît, de braves et
 et, en général, désireux de bien faire.
 Mais ils ont un vice d'origine dont ils ne peuvent se
-| IOI Naudy. — 6,
 .
 
-RME + # à A: SENS ee pue RE FA ; x le ie OA 2
 le grand État-Major de l'enseignement primaire
 _ débarrasser et qui, pendant toute leur carrière, nuira 2%
 toujours aux affaires dont ils auront à s'occuper. Fer
@@ -3317,7 +3147,6 @@ Reste à parler du grand chef de l'État-Major, du
 Directeur de l'enseignement primaire au Ministère de
 lInstruction publique, qui tient certainement entre ses
 
-D ne a
 + le grand chef de l'État-Major général
 mains l'avenir même de la patrie, puisque son action
 s'exerce sur la masse de la population. L'éducation du
@@ -3348,8 +3177,6 @@ gnement. L'idéal serait qu'il ait gravi, sinon tous les
 et spécialement, il serait de la plus grande importance : 4
 qu'il ait exercé les fonctions de Directeur départe- 4
 Cette connaissance du milieu où doit s'exercer l'acti- |
-
-PR rs ‘à LE DIRECTEUR DE L ENSEIGNEMENT re pe
 
 =. _ vité du chef suprême, que l'on juge indispensable chez
 
@@ -3404,7 +3231,6 @@ née, appuyée sur des faits vécus. | F S
 cela a lieu aujourd'hui ; ils en seraient les aides pré
 ; cieux, les collaborateurs indispensables. (Chacun
 ? serait, ainsi, bien à sa place, et le service tout entier Fe
-; LES CONSEILS x à br.
 Malgré les réformes profondes introduites successivement dans la composition et dans le fonctionnement
 des Conseils de notre enseignement national : par la loi ne.
 du 27 février 1880 pour le Conseil Supérieur de l'in- D.
@@ -3413,8 +3239,6 @@ la loi du 30 octobre 1886 pour les Conseils départemen- Ë,
 $ taux de l'enseignement primaire, ces trois organismes
 ne répondent plus aux nécessités présentes. À
 Plus peut-être que toutes les autres lois relatives à
-
-ee LE CONSEIL DÉPARTEMENTAL
 
 F r l'enseignement, ces deux lois ont vieilli, et, de tous les
 
@@ -3431,7 +3255,6 @@ besoins nouveaux qu'il faut satisfaire, des tendances
 ; différentes qui appellent des modifications essentielles, ;
 des états d'âme, surtout, dont ïl convient de tenir
 
-Le conseil départemental
 de l'enseignement primaire
 
 Le premier degré de ces Conseils, le Conseil départemental, existe et fonctionne, dans sa forme actuelle, en
@@ -3450,7 +3273,6 @@ inspectrices, primaires et maternelles, en feraient
 
 $ partie. Il comprendrait, en outre, pour un nombre à
 
-ER. CR TRES sa ETS Re ns AUS
 les conseils de l'enseignement primaire
 déterminer, des représentants des treize catégories du
 rieures de garçons, directrices d'écoles primaires supé-
@@ -3478,10 +3300,6 @@ avait à lui donner touchant l'enseignement primaire,
 son Recteur lui répondit avec une mauvaise humeur |
 à non déguisée : « L'enseignement primaire? Ne m'en
 parlez jamais! »
-
-je
-
-, as LE CONSEIL ACADÉMIQUE
 
 | Je me suis toujours demandé si cette inconvenante et
 inconcevable sortie n'était pas parvenue jusqu'aux
@@ -3522,7 +3340,6 @@ RENE aussi, un rapprochement significatif entre les tro ADR)
 A leur pénétration complète, dont la nécessité devient de cit
 di jour en jour plus manifeste et que désirent de plus en
 Fi hi plus tous les esprits sages et libéraux. FRE
-SNS S Quant aux attributions et à la composition de ce
 ® “20 nouveau Conseil, il sera aisé de les fixer. de *
 < Le Conseil Supérieur de l'Instruction Publique
 que je voudrais voir s'appeler désormais : ÿ
@@ -3542,9 +3359,6 @@ définitivement de ces deux assemblées les éléments
 hostiles ou simplement étrangers que la loi du 15 mars
 1850 y avait introduits, on sait dans quelles intentions.
 
-a NE ee
-KR CUT mp Je ke FA ME Ml nu DA Hs Je RU Tin aie
-ju | LE CONSEIL SUPÉRIEUR se
 Ua La présence dans le nouveau Conseil Supérieur de
 . membres élus de l'enseignement primaire, fut peut-être
 _ l'innovation la plus hardie, en tout cas la plus discutée
@@ -3622,11 +3436,6 @@ Pour la composition de la section primaire, on s'inspi- ;
 rerait, naturellement, des règles établies pour la composition du Conseil départemental, c'est-à-dire que
 chaque catégorie du personnel de l'enseignement primaire y aurait des représentants élus.
 
-145 PTS Mer NAN RU | AE NE A Rte CE STE
-LÉ NESE URIOTER" rs AP AAC EE MMA NES Ja Je FT PORN ere +
-LEA : à mer ne CASA
-# Fr « » LAN ay 20 FAQ f
-
 La solution du problème, telle qu'elle vient d'être
 pédagogiques, administratifs, sociaux et financiers, qui
 et confondus partout.
@@ -3701,8 +3510,6 @@ dent à l'établissement du monopole, mais qui sera ki 1.
 
 sûrement obtenu tout en demeurant fidèle aux principes
 
-vs de liberté. XF REES
-
 Les avantages financiers seront considérables. … 4
 
 Pour chiffrer exactement les économies qui résulteraient de l'organisation nouvelle, il faudrait avoir à sa À
@@ -3736,20 +3543,15 @@ réforme de cette nature s'impose; lorsque, avec le seul ;
 parvenu à mettre sur pied une administration nouvelle }
 dont le fonctionnement donne satisfaction à tous les
 
-| AVANTAGES FINANCIERS
 | desiderata les plus exigeants, pédagogiques, administra-
 $ tifs et sociaux; lorsque, tous, les professionnels en tête,
 ._  peuventse déclarer satisfaits, il est bien permis de faire
 ressortir, qu'en outre, il en résultera des économies, et
 que ces économies, par le chiffre élevé auquel elles
 doivent atteindre, ne sauraient laisser personne indiffé-
-| rent.
 La solution du problème devrait donc donner satisfaction à la fois aux professionnels, aux politiques et aux
 financiers. Et, si cela est vrai, que peut-on lui demander
 de plus ?
-
-. als [ARE RENE af: 124 FR RU LE ?
-HAT ET ANNEE L ie MER x à }
 
 Nous avons achevé d'exposer ce que nous jugions
 
@@ -3828,33 +3630,3 @@ verait aisément, et au fur et à mesure, sa place dans les
 écoles primaires supérieures ou dans les écoles professionnelles à créer, ou dans l'inspection féminine, dont,
 en même temps, on pourrait faire un essai complet et
 Mais que l'on agisse, que l'on fasse quelque chose
-
-Res PAR wa D STE PL DEA PASS MUR CARS SE LL DS VAL ÉTEN)
-
-MAS de LR 1 TRS
-jee RES Ne E HANERTER
-
-ne LA le | M ” RAS ane ne"
-4 “ “ju NE ANSE er dt ue FR MONTRE RAT tA
-
-à 0 SORA TES fl EN ONPANE EU
-
-+1 HN NN AS à FU HD Fou [Ut ni
-
-#18 NA l ET aN Abee eANlU Er Er Pr rt à UE (RTE CEE NRA RATE
-ET MN NE LUE CONS D F Line PT RG
-ÿ it tra AI POLLNNTER Vent ! LCR ON ARS 1e Ace
-a Auico SOUS
-Ne RTL FRA UE ; pi u RE LAN VAS UNE EE
-ie NN NES Vi RUE Pa x v) Mes Le
-PE) pe ne PO AO LYON ee
-re Ra UNE De LAND RAA ARE
-AT 0 CAR CREER ( FD RPM (berne
-
-D DR fe MARNE LE
-
-L-" 5e SE xd HYMNE : 5 A ME TT Rares Lx TA TON + PAC
-
-x ‘ro Le Pet Le " RER) SRE ;
-
-Ÿ DRE) PE LA que "ON ee 7 de

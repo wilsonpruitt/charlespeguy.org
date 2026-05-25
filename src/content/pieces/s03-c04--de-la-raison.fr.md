@@ -7,10 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 86143
 ---
-|L \4
-
-Le mouvement rural Th
-Le but
 Le socialisme et la vie
 De la propriété individuelle paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée fl {l
@@ -48,9 +44,6 @@ premières séries, de vouloir bien les racheter pour
 quelques sous et nous les envoyer. Nous tâcherons de …
 reconstituer ainsi quelques collections. K
 
-Le mouvement rural
-k Le but
-b Le socialisme et la vie
 ë De la propriété individuelle
 | paraissant vingt fois par an
 - 8, rue de la Sorbonne, au rez-de-chaussée
@@ -62,28 +55,21 @@ Karl Marx et Frédéric Engels. — Le Manifeste
 | Communiste, I, traduction nouvelle par Charles SF os
 : Andler, avec les articles de Frédéric Engels dans la
 Réforme(r8S43-184S),une forte brochure de 100pages. n ne
-ÿ Vient de paraître : Le MR
 el Karl Marx et Frédéric Engels. — Le Manifeste
 É . Communiste, IT, introduction historique et commengr taire par Charles Andler, une très forte brochure de
 AE. En vente à la librairie des cahiers, 8, rue de la .
 
-Fe prie + ni di ae ji LE RENE UE : PA
-AN = ï * er a FER Lu nes LE te &
 “x Un fort volume in-18 jésus de 560 pages 3 francs 50 Si
 
-À ; Instruction La guerre Re.
 LS Education — Culture Les alliances — La paix
 k3 La loi scolaire; le budget de l'en- Les écoles militaires; la loi mili- .
 seignement ; taire; le budget de la guerre ;
-£ AT LE primaire; LE F
 ES, Gites: DEUS ARE RE a a militaire; l'armée répu- #4
 Rr: X L'enseignement secondaire; la crise SRE;
 % ; de l'enseignement secondaire; la ques- Æ
 1 tion du baccalauréat ; La paix et la revanche;-la question DE
 D re pue supérieur; la ques- d'Alsace-Lorraine; la France et l'Alle- LR
 __ - tion des Universités; l'extension uni- magne ; RS -
-= La question religieuse; Léon XIII et à r 4 #0
-RQ" le Érolicime SE ce re de Rose la « double D:
 2764) Les libertés du personnelenseignant ; rene de à
 130 L'enseignement laïque et l'enseigne- La France en Orient; les massacres h
 Vi el "D ment clérical ; réponse à M. d'Hulst ; d'Arménie; la guerre de l'indépen- £
@@ -91,9 +77,6 @@ Science et socialisme; dance crétoise ; la guerre gréco-turque; %
 __ La fonction du socialisme et des r
 12 F1 Reaises dans l'enseignement bour- La guerre hispano-américaine ; 244
 53 d pe sociale dans l'enseigne- L'affaire de Fashoda. Re:
-dE 1 8, rue de la Sorbonne, Paris ï ne,
-
-& de "ap fe
 
 -
 
@@ -103,7 +86,6 @@ Vient de paraître
 Publiée sous la direction de JEAN JAURÈS
 
 1789-1791
-Par JEAN JAURÈS
 Un fort volume in-quarto de 768 pages, 115 gravures du
 temps d'après les documents originaux, 25 fac-similés
 d'autographes. Édité par Jules Rouff et Compagnie,
@@ -116,27 +98,11 @@ _- Journées révolutionnaires (26 juin, La Fédération.
 Lois d'organisation. La fuite à Varennes. "+
 8, rue de la Sorbonne, Paris
 
-É. Le mouvement rural
 ne” Évolution révolutionnaire
 Le socialisme et la vie
 4 « De la propriété individuelle
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-F À on SPCURERESS CIE r
-
-LU ee ” # de A
-
-#i ogg FES
-
-DES x er ne
-#1 ee + TES
-
-Tan % ms Et s
-FE Note . his L a _ k
-nes Re Ne
-de, “ Loe ne 5 RE ‘il
-
-ÿ rs oh Hier o a e de
 4 Avant qu'on étudie à leur tour ces études, avant Fe
 _ qu'on y soit même introduit par l'auteur, il est indis_ pensable que l'on soit averti que l'auteur n'y fait appel F
 _ qu'à la raison. Cela est indispensable en un temps où £
@@ -161,15 +127,6 @@ _ assurer le triomphe de la raison par des Moyens £
 
 _ gouvernementaux. C'est manquer à la raison que de
 
-É abs ee ne
-
-Poe dé Le | } l F
-
-PTT SE l nn L un.
-TT MORE l pq
-ee te na L
-me vent L
-
 Avant qu'on étudie s s
 qu'on y soit même intrc
 pensable que l'on soit aw
@@ -178,7 +135,6 @@ la raison a presque auta s des s
 sont dangereux, où elle s des
 amis, qui sont plus dang
 de la raison les déme x "a
-contre la raison. Et on s F
 la raison les déments qu s
 parles voies de la dérais
 La raison ne procède pas 25 È
@@ -187,7 +143,6 @@ midation, chantage ni mer an
 aucun exercice de force, : =
 elle ne . fat
 È / Polus il
-$ ant la
 
 vouloir établir un gouvernement de la raison. Il ne peut ï à
 y avoir, ilre doit y avoir ni ministère, ni préfecture, À
@@ -274,7 +229,6 @@ se tromper. Il se peut qu'un seul ait raison. Même il se
 peut que pas un n'ait raison. La raison ne variepas
 avec le nombre. Elle ne flatte pas plus les foules qu'elle
 
-en DE LA RAISON
 | ne flattait les grands. Elle ne flatte pas plus les peuples
 qu'elle ne flattait les rois. Elle ne flatte pas plus les
 démocraties qu'elle ne flattait les monarchies ou les
@@ -300,7 +254,6 @@ foule abusée ne peut pas plus que ne pouvait le monarque
 | La raison ne procède pas de l'autorité manuelle.
 ; Autant il est vrai que la raison n'exerce aucune autorité,
 
-| | it étrangères à l'honnêteté de la
 | s surhumaines, religieuses, infer-
 “ | humaines, sont totalement étran4 la raison. La raison est honnête
 À 1 clergé de la raison. Nous n'avons
@@ -308,10 +261,8 @@ foule abusée ne peut pas plus que ne pouvait le monarque
 { a religion de demain, pour prêcher
 Î | velle. Nous sommes irréligieux de
 k Nous sommes athées de tous les
-L 1loureux débat de la raison et de la
 s laissé la foi pour la foi dans la
 1 à raison de la raison. La raison
-Ë es ni déclamations ni proclama-
 ' k s ni décrets des conciles ni brefs des
 : romper lamentablement le peuple
 L C1 lui présenter les vérités de la raison
@@ -321,8 +272,6 @@ er Ne F i ces longues assemblées, nues ins)
 f DIRE M! arlements, ni desces assemblées _ cout tes,
 Au RE imons congrès La rail a ni ident,
 RL NNe à | ïs, ni secrétaire. ni ancun bureau. Elle
-
-AND ne RP OR nn.
 
 ne flattait les grands. E j
 qu'elle ne flattait les rois. I 4 &
@@ -342,7 +291,6 @@ Lesiies cts Manifestations de la
 suspréslet mMéclings ne valent au reg
 mess. Ek montésuraucuns tréteaux. Les £
 ‘ee pour s r
-: vain de » L: ï A à d
 
 ; autant il est vrai que le gouvernement des intellectuels
 serait le plus insupportable des gouvernements, — ê
@@ -558,7 +506,6 @@ que c'est de l'Inquisition. TS
 C'est du jésuitisme et c'est de la duplicité, car le
 journal a deux clientèles, deux régions. Si le journal ‘+
 
-ic DE LA RAISON
 n'était lu que par des intellectuels, une inculpation de
 cléricalisme intentée à une thèse de philosophie, —
 échafaudée sur ce que le mot Dieu y paraît, ne serait
@@ -623,7 +570,6 @@ professionnelle. Pour la même raison que les boulan- ê
 gers ne font pas les maisons, et que les laboureurs Ÿ
 ne font pas les habits, pour la même raison les ouvriers è
 
-M DE LA RAISON er
 Re manuels, boulangers et maçons, moissonneurs, tisseurs x à
 | ettailleurs n'ont à faire ni à défaire les thèses de &.
 ‘10 Exactement comme on n'admet pas l'autorité profes- DA.
@@ -652,8 +598,6 @@ _ Ne fondons pas, ne laissons pas fonder une religion
 2 fondons pas une religion qui nous forcerait à faire gras à
 He ce même jour. Nous avons renoncé une religion qui nous
 4 commandait de croire en un Dieu personnel, en trois
-
-# XXIU
 
 mable, tout-puissant, créateur du ciel et de la terre, et.
 ie souverain seigneur de toutes choses; ne fondons pas #4
@@ -811,7 +755,6 @@ Re comme étant des traditions, puisqu'elles sont révolu__ tionnaires, et comme
 ae à sont des traditions, la raison n'a pas trop de ses deux
 libertés propres : liberté qu'elle sait garder en face de M
 ; ‘à la tradition, liberté qu'elle sait garder en face de la
-| Fè e
 e De tout temps les mouvements révolutionnaires, les
 ruptures de tradition, essentiellement libres d'origine,
 
@@ -934,8 +877,6 @@ mé bourgeois, le peuple connaît par son expérience professionnelle que dans a
 n'obtient des résultats gratuits, donnés. Dans tous les
 ù métiers manuels tout le monde sait qu'il faut qu'on
 
-., ee és EURE ra ÿ PAL. Me ne à:
-sut DE LA RAISON
 | travaille et qu'il faut qu'on ait appris. Par quelle injuste ‘
 infériorité, ou par quelle complaisance au fond démagogique, par quelle flatterie ferait-on croire oulaisserait-
 ; on croire au peuple que la science, que l'art et que la
@@ -992,8 +933,6 @@ royaume en dehors et au-dessus de l'humanité. C'est « dans l'humanité même e
 de la raison et de l'humanité que l'humanité entende la
 voix de la raison. Les deux intérêts sont ici inséparables. Mais le fonctionnement, le travail de la raison
 a ceci de propre, que dans ce travail on ne doit rien
-ni. XXXIV
-NES HU Ers + À HO rh dit à Dei
 4 sacrifier à la réussite extérieure. Il faut que la raison
 Ca pénètre de plus en plus l'humanité ; il faut que la
 "É raison s'insère de plus en plus dans l'action, mais à
@@ -1075,7 +1014,6 @@ _ raison dans son travail propre; on doit travailler de F5
 . l'humanité, mais ces deux efforts ne sont pas du même x Fe
 ordre; le deuxième est rigoureusement conditionné par D
 - le premier. Le premier est absolument libre du Re
-| deuxième.
 SV La raison n'est pas tout le monde. Nous savons, par ?
 … la raison même, que la force n'est pas négligeable, que
 beaucoup de passions et de sentiments sont vénérables
@@ -1088,8 +1026,6 @@ impressions, les pensées obscures, les sentiments et à.
 — même les sensations. Mais nous demandons que l'on
 . n'oublie pas que la raison est pour l'humanité la con- n.
 dition rigoureusement indispensable. Nous ne pouvons ds
-
-“Hé dt sai res re Qu T des F5 dE de dc à Charles Péguy
 
 ++ sans la raison estimer à sa juste valeur tout ce qui n'est
 # pas de la raison. Et la question même de savoir ce qui
@@ -1120,18 +1056,6 @@ FE Ce n'est pas quand la matière de l'étude est particuliè-
 
 RE devons le fausser.
 
-# sé LA à El
-MS de nt
-
-RER > Re UE rit ME Ni su J
-
-LR ct AURAS ON,
-#1 54 a
-
-_ QUESTION DE MÉTHODE ne
-
-E: Paris, 17 novembre 1901 … QE L
-34 Mon cher Péguy, ‘55
 ; Vous m'avez demandé de réunir pour les Cahiers "a
 B. de la Quinzaine les études socialistes que j'ai
 
@@ -1157,7 +1081,6 @@ _ évidemment, qu'un fragment, ou plutôt une prépa_ ration d'une œuvre plus v
 _ plus documentée, où je voudrais définir exactement
 __ ce qu'est, au début du vingtième siècle, le socia- ES
 
-Ve Re 773 LORS in TR Se oi ÿ D eut be: je Fe
 lisme, sa conception, sa méthode et son pro
 Mais, déjà, les études ici rassemblées touchent,
 avec une suflisante précision et une suflisante
@@ -1335,7 +1258,6 @@ elle se mélait à tous les mouvements révolution.
 - naires bourgeois pour y exercer et y accroître sa 4
 force ; elle profitait des périls que courait l'ordre
 
-: T2 res QUESTION DE MÉTHODE
 | nouveau menacé par toutes les forces de contre- :
 e F révolution pour devenir une puissance nécessaire. P:
 - Et en second lieu, quand sa force s'était ainsi accrue, 5 si
@@ -1350,7 +1272,6 @@ __ usées ou discréditées par leurs luttes réciproques,
 ‘4 par la Commune, sur la Convention et exerça par- rs
 4 … fois une sorte de dictature, C'est ainsi qu'un peu |
 - plus tard Babeufet ses amis tentaient de saisir, par
-n un coup de main et au profit de la classe ouvrière, dE.
 Ë. _ lepouvoirrévolutionnaire. Ainsi encore, après 1830, e à
 R le prolétariat français, après avoir joué dans la
 ne. Révolution de Juillet le grand rôle noté par Armand
@@ -1402,7 +1323,6 @@ _ l'étaient sous la Révolution anglaise en 1648 les
 -_ Chaumette, s'emparera révolutionnairement de la ñ ; fs
 # Révolution bourgeoise. Il commencera par lutte
 . aux côtés de la bourgeoisie, et aussitôt qu'elle sera ; ;
-_ victorieuse, il l'expropriera de sa victoire. « En oi
 Ne: Allemagne, écrivent en 18/7 Marx et Engels, le parti , ‘4
 _ toutes les occasions où la bourgeoisie reprendrason 3%
 rôle révolutionnaire; avec elle il combattra la
@@ -1443,9 +1363,7 @@ F la force qu'il n'avait pas avant le mouvement bour- ‘à
 ë geois? Ou bien, dans sa tentative de révolution …
 À contre le vieux monde absolutiste et féodal, la
 % bourgeoisie sera vaincue : et sous sa défaite le
-à AE 5 éd pes L
 
-| QUESTION DE MÉTHODE
 prolétariat sera accablé bien avant d'avoir combattu pour lui-même. Ou bien elle l'emportera; elle
 brisera l'arbitraire des rois, la puissance des nobles
 et des prêtres, absorbera la propriété féodale, abolira les entraves corporatives: et elle s'élancera
@@ -1494,7 +1412,6 @@ ne _ encore partie de la période d'utopie. Robert Owen,
 2 supérieures. Marx et Engels attendent, pour le
 L prolétariat, la faveur d'une Révolution bourgeoise.
 
-PT ce it 6 da di Ses Ro PA SA y
 ë k | Ce que propose le Manifeste, ce n'est pas la méthode î "
 Der de Révolution d'une classe sûre d'elle-même et k:
 à dont l'heure est enfin venue : c'est l'expédient de
@@ -1521,14 +1438,12 @@ _ la première démarche de la révolution ouvrière '
 -_ serait de constituer le prolétariat en classe ré- :f
 gnante, de conquérir le régime démocratique.
 
-| Jean Jaurès RARE
 k: « Le prolétariat usera de sa suprématie politique È
 à pour arracher peu à peu à la bourgeoisie tous les.
 - capitaux, pour centraliser entre les mains de
 à l'État, c'est-à-dire du prolétariat constitué en classe
 dirigeante, les instruments de production et pour
 accroître au plus vite la masse disponible des forces
-| productives.
 
 « Il va de soi que cela impliquera dans la période du début des infractions despotiques au droit de
 propriété et aux conditions bourgeoises de la pro-
@@ -1602,7 +1517,6 @@ Fe - Mais ce qui étonne, c'est qu'ils aient pu croire
 _ le prolétariat capable de confisquer à son profit
 _ les révolutions bourgeoises et de conquérir, par
 _ un coup d'autorité, la démocratie, alors qu'ils ‘
-_ Je supposaient incapable, au lendemain de sa ve
 …. victoire et même dans les pays les plus avancés, 1e
 d'instituer largement le communisme industriel. DRE
 _ Gequi frappe surtout, dans le Manifeste, ce n'est 108
@@ -1630,7 +1544,6 @@ Fe pendre longtemps, au profit de la dictature prolétaà rienne, la démocratie
 4 ‘la révolution prolétarienne elle-même ayant surgi
 + d'un mouvement vaste vers la démocratie? Comment
 É le pourraient-ils encore, puisqu'ils laissent subsister
-ee: la puissance économique de la bourgeoisie, la
 ii j forme capitaliste de l'industrie ? Laisser au patronat,
 4 au moins dans une période provisoire dont ils e
 “4 n'essaient même pas d'indiquer le terme, la direc4 tion des ateliers, des manufactures et des usines, et .
@@ -1742,8 +1655,6 @@ _ dire, adjugée dès la première heure la Révolution. es
 _ Lassalle, conscient de la croissance de la classe
 be ouvrière, et impatient aussi de cueillir tous les
 
-es GE u Res PAS n
-
 “4 __ fruits de la vie, n'accepte point, comme Marx en
 # 1847, une période première de révolution bourgeoïise. Quoique née d'un conflitentre la bourgeoisie
 | libérale et l'absolutisme royal, la Révolution
@@ -1810,7 +1721,6 @@ U coopératives, une puissance économique grandis- PES
 Us 4 réduit à être le parasite aventureux et violent des
 4 _ révolutions bourgeoises. Il prépare méthodiquement, ou mieux, il commence méthodiquement sa
 … propre Révolution par la conquête graduelle et
-_ légale de la puissance de la production et de la F.
 | puissance de l'État. Aussi bien il attendrait en vain,
 _ pour un coup de force et de dictature de classe, à
 1 l'occasion d'une révolution bourgeoise. La période +4
@@ -1876,7 +1786,6 @@ Il comptait à la fois, pour susciter la dictature de
 
 ; classe du prolétariat, sur l'avènement politique révoLXVIL
 
-< J ". L ah agé PRIT 4 du LR PT CRT $
 lutionnaire de la bourgeoisie et sur sa chute économique. De lui-même, un jour, sous l'action toujours
 plus intense et plus fréquente des crises déchaînées
 par lui, et par l'épuisement de misère auquel il
@@ -1953,7 +1862,6 @@ de de. side l'industrie ne fait pas qu'augmenter en nombre
 sentiment qu'il en a. Les différences dans les à
 ñ intérêts et dans le genre de vie se nivellent entre …
 
-+ : srl LES Diet ;
 les catégories diverses du prolétariat lui-même, à
 mesure que l'outillage mécanique détruit les différences dans le genre de travail et réduit presque
 partout le salaire à un niveau d'une égale modicité,
@@ -2114,7 +2022,6 @@ résurrection, jusqu'à cette victoire particulière sur à
 la mort qui a affranchi de la mort toute l'humanité,
 ainsi le prolétariat reste d'autant mieux dans sa
 mission dialectique, que, jusqu'ausoulèvement final, à
-| LXXVI
 jusqu'à la résurrection révolutionnaire de l'huma_ nité,il porte, comme une croix toujours plus pesante, à
 > la loi essentielle d'oppression et de dépression du Lu
 _ capitalisme. De là évidemment, chez Marx, une 154
@@ -2169,7 +2076,6 @@ L 2 _ moindre réforme, une idée si rigide et si stricte qu'il M
 nr sociaux les plus graves et les plus décisives erreurs.
 À Il est difficile d'imaginer des méprises plus lourdes ‘5
 
-# -# QUESTION DE MÉTHODE
 à que celles qu'il commet à chaque pas dans son livre
 4 célèbre sur La situation des classes laborieuses en
 j Angleterre. Il a vu partout des incompatibilités,
@@ -2252,7 +2158,6 @@ sous la révolte de l'instinct vital, « l'effondrement
 violent de la bourgeoisie ». Aïnsi, les deux hypothèses, l'une historique, l'autre économique, d'où j
 devait sortir, dans la pensée du Manifeste communiste, la soudaine Révolution prolétarienne, la
 Révolution de dictature ouvrière, sont également .
-_ ruinées. L
 Ni iln'y aura dans l'ordre politique une révolution bourgeoise que le prolétariat révolutionnaire
 puisse soudain chevaucher ; ni il n'y aura dans
 l'ordre économique un cataclysme, une catastrophe “À
@@ -2270,7 +2175,6 @@ e. tirer parti des inévitables conflits intérieurs de la D
 = lutionnaire de l'instinct vital du prolétariat sousun
 | ne cataclysme total du capitalisme, il y a eu d'innombrables crises qui, en attestant le désordre intimede
 
-DR quesrion DE MÉTHODE
 _ la production capitaliste, ont naturellement excité
 2% prolétaires à préparer un ordre nouveau. Mais FE
 | où l'erreur commence, c'est lorsqu'on attend en. pere
@@ -2278,7 +2182,6 @@ _ la production capitaliste, ont naturellement excité
 % soudain du prolétariat ou d'un grand ébranlement TN
 _ politique de la société bourgeoise, où d'un grand
 ; 14 _ ébranlement économique de la production bour- 150
-| geoise. Ée TR
 De LGe n'est pas par le contre-coup imprévu des EE
 _ agitations politiques que le prolétariat arrivera au en
 _ pouvoir, mais par l'organisation méthodique et D.
@@ -2332,7 +2235,6 @@ _ ils veulent acheminer les hommes et les choses, et ne
 par quelle suite d'institutions et de lois ils espèrent
 aboutir à l'ordre communiste. Plus le parti socia- À
 liste se confondra dans la nation par l'acceptation *
-définitive de la démocratie et de la légalité, plus il , é,
 _ sera tenu de marquer sa conception propre : et à A.
 14 travers l'atmosphère moins agitée le but final se -710
 . dessinera mieux. Sous peine de se perdre dans le K
@@ -2376,9 +2278,6 @@ toujours rappelé que c'était au profit d'autres
 individus qu'était limité le droit de l'individu.
 | Mais il reste vrai que la propriété, même indivi-
 
-| LXXXVI F
-
-é mr question DE MÉTHODE | MATE AE À
 D _ duelle, est extrêmement complexe, qu'elle est formée ‘4
 ‘4 “ de droits très divers, tantôt réunis dans la main Du.
 Fe d'un seul individu, tantôt dispersés dans les mains +04
@@ -2429,7 +2328,6 @@ moins dans le Code civil de 1804, qui n'est que le
 proche passé remanié, qu'il faut chercher le droit
 | nouveau, que dans les lois sociales postérieures
 
-s. ne Peut QUESTION DE MÉTHODE
 a. qui, ainsi que le remarque M. Jaurès, constituent,
 | elles, de véritables dépossessions dans un sens LS
 _ collectiviste : droit de grève, inspection du tra- a À
@@ -2482,19 +2380,9 @@ avec les libres esprits que votre initiative et votre
 critique toujours en éveil ont groupés autour des
 Cahiers de la Quinzaine.
 
-A A Pot ON
-
-De Préface :,
-
-dr POONEP PSE MA
-
-res e Un
-
-| RÉPUBLIQUE ET SOCIALISME
 Il y a onze ans, au moment où la démocratie
 socialiste allemande élaborait son programme,
 | le projet de programme qui devait être bientôt adopté à Erfurt fut soumis à Engels, l'ami survivant de Marx. Engels fit de graves objections
-_ à la partie politique de ce programme. Il la
 
 | trouvait timide, inconsistante et inefficace. On
 1 parle, disait-il, de suffrage universel direct, de
@@ -2531,9 +2419,7 @@ l'Angleterre où la dynastie est impuissante
 contre le peuple. Mais en Allemagne, où le
 gouvernement est presque tout-puissant et où
 le Reiïichstag et les autres corps représentatifs
-| XCIV
 
-aa | RÉPUBLIQUE ET SOCIALISME
 F sont destitués de pouvoir réel, tenir un pareil l
 | langage c'est se lier à l'absolutisme tout nu. À
 | « Si une chose est certaine, c'est que notre
@@ -2544,7 +2430,6 @@ de la dictature du prolétariat, comme l'a montré |
 | déjà la grande Révolution française. On ne peut
 | pas se représenter que nos meilleurs militants
 deviennent ministres sous un empereur, comme
-| Miquel. »
 | De ces remarquables paroles de Engels, je à
 ; ne veux retenir aujourd'hui que deux points.
 ; Le premier, c'est que, pour l'illustre ami de ©
@@ -2758,11 +2643,6 @@ sous les outrages comme sous les acclamations.
 Et j'ai l'assurance que le fruit de ce labeur ne
 sera point perdu pour le prolétariat.
 
-MÉTALIA tes
-
-NE) CS ut
-
-id LE MOUVEMENT RURAL
 Le mouvement économique n'a pas à la campagne
 la même forme qu'à la ville. D'abord, la population
 rurale diminue, tandis que la population urbaine
@@ -2773,7 +2653,6 @@ diminution. Il est clair que ce sont surtout les
 qui sont entraînés vers la ville. Les petits proprié-
 | taires sont plus fortement fixés au sol.
 | Enfin, l'effet de la machine est exactement le con-
-| traire, à la campagne, de ce qu'il est à la ville.
 | Dans l'industrie, la machine supprime parfois des
 bras, mais ce n'est que momentanément; elle suscite des forme nouvelles d'activité, et c'est ainsi
 qu'à mesure que se développe le machinisme, s'accroît aussi le chiffre de la population ouvrière. Et
@@ -2806,7 +2685,6 @@ _ main-d'œuvre, la diminution du prolétariat rural
 à _ neutralisent toutes ces forces de développement de
 ; la grande propriété. Celie-ci a naturellement besoin 4 î
 à _ d'une main-d'œuvre toujours disponible. Or, il y a
-ns La s LE MOUVEMENT RURAL
 De _ des régions entières d'où les journaliers ont dis- F
 Pa paru, où les familles de métayers sont juste assez P:
 ; e nombreuses pour suflire à l'exploitation des
@@ -2984,9 +2862,6 @@ les municipalités rurales, et la France agricole
 où toutes les énergies individuelles se déploieront
 sans entrave et sans conflit dans l'harmonieuse
 
-Mu 7 Lier an l r ee va D; nt
-| Fe EI ù RS D
-
 Dans l'immense transformation sociale qui se RE
 prépare, le prolétariat sait maintenant avec certitude
 Fa _ la direction qu'il doit suivre; il connaît assez Ps + À
@@ -3007,7 +2882,6 @@ _ du travail organisé se substituera à la puissance du 4
 | quelques-uns. L'intervention de la communauté Re
 _ elle-même dans la propriété est donc nécessaire A
 _ pour que le droit de tous les individus soit respecté.
-E- De là la grande idée collectiviste ou communiste de er:
 | la propriété sociale, qui est la lumière du prolétariat
 | L socialiste en son effort multiple et tourmenté. : FA à
 
@@ -3049,7 +2923,6 @@ prêt du bétail. La machine à moissonner ayant
 rapidement abattu le blé, il faut, de peur des
 orages, le lier vite, et vite l'entasser en gerbier.
 Pour hâter ce travail urgent, les paysans se prêtent
-charrettes et bœufs. Et, je le répète, il n'y a pas de
 : compte ouvert. Il serait impossible d'évaluer les
 services de l'un et ceux de l'autre. C'est un libre et
 amical échange. Ainsi, une parcelle d'âme communiste pénètre dans le travail paysan, dans la
@@ -3087,8 +2960,6 @@ a que le socialisme prendra contact avec la vie et lui
 _ des régions, de grands travaux de perfectionne- E.
 drainages, nivellement ou adoucissement des pentes, É
 , charrois d'engrais, apports de terres, aménagement h ù N
-
-1) LE MOUVEMENT RURAL dx
 
 FES _ des eaux. Il se peut que la nation soit appelée à ;.
 __ encourager, à subventionner ces travaux, car il est i
@@ -3162,16 +3033,6 @@ mais une fois engagées dans cette direction, ce
 sont les forces variées de la vie qui détermineront
 elles-mêmes, librement, souverainement, leur
 
-MS rie LE ED AE PME RAR
-NICE rn EN PRE 3 a de sk é y x,
-$ , £ + Li af TO PNR EP: OCR Sd les
-Le ele ee; “4
-LR TIR Cr ea Tee ne Are — > je PCR
-| x RER RS d NT Le ni PE 5, DA di ar
-il ; mh'r ce
-
-|" 10e ü RACE.
-
 Je ne sais pas quelle conclusion la classe ouvrière
 du Nord tirera des dernières élections, en particulier des élections de Lille. Elle a fait assurément un
 grand effort de propagande et de combat, et elle a
@@ -3210,7 +3071,6 @@ peuple ouvrier n'a aucune différence à faire. Et
 | que l'on dénonce avec le plus de virulence. Voilà
 | un des aspects de la pensée du Parti ouvrier français, voilà une de ses tactiques. C'est celle qui a
 | joué à Lille au premier tour de scrutin.
-| Mais il y a un autre aspect, et il y a une autre
 tactique. Foncièrement, malgré l'affectation d'in-
 | transigeance de classe, les ouvriers socialistes du
 # Nord, adhérents au Parti ouvrier français, sont ré-
@@ -3268,7 +3128,6 @@ dk d'être défendue par les démocrates des deux classes,
 ee de la classe ouvrière et de la classe bourgeoise.
 74 Ainsi, tantôt vous creusez un abîme info
 
-je REVISION NÉCESSAIRE
 et vertigineux ; tantôt, vous jetez un pont sur cet
 abîme. En ces manœuvres contradictoires se perd
 peu à peu toute la force vive d'un parti.
@@ -3286,7 +3145,6 @@ ne peuvent voter pour des socialistes qu'en faisant
 abstraction des antagonismes de classe. Ils ne le
 
 | peuvent qu'en se détachant du bloc réactionnaire.
-Ils ne le peuvent qu'en proclamant qu'il y a plus
 d'intérêt pour eux, républicains bourgeois, à voter
 pour des républicains, même socialistes, que pour
 des non-républicains, même bourgeois. Les socialistes qui les appellent supposent donc que la masse
@@ -3325,7 +3183,6 @@ A aussitôt appel aux démocrates contre les cléricaux,
 
 Mais il y a une autre contradiction de méthode qui arrêterait toute croissance, toute action du … É ca
 
-KE er REVISION NÉCESSAIRE « où
 Me La classe ouvrière veut des réformes, j'entends 2240
 Fe _ des réformes prochaines, immédiates. Elle ma
 5 besoin pour vivre, pour ne pas fléchir sous le
@@ -3421,13 +3278,6 @@ ne. daines délivrances, la charge des jours présents.
 Cest proclamer soi-même l'impossibilité des réformes qu'on annonce et qu'on demande.
 Re Et voilà encore une terrible contradiction. à
 
-AE ë Les RE
-
-#R NS 44
-#0 78 re. + ù
-
-RE à des a
-
 Lorsque la révolution de 1848 eut été écrasée
 Autriche, en Hongrie, lorsque le prolétariat eut été
 < vaincu par la bourgeoisie, et la bourgeoisie libérale par la réaction, le parti communiste et
@@ -3495,7 +3345,6 @@ br libéral anglais, trop lent, selon lui, à engager la Le
 4 guerre de Crimée, comme un moment l'avait espéré F
 : % Marx, gagné à son tour par la fièvre d'impatience ‘1
 . et d'illusion qu'en 1850 il reprochait à ses collègues ?
-ii du comité de Londres. Et pourtant, la guerre de À
 4 Crimée ébranla en Russie le vieux système. De ce
 me. côté, le formidable obstacle que Marx redoutait
 “ estsinon détruit, au moins diminué. Il me paraît
@@ -3529,7 +3378,6 @@ démocratie, et le prolétariat approche sa main du Fu
 suffrage universel. — En Allemagne, par une de $
 ces merveilleuses ironies de l'histoire qui attestent À
 a force invincible de la démocratie, on peut dire 4
-| 38 É.
 
 2 que la Russie a servi sans le vouloir l'avènement hs.
 So _ du suffrage universel et du socialisme. Parce que ;
@@ -3619,13 +3467,11 @@ et au suffrage universel.
 Maintenant que cette condition est réalisée, la
 classe ouvrière de l'Europe, et particulièrement la .
 classe ouvrière de France, a le chantier et l'outil.
-De là à l'achèvement de l'œuvre, il y a loin.
 Aujourd'hui, comme il y a un demi-siècle, il faut se
 4 garder de la phrase révolutionnaire et comprendre ,
 À profondément les lois de l'évolution révolutionnaire
 £, dans les temps nouveaux.
 
-| RER MAJORITÉS RÉVOLUTIONNAIRES Het UE
 1 Ces grands changements sociaux qu'on nomme
 + des révolutions ne peuvent pas ou ne peuvent plus | ne.
 s être l'œuvre d'une minorité. Une minorité révo- _
@@ -3633,7 +3479,6 @@ ra lutionnaire, si intelligente, si énergique qu'elle Éi.
 “4 soit, ne suffit pas, au moins dans les sociétés
 Fe modernes, à accomplir la Révolution. Il y faut le
 _ concours, l'adhésion de la majorité, de l'immense
-#4 majorité. RAA
 4 Il se peut — c'est un difficile problème d'histoire
 __ à résoudre — qu'il y ait eu des périodes et des pays
 4 où la multitude humaine était si passive, siincon
@@ -3641,7 +3486,6 @@ __ sistante, que les volontés fortes de quelques indi- #3
 38 . . .
 - vidus ou de quelques groupes la façonnaient. Mais
 = depuis la constitution des nations modernes, depuis
-3 ». la Réforme et la Renaissance, il n'y a presque pas " 7e
 Er un seul individu qui ne soit une force distincte. ‘4
 1e Il n'y a presque pas un individu qui n'ait ses RE.
 £ intérêts propres, ses attaches au présent, ses vues é
@@ -3649,8 +3493,6 @@ Er un seul individu qui ne soit une force distincte. ‘4
 l'Europe moderne, des centres d'énergie, de il
 { conscience, d'action. Et comme, dans les périodes Re gr
 ; de transformation où les antiques liens sociaux se ns! %
-
-| Jean Jaurès E
 
 É dénouent, toutes les énergies humaines sont équi-
 
@@ -3784,7 +3626,6 @@ i ë que les nouveautés les plus hardies réclamées par Ë
 R dans la réalité.
 $ Sans doute la croissance économique de la bour_ geoisie industrielle et marchande au dix-septièmeet
 
-| MAJORITÉS RÉVOLUTIONNAIRES
 au dix-huitième siècle, la grande philosophie
 bumaine du dix-huitième avaient donné aux esprits
 une audace et un élan jusque-là inconnus. Pourtant, le souvenir des États-Généraux de 1614, malgré
@@ -3829,7 +3670,6 @@ A contraire dans les affirmations les plus nettes, les
 À dans la souveraine précision de l'esprit français
 4 formé par le dix-huitième siècle que se fit l'accord
 
-#4 MAJORITÉS RÉVOLUTIONNAIRES
 des volontés. Et la Révolution de 1789 fut l'œuvre
 d'une majorité immense et consciente.
 
@@ -3841,14 +3681,6 @@ faveur des événements ou l'es hasards de la force,
 et renoncerait à amener à nos idées l'immense
 majorité des citoyens, renoncerait par là même à
 transformer l'ordre social.
-
-rs É DE 0 Vase
-FM ee LAS es DE à
-#2 Mt ir LU
-
-ira rx m “ + Nr 1e je os
-pe] L aise
-Mes v LA RNE
 
 Le 7 août, premier anniversaire de la mort de
 Liebknecht, le Vorwaerts a publié de lui quelques
@@ -3939,8 +3771,6 @@ __ cecas, il est certain que l'action du parti socialiste
 _ sera particulièrement énergique. Sur les ruines de ST
 l'institution impériale et des partis d'Empire, il se ‘.
 
-eds 5 te SES an: 2 his à ie se us DRE: à
-
 dressera avec sa force pleine d'élan. Et sans doute, à la faveur de ce grand ébranlement, il fera d'emblée, pour le peuple et le prolétariat, plus qu'il ne pourra faire d'abord, s'il est appelé à une part de pouvoir par la lente évolution des institutions d'Empire vers la politique de réformes.
 
 ; Mais, même alors, même si un grand orage .
@@ -3959,7 +3789,6 @@ S avec d'autres partis démocratiques. Après le
 
 2 Allemagne une bien plus grande part de pouvoir
 
-1e qu'il n'en a eu en France après le 4 septembre
 <a français. Mais Liebknecht n'assure point qu'il aura
 
 Fi tout le pouvoir, tout le gouvernement. Il est possible
@@ -3981,7 +3810,6 @@ _ Ainsi, il ne s'agit pas pour Licbknecht, dans We de
 _ possession complète du pouvoir par le parti socia— |!
 “& liste. Liebknecht ne peut pas s'imaginer, et ne 170)
 _ s'imagine point en effet, que sous l'Empire, sous un 1160
-23 ÿ Guillaume premier, ou un Guillaume II, ou un Re:
 | #4 Guillaume III, le parti socialiste recevra d'emblée n:
 184 _ tout le pouvoir que, peut-être, au lendemain même
 _ de la chute violente de l'Empire, il ne pourra saisir De
@@ -3993,12 +3821,10 @@ _ que la politique de réformes soit possible, pour “A
 ie qu'elle soit efficace, pour qu'elle inspire confiance
 #4 au peuple allemand, il faudra que le Parti socialiste F.
 \ : _ contribue à la diriger. Il faudra qu'il soit représenté N
-& au gouvernement et qu'il y agisse. Liebknecht va “4
 É jusqu'à désigner, ou à peu près, le ministère qu'il
 devra occuper : et cela ressemble fort au ministère fs
 du travail proposé par le citoyen Vaillant ou au Re
 ministère du commerce occupé par le citoyen F 4e
-à ù ne
 
 Millerand. Et Liebknecht dit avec raison qu'il y .
 aura des degrés, des nuances, des modalités sans
@@ -4056,10 +3882,8 @@ de ses qualités souveraines de fermeté, d'élan et de
 confiance. Donc tout ce qui se rattachait par un lien
 historique à une agitation qu'il avait désapprouvée
 lui était suspect ou importun. Ainsi l'application
-de sa méthode de 1881 se produisant en France, H
 dans des circonstances qui l'irritaient, il ne recon- È
 nut pas, dans la marche des choses, sa propre
-| pensée. F
 Essaiera-t-on d'en diminuer la valeur en disant %
 qu'il n'avait point publié son œuvre? Pris par le . .
 tourbillon de l'action, surchargé des tâches quotidiennes, il ne l'avait point achevée. Mais il ne l'a €
@@ -4093,10 +3917,6 @@ de Paris de 1900. Il a acclamé avec une sorte de
 piété la grande mémoire de Liebknecht; peut-être
 quelques âpres paroles auraient été adoucies si l'on
 avait su qu'elles frappaient Liebknecht lui-même.
-
-la sense ESS TE CNRS RER
-#5 FCeu BREL
-un . nn SE 4 L È
 
 Au demeurant, c'est toute la tactique du parti que
 Liebknecht considère comme nécessairement contingente et variable. Jamais ce qu'on appelle depuis
@@ -4176,7 +3996,6 @@ tactique, qui sera résolue par les nécessités mêmes
 de la vie et par l'évolution politique et sociale, et
 qui ne vaut pas qu'on se jette l'anathème et qu'on
 
-£ se sépare. L
 De même que la tactique est variable, le programme, qui estaprès tout une partie de la tactique,
 peut être modifié, revisé, complété. Je crois, pour
 _ ma part, qu'il est tout à fait incomplet et étrange-
@@ -4212,7 +4031,6 @@ désordre dans nos idées tactiques, et notre action
 en est contrariée et affaiblie. Par nos fréquents
 appels à la légalité républicaine, par notre pratique è
 
-A ÿ * + sh ra er A PE ne MRC : AP Tee ee AANTIEET
 _ constante du suffrage universel, nous affaiblissons
 _ l'instinct de révolte et la tradition du coup de main
 _ du révolutionnarisme classique. Par nos appels in- EDR
@@ -4227,7 +4045,6 @@ D Avons-nous besoin de la majorité, et pouvons-
 - nous la conquérir? Voilà le problème. Si oui, ra
 … l'appel à la force devient, en effet, comme dit
 
-É: Or, Liebknecht dit : Oui. Des
 4 . 6 Je traduis encore : .
 É Nous avons fait remarquer enfin que le Parti, pour à
 - pouvoir réaliser les idées socialistes, doit conquérir le "4
@@ -4243,9 +4060,7 @@ J que nous devons employer toute notre énergie à éclairer
 cette majorité et à la gagner à nous. S
 Ainsi, Liebknecht a poséle problème exactement, A
 __ littéralement, comme je le pose : Des moyens de
-Us ES CE de RE
 
-| _ Jean Jaurès E
 conquérir à l'entier idéal socialiste l'immense
 majorité de la nation par la propagande et l'action À
 
@@ -4267,7 +4082,6 @@ te travail social par l'État conduit tout droit à l'organisation
 +. Voilà ce que disait Liebknecht de la loi sur les
 4 accidents, qui de toutes les lois d'assurance est la
 Li plus superficielle, la plus extérieure au travail.
-# g . . . .
 S Mais combien cela est plus vrai encore de la loi
 ne d'assurance sur les pensions de vieillesse et d'in- î
 validité qui crée un droit nouveau de la classe
@@ -4277,7 +4091,6 @@ rec la fois collectif et individuel ; comme surtout cela nt.
 _ sera vrai de l'assurance contre le chômage, quiest
 _ nécessaire et possible, et qui introduira la classe Re
 _ ouvrière organisée au cœur même de la production. : …
-pe ne “st SA
 Ne à Liebknecht constate comme un des signes les plus
 _ décisifs de la croissance dusocialismeen Allemagne,
 L _ que presque tous les partis sont obligés d'adhérer
@@ -4325,8 +4138,6 @@ communiste, prolétarien et humain, toute la nation
 ES Les majorités peuvent et doivent être légalement
 à nous.
 
-‘+2 ms nt F te Le
-
 à Il y a bien des contradictions dans la pensée de ne
 = Liebknecht. J'imagine que dans son esprit, coma os
 4 dans l'esprit de beaucoup de socialistes de la pre
@@ -4348,7 +4159,6 @@ Se. Parlement, il garda pourtant quelque souvenir de “4
 que le groupe socialiste fût représenté par un délégué
 u dans la « commission des doyens », qui règle
 
-| Jean Jaurès
 __ le travail parlementaire. Ses collègues ne l'écou- L
 3 tèrent point, et ils eurent bien raison; car à quoi
 __ bon entrer au Parlement, si sous prétexte de ne
@@ -4434,7 +4244,6 @@ e causes profondes de leur triste situation, sont encore dans
 à Ï serait sans doute naïf et même fou d'exiger que, pour
 ; réaliser pratiquement nos principes, nous ayons en poche
 . uné majorité toute prête et toute cachetée. MAIS IL SERAIT
-| NOS PRINCIPES CONTRE LA VOLONTÉ DE L'ÉNORME MAJORITÉ
 
 C'est une erreur funeste que les socialistes français ont
 
@@ -4473,7 +4282,6 @@ bourgeoisie, qui ne sont pas encore arrivés à une activité
 Et Liebknecht conclut tout cet ordre de pensées
 & par ces fortes paroles
 je Il ne faut pas demander: Es-tu salarié? maïs : es-tu
-# socialiste ?
 F Réduit aux salariés, le socialisme est incapable de
 4 vaincre. Compris par l'ensemble du peuple qui travaille et
 4 par l'élite morale et intellectuelle de la nation, sa victoire
@@ -4484,7 +4292,6 @@ plus indécentes brutalités ? Ÿ
 ‘4 Parce que nous sommes encore faibles. Fe
 È Et pourquoi sommes-nous faibles ? FE:
 Parce que seule une petite partie du peuple connaît la .
-Fe. doctrine socialiste. L:
 À Et nous devrions, nous qui sommes faibles, accroître
 __ encore notre faiblesse en écartant de nous des milliers
 OT d'hommes, sous prétexte que le hasard n'a pas fait d'eux les
@@ -4503,10 +4310,8 @@ PRE ï être lancée contre nous comme la meute de la sorcière.
 6 € \ Toutes les mesures législatives, que, si l'occasion nous en
 #4 est offerte, nous aurons à appuyer, doivent avoir pour but
 de communs, et de détruire les préjugés courants contre
-è “is nous,
 
 _ Ainsi Liebknecht conçoit toute une période d'ac- De.
-AREAS . ' é SA le UE es
 # _ tion législative, où le socialisme fera, si je puis dire, :
 _ ses preuves de large compréhension, où il appa
 “_ raîtra aux plus aveugles comme un parti d'intérêt De
@@ -4517,14 +4322,6 @@ _ bout de sa doctrine et de son idéal, sans répugnance %
 
 -_ et sans peur. Ce sera comme une propagande en
 action complétant la propagande de la parole. n
-
-ne É AG Ste ii à
-et à FRS
-# Me: e
-
-# : %:
-
-> 0 Dre
 
 Certes, le Parti socialiste ne doit pas être l'écho
 confus des intérêts discordants ; ilne doit pas livrer
@@ -4556,7 +4353,6 @@ réaliser l'ordre, la paix et l'harmonie.
 Elle n'est pas un parti des grands propriétaires et des
 féodaux, et par suite, elle n'a pas besoin de servir les intérêts des grands propriétaires et des hobereaux, comme le
 
-Et Jean Jaurès FSC TR
 ÿ Elle n'est pas un parti de la bourgeoisie dans ses
 A diverses branches, et par suite, elle n'est pas au service des è
 ‘ intérêts particuliers et des goûts de domination de la boursi geoisie, comme le parti national-libéral et le parti progresF% siste.
@@ -4566,7 +4362,6 @@ qe * suite elle n'est pas au service des intérêts particuliers et
 Fe centre catholique et la faction protestante du christianisme
 ER social à la Stoecker.
 RE Elle est le parti de l'ensemble du peuple, à l'exception de
-3 _ et prêtres. .
 _ C'est donc vers l'ensemble du peuple quelle doit se FI
 : tourner, et aussitôt que l'occasion lui en est offerte, lui
 k- fournir, par des propositions pratiques et des projets de loi
@@ -4603,7 +4398,6 @@ VF Nous déclarons expressément que c'est à notre avis un
 ÉSe Nous avons des devoirs de l'État envers les individus une j
 # plus haute idée que nos adversaires, et nous n'en dévierons
 > pas, même si ce sont des adversaires que nous avons en face
-$ de nous.
 
 g Je ne cite point ces magnifiques paroles pour cou-
 | vrir d'une autorité révolutionnaire la politique
@@ -4632,7 +4426,6 @@ notre politique et de notre pensée. Je crois que si le
 | parti socialiste ne laissait pas ces grandes pensées
 à l'état de formule générale, s'il les réalisait en un
 
-| | Jean: Jaurès Ce *
 programme précis d'évolution équitable et large .
 vers un communisme bien défini, s'il donnait
 | l'impression qu'il est à la fois généreux et pratique,
@@ -4655,10 +4448,7 @@ n même souci de noble culture, de large humanité,
 _ devons ne jamais perdre de vue l'universalité de la concep- !
 y L'un saisit surtout le côté économique du socialisme ; un
 2% autre, son côté moral et humain; un troisième, son côté d
-Le politique.
 à Dans la propagande et dans la législation, ces trois côtés
-
-“es 1 ni
 
 Le peuple doit éprouver que le socialisme n'est pas seulef ment la réglementation des conditions du travail et de la
 ; production, qu'il ne se propose pas seulement d'intervenir
@@ -4670,7 +4460,6 @@ autant que possible l'idéal de l'humanité. se.
 C'est dans l'union et la fusion des plus sublimes objets é
 que réside la haute signification du socialisme.
 Sans le côté économique, l'idéal humain serait suspendu
-en l'air. i
 Sans le côté humain, le but économique manquerait de $
 Les deux sont liés. F
 Il y a eu de tout temps des rêveurs qui se sont échauftés
@@ -4693,8 +4482,6 @@ Sur aucun point, il n'est en contradiction avec la civilisation moderne. Bien lo
 monopole d'une minorité privilégiée. £
 Ainsi, le socialisme, enveloppant dans son domaine toute
 
-< nie RP Ur Hs Trns Fe DR SEC ALES Mes
-"455 Jean Tours Et RP
 : pe la vie, tous les sentiments, toutes les pensées de l'homme, È
 - s'assure contre l'étroitesse et l'exclusivité; il a en outre
 de par là cet immense avantage de pouvoir exercer dans toute
@@ -4771,8 +4558,6 @@ ce + dues, ils ont pris peur en 1851 du spectre rouge, et
 he la République et ils en sont une des forces vives.
 à Ils ont le sentiment très net de leur puissance
 politique. Ils sont entrés dans les municipalités ; ils ”
-#4 x” sd] (is di Re
-si LES RAISONS DE MAJORITÉ
 ; savent qu'ils font les députés, les conseillers généraux et les sénateurs, et ils ne toléreraient nul- lement un grand mouvement social qui se ferait sans eux.
 
 Je crois qu'il est imprudent de dire que la
@@ -4827,7 +4612,6 @@ k masse dormante qu'une impulsion vigoureuse puisse F
 
 È ' Le ébranler. Il y a partout des centres de force, qui.
 
-ss LES RAISONS DE MAJORITÉ
 Et deviendraient vite des centres de résistance, des
 à points de réaction, si peu à peu leur mouvement
 propre ne se dirigeait pas dans le sens de la société
@@ -5028,7 +4812,6 @@ partout le suffrage universel. Il le demande avec
 la représentation proportionnelle. Liebknecht, dans
 les fragments qu'a publiés le Vorwaerts, demande
 
-RES Jean Jaurès FRE LA EN
 “4 la représentation proportionnelle. Les socialistes R
 3 belges l'ont soutenue. Le citoyen Vaillant, dans un
 We: : article récent, adhéraït en principe au scrutin de
@@ -5050,7 +4833,6 @@ _ générale à caractère révolutionnaire croient que
 4 _ l'action du seul prolétariat industriel ou même de à
 ne la portion la plus active et la plus consciente de ce
 3 15 prolétariat suflira à déterminer l'avènement du …
-# en OT ne —— ren ES :
 
 Quand on parle de grève générale, il faut commencer par bien définir le sens des mots. Il ne s'agit
 pas, bien entendu, de la grève générale d'une seule
@@ -5108,7 +4890,6 @@ Res: possibles. Ets'ils se produisent, ils peuvent exercer … ï
 
 ‘0 sur les classes dirigeantes un effet profond. Ce n'est
 1 plus une corporation, si puissante qu'elle soit, qui
-RAS Les a D ee te CESR
 ; refuse le travail, c'est tout un ensemble de corpo-
 - rations. Ce n'est donc plus un mouvement à
 corporatif : c'est un mouvement de classe. Et
@@ -5132,8 +4913,6 @@ de cet objet. — 3° Il faut que la grève générale
 n'apparaisse point comme un déguisement de la
 violence, et qu'elle soit simplement l'exercice du
 droit légal de grève, mais plus systématique et
-
-| Jean Jaurès
 
 | plus vaste, et avec un caractère de classe plus
 
@@ -5189,7 +4968,6 @@ du pays — et même de cette partie très importante
 des salariés de tout ordre qui ne sera pas entrée
 dans le mouvement — se prononcera donc avec
 force contre ceux qui seront rendus responsables
-de la prolongation du conflit. Or, l'opinion ne
 rendra la classe capitaliste responsable et ne se
 tournera vigoureusement contre elle que si, par une
 propagande ardente et substantielle, l'équité des
@@ -5198,7 +4976,6 @@ d'y satisfaire immédiatement lui ont été démontrées.
 Alors, c'est contre l'égoïsme des grands possédants,
 c'est contre la routine ou l'égoïsme des pouvoirs
 
-£. Jean Jaurès L
 Û publics qu'elle se prononcera, et la grève générale
 £ aboutira à un succès notable. Au contraire, si la
 | masse indifférente n'avait pas été avertie et en
@@ -5209,7 +4986,6 @@ S prononcerait. Et comme aucune force, même révoL lutionnaire, ne prévaut con
 Enfin, je dis que si la grève générale est présentée
 à et conçue non comme l'exercice plus vaste et plus
 cohérent du droit légal de grève, mais comme le
-# . . , . .
 È prodrome et la mise en train d'une action de vio-
 ; lence révolutionnaire, elle provoquera d'emblée un
 à mouvement de terreur et de réaction auquel la
@@ -5219,16 +4995,13 @@ cohérent du droit légal de grève, mais comme le
 ‘ générale. Ils croient que la grève générale des cor- $
 NA porations les plus importantes suflira à déterminer J
 F4 la Révolution sociale, c'est-à-dire la chute de tout à
-Gre Ne: SU
 3e le système capitaliste et l'avènement du commua L
 Xe nisme démocratique et prolétarien. La vie écono-
 % mique du pays sera suspendue; les voies ferrées
 es seront désertes; la houille nécessaire à l'industrie î
 
-er GRÈVE GÉNÉRALE ET RÉVOLUTION
 -_ restera ensevelie sous terre : les navires ne pour3 ront même plus aborder les quais où nul ouvrier
 ne déchargera les marchandises. Partout, arrêt de
-la circulation, de la production. Naturellement, il y
 aura un grand malaise. Les masses ouvrières, en
 arrêtant la production et les échanges, se seront
 affamées elles-mêmes; elles seront ainsi acculées à
@@ -5261,7 +5034,6 @@ ne attachent tous ce sens. Mais je dis que pour ceuxà qui y voient l'instrument
 
 56 Les partisans de la grève générale ainsi entendue J
 DER sont obligés, qu'on le note bien, DE RÉUSSIR
-|. A LA PREMIERE FOIS. Si une grève générale,
 ES, après avoir tourné à la violence révolutionnaire,
 Dai échoue, elle aura laissé debout le système capita- .
 ES a liste, mais elle l'aura armé d'une fureur implacable.
@@ -5276,7 +5048,6 @@ LP l'avènement du communisme. L'idée de Révolution
 +14 sociale ne suflira pas à l'entraîner. L'idée socialiste,
 LS l'idée communiste est assez puissante pour guider
 
-# GRÈVE GÉNÉRALE ET RÉVOLUTION
 et ordonner les efforts successifs du prolétariat.
 
 C'est pour s'en rapprocher tous les jours, c'est pour
@@ -5303,7 +5074,6 @@ devenant forcément révolutionnaire, s'élargira de
 lui-même en communisme complet.
 
 Mais là est précisément le vice essentiel de la
-tactique. ELLE RUSE AVEC LA CLASSE
 OUVRIÈRE. Elle se propose de l'entrainer, comme
 
 à par l'effet irrésistible d'un mécanisme, au delà du
@@ -5315,7 +5085,6 @@ k immédiates, qu'on la détermine à la grande opé-
 É presque automatiquement, à la Révolution commu-
 14 Or, je dis que dans une démocratie, cela est con- à
 | taire à l'idée même de la Révolution. Je dis qu'il À
-J n'y a et ne peut y avoir Révolution que là où ilya
 1 conscience, et que ceux qui construisent un mécale nisme pour véhiculer le prolétariat à la Révolution
 à presque à son insu, ceux qui prétendent l'y conduire
 0 _ comme par surprise, vont à rebours du vrai mouve-
@@ -5374,7 +5143,6 @@ __ rément révolutionnaire, n'hésiteront pas à mani- S
 4 __ fester leur irritation contre les injustices sociales
 # _ parune démarche menaçante, mais qui ne les jette
 :*e pas dès la première heure et de sang-froid hors de
-__ la légalité. F
 “4 « De plus, ce qu'on pourrait appeler la répression
 _ préventive du pouvoir capitaliste est empêché par la
 forme d'abord légale du mouvement. Mais peu à peu,
@@ -5404,8 +5172,6 @@ de tout autre appareil de force. Ainsi, on compte
 sur la force révolutionnaire des événements pour
 suppléer ou pour compléter l'insuflisante force révolutionnaire des hommes.
 
-J'ai bien le droit de dire qu'il y a là un artifice de
-
 __ révolution. Et comme tout mécanisme qu'onn'apu
 éprouver par des expériences répétées avant d'en
 x | faire un emploi décisif, celui-ci expose à bien des
@@ -5426,7 +5192,6 @@ Be _ révolutionnaire des choses et des esprits. Il ne
 < entrer dans la grande action, d'un prétexte etmême
 108 d'une illusion de légalité, reculent devant l'emploi
 
-F1 de la force au moment où se dérobera ce prétexteet
 50 oùse dissipera cette illusion. Le dé qui auraété
 SA Se jeté en l'air pourra bien retomber sur une face
 Me _ de violence; il pourra retomber aussi sur une face
@@ -5456,12 +5221,9 @@ du tout que la grève générale, même si elle prend
 en effet un caractère révolutionnaire, fasse capituler le système capitaliste. La société bourgeoise
 opposera une résistance proportionnée à la granIII
 
-| Jean Jaurès
 deur des intérêts en jeu. C'est dire qu'à la grève
 générale de révolution qui lui demandera le sacrifice
 complet de son principe même, elle opposera une
-
-| résistance totale.
 
 é Or, nil'arrêt de la production et de la circulation, ni même les violences étendues contre les propriétés et les personnes ne sufisent à faire tomber une
 
@@ -5476,8 +5238,6 @@ gênent la circulation et jettent dans la vie écono3 mique un trouble qu'on pou
 À Et pourtant, les sociétés résistent avec une élasticité à extraordinaire à des crises qu'on pouvait croire
 
 : SA funestes, à des m#ux qui paraissaient accablants. è
-
-| Je ne parle pas de la guerre de Cent Ans en
 
 À France, de la guerre de Trente Ans en Allemagne.
 
@@ -5577,7 +5337,6 @@ Et pendant ce temps, que ferait la Révolution ?
 À Dans les régions où elle aurait paru d'abord victo- ,
 R rieuse, elle ne pourrait que se dévorer sur place, et .
 s'épuiser en d'inutiles violences. Les révolutions
-D libérales ou démocratiques de 1830 et de 1848
 3 à avaient un but très précis : renverser le pouvoir
 b. central et le remplacer. Les coups révolutionnaires
 À ' de Blanqui étaient toujours calculés pour frapper
@@ -5614,10 +5373,7 @@ e étonnées de leur impuissance dans leur apparente f
 et pour effet de décomposer la vie économique et ‘4
 $ sociale, de la morceler. Arrêter les locomotives, D:
 e immobiliser les navires, refuser aux machines de #:
-Jean Jaurès ë L.
 l'industrie la houille, c'est substituer à la vie générale et une de la nation la vie dispersée d'innombrables groupes locaux. Or, ce morcellement de la
-vie, C'EST PRÉCISÉMENT LE CONTRAIRE DE
-| LA RÉVOLUTION.
 A La Révolution bourgeoise a été faite par des
 | fédérations qui venaient de proche en proche se
 nouer à Paris. Toute grande révolution suppose une
@@ -5681,7 +5437,6 @@ plan d'action. C'est vers l'abîime de la grève générale révolutionnaire que
 plus en plus entraîné, au risque de se briser en
 y tombant, mais en emportant avec lui pour
 des années ou la richesse ou la sécurité de
-LU la vie.
 L La grève générale, impuissante comme méthode
 révolutionnaire, n'en est pas moins, par sa seule
 ' idée, un indice révolutionnaire de la plus haute
@@ -5712,21 +5467,6 @@ _ vision et à toute règle, et qui sont parfois la ressource suprême de l'hist
 are _ aujourd'hui pour le socialisme qu'une méthode
 & souveraine : conquérir légalement la majorité.
 
-| #5 EEE et CS
-ne à _— Hat J
-
-LT ri : ; ne C
-
-RES ne RE dure LU à 7 NC
-| LCR A
-FA È Je Fe STE Re 1 FE nee
-
-A ne RS de EN “4 D:
-
-Ne RER ca
-
-UT: di Sc RE" + FR ! ni à
-
 La première condition du succès pour le socialisme, c'est d'expliquer à tous clairement son but et
 son essence; c'est de dissiper beaucoup de malentendus créés par nos adversaires, et quelques
 malentendus créés par nous-mêmes.
@@ -5747,7 +5487,6 @@ matières premières et des ressources monétaires
 accumulées. Et naturellement, la classe capitaliste
 et propriétaire, usant de sa puissance, fait payer à
 
-His Par TT
 + la classe prolétarienne une large redevance. Elle
 ; ne se borne pas à récupérer les avances faites par
 ‘ elle et à amortir l'outillage. Sur le produit du
@@ -5914,13 +5653,6 @@ _ d'action mis à la portée de tous.
 
 le socialisme et la vie
 
-FR ne: Te EE Be FRE RTS pe 1e
-Le San î
-on 3 Fe Sat
-Dhs Le RE
-RER 4 et | il
-ne Rs TT ei D
-
 La domination d'une classe est un attentat à
 l'humanité. Le socialisme, qui abolira toute primauté de classe et toute classe est donc une restitution de l'humanité. Dès lors c'est pour tous un devoir de justice d'être socialistes.
 F Qu'on n'objecte pas, comme le font quelques
@@ -5987,7 +5719,6 @@ ne accumulé par les générations antérieures, et en
 _ laissant à une minorité le privilège de percevoir
 2 cette redevance, il frappe d'une sorte d'hypothèque
 _ au profit du passé et au profit d'une classe toute À
-| personnalité humaine. "
 à Nous prétendons, nous, au contraire, que les æ
 - moyens de production et de richesse accumulés par a
 
@@ -6029,9 +5760,6 @@ L: Marx et Engels, dans le Manifeste communiste,
 
 k Dans la société communiste, le travail accumulé ne sera ee 138
 
-pre US - ee C5 1e 0e a CE
-
-“Are LE SOCIALISME ET LA VIE
 qu'un moyen d'élargir, d'enrichir, de stimuler la vie des
 
 Dans la société bourgeoise, le passé règne sur le présent.
@@ -6079,7 +5807,6 @@ la Révolution au dehors et au dedans; il devient
 ; prix de son incessante action. D'un régime seminé démocratique et semi-bourgeoïs, il fait en trois ans, D à
 de 1789 à 1792, une démocratie pure, où parfois “4
 l'action des prolétaires est dominante. A déployer
-#8 . i- (5
 
 sa force, il prend confiance en lui-même, etil finit)
 à _ parsedire, avec Babeuf, qu'ayant créé une puis- D
@@ -6122,7 +5849,6 @@ _ génies, la justice ne sera pas achetée au prix des
 _ ductive. La splendeur des richesses manifestera la … F
 ï M victoire du droit, et la joie sera le rayonnement de
 NE la justice. Le babouvisme n'avait pasété la négation
-MT de la Révolution, mais, au contraire, sa pulsation la à
 
 | plus hardie. Le fouriérisme et le saint-simonisme ne .
 ne sont pas la négation, la restriction de la vie … cs
@@ -6213,7 +5939,6 @@ _ puissances sociales, celle qui grandit sans cesse et
 1 profit de l'humanité dont elle est maintenant l'ex-
 : pression la plus haute, l'équilibre du monde social. Le
 Non, le socialisme n'est pas une conception arbi- F
-R traire et utopique; il se meut et se développe en | à
 _ pleine réalité; il est une grande force de vie, mêlée
 | à toute la vie et capable bientôt d'en prendre la ‘4e f
 
@@ -6263,7 +5988,6 @@ _ et coopératives de production, qui se multiplient. ja #4
 _ travail, fédérations de métiers, fédérations d'in- à
 Et ainsi, il est certain dès maintenant que ce n'est
 ee point par la pesante monotonie d'une bureaucratie L
-cn centrale ER _. Li er le brie PRE
 Mais la nation, investie du droit social et souverain
 _ de propriété, aura des organes sans nombre, com-
 > munes, coopératives, syndicats, qui donneront à la S
@@ -6295,13 +6019,6 @@ Re: servatisme social le plus étroit. Elle ne pourra …
 4 tenir longtemps ni devant la science ni devant la
 
 de la propriété individuelle
-
-es LE
-
-> ARTE É “2h
-res ‘aie > 01 LA
-
-| DE LA PROPRIÉTÉ INDIVIDUELLE
 
 La démocratie, sous l'action du prolétariat
 organisé, évolue irrésistiblement vers le socialisme,
@@ -6352,7 +6069,6 @@ $ propriété individuelle. Il y avait, sous les Mérovingiens, sous les Carlovi
 
 _ l'immense majorité des serfs appartenait à des
 4 _ seigneurs qui étaient en définitive à peu prèsdes
-Et jétai ier: 4
 É à grands propriétaires fonciers possédant de plusen ne
 _ plus à titre individuel. Pendant le Moyen-Age, du dt
 # dixième au quatorzième siècle, le servage se con- D
@@ -6408,7 +6124,6 @@ Ee tout simplement qu'il entendait maintenir la pro
 : | priété privée, eût déclaré par là même qu'il mainte-
 
 Re nait l'esclavage. Quiconque, au Moyen-Age, eût
-ja ; DE LA PROPRIÉTÉ INDIVIDUELLE
 | déclaré tout simplement qu'il entendait maintenir la
 propriété individuelle ou personnelle, aurait main-
 | tenu par là même le servage et la féodalité. Et
@@ -6462,10 +6177,8 @@ di au servage, la complication de la propriété avait è
 _ paru chezGiard et Brière, où M. Henri Sée trace
 | l'histoire des classes rurales et du régime domaniad
 _ en France et au Moyen-Age. Il a marqué avecforce
-ne la complication changeante et la transformation F0
 à perpétuelle de la propriété. “4
 L: « Il apparaît clairement aussi, dit-il dans sa ‘23
-| conclusion, qu'au Moyen-Age l'on a de la propriété
 1 une conception sensiblement différente de celle qui
 %à nous est familière. Ne voit-on pas, à la fois, le à
 À suzerain, le vassal et le tenancier exercer, à des ‘4
@@ -6705,7 +6418,6 @@ d: Dpse pas un absolu, un bloc indivisible, mais
 Ê la perception de tous les fruits du domaine ou du
 capital qui est soumis à ce dédoublement de
 propriété. Au contraire l'individu qui a un droit #4
-| 165 a s Jean Jaurès à D
 # d'usage sur une chose qui ne lui appartient pas, un
 droit d'habitation dans un immeuble qui ne lui
 appartient pas, n'a pas nécessairement droit à
@@ -6780,7 +6492,6 @@ une diminution du droit que l'individu possédanta
 « Une servitude, dit l'article 637 du Code civil, 3
 3 est une charge imposée sur un héritage pour l'usage
 $ et l'utilité d'un héritage appartenant à un autre .
-| propriétaire. » ca
 à C'est si bien un démembrement et une restriction
 du droit de propriété que les rédacteurs du Code
 “ civil ont craint que la servitude parût créer, d'un
@@ -6805,13 +6516,10 @@ ss Tantôt elles ont pour objet d'empêcher qu'un
 + force naturelle qui doit être commune à plusieurs. :
 4 « Celui dont une eau courante traverse l'héritage
 peut en user dans l'intervalle qu'elle y parcourt, Re
-mais à la charge de la rendre, à la sortie de son ci
 - fonds, à son cours ordinaire ; — s'il s'élève une ne
 F _ contestation entre les propriétaires auxquels ces
 ä x eaux peuvent être utiles, les tribunaux, en pro- at ES -
 | nonçant, doivent concilier l'intérêt de l'agrieu
-1 ture avec le respect dû à la propriété. » (Ar- À e F<
-| ticles 644 et 655) | ER
 Tantôt elle a pour objet d'assurer, par le concours 3 Le:
 { forcé de divers propriétaires, ce qui est la condition Fin
 commune de leur propriété. Ainsi, en vertu de”
@@ -6841,9 +6549,7 @@ ce Comme les bourgeois se moqueraient des uto4 pistes socialistes, si pour décr
 Le catégorie déterminée d'objets, nous imaginions un
 __ -enchevêtrement des obligations et des droits anaÀ : logue à celui que l'article 664 crée pour la propriété
 bourgeoise d'une maison ! nn.
-| 170 £.
 
-| PROPRIÉTÉ INDIVIDUELLE ET CODE BOURGEOIS
 À 4 e même, lorsque peu à peu les petits proprié_ taires paysans, sans renoncer encore à l'indivi-
 . dualité de leur domaine, comprendront la nécessité a
 _ d'associer leurs efforts au moins partiellement et
@@ -6858,7 +6564,6 @@ _ de l'agriculture, impose aux possédants d'aujour- TS
 _ d'huile code de la propriété individuelle. Mais cette ve
 | servitude sera une libération. Elle affranchira le Ee
 _ paysan de l'isolement, de la routine, de la misère.
-LE Qu'on ne se méprenne point sur ma pensée. Je KR
 - mai point la puérilité de prétendre que le droit
 socialiste sortira, par interprétation et évolution
 .. des textes, du droit bourgeois. Les grandes transL'es Fi
@@ -6908,32 +6613,19 @@ de revêtir des formes où sa définition légale, le
 droit plein de disposer, ne se retrouve plus. Dans « it.
 l'usufruit, le droit d'usage, le droit d'habitation, la ‘a
 servitude et l'hypothèque, plusieurs droits indi_ viduels bourgeois se rencontrent dans une même
-| propriété, et n'y coexistent qu'en la démembrant. a
 En La propriété individuelle bourgeoise n'est donc
 pas un bloc homogène : elle-même, bien des fois,
-n'a pu subsister qu'en se décomposant. Il y a des
 fêlures dans le code bourgeois. Et, même au point
 g de vue du Code civil, les partis qui se donnent, en
 une formule générale, comme les défenseurs de la
 propriété individuelle prononcent des mots qui
 F n'ont pas tout leur sens,
 
-mr . ET Rare : Le
-
-Le rs D - sg" dl
-
-#3 F gt : ‘3 |
-
-‘ie ess + le
-
-- L'ÉCANS es
-
 Je n'ai point la sottise de considérer l'impôt, dans
 
 - la société d'aujourd'hui, comme une institution
 
 À communiste. Je sais que l'impôt reçoit son caractère
-de la société même où il fonctionne et au profit de
 laquelle ïl fonctionne. Il est destiné surtout à
 assurer le maintien et l'exercice des puissances
 sociales dominantes. Dans la société féodale, les
@@ -7007,7 +6699,6 @@ règle l'emploi.
 Ainsi, un cinquième du revenu total de la nation
 | est soustrait au droit individuel, à la volonté indi- <.
 177 ,
-L nee:
 
 viduelle. C'est encore, pour une large part, une
 
@@ -7055,7 +6746,6 @@ re c'est-à-dire la représentation d'un capital de cent Re
 Al à mi-chemin de la propriété individuelle et du com- +4
 __ munisme, une propriété collective d'État, une à
 _ substance collective de propriété, que la démocratie
-| ù La
 = Si la formule des radicaux : Maintien de la pro- À
 priété individuelle, a un sens pour leur esprit, ils x:
 doivent désirer que la propriété collective d'État fc
@@ -7101,7 +6791,6 @@ S employeurs et par une contribution de l'État, elle
 
 ; partie du budget, arrérages des rentes diverses, ee
 
-LA PROPRIÉTÉ INDIVIDUELLE Er L'IMPOT me.
 # 5 n'aura pas changé de physionomie. Mais, en réalité, LA
 _ la partie du budget consacrée au service delarente
 ee |_se sera-t-elle rapprochée ou se sera-t-elle éloignée FA
@@ -7123,7 +6812,6 @@ z si celle-ci n'avait pas un caractère beaucoup plus marqué de propriété ind
 ! D'abord, c'est selon les modes bourgeois d'acqui- sition que le rentier avait réalisé les fonds placés par lui en titres d'État ; puis, c'est par un acte de sa
 | volonté individuelle qu'il avait précisément employé LE
 | en rentes d'État les fonds acquis et possédés par
-spé te jf 7 ji " ss G # à jé ME ec ne
 lui. Enfin, il pouvait vendre à son gré, au moment À
 choisi par lui, et donner à ses fonds la destination
 nouvelle qui lui plaisait. -#
@@ -7198,7 +6886,6 @@ décisive de la propriété bourgeoise et d'un profond
 _ caractère de classe, évoluera nécessairement, sous »,
 l'action de la démocratie et des prolétaires, vers la
 1 _ propriété sociale et commune.
-| Et qu'on ne me dise point qu'il y a toujours eu,
 sous des formes diverses, ce qu'on appelle l'impôt, D
 
 # ÿ et que si l'impôt pouvait être considéré comme une
@@ -7226,14 +6913,6 @@ nager pour le bien du prolétariat et selon le droit Ÿ
 communiste cette immense propriété collective dont ee
 , la société bourgeoise elle-mème a peu à peu créé
 et élargi l'habitude.
-
->. CT
-
-Cet ù
-
-EU ne
-
-S ee DE DO à AP EU
 
 Ce n'est pas au profit de la grande communauté
 des travailleurs et des citoyens, c'est au profit de la
@@ -7281,11 +6960,8 @@ l'État. Non seulement l'État, à défaut d'une dispo e sition précise du poss
 ; ne peut que dans une faible mesure disposer de hs ses biens. Il peut les louer, il peut les vendre, car à
 
 la vente n'est en sommequ'un changement deforme
-Ne de : ne de
-_ de la propriété, et en échange de l'objet vendu, 15e, LS
 . vendeur reçoit une valeur égale. La location, la
 4 vente modifient la manière de percevoir les fruits 14 à
-& de la propriété, ou la forme de la propriété. Elles CR
 4 n'en atteignent pas le fond, elles n'en diminuent
 à point la valeur, et par suite, elles ne lèsent pasles
 intérêts des héritiers d'avance désignés par l'État.
@@ -7299,7 +6975,6 @@ Fe L'article 913 du Code civil dit: « Les libéralités,
 pourront excéder la moitié des biens du disposant,
 _ s'ilne laisse à son décès qu'un enfant légitime; le …
 tiers, s'il laisse deux enfants ; le quart, s'ilen laisse
-va de
 1 trois ou un plus grand nombre. » ch Ée
 NE . Ainsi le droit individuel du citoyen français
 ; ; sur sa propriété est limité étroitement. En vain #4, Na
@@ -7316,7 +6991,6 @@ répartir à peu près également entre tous ses enfants
 le petit domaine créé par lui,etparluiseul. Envain
 
 À les propriétaires paysans de Normandie représen- à
-_ tèrent-ils à la Constituante, à la Législative, à la S À
 
 & Convention que d'habitude ils mariaient leurs filles,
 | avec une petite dot, hors du domaine familial;
@@ -7349,7 +7023,6 @@ _ selon lui, de la soutenir et de l'étendre. Ce n'est
 Nes en dispose à son gré. L'État intervient et répartit
 
 Di cette propriété dite individuelle selon les règles
-de souveraines qu'il a tracées. ; L
 Eee Que de fois on nous dit, à nous socialistes : à
 3 « Vous voulez donc par votre système d'égalité
 6 traiter de même le paresseux et Le laborieux ? Votre à
@@ -7370,8 +7043,6 @@ la loi de l'État ne fait aucune différence de forme
 ou d'origine, qu'elle les soustrait tous, indistincte- E.
 à ment, à la volonté individuelle, au droit indivi- E:
 duel, qu'elle les soumet tous aux mêmes règles ‘à
-
-_ de dévolution et de succession. EL
 
 6 On pourrait comprendre, à la rigueur, au point
 de vue de la propriété individuelle, que la loi de E à l'État obligeat le père à transmettre à tous ses en-
@@ -7443,7 +7114,6 @@ fortune, à un moment où il n'avait que deux …
 
 5 enfants. Il pouvait alors légalement disposer du
 
-“it ET LE DROIT SUCCESSORAL
 :% tiers. Il lui survient un troisième enfant : Ilne peut Æ
 be. À plus disposer que du quart. Voilà l'acte de donation É
 É qui ne vaut plus qu'à proportion du quart; et mème RS
@@ -7500,7 +7170,6 @@ L'article 929 dit : « Les immeubles à recouvrer
 Ve par l'effet de la réduction le seront sans charge de
 _ dettes ou hypothèques créées par le donataire. »
 : Je recommande l'article 930 à ceux qui ont la *
-L” superstition de la propriété individuelle : « L''ac- s
 L tion en réduction ou revendication pourra être
 | exercée par les héritiers contre les tiers détenteurs
 des immeubles faisant partie des donations et aliénés par les donataires, de la même manière et dans F.
@@ -7544,7 +7213,6 @@ Et avec quelle minutie la loi prévient toute possibilité de fraude! Le grand-p
 tenté de favoriser un de ses petits-fils, ou un de À
 ses neveux, aux dépens des autres. Et pour cela, -
 il pourrait donner la portion de bien dont il dis- -
-pose ou à un de ses enfants, ou à un de ses frères et
 sœurs, avec charge de transmettre de préférence
 : cette portion de bien à tel ou tel de ses petits-fils ou
 de ses neveux.
@@ -7553,7 +7221,6 @@ La loi interdit ces dispositions de préférence. Il
 Les articles 1048, 1049 et 1050 du Code civil sont
 formels : « Les biens dont les père et mère ontla
 faculté de disposer pourront être par eux donnés,
-| en tout ou en partie, à un ou plusieurs de leurs M
 Ë enfants, par actes entre vifs ou testamentaires, avec '
 la charge de rendre ces biens aux enfants nés ou à £
 naître, au premier degré seulement, desdits donataires. — Sera valable, en cas de mort sans enfant,
@@ -7570,7 +7237,6 @@ _ dents ne seront valables qu'autant que la charge de
 É propriété, pour assurer contre toute mainmise in- -<
 _ dividuelle et contre toute répartition de privilèges M2
 _ la propriété familiale. Le père peut, d'après la loi, } de “
-l disposer d'un quart de sa fortune ou d'un tiers, k és
 selon le nombre de ses enfants. Cette quotité dis
 _ ponible, il peut, s'il craint la dissipation de ses ne.
 _ enfants, la leur donner, mais à la condition qu'ils
@@ -7616,7 +7282,6 @@ ne Article 1067. « Cet emploi sera fait conforméSE ment à ce qui aura été o
 Es: disposition, s'il a désigné la nature des effets dans
 he ï lesquels l'emploi doit être fait; sinon, il ne pourra
 
-| ET LE DROIT SUCCESSORAL
 l'être qu'en immeubles, ou avec privilège sur les
 
 Ainsi, quand le grand-père, après avoir laissé, è
@@ -7678,7 +7343,6 @@ bornaient pas à réduire le droit de la propriété
 g individuelle : elles le supprimaient presque comHA plètement.
 Tandis qu'aujourd'hui le père peut disposer dela
 moitié de.son bien s'il a un enfant, du tiers s'il en a
-deux, et du quart s'il en a trois, et qu'il peut en
 | disposer au profit d'un de ses enfants, qui recevra
 £ ainsi une part plus grande que les autres, la Con-
 ' #3 vention décrète, le 7 mars 1793, que « la faculté de
@@ -7695,7 +7359,6 @@ Y complète du droit de tester, du droit de disposer en
 } volonté individuelle de l'ascendant ne compte pas
 is il n'est pas vraiment propriétaire; il n'est que le
 
-ee LA RÉVOLUTION FRANÇAISE
 gérant d'une propriété sur laquelle tous les descendants du même degré ont, par la loi de l'État, un
 - droit égal et souverain. Et non seulement l'ascen- i
 dant ne peut favoriser aucun de ses descendants, «
@@ -7821,7 +7484,6 @@ La Révolution, tout en déclarant qu'elle n'entendait pas toucher au droit sacr
 rendait bien compte que par ses lois successorales
 elle le limitait et le démembrait. Et pour s'y autoriser, elle formulait une théorie toute sociale de la
 | propriété. Si celle-ci est un prolongement de la
-personne humaine, si elle procède de l'individu, de gra oi ait ét en à à FA DT SO
 
 quel droit enlever aux individus la faculté de dis- +.
 poser de leurs biens par donation ou testament? De
@@ -7856,7 +7518,6 @@ dans la mort. C'est la société vivante, la société k.
 impérissable qui commande à sa place, et qui, À
 tout le long même de sa vie d'individu, lui interdit b
 ! Ve dispositions arbitraires dont l'effet s'étendrait A
-4 _au delà de sa vie. : HR
 D. Voilà le principe au nom duquel l'État intervient
 “2 pour régler, à la place de l'individu, sans lui, ou # PA
 __ même contre lui, la transmission de ses biens. J'ai
@@ -7876,8 +7537,6 @@ substitutions, toute la survivance du droit féodal
 ” prolongé par la liberté de tester, qu'en limitant le
 | à F droit des volontés individuelles et en subordonnant
 | LE _ la propriété individuelle au droit social.
-
-ne L : LE En AS ETES
 
 | Par quelles raisons la Révolution, après avoir L
 be: proclamé le droit de la société à régler la transmission des biens, usa-t-elle de ce droit pour sou- 4 à
@@ -7993,7 +7652,6 @@ k vie commune, maintenant done, le cri de la nature Î
 s s'élargit, et ce n'est plus l'égalité familiale, c'est
 N l'égalité sociale qu'elle réclame pour tous les
 L enfants de la même nation, devenue une grande
-#: famille. .
 
 Il ne s'agit point, pour répondre à cet appel plus l
 vaste de la nature, à ce cri plus large de l'humanité, j
@@ -8028,7 +7686,6 @@ même la Révolution nouvelle, prolétarienne et
 | humaine, pour assurer le droit des membres de la
 2e société, créera aux dépens de la propriété indivi-
 : duelle et bourgeoise la propriété sociale, la propriété
-| commune.
 : Enfin, si la Révolution a décrété le partage égal j
 des biens, à l'intérieur de chaque famille, entre tous È
 | les descendants d'un même degré, si elle a appelé À
@@ -8046,7 +7703,6 @@ des biens, à l'intérieur de chaque famille, entre tous È
 ÊF: sociale. À vrai dire, elle ne pouvait imaginer un Î
 4 autre chemin. Le partage universel et égal detous
 *. les biens entre tous les citoyens est un système
-#3 220
 absurde, barbare, paralysant et intenable. Et
 d'autre part, ni les esprits n'étaient préparés à la
 
@@ -8076,7 +7732,6 @@ l'empêéchait même, si sa volonté de testateur était
 souveraine, de préciser que le bien qu'il léguait à à
 _ son fils aîné devait être par celui-ci légué à son .
 propre fils aîné, et ainsi de suite pendant plusieurs E
-| générations ? s
 | C'était ce qu'on nommait le droit de substitution, L
 qui constituait une propriété intangible, dont la
 volonté du testateur, créant à travers le temps E
@@ -8096,8 +7751,6 @@ Pal propriété individuelle, exerçant son droit au delà
 4 bourgeoisie révolutionnaire de prévenir la renais4 sance de celui-ci sans limiter, et presque supprimer,
 à jusque dans la transmission des propriétés
 . 229 ,
-
-HD LA RÉVOLUTION FRANÇAISE Mas RE
 
 hit bo urgeoises, la faculté de disposer, le droit
 4 Cela éclate dans le bref et curieux rapport par
@@ -8168,17 +7821,6 @@ la propriété individuelle, ils reprennent, en des
 temps nouveaux et des questions nouvelles, la
 théorie des contre-révolutionnaires : ils refont le
 discours de Cazalès.
-
-C8 “ve vie ST
-
-NE ss
-
-ra CE
-
-#4 ..
-LE: air à
-
-# Re LR ANR DR
 
 La Déclaration des Droits de l'homme a proclamé
 que nul ne pouvait être privé de sa propriété que
@@ -8333,8 +7975,6 @@ Li de l'indemnité tous les délais de procédure, que de
 ë douze ans après leur concession; il suffira de
 4 l'obstination de quelques possédants, sur le trajet
 
-ë de er 5 2e EC ve Ti SPTtT 0 Se
-
 projeté, pour tout traîner en longueur, pour user
 les capitaux dans une attente improductive, ou
 pour obliger la ligne à des détours absurdes et
@@ -8407,7 +8047,6 @@ transformant et s'élargissant à mesure que se transforme la société elle-mê
 bourgeois de la Constituante se seraient révoltés,
 en 1789, si on leur avait dit que l'article inséré par
 
-| Jean Jaurès *
 eux dans la Déclaration des Droits serait invoqué
 trois ans plus tard par les révolutionnaires
 bourgeois de la Convention pour justifier l'établissement du maximum, la taxation universelle des
@@ -8556,12 +8195,6 @@ une prochaine extension socialiste, une prochaine
 interprétation communiste du droit d'expropriation
 pour cause d'utilité publique inscrit dans la loi
 
-He A at à Pr LE SN PU ot x Von j
-#8 C2 SE QUE DU
-PC d ESC ne EST
-tr. - TTés Sonolf TORRES NE 2 ONE a:
-De: SHC INS h er à 06i hs 9 FT TE b d
-
 L'immense mouvement économique et social qui
 substitue à la propriété industrielle personnelle la
 propriété anonyme et les sociétés par actions a son
@@ -8572,7 +8205,6 @@ immense : des caractères tout nouveaux apparaissent avec celle-ci.
 Quand l'homme possède personnellement un
 . domaine foncier, ou quand il possède et dirige personnellement une industrie, il y a un rapport étroit,
 un lien serré entre le propriétaire et sa propriété.
-S'il s'agit de la terre et si le possédant la cultive
 3 lui-même, on peut presque dire physiquement que
 le propriétaire fait corps avec sa propriété. Il y a
 . entre le paysan propriétaire et la terre qu'il tra-
@@ -8581,7 +8213,6 @@ le propriétaire fait corps avec sa propriété. Il y a
 | L'homme fait la terre et la terre fait l'homme. Même
 4 quand le propriétaire du domaine ne le cultive pas
 
-| Jean Jaurès
 lui-même, il est rare qu'il n'y soit pas attaché par
 des fibres profondes : Ce domaine qui pour l'indifférent ressemble sans doute à tous les domaines a
 j pour celui qui dès longtemps le possède une physionomie particulière et un langage secret. C'est là
@@ -8626,11 +8257,9 @@ malaisé. De là une grande lenteur des transactions
 immobilières et foncières. De là, pour les industries et les commerces qui n'ont pas pris encore la
 forme de la société par actions, la difficulté de
 
-# x ve
 vendre ou de réaliser. Le propriétaire est ainsilié
 à sa propriété, assujetti à elle : il ne peut pas se
 dégager à son gré et à son heure du mécanisme de
-propriété qu'il a mis en mouvement; il ne
 peut pas rappeler, retirer son énergie de l'emploi
 que d'abord il lui a donnée. Il est, en quelque
 mesure, l'homme de telle et telle propriété ; il est
@@ -8683,7 +8312,6 @@ pas dire cela. En cas de faillite, ce n'est pas le bilan
 spécial de leur entreprise, c'est le bilan général de
 leur fortune qu'ils devront déposer. L'article 439 du
 
-| Jean Jaurès Fe ARE
 Code de commerce dit : « La déclaration du failli
 devra être accompagnée du dépôt du bilan... Le
 bilan contiendra l'énumération et l'évaluation de
@@ -8737,8 +8365,6 @@ par des degrés que nous allons passer de la propriété personnelle à la propr
 L'article 19 du Code de commerce dit :
 « La loi reconnaît trois espèces de sociétés commerciales :
 « La société en nom collectif ;
-« La société en commandite ;
-« La société anonyme. »
 : Voici la définition donnée par le Code de la
 Article 20. « La société en nom collectif est
 celle que contractent deux personnes ou un plus
@@ -8831,7 +8457,6 @@ peu lointain, de simple conseiller, la responsabilité
 pécuniaire est limitée à la somme qu'il a engagée
 par la commandite. S'il n'y a versé que cent mille
 
-| Jean Jaurès d
 francs et quand bien même le passif de l'entreprise
 s'élèverait à plus d'un million, il n'est tenu envers
 les créanciers que jusqu'à concurrence de ces cent ,
@@ -8991,7 +8616,6 @@ ik spéciaux, des journaux financiers, pour savoir où À
 
 si étrangère au possédant que c'est par la voie du
 journal que le possédant a des nouvelles de sa
-| propriété. à
 
 Mais il ne suffit pas au capitalisme d'avoir créé
 la société anonyme par actions. L'action donne
@@ -9010,7 +8634,6 @@ que celle de l'actionnaire. En cas de désastre,
 l'actionnaire ne touchera rien avant que les obligataires, c'est-à-dire les créanciers, soient remboursés. L'obligataire est encore exposé à bien des
 hasards ; mais il ne succombera qu'après l'action261 XV.
 
-| Jean Jaurès
 à naire. Seulement, il n'a aucune part d'influence : il
 n'est même pas représenté dans les conseils de
 l'entreprise ; il est le rentier passif, sans aucun
@@ -9064,8 +8687,6 @@ d'être l'instrument de la volonté de l'individu,
 tombe sous la loi de la majorité. Si l'actionnaire
 est dans la minorité, sa propriété est dirigée contre
 
-: Jean Jaurès Ta
-sa volonté. La séparation de l'individu et de sa
 propriété est telle, qu'il est impossible de présumer
 
 | la volonté de l'individu possédant d'après la marche
@@ -9126,7 +8747,6 @@ Dans la propriété vraiment personnelle, la res- ponsabilité du possédant est
 les sociétés anonymes, la responsabilité du possédant est réduite au minimum. L'article 33 du
 
 ù Code de commerce dit, à propos des sociétés
-| anonymes :
 Les associés ne sont passibles que de la perte du
 montant de leur intérêt dans la société. « L''actionnaire ne répond pas des obligations de i
 l'entreprise sur la totalité de sa fortune ; il n'en

@@ -8,7 +8,6 @@ isAvertissement: false
 wordCount: 23924
 ---
 $ à l'année le printemps,
-à à la journée le matin.
 $ Comme les fidèles se passent de main en main l'eau
 Ainsi nous fidèles nous devons nous passer de cœur en
 cœur la parole de Dieu.
@@ -30,11 +29,9 @@ De son Église. de
 Il faut aller jusqu'au bout : Que Dieu ne manque point |
 de sa création.
 
-RE ne ee ire ei Pol PAG DOTOMEES ET POSE
 par _ C'est-à-dire il dépend de nous :  EPAUNSEES
 an #5 Que l'espérance ne mente pas dans le monde. 7 ‘4
 AR C'est-à-dire, il faut le dire, il dépend de nous É'HLTSS
-FE ue le plus ne manque pas du moins, f FE
 Re Que l'infiniment plus ne manque pas de l'infiniment
 _  Quel'infiniment tout ne manque pas de l'infinimentrien.
 _ 1 dépend de nous que l'infini ne manque pas du fini. 8
@@ -50,8 +47,6 @@ Ne manque pas de sa créature. &:.
 ‘Ga dr Et comme le dernier jour il y aura un grand signe d…
 FRET croix sur le cercueil du monde. Fa
 
-Rs A ur ne As LAN
-DR IE PI OÙ LR eu + Me bu Dr dc à re
 _ Parce que ce sera le dernier enterrement. SE
 si Ainsi le dernier jour il y aura un grand signe de croix re
 | de bénédiction. FPS
@@ -63,12 +58,10 @@ _ Elle peut manquer dans son compte et dans son © ES
 - Quand il compte ses brebis, manquer à son amour et ni Cr.
 LE _ à son être même, = HEC
 _ Faire mentir son espérance. FA
-… Car il y a le couronnement d'épines mais il y a < 44
 # Le couronnement de l'espérance Ses
 Lù_ Qui est le couronnement des rameaux d'un arbre sans SF
 | Jésus-Christ, mon enfant, n'est pas venu pour nous CAE
 | conter des fariboles, 7
-Le se TL
 
 le porche es. es.
 Pendant le peu de temps qu'il avait.
@@ -78,7 +71,6 @@ Il n'avait pas de temps à perdre, il n'a pas perdu son
 temps à nous conter des fariboles et à nous donner
 des charades à deviner.
 Des charades très spirituelles. |
-Très ingénieuses.
 Des devinettes de sorcier.
 Avéc des mots à double entente et des malices et de 4
 misérables finesses de finasseries.
@@ -120,13 +112,9 @@ nous dire.
 
 N'est-ce pas.
 
-Tout tranquillement.
-
 Tout simplement, tout honnêtement.
 
 Tout directement. Tout premièrement.
-
-Tout ordinairement.
 
 k Comme un honnête homme parle à un honnête homme.
 
@@ -153,18 +141,14 @@ le boulanger,
 
 Quand tu vas chez le boulanger,
 
-EE le porche FF TER ER à
 | Tu ne te mets pas tout d'un coup à raconter des choses - #4
-Cr Tu fais ta commission et puis tu t'en reviens. È
 Es Tu prends ton pain, tu payes, et tu t'en vas. ‘
 < : Lui c'est la même chose il est venu pour nous faire une 4
 Le Il avait une commission à nous faire de la part de son ‘4
 ; Il nous a fait sa commission et il s'en est retourné. 0 1
-3 Il est venu, il a payé, (quel prix!) et il s'en va. eu
 CA Il ne s'est pas mis à nous raconter des choses extra- 4
 L Rien n'est aussi simple que la parole de Dieu.
 % Il ne nous a dit que des choses fort ordinaires. 5
-“02 Très ordinaires. ‘4
 à L'incarnation, le salut, la rédemption, la parole de Dieu. S
 74 Trois ou quatre mystères. EE
 x La prière, les sept sacrements.
@@ -176,7 +160,6 @@ bi, IL parlait tout uniment, comme un simple homme, tout 4
 É Un homme dans le village. à
 ë. Comme un homme dans la rue qui ne cherche pas ses de
 4P mots et qui ne fait pas des embarras. 3
-74 Pour causer. é
 $ Aussi, soit qu'il nous parlât et qu'il nous ait parlé direc- ê
 Soit qu'il nous ait parlé par paraboles, :
 É Que nous nommons en latin des similitudes,
@@ -201,7 +184,6 @@ __ Que de travailler;
 —_ Que d'écouter même autrement qu'il n'a parlé. 52
 è C'est même la plus grave tromperie que nous puissions |
 ; lui faire. |
-£ Que de le recevoir autrement, contrairement qu'il ne à ;
 | s'est donné.
 C'est la plus grave injure, peut-être la seule injure que È 4
 nous puissions lui faire. É
@@ -243,7 +225,6 @@ Et par avance le goût du fruit.
 Pour calmer le pauvre front battant de fièvre, chargé de
 Afin de rattraper, afin de revaloir le couronnement de
 Pour adoucir, pour apaiser, pour calmer, afin de rafraichir les tempes battantes, 2
-Les tempes fiévreuses.
 Le front ardent, le front fiévreux,
 Lourd de fièvre, les tempes chaudes, la migraine et
 l'injure, et le mal de tête et pour calmer la dérision
@@ -256,12 +237,10 @@ Et c'est la couronne, le couronnement de l'espérance.
 Comme une mère fait un diadème de ses doigts allongés,
 des doigts conjoints et affrontés de ses deux mains
 
-Re Ne Disc ce ru M1 Re Dre Re EAN EE Sel {
 GS PS Autour du front brûlant de son enfant FT PAPNC TRS
 3 20 . 2
 , ee __ Pour apaiser ce front brûlant, cette fièvre,
 CES Ainsi une couronne éternelle a été tressée pour apaiser
-La #4 le front brûlant. ; : ST CEE
 _ Et c'était une couronne de verdure. Ne
 es Une couronne de feuillage. +40
 _ Il faut avoir confiance en Dieu mon enfant. ME
@@ -270,12 +249,10 @@ _ Il faut avoir espérance en Dieu. j Ts
 _ Il faut faire crédit à Dieu. 5
 Il faut avoir cette confiance en Dieu d'avoir espérance 14
 2 Il faut faire cette confiance à Dieu d'avoir espérance
-BAT en lui. a
 45 Il faut faire ce crédit à Dieu d'avoir espérance en lui.
 _ Il faut faire espérance à Dieu. 4
 à _ Il faut espérer en Dieu, il faut avoir foi en Dieu, c'est
 A Sy _ tout un, c'est tout le même. ï 2
-| pe Æ : : . nv.
 ‘es 4 Il faut avoir cette foi en Dieu que d'espérer en lui
 LM Ve Il faut croire en lui, qui est d'espérer. ns
 
@@ -285,7 +262,6 @@ D Ua nous. à
 …._ Il faut faire espérance à Dieu, il nous a bien fait espé- ee
 h  rance à nous. D
 k_ Il faut faire crédit à Dieu, il nous a bien fait crédit à 5
-bn nous. 08
 |_ Tous les crédits. | .
 Le 11 faut faire foi à Dieu, il nous a bien fait foi à nous. <:
 LL Singulier mystère, le plus mystérieux, 5e
@@ -330,7 +306,6 @@ Dieu a placé son espérance, sa pauvre espérance en J
 chacun de nous, dans le plus infime des pécheurs.
 Sera:t-il dit que nous infimes, que nous pécheurs, ce
 sera nous qui ne placerions pas notre espérance en
-lui. À
 
 Dieu nous a confié son fils, hélas hélas, Dieu nous a
 confié notre salut, le soin de notre salut. IL a fait
@@ -352,30 +327,20 @@ Comme il nous a parlé tout ainsi nous devons l'entendre.
 Or, mon enfant, s'il en est ainsi, si c'est ainsi que nous
 Que nous devons entendre Dieu. F4
 
-ae ne {lé porcher 1} PENSER
-Au pied de la lettre. YEAR
-LS: Au ras du mur. ne
 es Alors mon enfant quel tremblement, quel commandePE ment d'espérance. :S2
 ne écrasement. Les paroles sont là. 1
 RER Il n'y a pas à ratiociner, quelle ouverture sur la pensée
-es de Dieu. &A
-T8 Sur la volonté de Dieu. Ë
 Pin Sur les intentions, (dernières), de Dieu.
 Le 4 Abîme d'espérance, quelle ouverture, quel éclair, quelle …
 # foudre, quelle avenue. 4
 TS Paroles irrévocables, quelle ouverture sur l'Espérance
-Ne OP, même de Dieu. nn.
 = Dieu a daigné espérer en nous. Espérer que nous. RS.
 EE: Révélation, quelle révélation incroyable. Sic non est,
 Loet Ainsi n'est pas 4
 ox ai _ Espoir incroyable, espoir inespéré Ainsi n'est pas *
 x è Voluntas ante Patrem vestrum, la volonté devant votre
-En Père,
 CRE Qui in cœlis est. Qui est aux cieux. ;
-Mn Ut pereat. Que périsse J
-. Unus. Un seul %
 ‘2e De ces petits. De pusillis istis. #
-# 6 = —: 30
 
 Et il leur fit cette parabole, disant : + RENE
 à Quel homme de vous, qui a cent brebis; A. és. re
@@ -383,18 +348,14 @@ Et il leur fit cette parabole, disant : + RENE
 …._ Bis'il en perd une, SE.
 _ Estce qu'il ne renvoie pas, (ne laisse pas), les quatre- c = Fe
 |  vingi-dix-neuf dans le désert, = 4 ASE
-_ Et ne va pas à celle-là, RS
 _ Quae perierat, qui était périe, qui avait péri, FÉES
 - C'était fait. : ES
-… Jusqu'à ce qu'il la trouve ? D
-_ Et quand il l'a trouvée, ; FALSE d
 … Il la place sur ses épaules se réjouissant ; TRES
 …_ (la pose) sur ses épaules. LTSARSR
 3 Et venant à la maison, il convoque, (il appelle), ses amis RE CR
 n_  etses voisins, leur disant : ER
 Ë | Réjouissez-vous, (félicitez-vous), avec moi, parce que j'ai Ph:
 n_ trouvé ma brebis qui avait péri? *
-| Je vous le dis, L ER.
 ei Qu il y aura autant de joie dans le ciel : PXCES
 FE Sur un pécheur faisant pénitence, LV
 mn Que sur quatre-vingt-dix-neuf justes qui n'ont pas à a
@@ -408,7 +369,6 @@ Ré qu'il y a donc dans la pénitence. Quelle est donc cette
 = Qu'est-ce qu'il y a donc d'extraordinaire dans cette
 À 7% Comme c'est inquiétant.
 a Quelle est cette vertu, ce secret, qu'est-ce qu'il faut
-A donc qu'il y ait de si extraordinaire, F
 Dans la pénitence, |
 % pour que ce pécheur,
 ë Pour que un vaille cent, ou enfin quatre-vingt-dix-neuf,
@@ -438,9 +398,7 @@ C'est justement cette âme qui était perdue, qui avait
 péri, qui vaut autant, qui fait autant de joie dans le |
 A ciel que ces quatre-vingt-dix-neuf autres. |
 Que ces quatre-vingt-dix-neuf qui ne s'étaient point |
-É Jamais.
 Qui ne s'étaient point perdues, qui n'avaient point péri.
-Jamais. |
 Qui étaient demeurées fermes.
 C'est injuste. Quelle est cette invention, cette nouvelle
 C'est injuste. Voilà une âme, (et c'est justement celle
@@ -457,7 +415,6 @@ autant que quatre-vingt-dix-neuf justes.
 Re le porche - LIRE
 | “: Qui pèse même peut-être plus. On ne sait jamais. Quand
 Ÿ une fois on est entré dans l'injustice. 2"
-| On ne sait plus où l'on va. : É
 5-4 | Disons le mot voilà un infidèle, il faut le dire, il ne faut
 | Re pas avoir peur du mot. au :
 E Qui vaut plus que cent, que quatre-vingt-dix-neuf à
@@ -471,10 +428,8 @@ HE Qui n'est pas très fier de ce qu'il a fait.
 k Parce que ce qu'il a fait, il faut le dire, c'est le
 L À Un pénitent c'est un monsieur qui a honte de soi et de
 ê- son péché.
->; De ce qu'il a fait. ?
 Le Qui voudrait bien se terrer. Ye:
 EN Surtout qui voudrait bien ne pas l'avoir fait. 1
-es Jamais. è
 ‘ Se cacher, se sauver de la face de Dieu.
 Es Et qu'est-ce aussi que cette drachme qui vaut neuf
 | + ANEX drachmes, à elle toute seule. '
@@ -494,7 +449,6 @@ LE Ça n'est pas si reluisant,. ;
 PS: d'une honte.
 L D'une honte légitime et due. 1 » En somme c'est un acte honteux.
 _ La pénitence ça n'est déjà pas si malin que ça. Alors 4
-# quoi.
 Fu Non seulement ce pénitent en vaut un autre, non seuleF ment il vaut un juste, ce qui serait déjà un peu
 4 Mais il en vaut quatre-vingt-dix-neuf, il en vaut cent, il ee
 vaut tout le troupeau. ;
@@ -509,22 +463,18 @@ C'est qu'elle était morte ; et qu'elle a revécu. :
 C'est qu'elle était morte et qu'elle est ressuscitée. à
  Puisqu'il faut tout prendre au pied de la lettre, mon “ :
 
-de le porche LT SR
 F Littéralement comme Jésus était mort et est ressuscité À
 4 d'entre les morts, 4 r
 an Ainsi cette brebis était perdue, ainsi cette brebis était
 . Ainsi cette âme était morte et de sa propre mort elle
 : ca est ressuscitée d'entre les mortes.
 4e Elle a fait trembler le cœur même de Dieu. k
-hi Du tremblement de la crainte et du tremblement de E
-pa l'espoir. £
 : Du tremblement même de la peur. Ë
 ” Du tremblement d'une inquiétude
 5 Et en suite, et ainsi, et aussi .
 | De ce qui est lié à la crainte, à la peur, à l'inquiétude. Ë
 oi De ce qui suit la crainte, la peur, l'inquiétude. ;
 Ÿ De ce qui marche avec elles, de ce qui est lié à la.
-Li crainte, à la peur, à l'inquiétude E
 ve D'une liaison indéliable, d'une liaison indéfaisable, j
 £ Temporelle, éternelle, d'un indéfaisable lien
 g Elle a fait trembler le cœur de Dieu
@@ -564,11 +514,9 @@ le porche s “ FSPISRES
 Car tous les autres Dieu les aime en amour. RS:
 É Mais cette brebis Jésus l'a aimée aussi en espoir.
 Et tous les autres, tout le monde Dieu nous aime en
-Mais le pécheur il y a eu un jour où Dieu l'a aimé en
 Il faut tout prendre au pied de la lettre, mon enfant.
 Dieu a espéré, Dieu a attendu de lui. .
 Dieu, qui est tout, a eu quelque chose à espérer, de lui, .
-de ce pécheur. De ce rien. De nous. Il a été mis, à ce ÿ
 point, il s'est mis à ce point, sur ce pied d'avoir à
 espérer, à attendre de ce misérable pécheur.
 Telle est la force de vie de l'espérance, mon enfant,
@@ -580,9 +528,7 @@ Telle la force unique de sève au cœur d'un chêne. ë
 Nous sommes tous enfants de Dieu, mon enfant, égale- 4
 ment; sur le même pied. k Ë
 Il faut tout entendre au pied de la lettre, mon enfant, « x.
-|
 
-em co Sa #
 Fe É: a littéralement cette âme qui a fait jouer l'espérance de
 LS _ Dieu, qui a couronné l'espérance de Dieu £ .
 | S 4 Comme Jésus morte (plus morte que Jésus) de sa propre
@@ -635,8 +581,6 @@ Et tout ce que nous devons avoir pour Dieu, |
 C'est Dieu qui commence par l'avoir pour nous.
 Celui qui aime se met, par cela même, “ #
 
-ge DE LA DEUXIÈME VERTU
-
 —_ Par cela seulement, dès par cela dans la dépendance,
 
 Celui qui aime tombe dans la servitude de celui qui est
@@ -678,8 +622,6 @@ Et nous.
 Voilà où il s'est laissé conduire, par son grand amour,
 voilà où il s'est mis, où il a été mis, où enfin il s'est
 
-Voilà où il en est, où il est.
-
 Où nous devons être, c'est lui qui s'est mis.
 
 A ce point, sur ce pied.
@@ -689,7 +631,6 @@ dernier des hommes.
 
 Qu'il est aux mains du dernier des pécheurs.
 
-le porche 5e à .
 (Mais le corps de Jésus, dans toute église, n'est-il pas D:
 aux mains du dernier des pécheurs. :
 A la merci du dernier des soldats) À
@@ -706,16 +647,13 @@ En face du pécheur. 4
 ee: Tu comprends, je dis : Dieu craint du pécheur, puis- |
 qu'il craint pour le pécheur. 1
 Quand on craint pour quelqu'un, on craint de ce quel- E
-qu'un. i
 C'est à cette loi commune que Dieu s'est laissé mettre. À
-Et soumettre.
 A ce niveau commun. ;
 C'est à cette loi commune qu'il a souffert d'être mis.
 Il faut qu'il attende le bon plaisir du pécheur. F
 , Il s'est mis sur ce pied.
 Il faut qu'il espère dans le pécheur, en nous. É
 Il faut, c'est insensé, il faut qu'il espère que nous nous
-| sauvions.
 Il ne peut rien faire sans nous. E |
 Il faut qu'il écoute nos fantaisies. |
 Il faut qu'il attende que monsieur le pécheur veuille
@@ -723,7 +661,6 @@ Il faut qu'il attende que monsieur le pécheur veuille
 
 “ Voilà la situation que Dieu s'est faite.
 …_  Gelui qui aime tombe sous la servitude de celui qui est
-_ Par là même. :
 Celui qui aime tombe sous la servitude de celui qu'il
 Dieu n'a pas voulu échapper à cette loi commune. è
 , Et par son amour il est tombé dans la servitude du
@@ -759,7 +696,6 @@ Ainsi Jésus s'est livré à nous. ,
 Et comme le prisonnier se livre au gardien de prison, | L
 Ainsi Dieu s'est livré à nous. ,
 ” Comme le dernier des misérables a pu souffleter Jésus, b
-à Et il fallait qu'il en fût ainsi, 4
 _ Ainsi le dernier des pécheurs, un malheureux infirme,
 Le plus infime des pécheurs peut faire avorter, peut M
 faire aboutir ;
@@ -789,14 +725,12 @@ Redresse tous les mystères
 Comme elle redresse toutes les vertus.
 Nous pouvons lui manquer.
 
-de
 Fais Ne pas répondre à son appel. FRE
 D Ne pas répondre à son espérance. Faire défaut. Man- Sa
 . quer. Ne pas étre là. Re.
 ES * Les calculs de Dieu par nous peuvent ne pas tomber
 | & fs * Les prévisions, les prévoyances, les providences de :]
 + Par nous peuvent ne pas tomber juste, à à
-<a . Par læ faute de l'homme pécheur. RE.
 …_ ‘Les conseils de Dieu par nous peuvent manquer. Se
 # La sagesse de Dieu par nous peut défaillir. x
 rev Effrayante liberté de l'homme. "5 E
@@ -807,16 +741,12 @@ per Nous pouvons faire tout manquer. SE
 FU (Excepté dans la vallée du Jugement) a
 Ù Le Nous pouvons manquer à Dieu. ë ke
 Hit Voilà le cas où il s'est mis, "3
-ia Le mauvais cas. ; >
 MINES Il s'est mis dans le cas d'avoir besoin de nous. ‘à |
 BA Bien, mal placée, cela dépend de nous. ‘
 Le _ quelle force incurable d'espérance. 1
 pee En nous. 3
 È Quel dépouillement, de soi, de son pouvoir. « 3
-Quelle imprudence. LA
 
-#8 nee DE LA DEUXIÈME VERTU 4 » Quelle improvidence à à
-F de Dieu. >.
 4 Nous pouvons faire défaut. n
 4 Nous pouvons faire faute. :
 Ë Nous pouvons être défaillants. à Er, À
@@ -834,7 +764,6 @@ Fils de bonne mère. C'était un Français. ÿ
 J'ai eu raison de lui faire confiance.
 Et nous nous avons nos dimanches, |
 Notre beau dimanche, le dimanche de Pâques,
-Et le lundi de Pâques, à
 Et même le mardi de Pâques, qui est aussi fête, :
 Tellement la fête est grande. *
 (C'est la fête de saint Loup). :
@@ -863,7 +792,6 @@ Et ils font tout de même une seule armée.
 Mais enfin ils proviennent d'une province ou d'une autre.
 Ou d'une marche, Les uns de l'une, les autres de l'autre.
 
-| 24 DE LA DEUXIÈME VERTU
 Ê Ou d'outre Loire ou de par ici de la Loire.
 FR Ainsi, (et autrement), il faut le dire il y a, il faut dire
 3 le mot il y a deux races de saints dans le ciel.
@@ -895,7 +823,6 @@ RS _ nous en garde. FFE
 
 Ceux dont on n'a jamais rien entendu dire. | SE
 5 FAN Et ceux dont on a entendu dire Me
-2} DE _ Il ya deux formations, il y a deux extractions, il ya
 * jé sa deux races de saints dans le ciel. Lo
 
 '$TRs Les saints de Dieu sortent de deux écoles. EE.
@@ -908,14 +835,10 @@ __  JIlya ceux qui viennent des justes et il y a ceux qui
 
 __ viennent des pécheurs. ca
 
-# Ne $ _ Et ça se reconnait. \ “248
-
 Heureusement qu'il n'y a aucune jalousie dans le ciel. …
 
 ITA Puisqu'il y a la communion des saints. 4
 HÉNUS Heureusement qu'ils ne sont point jaloux les uns des |
-
-# LRET <<
 
 “ autres. Mais tous ensemble au contraire ils sont fiés 22
 _ comme les doigts de la main. É
@@ -957,17 +880,13 @@ qu'ils inventent l
 Pour le salut des âmes périclitantes. E
 Lambeau à lambeau ils vous arrachent
 Au royaume de perdition
-Une âme en danger. :
 Ainsi Dieu n'a pas voulu, à
 I1 ne lui a pas plu,
 Que dans le concert il n'y eût qu'une voix. 4
-Il n'a pas plu à sa sagesse. i
 Et à son contentement.
 Il n'a pas voulu être loué d'une seule voix
 Par un seul chœur 4
-Et combattu. +
 Mais comme dans une église de campagne il y a plusieurs voix |
-Qui louent Dieu.
 Par exemple les hommes et les femmes. ds:
 Ou encore les hommes et les enfants.
 
@@ -980,16 +899,13 @@ Pour que pied à pied la Justice reculât |
 Devant la Miséricorde.
 Et que la Miséricorde avance.
 Et que la Miséricorde gagne.
-Car s'il n'y avait que la Justice et si la Miséricorde ne
 s'en mélait pas,
-Qui serait sauvé.
 Ou quelle femme ayant dix drachmes,
 (C'est encore selon saint Luc, mon enfant,
 Si elle a perdu une drachme,
 : Si elle en perd une,
 Est-ce qu'elle n'allume pas sa chandelle,
 Et balaye sa maison,
-Et cherche diligemment,
 Jusqu'à ce qu'elle trouve ?
 Et quand elle a trouvé,
 Elle convoque ses-amies et ses voisines,
@@ -1042,7 +958,6 @@ qui ne serait pas dans les autres. l
 C'est peut-être qu'elles ont en elles comme une jeunesse,
 comme une enfance ignorée.
 
-le porche 1150
 Entre toutes elles sont jeunes, entre toutes elles sont
 fraîches, entre toutes elles sont enfants, entre toutes |
 elles sont inusées. .
@@ -1069,7 +984,6 @@ F Et celle-là, mon enfant, cette troisième parabole de
 | l'espérance,
 Non seulement elle est neuve comme au premier jour. 3
 Comme les deux autres
-Ses sœurs.
 Et dans les siècles elle sera neuve,
 Aussi neuve jusqu'au dernier jour.
 _ Mais depuis quatorze cents, depuis deux mille ans qu'elle
@@ -1081,7 +995,6 @@ l'entendrait sans pleurer.
 Depuis quatorze cents, depuis deux mille ans elle a fait
 £ pleurer des hommes innombrables.
 Dans les siècles et dans les siècles.
-Des chrétiens innombrables.
 Elle a touché dans le cœur de l'homme un point unique,
 un point secret, un point mystérieux.
 (Elle a touché au cœur).
@@ -1091,7 +1004,6 @@ Des hommes innombrables, depuis qu'elle sert, des
 chrétiens innombrables ont pleuré sur elle, .
 (A moins d'avoir un cœur de pierre).
 
-ST, ne D RDS AFRO T FITNESS
 Ont pleuré par elle. ET
 ta Dans les siècles des hommes pleureront. ‘a
 Rien que d'y penser, rien que de la voir qui pourrait. 7
@@ -1117,9 +1029,7 @@ est belle partout. È
 # Elle n'est que dans Luc, elle est partout. ni,
 7 Elle est belle sur la terre et dans le ciel. Elle est belle è È
 
-a re Lio ni
 | Rien que d'y penser, un sanglot vous en monte à la UE
-| gorge. /
 “ C'est la parole de Jésus qui a eu le plus grand reten- ;
 Dans le monde. É
 ë, Qui a trouvé la résonance la plus profonde :
@@ -1145,10 +1055,8 @@ Et toutes les trois paraboles de l'espérance en outre ;
 | sont jeunes, mon enfant. |
 . Mais sur celle-ci des centaines et des milliers d'hommes « : ont pleuré. =
 Des centaines de milliers d'hommes. 4
-Par celle-ci.
 Battus des mêmes sanglots pleuré les mêmes larmes.
 ; Se recommençant les uns les autres. È
-- Les mêmes. .
 Roulés des mêmes sanglots 4
 Dans une communion de larmes. 4
 Couchés, penchés, soulevés des mêmes sanglots pleuré È
@@ -1184,7 +1092,6 @@ Qu'un seul de ces petits périsse.
 _ C'est un chien fidèle
 Qui mord et qui lèche
 Et les deux retiennent
-Le cœur inconstant. È
 Quand le pécheur s'éloigne de Dieu, mon enfant,
 A mesure qu'il s'éloigne, à mesure qu'il s'enfonce dans
 les pays perdus, à mesure qu'il se perd
@@ -1201,15 +1108,12 @@ Et il est comme les autres, il a pleuré aussi. ;
 Il est un trésor de Dieu, quand le pécheur s'éloigne 4
 Dans les ténèbres grandissantes. E
 Quand des ténèbres . 5
-| Croissantes + ‘à
 : : Voilent ses yeux il est un trésor de Dieu qu'ilnejettera
 1 point aux ronces de la route K
 | Car c'est un mystère qui suit, c'est une parole qui suit …
 Dans les plus grands à
 On n'a pas besoin de s'occuper d'elle, et de la porter. E
 Cest elle ; S
-= Qui s'occupe de vous et de se porter et de se faire 4
-| porter. 3
 £ C'est elle qui suit, c'est une parole à la suite, c'est un
 trésor qui accompagne. -
 Les autres paroles de Dieu n'osent pas accompagner
@@ -1263,7 +1167,6 @@ Il y avait une grande procession. En tête les trois « Similitudes D
 _s'avançaient. La foi, dit Dieu, ça n'est pas malin. "à
 Tout le monde croit. Je voudrais bien voir comment ils -
 Oui je voudrais savoir comment ils feraient pour ne pas
-croire. L
 Comment ils s'y prendraient. ‘4
 J'éclate tellement dans ma création. ,
 Jusque dans Îles gouffres de la mer et dans les abîimes
@@ -1275,10 +1178,8 @@ Et dans le fracas du tonnerre qui est un déchirement « du ciel. $
 Et dans le roulement d'un tonnerre lointain.
 Dans le roulement ét le déroulement d'un tonnerre "
 
-Pre DE LA DEUXIÈME VERTU e
 FA Et dans les jours si beaux quandil ne fait pas un souffle
 de vent
-| En mai.
 …__ À moins d'être aveugles comment feraient-ils pour ne
 _ pas me voir.
 - La charité, dit Dieu, ça n'est pas malin. Ça ne m'étonne
@@ -1313,7 +1214,6 @@ Innombrables comme les jours, .
 Que le jour d'aujourd'hui sera un jour meilleur, L
 k Un autre jour, un jour nouveau, un jour frais, un jour 4
 Un jour levant, ; 4
-Bien lavé, “à
 Un jour enfin, une bonne journée, À
 Un jour pas comme les autres, 75
 Après tant d'autres qui étaient tous les uns comme les
@@ -1322,11 +1222,8 @@ Oubliés aussitôt que passés. |
 ._ Oubliés aussitôt que touchés. Le
 Oubliés aussitôt que eus. 5
 Qu'ils croient que ce matin eh bien ça va marcher. - S
-Que ça va aller.
 À Qu'ils croient quand même, que ce matin ça va bien,
-SA cs
 
-Bt prix DEUXIÈME VERTÜU Les ê
 _ Et je n'en reviens pas moi-même. ë
 
 … Et il faut que ma grâce soit tellement grande. FRE
@@ -1343,7 +1240,6 @@ _ Avant qu'ils soient échus. ne
 . Comme une terre ardente qui absorberaïit les ingrati__  tudes du ciel. ,
 - Qu'ils boivent les jours mauvais pour ainsi dire plus
 vite que les jours mauvais ne pleuvent.
-_ Plus tôt. #
 _ Les jours mauvais qui pleuvent comme une pluie 4
 
 u… Comme une pluie grise, comme une infatigable pluie, É
@@ -1355,7 +1251,6 @@ Lu... Qu'ils absorbent tout ce qui tombe comme une bonne ES
 |“ terre de Lorraine, si
 & Comme une terre généreuse et saine, SE
 k - Bien juste, bien à point, bien meuble, Re
-| et 4 % ar
 
 le porche Fe FER
 boit tout ce qui tombe et ne se laisse pas envahir en
@@ -1363,7 +1258,6 @@ marais et en marécages.
 Et en mares et en bas fonds et en marécages pleins de
 boue et de vase,
 Et du limon de l'âme et de plantes poisseuses y
-Et vaseuses.
 Et de bêtes visqueuses. Gluantes.
 Mais qu'au contraire de tout ce qui tombe et des innombrables pluies et des jours mauvais innombrables
 : Aussitôt, instantanément, presque avant ils fassent une j
@@ -1378,15 +1272,11 @@ Qu'ils fassent, qu'ils jaillissent, qu'ils fassent sortir,
 qu'ils fassent jaillir cette source même de l'espérance.
 Cette innombrable source et'ce fleuve innombrable.
 Ce fleuve le plus grand de tous mes fleuves.
-Le seul grand.
 Voilà ce que j'admire, moi, qui m'y connais pourtant.
 Et qui connais ma création. Et l'œuvre des Six Jours. \
 Et le repos du Sept. 3
 Voilà ce qui m'étonne. Et pourtant je ne suis pas facile 4
-Je suis si vieux. J'en ai tant vu. J'en ai tant fait. ë
 Voilà ce qui me passe et je n'en reviens pas moi-même. ‘4
-
-|
 
 ùÙ Et il faut que ma grâce soit tellement grande.
 4 Les jours mauvais pleuvent; sans se presser; sans se
@@ -1395,12 +1285,9 @@ F4 Les jours mauvais pleuvent.
 1 _ Et de toute cette eau qui glisse inlassable du ciel, (d'un
 E= ciel qu'ils pourraient dire mauvais),
 pe ? De toute cette eau qui glisse par terre, de toute cette
-LE. 4 pluie oblique,
 F6 3 (D'autres en feraient des marais et des marécages
 ‘3 pleins de fièvres et tout peuplés de sales bêtes
-#- dégoûtantes).
 £ Mais eux, la bonne terre, ma terre meuble et bien
-ra Bien aménagée.
 S Ma bonne terre d'âmes, bien labourée par mon Fils
 Re depuis des siècles et des siècles,
 bé _ Ma bonne terre saine de Lorraine ils recueillent toute
@@ -1418,7 +1305,6 @@ C'est cette eau, c'est la même eau qui court au ras des +
 C'est la même eau saine qui monte aux tiges du blé CE
 pour le Pain.
 C'est la même eau saine qui monte aux sarments pour
-le Vin.
 C'est la même eau saine qui monte en l'un et l'autre
 bourgeon, en l'un et l'autre bourgeonnement, :
 En l'une et l'autre Loi.
@@ -1429,7 +1315,6 @@ C'est la même eau recueillie qui rejaillit, qui ressource.
 Dans la nouvelle fontaine, dans le rejaillissement jeune. |
 Dans la source et le ressourcement de l'espérance. ;
 Vraiment, dit Dieu, mon Fils m'a fait de très bons
-| jardiniers |
 Depuis quatorze siècles qu'il ameublit cette terre ‘#
 Depuis quatorze siècles que mon Fils laboure et cultive à À
 cette terre, :
@@ -1495,7 +1380,6 @@ Dans les merveilleux, dans les très douloureux jardins
 des âmes
 
 4. Peuple jardinier qui as fait pousser les plus belles fleurs
-fs De sainteté
 È Par la grâce de cette petite Espérance.
 k. Peuple qui fais reculer les pestilences
 R Par l'ordre. Par la propreté, par la probité ; par la clarté.
@@ -1514,8 +1398,6 @@ Toutes les sauvageries du monde, on peut m'en croire,
 je le sais peut-être,
 Toutes les sauvageries du monde ne valent pas un beau
 jardin à la française.
-Car c'est là qu'il y a le plus d'âme et le plus de création.
-C'est là qu'il y a de l'âme.
 Jardins très douloureux des âmes françaises.
 Toutes les sauvageries du monde ne valent pas un beau
 C'est là que j'ai cueilli mes plus belles âmes.
@@ -1524,14 +1406,12 @@ le porche LISE
 Toutes les sauvageries du monde ne valent pas une
 Peuple honnête, peuple de jardiniers c'est lui qui fait
 pousser les plus belles âmes
-De sainteté.
 Très douloureux jardins des âmes ont poussé là |
 Qui ont souffert sans rompre l'alignement
 Le plus dur martyre z
 Et c'est ça qui est difficile; c'est ça qui est rare
 Le plus recreusé martyre “4
 Sans rompre l'ordonnance. à
-Et ça je sais ce que ca coûte. |
 Très douloureux jardins des âmes ont poussé là que
 Toutes les sauvageries du monde ne valent pas un bon
 jardin de presbytère.
@@ -1547,8 +1427,6 @@ Mais moi je sais, (dit Dieu), que rien n'est grand ÿ
 comme l'ordre et que rien n'est profond comme le 4
 Peuple honnête, plein de jeunesse,
 
-| LL DE LA DEUXIÈME VERTU |
-| E-- Plein de ma jeunesse et de ma grâce. :
 “à _ Les eaux du ciel, tu n'en es point intimidé.
 
 a Tu n'en es point embarrassé, les eaux du ciel tu les
@@ -1567,8 +1445,6 @@ Des eaux corrompues, des eaux mortes.
 
 (4 Les jours mauvais tu n'en fais point des mortes eaux.
 
-Ps Toutes glaireuses.
-
 —_ Mais jardinier, peuple jardinier tu en fais ces beaux
 
 _ Qui arrosent les plus beaux jardins
@@ -1586,7 +1462,6 @@ Et ce qu'ils souffrent en dedans, et jusqu'où,
 Quelles épreuves ils portent, sans bouger d'une ligne,
 Comme un beau pont, comme une belle voûte bien
 
-L. juste.
 { = Quels sacrifices ils m'apportent, (en secret), nul sacrifice
 n'est si profond
 . Qu'un labour français.
@@ -1632,8 +1507,6 @@ Qu'il se soit fait quelque accoïintance entre ce peuple
 & et cette petite Espérance.
 # Ils y réussissent trop bien.
 
-le porche 15 de s 2
-Et il n'y a qu'eux qui y réussissent. à 3
 Il faut qu'ils aient fait entre eux une espèce d'adoption. 4
 Ils ont adopté l'espérance et l'espérance les a adoptés. |
 Non point certes comme un père une fille et comme une |
@@ -1657,12 +1530,10 @@ Et les enfants le sentent bien.
 Il est au-dessus. TT
 Et les enfants le sentent bien. d
 Le lien du père au fils est un lien sacré, qui pèse, un
-: lien direct. LE
 Et les enfants le sentent bien. j
 L'oncle a une liberté, (et l'âge en même temps, et
 l'expérience), il fait tout ce qu'il veut, il est pour les
 
-irreese DE LA DEUXIÈME VERTU
 _ Tout l'amusement de la vie.
 
 Les enfants le savent. Avec lui seul avec lui de lui les £
@@ -1693,8 +1564,6 @@ Ils boivent impunément de tout.
 
 Par cette accointance qu'ils ont avec cette petite Espé-
 
-de:
-
 le porche AE
 On se demande, on dit : Mais comment que ça se fait 3
 Que cette fontaine Espérance éternellement coule ;
@@ -1719,7 +1588,6 @@ Si c'était avec de l'eau pure qu'elle voulût faire des
 Des sources d'eau pure,
 
 r Jamais elle n'en trouverait assez, dans (toute) ma
-- Car il n'y en a pas beaucoup.
 … Mais c'est justement avec les eaux mauvaises qu'elle
 1 fait ses sources d'eau pure.
 : Et c'est pour cela qu'elle n'en manque jamais.
@@ -1811,7 +1679,6 @@ Sauter. Danser. Elle est si heureuse.
 Fais pousser les roses de France.
 Jardinier du roi, jardinier de fleurs et de fruits, jardinier
 
-Ce do de de ;
 4 _ Peuple tu es mon jardinier.
 ‘4 Jardinier dans le verger, jardinier dans le potager, jardi3 nier dans le jardin.
 ; Jardinier dans le champ même.
@@ -1827,14 +1694,12 @@ Et tes vallons au loin qui se recourbent mollement. ;
 __ Pleins de fécondité. Bien gonflés sous la main. Avec
 des recreux de secret. .
 Peuple diligent la charrue et la herse et le rouleau, la
-bêche et le râteau et la pioche et la houe et le plantoir
 et le cordeau
 | Ne s'ennuient pas dans tes mains. ‘
 Ne chôment pas dans tes mains.
 d Tu n'as pas peur d'y toucher. Tu ne les regardes pas
 j de loin avec des cérémonies.
 | Mais la charrue et la herse et le rouleau et la pelleetla
-L pioche et la bêche et la houe.
 Tu en fais des bonnes honnêtes ouvrières, des outils
 1. d'honnête homme. *
 {“ Tu n'as pas peur de les approcher.
@@ -1903,10 +1768,8 @@ Jettes les fleurs, jettes les âmes,
 Sachant qu'il en poussera toujours.
 | Que tu en feras toujours pousser.
 Péuple, peuple, le seul qui ne comptes jamais avec
-moi.
 Peuple du roi, peuple roi, je te Le dis, je te prendrai au
 
-DR ET RS SO ET EE RE er SR ren D ce
 le porche ” ARTS
 Moi aussi je suis roi je te prendrai au roi pour mon
 Jardinier du roi je te prendrai au roi À
@@ -1941,7 +1804,6 @@ Fils nommait la zizanie
 : Et qui lui servit beaucoup pour ses similitudes. Un
 ÿ homme avait deux fils.
 Et que vous autres vous nommez de l'ivraie et du
-| chiendent.
 | _ Peuple laborieux quand je regarde tes champs.
 Ni dans tes moissons cette affreuse maladie.
 Quand les blés ont la maladie. Et surtout les seigles.
@@ -1953,7 +1815,6 @@ Puissiez-vous désherber ainsi be
 Vos âmes aussi | ;
 De toute cette mauvaise herbe du péché.
 De cette carie, de cette odieuse qui ronge \
-| Le Pain Éternel
 | Peuple qui jettes par brassées
 Les beaux lys de France au col non ployé,
 1 Aux pieds de la Très Sainte et de l'Immaculée.
@@ -1969,24 +1830,19 @@ Et tellement elle est sûre de ne jamais se fatiguer. ;
 | Les enfants marchent tout à fait comme des petits ;
 (D'ailleurs ils jouent aussi comme les petits chiens)
 Quand un petit chien se promène avec ses maîtres
-Il va, il vient. Il repart, il revient. Il va en avant, il 8
 Il fait vingt fois le chemin.
 Vingt fois le trajet. 1
 C'est qu'en effet il ne va pas quelque part.
 Ce sont les maîtres qui vont quelque part.
-Lui il ne va nulle part.
 Et ce qui l'intéresse, c'est précisément de faire le |
 Pareillement les enfants. Quand vous faites une course À
 avec vos enfants
-Une commission ‘
 Ou quand vous allez à la messe ou aux vêpres avec vos
-Ou au salut
 Ou entre messe et vêpres quand vous allez vous
 promener avec vos enfants
 
 “ - Ils trottent devant vous comme des petits chiens. Ils
 È avancent, ils reculent. Ils vont, ils viennent. Ils
-À s'amusent. Ils sautent.
 Ils font vingt fois le trajet.
 Cest qu'en effet ils ne vont pas quelque part. » 7 Ça ne les intéresse pas d'aller quelque part.
 
@@ -1999,8 +1855,6 @@ Les grandes personnes, la Foi, la Charité.
 Ce sont les parents qui vont quelque part.
 
 A la messe, aux vépres, au salut.
-
-A la rivière, à la forêt.
 
 Qui s'efforcent, qui se travaillent pour aller quelque part
 
@@ -2067,7 +1921,6 @@ Qui est généralement un endroit de déception
 Ça lui est bien égal. Elle est comme une enfant. Elle est
 une enfant.
 Ça lui est bien égal de faire marcher les grandes per-
-| sonnes. 4
 | La sagesse terrestre n'est point son affaire.
 Elle ne calcule point comme nous.
 Elle calcule, ou enfin elle ne calcule pas, elle compte
@@ -2087,11 +1940,9 @@ l'enfant au berceau.
 — Qu'il a devant lui. D'abord. Qui est devant. Par cette Re
 la misérable vie terrestre.
 
-le porche + a. k
 Il faudra qu'il traverse. Il faudra qu'il passe par toute
 cette misérable vie terrestre 4
 Avant d'arriver, avant d'atteindre, pour atteindre à
-. la Vie 4
 À la seule vie qui compte. Mais le vieillard il a de la
 Prudent il a mis derrière lui cette misérable vie À
 Qui lui masquaiït la Vie éternelle 4
@@ -2116,12 +1967,10 @@ Terrestre. C'est d'aller, d'aller toujours, et (au contraire)
 de ne pas arriver.
 C'est d'aller petitement dans la petite procession des
 
-L ot transe)
 __ Grande pour le salut. Les jours vont en procession
 Et nous nous allons en procession dans les jours. Ce
 qui importe
 C'est d'aller. D'aller toujours. Ce qui compte. Et comme
-on va.
 C'est le chemin qu'on fait. C'est le trajet lui-même. Et
 comme on le fait.
 Vous faites vingt fois le même chemin terrestre. Pour |
@@ -2143,7 +1992,6 @@ Terrestre. Qu'il en était un d'avance. Alors pourquoi y
 Parce que vous comprenez très bien le manège de cette
 
 LAS le porche à +
-Espéra#ce. x à 4
 
 Pourquoi suuvez-vous toujours cette enfant de déception. F: ,
 Pourquoi donn#z-xous les mains au manège de cette A
@@ -2186,7 +2034,6 @@ pas la même. Si ces vingt fois sont vingt fois
 d'épreuve(s) et si ce chemin est un chemin de sainteté
 Sur le même chemin la deuxième fois fait le double de
 la première
-Et la troisième en fait le triple et la vingtième en fait le
 Qu'importe d'arriver ici ou là, et toujours au même
 Qui est un endroit de déception | à
 C'est le chemin qui importe, et quel chemin on fait, et
@@ -2202,7 +2049,6 @@ Trois fois plus saint et celui qui l'a fait
 C'est comme ça que Dieu voit. |
 | 197
 
-le porche 733
 Le même chemin, deuxième n'est plus le même. pe
 Tous les jours, dites-vous, tous vos jours sont les
 Sur terre, sont le même. |
@@ -2229,7 +2075,6 @@ Mais au ciel tout compte ‘x 0
 Et tout s'additionne. La grâce de chaque jour 2
 (Quand même elle recommencerait la grâce de la veille) A » !
 
-| ‘+ _ DE LA DEUXIÈME VERTU
 ; 2 Au trésor éternel des grâces. Et c'est pour cela que la
 È Seule ne ménage rien. Quand Jésus travaillait chez son
 2 père
@@ -2248,7 +2093,6 @@ __ A quelques rares élus (et encore c'est en outre et non
 pas au contraire)
 pi Les exemples de sa vie publique à imiter
 Les modèles inimitables de sa Prédication
-Et de sa Passion et de sa Mort.
 (Et de sa Résurrection).
 _Pareïllement, ensemble avec lui, à l'imitation de lui
 Sur terre, sur nos chemins de la terre nos pas effacent
@@ -2259,7 +2103,6 @@ Mais les chemins du ciel gardent éternellement toutes
 couches de traces
 Toutes traces de pas.
 
-| a
 : le porche CARS
 Sur nos chemins de la terre il n'y a qu'une seule à 3
 matière, la terre, 4
@@ -2301,7 +2144,6 @@ Dans le même sable.
 Hs Quand nous recommencçons vingt fois le même chemin,
 Ka Quand vingt fois nous nous marchons derrière nous2 mêmes,
 ë Nous-mêmes nous effaçons la trace de nos (propres)
-È pas.
 à De nos anciens pas.
 C'est pourtant ce que Jésus a fait
 A son imitation c'est pourtant ce que Jésus, ce que Dieu
@@ -2325,9 +2167,7 @@ Dans la prédication combien de jours n'étaient-ils pas
 les mêmes.
 Combien de prédications n'étaient-elles pas les mêmes <
 et temporellement ne se recommençaient-elles pas.
-I n'y a eu qu'un jour de l'Institution de la Cène. Etun
 jour de la Crucifixion. Et un jour de la Résurrection.
-(Et il n'y aura qu'un jour du Jugement).
 Pendant trente et pendant trois ans tous les autres jours
 Mais tous ces jours comptent. Car sur terre vingt fois
 nous effaçons nos propres traces
@@ -2368,12 +2208,10 @@ Dans leur lit ou même à table
 _— Infatigable comme les enfants.
 - Infatigable comme l'enfant Espérance. ;
 
-le porche . Fe SEE et b:
 Et de recommencer toujours le lendemain. PPS 1
 Les enfants ne peuvent pas marcher, mais ils savent “4
 | très bien courir.
 # L'enfant ne pense pas même, ne sait pas qu'il dormira
-, le soir. 5
 ; Que le soir il tombera de sommeil. C'est pourtant ce
 Toujours prêt, toujours disponible, toujours présent,
 Toujours en dessous, comme une bonne réserve, E
@@ -2393,10 +2231,8 @@ des ouvertures. ÿ
 C'est ce même sommeil où les enfants ensevelissent
 leur être 4
 Qui leur ‘maintient, qui leur fait tous les jours ces
-Ces jarrets neufs. |
 Et ce qu'il y a dans des jarrets neufs : ces âmes
 
-4 se DE LA DEUXIÈME VERTU
 + . Ces âmes nouvelles, ces âmes fraîches. :
 EE: Fraîches le matin, fraîches à midi, fraîches le soir.
 ‘2 Fraîches comme les roses de France.
@@ -2406,7 +2242,6 @@ He: Cest de dormir. Pourquoi les hommes n'en usent-
 % pas vendu.
 * Celui qui dort bien, vit bien. Celui qui dort, prie.
 à (Aussi celui qui travaille, prie. Mais il y a temps pour
-PR tout. Et le sommeil et le travail
 . _ Et le travail et le sommeil sont les deux frères. Et ils
 A - s'entendent très bien ensemble.
 L…_ Et le sommeil conduit au travail et le travail conduit
@@ -2416,7 +2251,6 @@ Fe D faut, dit Dieu, qu'il y ait une accointance,
 __ Qu'il se soit passé quelque chose
 A Entre ce royaume de France et cette petite Espérance.
 _ Ily a là un secret. Ils y réussissent trop bien. Pourtant
-ss on me dit
 - Qu'il y a des hommes qui ne dorment pas.
 -_ Je n'aime pas celui qui ne dort pas, dit Dieu.
 …_ Le sommeil est l'ami de l'homme.
@@ -2452,7 +2286,6 @@ En ceci suivent mon commandement, les pauvres
 Et qui d'autre part n'ont pas le courage, n'ont pas la
 confiance, ne dorment pas.
 
-| a. j DE LA DEUXIÈME VERTU
 | Je les plains. Je leur en veux. Un peu. Ils ne me font
 A pas confiance.
 fs Comme l'enfant se couche innocent dans les bras de sa
@@ -2462,7 +2295,6 @@ fi Innocents dans les bras de ma Providence.
 de ne rien faire.
 Ils ont la vertu de travailler. Ils n'ont pas la vertu de
 ne rien faire.
-5 De se détendre. De se reposer. De dormir.
 Les malheureux ils ne savent pas ce qui est bon.
 Ils gouvernent très bien leurs affaires pendant le
 Mais ils ne veulent pas m'en confier le gouvernement
@@ -2474,7 +2306,6 @@ Et c'est la plus grande infidélité.
 Pauvres enfants ils administrent dans la journée leurs
 affaires avec sagesse.
 Mais le soir venu ils ne se résolvent point,
-Ils ne se résignent point à en confier le gouvernement à
 ma sagesse
 L'espace d'une nuit à m'en confier le gouvernement. |
 Et l'administration et tout le gouvernement.
@@ -2482,7 +2313,6 @@ Comme si je n'étais pas capable, peut-être, de m'en
 occuper un peu.
 : De gouverner et d'administrer et tout le tremblement.
 
-le porche : °F ÉS RES
 11808
 J'en administre bien d'autres, pauvres gens, je gouverne à 4
 la création, c'est peut-être plus difficile. ; ss
@@ -2546,12 +2376,10 @@ e- qui dort.
 
 -  Malheureux celui qui veille et ne me fait pas confiance. |
 Quelle défiance de moi. Malheureux celui qui veille. Et
-L traîne.
 
 1 Malheureux celui qui traîne surles soirs et sur ses nuits.
 Sur les avancées du soir et sur les tombées de la nuit.
 Comme une traînée d'escargot sur ces belles avancées.
-Mes créatures.
 
 _ Comme une traînée de limace sur ces belles tombées.
 
@@ -2564,18 +2392,15 @@ BL - Les lents ressouvenirs des soucis quotidiens.
 … Les traces sales des soucis, des amertumes et des
 
 le porche GITE
-Des peines. |
 Les traces de limaces. Sur les fleurs de ma nuit. 1
 En vérité je vous le dis celui-là fait offense |
 A ma chère Espérance.
 Qui ne veut point me confier le gouvernement de sa vie.
 Pendant qu'il dormirait.
-Le sot.
 Qui ne veut point me confier le gouvernement de sa
 nuit. F
 Comme si je n'avais pas fait mes preuves. ; 4
 Qui ne veut pas me confier le gouvernement d'une nuit
-de lui. 4
 Comme si plus d'un. .
 14 Qui avait laissé ses affaires très mauvaises en se couchant. L
 d Ne les avait pas trouvées très bonnes en se levant. B:
@@ -2584,14 +2409,11 @@ Les nuits se suivent et se tiennent et pour l'enfant les
 nuits sont continues et elles sont le fond de son être
 C'est là qu'il retombe. Elles sont le fond même de sa à
 Elles sont son être même. La nuit est l'endroit, la nuit :
-est l'être où il se baïgne, où il se nourrit, où il se ;
 crée, où il se fait.
 Où il fait son être. 1
 Où il se refait.
 
-PTE ES. LA rt de be Us rate Dies È
 : La nuit est l'endroiït, la nuit est l'être où il se repose,
-$ où il se retire, où il se recueille,
 Où il rentre. Et il en sort frais. La nuit est ma plus ;
 Or pourquoi l'homme n'en use-t-il pas. On me dit qu'il
 | y à des hommes qui ne dorment pas la nuit.
@@ -2606,7 +2428,6 @@ jours qui percent, qui rompent la nuit
 _ Et nullement les nuits qui interrompent le jour.
 C'est le jour qui fait du bruit à la nuit.
 Autrement elle dormirait.
-Et la solitude, et le silence de la nuït est si beau et si
 Qu'il entoure, qu'il cerne, qu'il ensevelit les jours mêmes.
 Qu''ii fait une bordure auguste aux agitations des jours.
 Les enfants ont raison, ma petite Espérance a raison.
@@ -2616,7 +2437,6 @@ comme une belle danse
 De nuits qui se tiennent par la main et les maigres
 Ne font qu'une procession qui ne se tient pas par la
 
-_ Le porche STE
 Les enfants ont raison, ma petite Espérance a raison.
 : Les nuits toutes ensemble 4
 , Se rejoignent, se joignent par dessus les bords des
@@ -2643,9 +2463,7 @@ que des maigres jours À
 4 Qui ne se donnent pas la main. Or de même que la vie
 En grand (si je puis dire) n'est qu'un passage entre « Ç deux bords
 Une ouverture entre la nuit d'avant et la nuit d'après
-| 212 F à
 
-|. ÉMERGER RONA — É
 - Entre la nuit de ténèbres et la nuit de lumière |
 . Ainsi en petit chaque jour n'est qu'une ouverture. |
 Un jour.
@@ -2675,7 +2493,6 @@ Où les jours ne s'ouvrent que comme des jours.
 … Serait une chaîne sans fin
 Où la maille suit la maïlle, où le chaînon suit le chaînon,
 
-le porche ‘1700
 Où les jours et les nuits se suivraient égaux dans une
 même chaïne. 3
 Un chaïnon blane, un chaïnon noir, la nuit accrochant
@@ -2732,7 +2549,6 @@ C'est toi, nuit, qui couches et fais coucher toute la
 - Dans un lit de quelques heures.
 (En attendant). Dans un lit de quelques heures
 
-PO RE D AR pe ORNE CURE à CN CE COS CNRS
 le porche | LRREMENERSERES
 Image, faible image, et promesse et avant réalisation ei \
 du lit de toutes les heures. TF3
@@ -2751,19 +2567,15 @@ Ils sont bien forcés. ?
 Il faut bien que vous reposiez dans la profonde nuit. 4
 Et toi nuit tu es la mer profonde
 Où naviguait saint Paul, non plus ce petit lac de Tibé-
-| riade. |
 gs Tous ces jours ne sont jamais que des membres E
 Démembrés. Ce sont les jours qui émergent, mais il u
 faut bien qu'ils soient assis dans la pleine eau. +
 Dans la nuit pleine. Nuit ma plus belle invention c'est « Ê toi qui calmes, c'est toi qui apaises, c'est toi qui fais
-Les membres endoloris : 4
 Tout démanchés du travail du jour. 4
 C'est toi qui calmes, c'est toi qui apaises, c'est toi qui
-Les cœurs endoloris
 
 Les corps meurtris, les membres meurtris du labeur,
 “à _ les cœurs meurtris du labeur |
-_ Et de la peine et du souci quotidien.
 Ë O Nuit, à ma fille la Nuit, la plus religieuse de mes 3
 É: La plus pieuse.
 | » De mes filles, de mes créatures la plus dans mes mains,
@@ -2817,9 +2629,7 @@ Toutes mes créatures x
 Les plus inquiètes, le cheval fougueux, la fourmi laborieuse,
 Et l'homme ce monstre d'inquiétude.
 Nuit qui réussis à endormir l'homme -
-Ce puits d'inquiétude.
 
-RE ET RS ee TPE PE PRE cé *
 _ A lui seul plus inquiet que toute la création ensemble.
 Ë L'homme, ce puits d'inquiétude.
 “à Comme tu endors l'eau du puits. |
@@ -2831,9 +2641,7 @@ O ma belle nuit je t'ai créée la première.
 CET presque avant la première
 Toi par qui descend sur terre un avant goût
 - Toi qui répands de tes mains, toi qui verses sur terre
-È Une première paix
 Fe: Avant-coureur de la paix éternelle.
-à Un premier repos
 à Avant-coureur du repos éternel.
 A ‘ Un premier baume, si frais, une première béatitude
 ] Avant-coureur de la béatitude éternelle.
@@ -2843,7 +2651,6 @@ Toi qui endors les cœurs, toi qui endors les corps
 Les cœurs endoloris, les corps endoloris,
 Les membres rompus, les reins brisés
 De fatigue, de soucis, des inquiétudes ;
-Des peines,
 Toi qui verses le baume aux gorges déchirées d'amertume
 -  O ma fille au grand cœur je t'ai créée la première
 
@@ -2853,12 +2660,9 @@ TS Et je savais bien ce que je faisais. ? 4
 Toi qui couches l'enfant au bras de sa mère Re à = à
 : L'enfant tout éclairé d'une ombre de sommeil
 7 Tout riant en dedans, tout riant secret d'une confiance “2
-Ês en sa mère. |
-+ Et en moi,
 | Tout riant secret d'un pli des lèvres sérieux LR
 Fe Toi qui couches l'enfant tout en dedans gonflé, déborFe dant d'innocence
 Le Et de confiance {
-2 Au bras de sa mère. j
 z Toi qui couchais l'enfant Jésus tous les soirs 4
 Ë Au bras de la Très Sainte et de l'Immaculée. :
 & Toi qui es la sœur tourière de l'espérance. $
@@ -2877,8 +2681,6 @@ k Quand ils auront tiré toute l'eau du puits.
 É Après la consommation, après l'épuisement de toute À
  : cette inquiétude | ël
 
-| D ox LA DEUXIÈME VERTU re
-_ Ainsi ma fille tu es ancienne et tu es en retard ES
 Car dans ce règne d'inquiétude tu rappelles, tu com- 4
 3 : mémores, tu rétablis presque, ‘
 Tu fais presque recommencer la Quiétude antérieure :
@@ -2888,22 +2690,17 @@ Tu fais presque recommencer la Quiétude antérieure :
 . Car tu annonces, car tu représentes, car tu fais presque 4 é
 14 commencer d'avance tous les soirs 3
 | _ Ma grande Quiétude de lumière %
-|  Éternelle. Ex
 é_ Nuittues sainte, Nuit tu es grande, Nuit tu es belle. à
 Nuit au grand manteau.
-“4 Nuit je t'aime et je te salue et je te glorifie et tu es ma #
 Ln_ grande fille et ma créature 5-24
 3 _ © belle nuit, nuit au grand manteau, ma fille au man- 2
-|  teau étoilé - ES
 h_ Tu me rappelles, à moi-même tu me rappelles ce grand ee
 | silence qu'il y avait dl
 sa Avant que j'eusse ouvert les écluses d'ingratitude. S
 | Ettu m'annonces, à moi-même tu m'annonces ce grand ?
-LÉ silence qu'il y aura À
 | _ Quand je les aurai fermées. ; :
 |  O douce, ô grande, à sainte, 6 belle nuit, peut-être Ja | 14
 F4 plus sainte de mes filles, nuit à la grande robe, à la ce 5
-L robe étoilée ;
 | ‘4 Tu me rappelles ce grand silence qu'il y avait dans le :
 | monde #
 | - Ayant le commencement du règne de l'homme.
@@ -2915,7 +2712,6 @@ mon sceptre.
 Et j'y pense quelquefois d'avance, car cet homme fait
 vraiment beaucoup de bruit.
 Mais surtout, Nuit, tu me rappelles cette nuit.
-\ Et je me la rappellerai éternellement.
 La neuvième heure avait sonné. C'était dans le pays de
 mon peuple d'Israël.
 : Tout était consommé. Cette énorme aventure.
@@ -2928,7 +2724,6 @@ Chez les hommes.
 Pour ce qu'ils en ont fait.
 Ces trente ans qu'il fut charpentier chez les hommes.
 Ces trois ans qu'il fut une sorte de prédicateur chez les |
-Un prêtre. ;
 Ces trois jours où il fut une victime chez les hommes,
 ; Parmi les hommes.
 i Ces trois nuits où il fut un mort chez les hommes.

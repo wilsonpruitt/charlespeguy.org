@@ -17,7 +17,6 @@ printemps, le ciel ensoleillé, les jeunes pousses des
 Pavait encore vue. Elle dit que, l'autre jour, elle ne
 … pouvait voir personne : elle l'eût détesté, comme tous
 les autres hommes.
-| — Et aujourd'hui?
 — Aujourd'hui, je me sens toute jeune, toute neuve,
 et j'ai de l'affection pour tout ce que je sens de jeune et
 de neuf autour de moi, — comme vous.
@@ -40,7 +39,6 @@ les commencements. Mais une fois qu'elle devait se
 …_ dire des vers, au dernier instant — (elle était déjà dans
 - sa voiture) — cela l'ennuya : en route, elle envoya une
 
-la fin du voyage où Un
 dépêche, pour dire qu'elle ne pouvait pas venir; et elle ONE
 se fit conduire chez Christophe. Elle avait simplement
 l'intention de lui dire bonsoir, en passant. Mais il se |
@@ -54,7 +52,6 @@ et la brutalisaient. Un d'eux l'épousa, parce qu'elle
 avait quelques sous; il la battait, se soûlait. Françoise #1
 avait une sœur plus âgée, qui était servante dans l'au
 berge; elle s'épuisait à la tâche ; le patron en avait fait :
-sa maîtresse, au su et au vu de la mère; elle était
 phtisique; elle était morte. Françoise avait grandi au
 milieu des coups et des ignominies. C'était une enfant î
 blême, bilieuse, concentrée, avec une petite âme |
@@ -183,7 +180,6 @@ sortir de là. Il me menaçait de me faire arrêter comme
 voleuse. Je n'avais pas le choix... — C'est ainsi que
 j'ai été initiée à l'art — et à la vie.
 — Le misérable! dit Christophe.
-— Oui, je l'ai haï. Mais depuis, j'en ai tant vu qu'il
 . ne me semble plus un des pires. Du moins lui, il n'a
 … tenu parole. Il m'a appris ce qu'il savait — (pas grand
 chose!) — de son métier d'acteur. Il m'a fait entrer
@@ -192,7 +188,6 @@ chose!) — de son métier d'acteur. Il m'a fait entrer
 la soubrette était malade, on s'est risqué à me confier
 son rôle. Ensuite, j'ai continué. On me trouvait d'ail-
 
-la fin du voyage VAR ë
 alors. Je le suis restée jusqu'au jour où l'on m'a décré
 tée, — sinon « divine », comme l'Autre, — supérieu- |
 rement, idéalement femme, « la Femme »... Les Î
@@ -214,7 +209,6 @@ eût souhaité de mourir; mais c'eût été trop abominable
 de succomber au milieu des humiliations, de ne pas j
 aller plus loin. Se suicider avant, soit! Ou après la
 victoire. Mais pas quand on s'est avili, sans en avoir :
-eu le prix... ;
 
 Elle se taisait. Christophe marchaït avec colère dans
 la chambre; il aurait voulu assommer ces gens, qui
@@ -226,8 +220,6 @@ les serra affectueusement, et dit : $
 Elle fit un geste pour l'écarter. Il dit : (0
 
 — N'ayez pas peur de moi. Je vous aime bien,
-
-_ RSS sde LES AMIES
 
 ‘à _ Alors, des larmes coulèrent sur les joues pâles de ;
 
@@ -364,7 +356,6 @@ Nous avons donré le bon à tirer après corrections
 pour deux mille exemplaires de ce septième cahier
 et pour douze exemplaires sur whatman le mardi
 
-Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. —#472
 
@@ -390,9 +381,7 @@ des journées et des nuits; mais chaque jour, elle
 retournait chez elle, et elle y passait aussi des nuits.
 Pendant les mois de vacances, où ie théâtre était |
 fermé, ils louèrent ensemble une maison, aux environs pa
-| 125 amies. — 1 Q?
 
-LE, Me LREFRIISOE AE Rd en |
 | de Paris, du côté de Gif. Ils y vécurent des jours
 heureux, malgré quelques nuages de tristesse. Jours
 de confiance et de travail. Ils avaient une belle
@@ -505,7 +494,6 @@ Eu dispose; il ne croit pas se rapetisser ainsi; mais il |
 
 À l'art humain par excellence, l'art vivant.
 
-la fin du voyage ER CA
 : Les pensées que Françoise exprimait ainsi s'accordaient avec celles de Christophe, qui tendait, à ce
 moment de sa carrière, vers un art collectif, en communion avec les autres hommes. L'expérience de Françoise
 lui faisait saisir la collaboration mystérieuse qui se
@@ -664,7 +652,6 @@ tous, dans ce qu'il a de meilleur. Il en choisissait
 deux : Joseph et Niobé. Mais là, Christophe seheurtaît
 non seulement au manque de poète, mais à la question |
 périlleuse, discutée depuis plusieurs siècles, et jamais ;
-résolue, de l'union de la poésie et de la musique. Ses à
 conversations avec Françoise le ramenaïent aux projets, esquissés autrefois avec Corinne, d'une forme de Ë
 drame musical tenant le milieu entre l'opéra récitatif |
 et le drame parlé, — l'art de la parole libre unie à la
@@ -680,8 +667,6 @@ tement à leurs stances harmonieuses l'écho des rêveries et des plaintes de la
 telle forme ne saurait s'appliquer qu'à un ordre limité
 de sujets, à des moments de l'âme, intimes et recueillis, afin d'en évoquer le parfum poétique. Nul art qui
 doive être plus discret et plus aristocratique. Il est
-
-Frs LES AMIES
 
 donc naturel qu'il ait peu de chances de fleurir dans
 une époque qui, en dépit des prétentions de ses artistes,
@@ -706,7 +691,6 @@ des larmes au vieux Tolstoy, et à bien d'autres :
 père vit-il encore ?.. Je suis votre frère, votre frère
 perdu depuis longtemps. Je suis Joseph. »
 
-1 STER.  oner D TOR Des ke - - à |
 Cette belle et libre union ne pouvait durer. Ils avaient
 ensemble des moments de plénitude de vie; mais ils
 étaient trop différents, tous deux. Et tous deux, aussi
@@ -766,9 +750,7 @@ _ Shakespeare de charlatan. En revanche, il s'engouait
 de petits maîtres mignards, des musiques de clavecin
 …_ qui charmaient le Roï-Perruque; et il regardait la Con-
 …  fession d'une femme de chambre comme un livre chré-
-| tien.
 
-la fin du voyage se ÿ
 — Les grands hommes n'ont pas besoin de nous, dit
 Christophe. C'est aux autres qu'il faut penser.
 
@@ -778,7 +760,6 @@ vie pour eux! Quelle amertume!
 
 — Bah! dit Christophe. Je les vois comme toi; et cela
 ne m'aitriste pas. Ils ne sont pas aussi mauvais que tu
-le dis. 1
 
 — Ils sont des hommes, comme moi. Pourquoi ne me
 comprendraient-ils pas 2... — Et quand ils ne me comprendraient pas, vais-je m'en désoler? Parmi ces milliers de gens, il s'en trouvera toujours un ou deux, qui
@@ -788,10 +769,8 @@ que ton apparition, ta voix, la révélation par toi de la
 beauté tragique emportent au-dessus de leurs jours
 médiocres. Souviens-toi de toi-même, quand tu étais
 enfant! N''est-il pas bon de faire aux autres, — quand
-ce ne serait qu'à un seul, — le bonheur et le bien qu'un
 autre vous fit jadis ? :
 
-— Tu crois qu'il y en a vraiment un? J'ai fini paren
 douter... Et puis, comment les meilleurs de ceux qui
 nous aiment nous aiment-ils ? Comment nous voient-ils ?
 Ils voient si mal! Ils vous admirent, en vous humiliant; ils
@@ -811,7 +790,6 @@ autres, ceux qui ont disparu ?
 
 — Au diable! dit Christophe. Quand bien même
 personne ne sentirait ce que je pense et ce que je suis,
-moi, je le pense et je le suis. J'ai ma musique, je l'aime,
 
 je crois en elle; elle est plus vraie que tout.
 
@@ -849,7 +827,6 @@ d'ailleurs, quand même on y réussirait.. Non, cela
 ne remplit pas encore la vie, cela ne remplit pas ma ee
 
 — Tu penses toujours à lui. ARR
-— À qui? ee
 — Tu le sais bien. A cet homme. :
 — Même si tu l'avais, cet homme, et s'il Vaïimait, 5
 avoue-le, tu ne serais pas encore heureuse, tu trouverais moyen de te tourmenter. gs
@@ -945,8 +922,6 @@ Lorsqu'elle le revit, elle le trouva beaucoup plus sympathique. Ses défauts mê
 sans attrait. Elle s'aperçut que Christophe avait du
 génie, et qu'il valait la peine de s'en faire aimer.
 
-|
-la fin du voyage LATE < 4 Se
 La situation du jeune ménage ne s'était pas améliorée ;
 elle avait même empiré. Jacqueline s'ennuyait, s'en- (
 nuyait : elle mourait d'ennui.…. Combien la femme est
@@ -979,7 +954,6 @@ d'effroi, qui la transperçaient comme des épées: Elle
 — « Pourquoi est-ce que je vis? Pourquoi est-ce que =
 je suis née? » pe “4
 
-ah SE EE E LES AMIES
 e. Et son cœur se tordait d'angoisse.
 : — « Mon Dieu, je vais mourir! Mon Dieu, je vais
 _ Cette pensée la hantait, la poursuivait la nuit. Elle
@@ -1108,8 +1082,6 @@ Un soir, après diner, la nuit leur sembla si belle, —
 nuit sans lune, étoilée, — qu'ils voulurent se promener
 dans le jardin. Olivier et Christophe sortirent de la
 maison. Jacqueline monta dans sa chambre, pour î
-
-| HR SRE LES AMIES <
 
 = prendre un châle. Elle ne redescendait point. Chris-
 
@@ -1326,8 +1298,6 @@ et lui mettant sous le nez les pièces du délit, il dit :
 
 — À moi aussi, je suppose!
 
-Christophe bondit.
-
 _ — Mes œuvres ne sont pas à moi?
 
 — Elles ne sont plus à vous. Vous me les avez
@@ -1337,8 +1307,6 @@ papier. Faites-en de l'argent, si vous voulez. Mais ce qui
 est écrit dessus, c'est mon sang, c'est à moi.
 
 — Vous m'avez tout vendu. En échange de l'œuvre
-
-| SR nu |
 
 que voici, je vous ai alloué une somme de trois cents
 francs, payable jusqu'à due concurrence, à raison de La
@@ -1377,7 +1345,6 @@ vous vendez la pensée à l'encan. Ress
 # II fouillait dans ses poches pour rendre à Hecht les
 trois cents francs. Mais il ne les avait pas. Hecht sourit
 légèrement, avec un peu de dédain. Ce sourire enragea |
-Christophe.
 — Je veux mes œuvres, dit-il, je vous les rachète.
 
 ; — Vous n'en avez aucun droit, dit Hecht. Mais :
@@ -1521,8 +1488,6 @@ lemagne, rencontré à la soirée où l'on donnait ses
 œuvres, lui disait que son pays était fier d'un musicien
 tel que lui, Christophe répondit amèrement :
 
-é — Il est si fier de moi qu'il me laissera mourir à sa :
-
 Le jeune diplomate se fit expliquer la situation; et,
 quelques jours après, il revint voir Christophe, et lui
 
@@ -1572,11 +1537,7 @@ ou deux fois par an.
 
 — Lorchen? dit Christophe.
 
-Ils causèrent. | |
-
 — Vous êtes le fils? dit l'homme.
-
-| € LES AMIES
 
 — Elle en avait trois, dit Christophe.
 
@@ -1614,7 +1575,6 @@ sous le lierre. Quelques gouties de pluie commençaient
 — Il sera vite effacé. Tant mieux! Pour toi seule.
 Pour nul autre.
 
-la fin du voyage ER AE
 Il revit aussi le fleuve, ies rues familières, où tant de 2
 choses étaient changées. Aux portes de la ville, sur les
 promenades des anciens bastions, un petit bois d'acacias
@@ -1629,7 +1589,6 @@ quand une voiture passa. Machinalement, il leva les
 fraîche, grasse, réjouie, qui l'examinaïit curieusement. À
 Elle fit une exclamation de surprise. A son geste, la :
 voiture s'arrêta. Elle dit : :
-Il s'arrêta. à ù
 Elle dit, en riant : Fe.
 Il courut à elle, presque aussi troublé qu'au jour de ë
 la première rencontre. Elle était avec un monsieur -
@@ -1731,7 +1690,6 @@ une partie de la soirée à l'entretenir de commérages
 sur le compte de gens qu'il ne connaissait pas.
 Ils étaient à l'affüt des ridicules de leurs voisins, et ils F
 
-Fe ne : LES AMIES
 décrétaient ridicule tout ce qui différait d'eux et de leurs
 façons. Cette curiosité malveillante, perpétuellement
 : occupée de riens, finissait par causer à Christophe un
@@ -1835,7 +1793,6 @@ Vite, sauvons les nôtres! La mort guette tout ce que
 nous aimons. Hâtons-nous de graver le visage qui
 passe, sur le bronze éternel. Arrachons aux flammes le
 trésor de la patrie, avant que l'incendie dévore le palais
-de Priam.….
 Christophe monta dans le train, qui partit, comme
 quelqu'un qui fuit devant l'inondation. Mais pareil à
 : ces hommes qui sauvaient du naufrage de leur ville les
@@ -1869,8 +1826,6 @@ Quand Jacqueline revint à Paris, elle sentait tres
 saillir dans son corps une petite vie nouvelle, allumée
 par l'amour. Mais l'amour était déjà passé. Le fardeau
 
-ne
-la fin du orage = PES ne
 qui s'appesantissait en elle ne la rattachait pas à Oli- et
 vier. Elle n'en éprouvait point la joie qu'elle attendait. <
 Elle s'interrogeait avec inquiétude. Naguère, quand elle
@@ -1992,7 +1947,6 @@ de propos, que tempérait seulement, en l'assaisonnant,
 Fais ce que Vouldras.
 Mais ils se vantaient un peu : car ils ne voulaient
 
-la fin du voyage 4 er sn
 pas grand chose; c'étaient les énervés de Thélèm e. 1 ls < &
 professaient avec complaisance la liberté des instincts;
 mais ces instincts chez eux étaient fort effacés; et leur 5 &
@@ -2024,7 +1978,6 @@ aucun qui leur fût avantageux; ils se servaient de la ‘1
 morale et de la société, en les trahissant, comme des +t ;
 domestiques infidèles qui volent leurs maîtres. Ils se Fe
 volaient même les uns les autres, par habitude et
-| RME
 
 par désœuvrement. Il en était plus d'un parmi ces
 
@@ -2144,7 +2097,6 @@ veille, elle le semblait, elle le croyait elle-même. Elle
 
 n'aime plus. Celui qu'elle a aimé est rayé de sa | pensée. 1
 Il s'aperçoit tout à coup qu'il n'est plus rien pour elle Se Lee
-; et il ne comprend pas : il n'a rien vu du long travail Re
 à qui se faisait en elle; il ne s'est point douté de l'hostilité | Rte
 : secrète qui s'amassait contre lui; il ne veut pas sentir é
 les raisons de cette vengeance et de cette haïne. Raï. < 4
@@ -2234,8 +2186,6 @@ de soleil qui pénétrait au milieu du brouillard. Le cœur
 
 _ inexprimable. Lorsqu'elle partait, ilsavaient envie de :
 
-_ Jui dire :
-
 __ _— Non, restez, restez encore, j'ai froid!
 
 à Pendant l'absence de Jacqueline, Olivier.avait vu
@@ -2311,8 +2261,6 @@ Olivier. Trop tard! Elle ne l'aimaït plus assez. Ou peut-
 jalousie qu'elle avait. C'était toute sa confiance qui
 s'écroulait, tout ce qui lui restait secrètement de foi
 
-F FA S/7) fin du Re
-
 et d'espoir en lui. Elle ne se disait pas qu'él “ ëme
 
 en avait fait fi, qu'elle l'avait découragé, poussé à cet ÿ
@@ -2383,9 +2331,6 @@ illusions, qui ne pense plus qu'à ronger la vie comme
 Cette fois, comme à l'ordinaire, l'idée fixe s'attacha à
 # l'être le mieux fait pour décevoir le cœur. La pauvre
 
-| TERMES ÉRReS à
-
-la fin du voyage ES M :
 Jacqueline s'éprit d'un homme à bonnes fortunes, un
 écrivain parisien, qui n'était ni beau, ni jeune, qui était
 lourd, rougeaud, fripé, les dents gâtées, d'une séche- .
@@ -2660,9 +2605,7 @@ _ amour qu'elle jugeait coupable et absurde; elle se fit
 . souffrir longtemps, et elle ne se guérit point. Personne
 À _ne se fût douté de ce qui se passait en elle : elle mettait ;
 ê sa vaillance à avoir l'air heureuse. Madame Arnaud |
-de PTE SRE
 
-la fin du voyage DES où è
 était seule à savoir ce qu'il lui en coûtait. Non que
 Cécile lui eût dit son secret. Mais elle venait parfois
 poser sa tête à la nuque robuste sur la mince
@@ -2724,7 +2667,6 @@ recommencèrent tous deux de filer patiemment la magnifique et vaine toile de le
 pur de leurs souffrances et de leur sang.
 
 Madame Arnaud était seule, chez elle. Le soir
-venait. sa LR ; 4
 La sonnette de la porte retentit. Madame Arnaud, à
 réveillée de sa songerie avant l'heure habituelle, tres F4
 $ saillit. Elle rangea soigneusement son ouvrage, etsen
@@ -2736,7 +2678,6 @@ D — Qu'avez-vous, mon ami”? demanda-t-elle. Ve 170: Va
 viens à mon secours! » Je l'ai embrassé. Il pleurait. 2
 Il m'a dit: « Je n'ai plus que toi. Elle est partie. » M
 Madame Arnaud, saisie, joignit les mains, et dit À 53%
-: — Les malheureux! HAE TR
 — Elle est partie, répéta Christophe. Partie avec son
 SES — Et son enfant ? demanda madame Arnaud. | PEN
 — Mari, enfant, elle a tout laissé. : HUE
@@ -2745,7 +2686,6 @@ SES — Et son enfant ? demanda madame Arnaud. | PEN
 I ne se relèvera pas de ce coup. Il me répète: « ChrisFA tophe, elle m'a trahi, ma meilleure amie m'a trahi. »
 re J'ai beau lui dire : « Puisqu'elle t'a trahi, a elle
 3 n'était pas ton amie. Elle est ton ennemie, O: ublie-la,
-: ou tue-la! » i AUXTE POP
 
 — Oh! Christophe, que dites-vous! c'est horrible!
 
@@ -2784,7 +2724,6 @@ jamais trop sévère pour une misérable qui abandonne
 . son enfant pour courir après un amant?
 
 — Ne parlez pas ainsi, Christophe. Vous ne savez
-pas.
 
 — Quoi ! vous la défendez ?
 
@@ -2919,7 +2858,6 @@ collègues du lycée de garçons les tiennent à l'écart,
 hostilité secrète, ou par sauvagerie, l'habitude du café,
 - des conversations débraillées, la fatigue après le travail
 4 199
-Et dé a
 
 la fin du voyage k
 du jour, le dégoût, par satiété, des femmes intellec- |
@@ -3000,7 +2938,6 @@ heureuses. Il est difficile d'être une femme. Beaucoup
 plus que d'être un homme. Vous ne vous en doutez Æ
 pas assez. Vous, vous pouvez vous absorber en une
 passion d'esprit, en une activité. Vous vous mutilez, é î
-#
 
 _ mais vous en êtes plus heureux. Une femme saine ne le
 peut pas sans souffrance. [l est inhumain d'étouffer toute
@@ -3032,9 +2969,7 @@ souvent battus. Comment sortir de 1à? — En étant forts.
 — Oh ! Dieu! être bon, arracher son corset d'égoisme,
 respirer, aimer la vie, la lumière, son humble tâche, le
 petit coin du sol où l'on enfonce ses racines. Ce qu'on
-| 203 s
 
-De Se RE rs one Fe
 | ne peut avoir en horizons, s'efforcer de l'avoir € pro.
 5e fondeur et en hauteur, comme un arbre à P étroit qui
 FRA monte vers le soleil! : LORS ‘4
@@ -3049,8 +2984,6 @@ leur orgueil, et penser, chacun, un peu moins à soi, et F
 
 nous. Ne disons pas à celui qui est tombé : « Je ne te
 connais plus. » Mais : « Courage, ami. Nous sortirons
-
-D des . NSNEESS
 
 Ils se turent, assis devant le foyer, le petit minet
 entre eux, tous trois immobiles, absorbés, et regardant
@@ -3117,10 +3050,6 @@ Mais la flamme du foyer s'était éteinte; et aussi la ; :
 roseur du visage. Et sur le cher visage las, il n'y avait. à
 plus que l'expression habituelle de bonté résignée. À
 
-|
-
-— Mon amie m'a trahi.
-
 Sous cette pensée, Olivier succombait. En vain,
 Christophe le secouait rudement, par affection.
 
@@ -3141,11 +3070,8 @@ tendresse, et qui meurt, s'il ne l'a plus.
 — Pardon. Je ne doute pas de toi... Quoiqu'il y ait
 des moments où je doute de tout... de moi... Mais toi,
 tu es fort, tu n'as besoin de personne, tu peux te passer
-de moi.
 
 — Elle s'en passe encore mieux.
-
-— Tu es cruel, Christophe.
 
 — Mon cher petit, je te brutalise; mais c'est pour
 que tu te révoltes. Que diable! c'est honteux, de sacrifier ceux qui t'aiment, et ta vie, à quelqu'un qui se
@@ -3183,7 +3109,6 @@ la même bouchée sans pouvoir l'avaler, toutes les %
 forces du cerveau paralysées, pompées par la seule Ë
 Il n'avait pas la ressource, comme Christophe, de « 208 F
 
-re Le $ LES AMIES
 : maudire son mal, en calomniant de bonne foi celle
 qui en était cause. Plus clairvoyant et plus juste,
 il savait qu'il y avait sa part de responsabilité, et
@@ -3217,13 +3142,11 @@ tristesse perpétuelle et le besoin de la fuir.
 Le malheur fait tomber dans une étrange solitude.
 Les hommes en ont une horreur instinctive. On dirait
 
-la fin du voyage Ro RENPE
 qu'ils ont peur qu'il ne soit contagieux : à tout le
 moins, il ennuie; on se sauve de lui. Qu'il est peu de
 personnes qui vous pardonnent de souffrir! C'est toujours la vieille histoire des amis de Job. Eliphaz de
 Theman accuse Job d'impatience. Baldad de Suli soutient que les malheurs de Job sont la peine de ses *
 péchés. Sophar de Naamath le taxe de présomption.
-« Et à la fin, Elin fils de Barachel de Buz de la famille |
 de Ram, entra dans une grande colère, et se fâcha
 contre Job, parce que Job assurait qu'il était juste ;
 devant Dieu. » — Peu de gens vraiment tristes. Beaucoup d'appelés, peu d'élus. Olivier était de ceux-ci.
@@ -3333,7 +3256,6 @@ retrouvait celui qu'elle aimait, au travers de ce petit
 appartenait ; et elle pouvait l'aimer, passionnément
 Vaimer, d'un amour aussi pur que l'était le cœur de
 cet innocent et ses limpides yeux bleus, gouttelettes de
-lumière... Non qu'il ne se mêlât à sa tendresse un
 regret mélancolique. Ah! ce n'est jamais la même
 chose qu'un enfant de notre sang! Mais c'est bon,
 
@@ -3368,8 +3290,6 @@ brise le cœur. Quel bien fait-il jamais?
 
 Et comme il médisait ainsi de l'amour, il vit son
 sourire ironique et tendre, qui lui disait :
-
-|
 
 Christophe n'avait pu se dispenser de venir encore à
 une des soirées de l'ambassade d'Autriche. Philomèle
@@ -3466,7 +3386,6 @@ l'atteinte du miroir; il craignaït que son trouble ne fût
 
 la fin du-voyage' "0.
 remarqué. Mais quand il fut plus calme, il voulut la revoir. Il avait peur qu'elle ne fût déjà partie. Il entra
-dans le salon; et, au milieu de la foule, il la retrouva Fe
 = aussitôt, quoiqu'elle ne fût plus de même qu'elle lui .
 était apparue dans la glace. Maintenant, il la voyait de
 profil, assise dans un cercle de dames élégantes; un É
@@ -3478,7 +3397,6 @@ yeux à demi fermés, souriant à sa propre pensée, dans :
 la Dispute de Raphaël...
 Alors, elle leva les yeux, le vit, et ne fut pas étonnée. ;
 Et il vit que son sourire était pour lui. Il la salua, ému,
-et il s'approcha d'elle. à a
 — Vous ne me reconnaissez pas? dit-elle. 5
 A cet instant, il la reconnut : :
 — Grazia… dit-il. :
@@ -3631,11 +3549,7 @@ L'ombre, de nouveau, retomba sur lui.
 — Vous le voyez, dit-elle en montrant le désordre de
 la chambre; à la fin de la semaine, nous aurons quitté
 
-— Pour longtemps ?
-
 Elle fit un geste :
-
-— Qui le sait?
 
 Il fit un effort pour parler. Sa gorge était contractée.
 
@@ -3686,7 +3600,6 @@ pour moi. à
 
 Elle parla du temps, où, fillette, elle le rencontra chez À
 son oncle Stevens, et où elle eut, par lui, par sa musique, À
-la révélation de tout ce qu'il y a de beau dans le monde.
 
 Et peu à peu, s'animant doucement, elle lui raconta,
 par brèves allusions transparentes et voilées, ses émo- A
@@ -3755,8 +3668,6 @@ Elle parlait d'elle et de son mari, avec son beau sourire
 
 — Oui, dit-elle.
 
-Il se leva.
-
 Elle se leva aussi. Alors seulement, il remarqua
 qu'elle était enceinte. Et cela lui fit au cœur une impres- -
 
@@ -3765,16 +3676,7 @@ de pitié passionnée. Elle l'accompagna jusqu'à l'entrée “
 du petit salon. A la porte, il se retourna, s'inclina vers « ses mains, et les baisa longuement. Elle ne bougeaït « point, les yeux à demi fermés. Enfin, il se releva, et,"
 sans la regarder, il sortit rapidement.
 
-RE ON DR LANERS rt 000 COMITE
 LE TESTS = Æ chi allora m'avesse doman ao
-ne Enr à
-È RREURRR, ue ere ; + SR, Le LEE FRERES
-nt UE 6 RTE RER D CO IN Ne
-£ PRE REPAS AE ei. re v* PTS RER GE L'ETAT EEE
-
-LEE CORP SRE RES RS RATER RS Ces
-> Nr F g DE ct d] É :
-1 ES V0 ot SA. ee S + Lee Pa: SPP
 
 Jour de la Toussaint. Lumière grise et vent froid, au |
 dehors. Christophe était chez Cécile. Cécile était près
@@ -3817,7 +3719,6 @@ font le bonheur ou le malheur de celles qui se marient
 et de celles qui ne se marient pas. Le bonheur est le
 parfum de l'âme, l'harmonie qui chante au fond du
 cœur. Et la plus belle des musiques de l'âme, cestla
-bonté. L'ISLRERTE ES
 Olivier entra. Ses mouvements étaient calmes; une
 sérénité nouvelle l'éclairait. Il sourit à l'enfant, serra la 4
 main à Cécile et à madame Arnaud, et se mit à causer |
@@ -3840,11 +3741,7 @@ contre qui que ce fût. HER
 
 Christophe, se levant, alla au piano, et dit à”
 
-Olivier : i PE à
-
 à — Veux-tu que je te chante une mélodie de Bhusz A
-
-| LES AMIES
 
 — De Brahms? dit Olivier. Tu joues maintenant de
 ton vieil ennemi ?
@@ -3856,7 +3753,6 @@ Il chanta, à mi-voix, pour ne pas réveiller l'enfant,
 quelques phrases d'un vieux lied populaire de Souabe :
 .… Für die Zeit, wo du g'liebt mi hast
 
-(« Pour le temps où tu m'as aimé, je te remercie, et je
 souhaïte qu'ailleurs ce soit mieux pour toi. »)
 
 — Christophe! dit Olivier.

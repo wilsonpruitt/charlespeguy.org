@@ -72,7 +72,6 @@ Des heures tintèrent. Dans l'escalier des pas et
 des voix. Cinq garçons entrèrent à la file, avec des
 sarraux noirs d'écoliers, gais et heureux de vivre.
 
-Ils demandèrent
 — Clément s'est blessé ?
 
 — Clément s'est heurté à une bûche et est tombé.
@@ -126,7 +125,6 @@ fient tous de moi, tous, tous. Il faudrait vivre pourtant.
 
 i Le couteau de Clément grinça sur son assiette.
 Tiens donc ton couteau, imbécile! — Qu'as-tu au
-front? Tu es tombé?
 
 Madame Saint Adjutory recommença l'histoire
 de la chute. Son mari avait peu de tendresse pour
@@ -193,7 +191,6 @@ ils ne mangent pas à leur faim.
 — Qu'importe la misère, et pourquoi te ré-
 voltes-tu contre elle? — Ne peux-tu nous aimer
 sans nous vouloir heureux ? ,
-Il répondit : É
 — La misère abime les Êtres et je veux que mes
 enfants deviennent de beaux humains.
 
@@ -208,7 +205,6 @@ supplié, si nous partons, de lui laisser cet enfant.
 — Jamais ! C'est un homme sans religion.
 
 — Personne après toi n'aime cet enfant plus que
-lui.
 — Il l'aime trop. Je haïs les étrangers qui aiment
 mes enfants presque autant que je les aime.
 
@@ -449,7 +445,6 @@ Ce sont des charbons à demi éteints qu''attise un
 vent de dégénérescence et de folie. Reprends-toi
 rien n'est moins libre que ton adhésion à ces
 
-Ent la lurnière "24 EURE A
 croyances auxquelles tu avais renoncé. Tu sais,
 Er comme moi, la vanité de ce que les hommes
 Re. appellent Ame et Dieu. Vive la joie de vivre.
@@ -495,7 +490,6 @@ dûment. Il mit sa main sur mon visage et me Me
 
 Seigneur, vous le savez : guérissez-moi. — Vis mn.
 plutôt éternellement et conserve dans la nuit la ne!
-Fes ne
 
 la lumière
 vision de ma forme périssable. — Tous les chrétiens
@@ -504,8 +498,6 @@ vu, — comprenez-vous : moi seul!
 L'enfance de Clément se passa entre le prêtre, le
 
 païen et le mendiant.
-
-Le Gérant : CuaArLes PÉGuY
 
 Ce cahier a été composé par des ouvriers syndiqués
 
@@ -537,4 +529,3 @@ tt lionnistes, réquisiloire du Parquet, exposé et réquisi-
 à loire du Procureur de la République. compte rendu *e
 de 2 sténographique partiel des débats, arrêt. 1 volume, S.
 s< 25 Gpages, imprimées très denses. in-1 6, pour cin uante +4
-Rue centimes. CR ET fout

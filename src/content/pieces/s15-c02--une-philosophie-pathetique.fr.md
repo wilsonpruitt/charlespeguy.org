@@ -14,76 +14,9 @@ périodique paraissant tous les deux dimanches
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-No on v dite is AL ie
-HU \ ob as DATE N NAN AA fl \ DR ( NA DU
-DE) Vases MATE Gen MI PAU Un te on \ AU a ME au RU !
-AL Nb CAT el AND [RO ni AA! sie HOUR ST HARRIS Ro) LIRE | r '
-Du A £ li AV Fin (ee FLE ARENA UNE 43 04 {
-RUANNPALE te il { LEO AMIENS AN ICO ANA US 1
-ts TA h CR | AAA ANNE ne
-RAD DA MN HAUTS } ne AA ON AE AR RER ol
-
-A D an une
-ss = de CAM RE Ph à +" Ur: ARS + ADS PAE L FAT E) vx Nr 4:
-USA AN SE One SEA TS LE A AE
-D de si
-ne, Li MORE
-DE ; si TES ser NA LEE
-RARE.” VEN Het LT { À Ê ta
-
-| TRS CHARNER NES BCE PR AA d'u FAR EN e DNA ET de
-
-D te ACTE du HERENS
-GC EN SR AA son A A tordre
-
-ire 1 fee ri NINT ET MEN EAN "h2N RE er A à se SET CUT RER Lt
-A ain CRD PM On NN AA NA Re
-CP ae NAT CES " he RIRES hs 4 F FT CRT TEA LUTARESE j
-SA LUN ë ni D ÿ MOURIR EAN *;
-TERMINÉ ee ô de l U à Ps K FR PS
-D 8 SOUS ARE PUR PA MTS MENU SURNe de) A EN nr. vi UNE AA pare PE
-
-A AL AR ER TR ACTE RON Une ù
-ST CR OU PE ARE NE ne ne be ASH
-RC PRE) RACE de) TR A CLR: Eee MPATSS
-
-ANAL Le & HAN FCI ONE ES ss
-AS on $ ne
-
 une philosophie pathétique
-| 4 5 d ) £
-
-ANA D'ART AE D'ELLES TOP 07 lg AS rat PO EC
-ne JE AUS PRE Re An Re PAIE
-AE RO A AE ré Ne nn A ES DS RNA
-NTM ; À SRE LEA ni APTE REX EVE
-DA Ne es ANS nt NO N ES
-LUNA l \ Fri ne RAS RM ee
-M ne EN Sn anne : ANT NSP
-D hour etes DU
-
-Le SR AR ES SRE ART SOS PRE ER RER ar de
-
-| RIEMONREE ; . EE) LATTES re
-
-AURAS Las tes £ M SUV DORE RATE RE « DEN LU AE ) PONTS AE Ce Ru
-
-ANS LA M D NA AA MARDI ja Ë
-Ne RU PSE PR art et NT Ne SES
 
 .… Mes sens troublés s'esvanouissent.
-
-À AAMOMEAUS ET EE NET INR, in TARN ee MOVE DETTE A ee.
-
-ARISTON pr 2 ve 1 MA ARTERTINES APR
-
-LU og D ce 0 AR ESS SRE AR tt Re ets RE
-Fe ne*. Re 4 og LAPS TE MU e AU Lire EURE EN ENNEESE ES PE NON lé REP T'EVY Yu PA et TS ME
-
-SANS Rae AR AS RES PVR ER RUE NE CP EURE
-CU Le ll DES
-
-y CUERE FAT: UNE D AN AP PMA ete Ni
 
 non plus le Bergsonisme, mais le succès
 du Bergsonisme, l''embrassement qu'en fait
@@ -96,7 +29,6 @@ science, de la philosophie. Promesse d'une préhension
 des choses par le dedans. Mépris du général,
 mépris du nombre.
 ue Un des articles évidemment les plus populaires du Bergsonisme, c'est la dénonciation
-| qu'il fait de la science et de | « ancienne
 
 philosophie » en ce qu'elles ne donnent que à
 des vues de l'objet, des conceptions arbitraires 3 ;
@@ -118,7 +50,6 @@ moyens possibles, par le livre, par la presse, 1
 par la parole, par les © abrégés des grands :
 maîtres », par l'enseignement d'État, par à
 l'initiative privée, on sert au Qgrand public » F
-ë l'idée de la relativité de la science, de son î
 incompétence en fait de réalité; il reçoit cette
 vérité par tous les pores, il en est tout baï- ) |
 gné, il la répète, il l'enseigne aux petits, on ‘
@@ -182,7 +113,6 @@ soit aimée. Or, qui osera prétendre que l'amour
 d'une telle idée, — qu'en particulier le senti-
 (2) Et encore : à condition qu'ils aient la faculté de réflé-
 ? chir sur leurs actes.
-|
 
 ment de l'élégance qu'il y a pour l'esprit à
 connaître sa propre nature et à poser lui-même 7
@@ -193,7 +123,6 @@ aimée, est supportée ; le grand public méprise
 la science de ce qu'elle limite ses propres
 pouvoirs (comme il méprise le pouvoir civil et
 F pour la même raison), et il la haït de le priver
-de gaieté de cœur de la joie qu'il y aurait à
 posséder un absolu. L'aventure bergsonienne
 sera donc toujours possible.-On peut même
 dire, considérant le mépris croissant qu'ont
@@ -222,7 +151,6 @@ l'Intelligence ; qu'elles se font dans le désordre
 de l'esprit, hors de toute logique, par une |
 sorte de soufflet à l'esprit scientifique (le fait
 est souvent vrai, mais ce qui est curieux c'est
-la joie qu'on en a) (5); d'autres fois, on se plaît à |
 croire que la science n'est qu'affaire de « bon |
 sens », comme s'il suflisait, dès qu'on a une |
 bonne tête, de regarder tomber une pomme
@@ -234,7 +162,6 @@ joie la très romantique religion du désordre, celle qui fait F
 dire que les Pensées de Pascal « eussent été moins belles
 s'il les eût achevées ». (Voir les manuels)
 
-ve UNE PHILOSOPHIE PATHÉTIQUE ÿ
 rait aussi bien s'en attrister, n'est-ce pas ?);
 là, on exulte d'entendre que l''Intelligence n'est :
 liée qu'à nos besoins « pratiques », « utilitaires », au « corporel », à l « inférieur »... ;
@@ -263,7 +190,6 @@ que l'une des principales nous semble être
 
 _ Nécessité de Pour ce qui est particulièrement de la haine
 la haine de la moderne de la science, il nous semble qu'elle
-Science. RE sue Les à
 # encore était facile à prévoir, et que cest une
 a candeur de nos pères (Renan, Berthelot,
 1e H. Spencer) d'avoir cru que la science devienDS drait la nouvelle idole populaire, la « religion
@@ -285,7 +211,6 @@ f (7) Macaulay qui décrit le mouvement de la société
 ; anglaise en 1685 vers les nouvelles idées scientifiques en
 note très finement les causes extra-intellectuelles : « Il était
 alors très périlleux de dire un mot contre les lois fonda-
-“ mentales de la monarchie; on s'en dédommageait en
 E regardant avec dédain tout ce qu'on avait considéré
 jusqu'alors comme les lois fondamentales de la nature. »
 
@@ -378,7 +303,6 @@ qu'elle consent le relatif, n'en est pas moins
 bien distincte de la science; que, par exemple, :
 elle s'occupe à spéculer sur ses principes, tandis
 que la science s'occupe à faire des constructions à partir de principes qu'en tant que
-(11) Ed. Le Roy, Une philosophie nouvelle, p. 5. R
 
 science elle ne discute point. Ils ne vous
 
@@ -411,7 +335,6 @@ sa 5 science (par la volonté du point de vue cosmique) et mérite
 re au premier chef le nom de philosophie? Est-il besoin de
 dire que de cette « philosophie »-là aussi nos gens ne veu-
 
-Le RO ES eee - TOO RSS
 mystique, ete.…..). C'est qu'ils savent quel pres- 2
 tige comporte aujourd'hui le mot de philosophie, — précisément d'ailleurs pour le sens
 qu'ils repoussent, — et qu'ils entendent n'en :
@@ -530,12 +453,8 @@ pour s'y absorber en tant qu'inconnaissable,
 
 ï “ (8) Voir notamment sa préface aux Bases de la croyance
 
-de A. J. Balfour.
-
 0 28
 
-La HR NS AU PR FT RS er EE OS es, Pa re
-re UNE PHILOSOPHIE PATHÉTIQUE ‘1
 précisément, qu'une activité mentale n'est 2
 élevée que dans la mesure où elle se tourne s
 vers l'inconnaissable ; 2 que la spéculation Ë
@@ -547,7 +466,6 @@ vention des lampes électriques » ou le
 « progrès des machines à vapeur » ne &
 lui apprennent rien sur les grands pro- Re
 blèmes) (19). En d'autres termes, la volonté  Confusion enqui parait ici, c'est que la philosophie soit ele philosophie À
-ÉE ; et la religion. 2
 proprement cette activité qu on nomme com- Æ
 munément spéculation religieuse (plus exacte- 3308
 ment mystique), mais qu'elle soit cela cepen- ;
@@ -561,7 +479,6 @@ philosophie un mystère qui diffère de celui de ?romet un mystère moins « gro
 (19) En cette croyance que la spéculation au connais- L
 sable est incapable d'élévation entre aussi cette croyance,
 très sincère, que « connaissable » signifie « facile à con- |
-ses
 la religion, nous voulons dire croyable à des
 l gens cultivés, exempt de ces « grossièretés »
 * qu'en son plus large &« modernisme » leur
@@ -587,7 +504,6 @@ croyant d'autrefois : « L'éloignement où Régis
 tient la raison et la foi ne leur permet pas de
 se réunir dans des systèmes qui accommodent 2
 les idées de quelques philosophies dominantes
-à la révélation, ou quelquefois même de la
 révélation à ces idées. Il ne veut point que ni
 Platon, ni Aristote, ni Descartes même
 appuient l'Évangile. » (Fontenelle, éloge de
@@ -645,7 +561,6 @@ ke cause de cela, se dispensant de fournir des preuves, etc... »
 Fa Il semble bien que les fous qui ont du génie ne s'appli-
 ï quent pas à être fous.
 
-cu UNE PHILOSOPHIE PATHÉTIQUE
 qu'à voir avec quel naturel les admirateurs Ë
 de ce système en posaient l'incohésion comme
 une chose entendue il est évident que ce cri- |
@@ -653,7 +568,6 @@ tique était le seul qui avait pris ce système au
 Au vrai, le sentiment du public en ce point, :
 — et ce qui se montre ici dans le refus du |
 rationnel, ce n'est pas la volonté de toucher La philosophie
-un absolu, c'est la volonté de s'amuser, de *4 P É w
 L ë sérieuse : le figa=
 repousser toute austérité, — le sentiment du risme  philoso- |
 publie, c'est que la philosophie n'est pas autre phique. ne
@@ -784,8 +698,6 @@ me « Cest manifestement, dit-il, (26) se servir de
 
 1 religion; car la philosophie ne tient ni de la
 
-… K nature de l'art, ni de la nature de la religion,
-
 à ï quand on considère les caractères propres de
 
 Fe l'art ou de la religion, soit sous le rapport des ;
@@ -813,11 +725,8 @@ de la raison pratique ».
 
 û (26) Esquisse d'une classification systématique des dectrines \
 
-< philosophiques, tome IL, p. 140.
-
 Voici encore quelques formes intéressantes La philosophie
 * de cette extraordinaire volonté que la philo- 7° faut jamais
-; ; g k Ë Û par ce qu'elle
 sophie ne vaille jamais par ce qu'elle énonce : snonce.
 « Le talent qu'inspire une doctrine est à beaucoup d'égards la mesure de sa vérité » (Renan); |
 « Une philosophie ne vaut que par les résultats
@@ -918,12 +827,6 @@ termes qui pourraient servir d'exergue à une
 : savoir ce que contient le monde en ses
 4 entrailles, assister au spectacle de toute acti1 (30) Voir la note E à la fin du cahier.
 
-1.74 AE 0 AR TETE RS ANS 1e : pe, Le QD EN Er Ete UNE ANT OR RtE RS”  D'NE SAN d'OTEN ER }
-A me ne UT :
-à ïes ETS. Du # MAUR x D y CA par : We
-
-#e UNE PHILOSOPHIE PATHÉTIQUE
-
 vité, de la fécondation, et ne plus faire un
 trafic de paroles creuses » (31). Bien que cette ?
 volonté d'une communion pâmée avec l'essence
@@ -936,7 +839,6 @@ sociétés que certains s'imaginent toute éprise
 de raison (32), on peut dire pourtant qu'elle
 a atteint de nos jours un degré d'intensité, :
 de conscience, d'application à se satisfaire,
-de systématique et surtout de généralité qu'on s
 ne lui avait encore point vu : c'est elle que $
 nous trouvons dans l'ordre religieux, où 7:
 
@@ -992,9 +894,6 @@ Fe fait pas les besoins de l'âme », « elle se con-
 
 : dabsolu, voir la note G à la fin du cahier.
 
-| 6%
-
-M hs 27 "CT MON a de a AN: ee ner LE ;
 tente des apparences », « elle ne donne pas la
 vie pleine et entière », etc….., — le procès n'a
 pas varié depuis celui de Gœæthe contre
@@ -1031,7 +930,6 @@ ci pas à l'esprit de Pétrarque de faire passerson
 Sur cette per- Notons l'extraordinaire persistance chez nos
 sistante cr oyance mondains de cette croyance que les choses ont
  .., Un « principe interne », plus précisément qu'il
-- un « principe in- à Re À
 ESS existe dans l'objet quelque chose d'autre que
 AS à l'objet, d'autre que les phénomènes qu'on y
 5e ve peut distinguer, ou mieux encore que les
@@ -1052,7 +950,6 @@ AD | Mie quoi il diffère du mode ordinaire, que de le comparer à
 RU Let l'assimilation fonctionnelle par opposition à la préhension
 LT ÉRSREES de laliment: tandis que la préhension, dirait-on, ne conue ne naît que le contour des choses, l'assimilation brise ce
 
-nn frite ti de LE StrtrrMyt=oEet an Let ARRETE NES NET Sabrtp he ENÉ TUE CE s ÿ
 invariablement calquée, dès qu'on la pense, à
 (nous le verrons encore tout à l'heure à propos |
 de la « durée ») sur le sentiment que nous
@@ -1070,7 +967,6 @@ au fond de l'Escurial, cependant que tout
 autour ses € manifestations » s'occupent à ni
 donner le change à qui veut l'approcher, soit 9
 
-#
 chère à des têtes poétiques. 1
 Le Bergsonisme, disions-nous, est venu en Correspondance,
 ces articles dire à l'actuelle société exactement ?/%/07de entre le”
@@ -1098,7 +994,6 @@ Au reste le grand public en convient :
 « M. Bergson, dit un des jeunes correspon-
 à dants d'Agathon, nous a expliqué ce que nous
 se étions prêts à sentir » (op. cit., p. 160); et
-à M. Le Roy : « Cette nouveauté n'a rien de
 * paradoxal ni d'inquiétant. Elle répond en
 nous à une attente, exauce je ne sais quelle
 | confuse espérance. Volontiers même, après
@@ -1106,7 +1001,6 @@ coup, tant est vive l'impression de vérité, on
 È croirait reconnaître ce qu'on découvre, comme
 : si toujours on l'avait obscurément pressenti,
 dans une pénombre mystérieuse, à l'arrière-
-‘ plan de la conscience » (op. cit., p. 5). De là
 : ce caractère très particulier de spontanéité,
 ÿ d'immédiateté dans l'adhésion du grand public
 : 14 à cette philosophie; rien ici de ces hésitations,
@@ -1169,7 +1063,6 @@ encore il vient justifier une de leurs passions : depuis longtemps ils adorent l
 (38) Sur cette correspondance entre le Bergsonisme et son
 public, voir la note H à la fin du cahier.
 
-ne UNE PHILOSOPHIE PATHÉTIQUE i:
 qui donne des sensations —, méprisent le “2
 genre — qui oblige à penser (voir, en littérature, la religion de la monographie, le mépris :
 des sujets généraux). Au reste, c'est là un “
@@ -1363,7 +1256,6 @@ ce noyau « dur » qui est au centre de certaines cellules
 colloïdales; tandis que l'absolu d'aujourd'hui, c'est cette
 partie « fluide » qui est au centre d'un bâton de phosphore.
 
-PTE NE RE ee
 tion des chemins de fer et autres engins de
 mouvement et plus généralement avec la vie
 humaine devenue à tous points de vue si
@@ -1376,7 +1268,6 @@ toujours l'immanence.
 Ce principe interne de l'objet n'est pas
 seulement mouvement, il est pie (toujours
 _ Ge « principe sans métaphore) (46); ou, plus exactement,
-interne » estvie! , Le :
 c'est proprement les choses vivantes qui ont
 ici un absolu, un véritable absolu, qui requiert
 pour qu'on le touche une connaissance spé-
@@ -1425,7 +1316,6 @@ si, enfin, d'autres formes de l'esprit, — celles
 : qu'ils vont « créer pour la vie » (voir J. Wal,
 loc. cit.) — allaient, dès l'instant qu'elles
 seront des formes, être « adéquates à l'essence
-de la vie »! Ils le croient cependant, et qu'il
 peut y avoir identité de nature entre des
 formes de l'esprit et des choses (par exemple,
 entre la forme d'espacz et les choses maté-
@@ -1476,9 +1366,7 @@ science; on n'est pas peu surpris d'ailleurs
 d'apprendre que les autres devenirs lui sont
 tangibles, qu'elle peut rendre compte, par
 exemple, d'une planète en train de se former
-à ou d'un ensemble de vapeurs en train de se
 combiner); — puis la vie est encore le seul
-domaine où le processus du devenir en sa
 : réalité est un « indivisible », où les éléments
 « n'ont pas d'existence réelle et séparée (bo) :
 (48) On embrasse très vivement celte extraordinaire
@@ -1624,7 +1512,6 @@ du système et de sa fortune, et marquons les \
 nombreux plaisirs qu'en effet elle apporte.
 Cest d'abord le plaisir qu'ont la plupart
 
-DE RUES LS L + TR € SR A a A DS Pr nr ee © Eu SR
 plaisir de croire des hommes à penser que leur conscience,
 qu'on est la seule — ]eur moi, — est la réalité, la seule réalité.
 M Shreente; Descartes aussi avait cette idée, mais il ne
@@ -1794,9 +1681,7 @@ l'Homme et non pas de l'Homme au monde, voir le célèbre
 passage de François Bacon (des Principes et des Origines) et
 surtout les belles pages de F.-A. Lange (Histoire du maté-
 
-ins # 7 ie ASC ë de ; ci À CR USREESS
 “à $ pouvons saisir par le dedans! On voudrait
-; seulement qu'il fût entendu qu'il ny en a
 #3 pas d'autre. Il est assez plaisant de voir les -
 “ à bergsoniens donner cet exemple d'une conne naissance par le dedans comme un entre
 Ne de mille qu'ils pourraient prendre. (« Voulez-vous
@@ -1840,7 +1725,6 @@ Mais c'est alors de moi que monte et que s'élance ie
 Un univers plus beau, plus plein de passion.
 Je suis le sol, la flamme et l'orchestration, à
 Je foule l'infini, etc.
-(Les éblouissements)
 Citons encore ceci : -
 « De tous les échelons où l'inconscient nous transporte,
 nous prenons un plus vaste horizon du monde. Ah ! vienne
@@ -1900,7 +1784,6 @@ le Bergsonisme : « La passion pure est loin d'avoir obtenu
 dans les systèmes une place comparable à celle de lentendement pur. » (Renouvier, Æssais de critique générale,
 2=e essai, p. 160. Voir tout le développement)
 
-(es re . je GAL 24
 Mais la plus vive popularité ici du Bergsonisme, c'est la description même de cette
 Re « durée », c'est le dévoilement de cet état où
 Plaisir de s'a- tout ce qui, dans le sentiment que nous pre-
@@ -1917,7 +1800,6 @@ se sentir. On devine l'extase d'une société
 dont un des désirs manifestes (voir sa littéraA ture) est précisément de se toucher en ces
 J exquises régions. (72) Voici d'ailleurs un échanñ-
 tillon de cette extase : &« Nous voici dans ces
-(91) Cf. note M à la fin du cahier.
 RE À (72) Cf., par exemple, Mr: Delarue-Mardrus, Horizons,
 ° p- 199 (Q Et, parmi mes coussins pleins d'ombre, je m'enivre,
 Mere etc... »); Mme Colette Willy, la Vag'abonde, p. 108 (« De mes
@@ -1941,7 +1823,6 @@ savoure des couleurs. Est-ce que j'aime? Est- À
 ce que je pense ? La question ne signifie plus
 rien pour moi. Je suis moi-même et tout entier . À
 chacune de mes attitudes, chacun de mes
-_ changements... » (Le Roy, op. cit., p. 68) On | Si
 voudra bien remarquer l'extraordinaire bon- nn à
 heur de se humer soi-même qui s'exhale en {
 ces dernières lignes : M. Le Roy disait plus és
@@ -1990,7 +1871,6 @@ l'absolu : la fixité de l'âme, qui en fut si longtemps la forme sacrée, est e
 dans la religion des hommes : « L'insensé!
 dit Nestor de Gérène, il croyait convaincre
 Athena ; comme si l'âme des dieux était
-prompte à changer! » (75) On a de la peine à
 croire qu'on ait pu se faire des dieux une
 
 Les états d'âme « superficiels » dont l'état |
@@ -2021,8 +1901,6 @@ par exemple, au lyrisme de telle poétesse
 acclamée des salons, si profondément étroit,
 
 appliqué à ne dire qu'elle, ce qui ne peut être
-
-qu'elle, et qu'on le compare au lyrisme d'un
 
 Musset, par exemple, si général, si généreux.
 
@@ -2115,8 +1993,6 @@ penseur, fervent d'ailleurs de cette croyance,
 a été jusqu'à dire en termes magnifiques que
 ce besoin moral est au fond la seule force de
 
-#
-
 eur l'idée de liberté) (98); mais tantôt aussi e'est
 ce désir qu'ont certaines âmes de se croire
 
@@ -2177,7 +2053,6 @@ Y de lambiguiïté des futurs contingents que leur théorie
 
 j (Renouvier, Æsquisse d'une classification, tome I, p. 28r)
 
-NE TE MS h, fi 0 . vs
 indocile, qui les porte à vivre à leur fantaisie, Ê
 sans crainte, sans retenue et sans disci- ie
 pline. » (79) Disons toutefois, pour être juste, |
@@ -2302,7 +2177,6 @@ tatifs (qu'est-ce quand ils sont allemands), |
 de passion religieuse et morale; — c'est 1
 encore, dans ce personnel, l'extraordinaire pré- SR:
 dominance depuis cent ans de l'élément judéo- .
-(82) Que l'on compare à ce point de vue la culture d'un û
 Fichte, d'un Schelling, même d'un Kant à celle d'un à
 Descartes : la Bible a remplacé le Conciones. ‘4
 
@@ -2385,7 +2259,6 @@ pensée jamais « ne se tige en idée nette », qu'elle esquisse J
 les éléments « de toutes les affirmations ».… (Voir, Mercure
 de France, 1* août 1911, un article intitulé : André Gide,
 
-es A de
 . tige vient apporter à l'âme l'évocation d'une
 chose qui est à la fois elle-même et autre chose
 FETE qu'elle-même (86). ;
@@ -2415,7 +2288,6 @@ Ar (87) Cest tout ce que les séculiers ont vu dans la métazh physique de Spino
 “ Bourget : le philosophe, si original, des « choses parti-
 È culières » (res singulares) leur a totalement échappé.
 
-en ed Le UP LH EN
 non-être »? (88) On dirait qu'enfermée par ses Frs
 maîtres au dur régime du Nombre et du Fini, Le
 l'âme occidentale le supporte plus qu'elle ne 1e
@@ -2455,7 +2327,6 @@ et où c'est au contraire l'infini qui est le
 physique, le mauvais, le déchu. Mais nous
 n'insistons pas, paraissant vouloir nier qu'il
 existe des races, ce qui n'est point ici la
-L question.
 Ne quittons point toutefois ce caractère de
 la durée sans en signaler un autre, — €alexanLe gsyncrétis- drin », lui aussi, au premier chef, — et aussi
 me : ses dou- fort goûté : la communion des âmes en une
@@ -2513,7 +2384,6 @@ se séparent d'elle et qui même la combattent :
 ainsi aux lacs d'Égypte il y a deux mille ans
 les adhérents d'un dieu-esprit, résolus à
 
-(gr) La Colline inspirée.
 | 98
 
 garder leurs amis idolâtres, qu'ils voyaient au
@@ -2582,8 +2452,6 @@ recherche des influences de Tolède sur le
 
 ; Greco), se trouvera fait » ? Peut-on plus proprement vouloir que la douce action de sentir
 
-(93) Le Greco ou le secret de Tolède, p. 65.
-
 porte exactement les mêmes fruits que l'austère
 effort de chercher ? (04)
 
@@ -2620,7 +2488,6 @@ il réunit en quelques lignes deux mouvements inverses l'un de
 l'autre, dont la combinaison fait un des traits marquants de l'âme
 moderne : 1° le mépris pour la science; 2° le désir d'en avoir l'apparence. Romantisme et pédantisme.
 
-ta Re RS PT
 paraît aujourd'hui de toutes parts et l'on
 cherche en vain l'homme de cœur qui consente
 d'honorer son émoi en tant que tel : l'un, qui
@@ -2643,7 +2510,6 @@ toute raison, ignorer le genre, ne savoir que
 l'objet, mépriser le nombre, jouir de la « qualité »; — croire au seul mouvement, toucher le
 (95) Ovide, les Amours, IE, 1.
 
-me on UOTE
 « pur devenir », ne savoir que le « vivant »; —
 se croire la seule chose existante, la seule
 digne d'intérêt, toute d'exception devant le
@@ -2665,23 +2531,6 @@ voies les plus étranges et que seul elle honore ?
 parmi les états de l'âme, on peut dire que, de
 même que le Cartésianisme aura été la philosophie d'une aristocratie, le Bergsonisme est
 rigoureusement la philosophie d'une démocraie.
-
-ASE D A EN de RATE Ha
-“a ON MR EE HAN NN is) Fo ee PE We PUS RAEUTES
-LT eRR mt A NPA re Da ne) Lt ENS ANS Sun si Rs
-(RSS CAES 41° î “L PERS te ERA ERA ni y } RL ETES
-2 ECO De £ CPAS USE Hard à CUS ice FRE RES
-* x RAS Me; 5e SU k me L È TAN 1 F J y TS à nn: Eee du nt 2
-LE NA AQU ÉTAT j: Fa CU HT ee PTE Ç
-
-ET O ders: TEEN EE AÉCAEATPOE PEER PES CEE, CAS, ARR EUR LE he ve Pin anses RER È
-
-0 de D RTS Re LT RTE
-ER PAMCEENE L Sa es : 4 FA RESTE ER te en ETATS M
-IPS) ASS ERS (EEE 1 v vie ER ee L
-| LINE : à D FRET 16 AM LUTTE
-ATEN a M pp Re DETE L'ILE 4
-D ne nr tir x MT MR M D RE
 
 … l'élégance qu'il y a pour l'esprit à connaître
 sa propre nature et à poser lui-même sa limite.
@@ -2710,7 +2559,6 @@ d'un livre apologétique sur le Bergsonisme, a
 deux manières différentes pour la philosophie de
 différer de la science: « On nous permettra, dit
 M. F. Pillon, de faire remarquer qu'entre cette
-philosophie (le Bergsonisme) et la nôtre, il y a
 ï une profonde différence et une ressemblance
 ; (1) On sait la fameuse réponse de Herbert Spencer
 (Premiers principes, $ 26): « On ne peut nier que tant que nous
@@ -2778,8 +2626,6 @@ christianisme qui par son dogme du Dieu-homme
 synthétise la religion de l'infini et celle du fini, et
 ; atteint la plus haute expression que la religion
 puisse donner de l'unité foncière de la nature et
-du divin. |
-3°) Au dessus de l'Art et de la Religion, tous
 : deux purs symboles issus de l'imagination et du
 sentiment, l'esprit s'élève enfin à la pleine réalisation et possession de lui-même par la Science
 1 110
@@ -2850,7 +2696,6 @@ dernier une page où mainte personne, croyonsnous, aura le plaisir de reconnaît
 M. de Rémusat, dans les trois derniers chapitres
 de son livre, s'est étendu sur les ouvrages philosophiques de son auteur (Saint Anselme). Dans les
 
-« développements qu'il y donne, il me permettra de
 regretter que là, comme il lui arrive d'ordinaire en
 pareille matière, il se soit trop asservi aux formes
 philosophiques du jour, et que lui, esprit si vif et si
@@ -2907,8 +2752,6 @@ Comme réponse à cette conception d'une philosophie exempte d'abstractions et t
 , les déclarations d'un homme qui en est l'un des
 ; (1) Anatole France, le jardin d'Epicure, p. 93.
 
-1 Ne er AU! ue 8 ee ARS AO TR AGE PR VRP OR VAE à nil S
-ne ni MR NC LE : ï (
 ù représentanis les plus éclatants et comme tel des
 plus attaqués :
 Une autre manière (que la mienne) consisterait à se
@@ -2943,9 +2786,7 @@ satisfaire aux inévitables conditions de toute science
 qui se fonde. A-t-on donc tant d'estime pour les livres
 de philosophie qui se lisent tout couramment? Alors
 
-Ur jé “ Le # te 0 Hs A je rt SSI EE
 . une philosophie pathétique
-pe le
 qu'on ne se plaigne plus de ce que la philosophie,
 après deux mille ans d'efforts, n'est pas même parvenue à se donner l'existence!
 Je veux être étudié! Sans doute la prétention est
@@ -3011,13 +2852,11 @@ romans profonds et d'analyse subtile, qui font penser |
 l'affaire Crainquebille que dans certains traités de psychophysique ou de psycho-physiologie que jai eu l'occasion
 de parcourir » (Derniers entretiens de Ch. Renouvier, p. 81)
 Citons encore (id., p. 88) : « Mon style n'est pas amusant,
-je l'avoue, il n'a ni la grâce, ni le charme du style d'Anatole
 France; je l'ai regretté plus que personne. » On voit comme
 sont informés ceux qui parlent de « la rage que Renouvier
 déployait contre ceux qui avaient cette grâce et ce charme
 qui lui manquaient. » (J. Florence, La Phalange, août 1913)
 
-CORNE Laos 4 IL NAT RES SEE PORN EE
 Le une philosophie pathétique
 ; Il est une autre espèce de clarté, dont la France 2
 TR u autrefois se vantait. C'est la clarté des auteurs qui
@@ -3062,7 +2901,6 @@ dite de l'intuition vit de la confusion de ces deux
 feignant d'ignorer que dans les expressions
 « jouissance de l'esprit », « sentiment de l'esprit »,
 les mots jouissance et sentiment sont de pures d
-métaphores et qu'un « sentiment de l'esprit » n'a x
 rien à voir avec un sentiment. Nous avons montré k :
 un saisissant exemple de cette savante confusion à
 chez M. Le Roy (dans la réponse qu'il nous fit,
@@ -3146,7 +2984,6 @@ quelquefois des vers trop beaux pour être employés
 à de si fausses pensées. (Leibniz, cité par M. L. Brunschvicg, les Etapes de la philosophie mathématique,
 
 Fa une philosophie pathétique ETS
-Ne Note G (page 44) :
 à Sur une autre cause de réussite du moderne
 
 Ga Outre ce désir particulièrement vif d'une com-
@@ -3221,7 +3058,6 @@ sans défense, auxquels ce philosophe peut ingérer Ÿ
 à les plus affreux sophismés sans rencontrer l'ombre Er
 | d'une résistance. Et il est entendu que dans ces At
 conditions-là on triomphe sans gloire, mais enfin é
-__ on triomphe. ;
 ;: (1) Sur lesprit de défense du dix-septième siécle en :
 “à matière philosophique, voir M. G. Lanson, reoue des cours à
 4 et conférences, 1907-1908. Et aussi, en tenant compte de son à
@@ -3311,7 +3147,6 @@ du mouvement.) On peut donc vérifier ici — ce
 que les théologiens se plaisent à oublier — que
 l'idée de création est inséparable de celle de
 
-Note L (page 62)
 Sur un prétendu monopole des faits vitaux.
 Pour cette distinction qu'on accorde aux faits
 vitaux de ne jamais passer par deux états semblables, alors que la répétition des états sem- ;
@@ -3428,8 +3263,6 @@ Des vertus ou filles de la charité
 Ensuite, on va dans la chambre de la contemplation, où peu de personnes peuvent entrer car on les
 
 ‘ (G) Damascius le diadoque, Problèmes et Solutions touchant les premiers principes, Trad. Chaignet, tome I, p. xx.
-
-: (2) Cf. Michelet, Louis XIV et la révocation de l'édit de G
 
 fouille à l'entrée, et si elles se trouvent chargées ou
 de quelque affection ou de quelque haïne, ou de quoi
@@ -3612,7 +3445,6 @@ quand on songe que toute la critique du parallélisme psycho-physique par M. Ber
 qu'une dénonciation de certains philosophes qui
 n'auraient pas assez d'attention à distinguer la
 notation réaliste d'avec la notation idéaliste.
-(G) Voir M. 3. Wahl, Loc. cit. -
 
 .… Qui n'est frappé de voir comme les peuples
 latins, dès qu'un de ces systèmes leur est offert,
@@ -3687,11 +3519,7 @@ perpétuel de l'Académie des sciences morales et politiques, lue à la séance 
 
 Sur l'extraordinaire popularité de ce philo-
 
-|
-
 (1) Mémoires de l'Académie des sciences morales et politiques, tome XI.
-
-| AVES AO RD A er à ;
 
 sophe dont le public aujourd'hui ne sait plus le
 nom, citons encore ceci :
@@ -3755,35 +3583,8 @@ Nous avons donné le' bon à tirer après corrections pour deux mille exemplaire
 cahier et pour vingt-cinq exemplaires sur whatman
 le mardi 18 novembre 1913.
 
-Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 J. GRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 8511
-
-+R SNS EURE LE NN EN Tee ERA ANS ue IN ASE EEE SENS
-Se pe MERE LE 2e EE MORT EN D AT LE ne EE ge NES
-L : RAGE F2 à Re M: Eee ea à LIRE
-
-Ne Re ee PR (he AN nn RÉ Ve ARS
-ARE à a DO A REQR 4 MSP PR LE Aer der 2 RALNP EE le
-SSSR ES PL me RTS OU PROS ATEN qi te (4 1 4:
-
-TES SSI EPA TA ee AR TUTE  . RANUEE
-ou FRA
-Rive ARS NE - Sr NS TR CT ENTREE
-s Nr rte Et # 1) 5 ADS te LEA SNA URORETECNNS
-“PR QE MP AS LÉ Taa RCA Li ANT SES -
-De L'ART ONE ASE ES ou RAR AE A NEUS ROC ÿ Nat ES AE e
-ju “ EE PNR NES NE TO RTE ie LRONES PES EE
-
-ben UN RU RENE ANS DA
-He RAR UE ANR Re RD Eu PAS RS ares. ;
-Hi en | VA DE É'TTNESEREESS
-Re À 4 he ÿ FA EE L'ERMMRREE
-
-4 ANEN CRT EU PACA FI AN UN WE) NAN UE NS CAN 0 (ar Pier eu \ NS
-rt LU LA JA | (à CRU DR DATA AE DORA ta
-DE LS NT ONE no ! WA À fo RENE NE ON ant
-ANA IA EAU Ne ans CAN ) re A UPS ET AC DUPANER. An
 
 Dans leur treizième série, année 1911-1912, nos
 cahiers ont publié :
@@ -3791,8 +3592,6 @@ cahiers ont publié :
 XIII-1. — une famille de républicains fouriéristes.
 
 — les Milliet, — VIII. — voyage d'études en Italie.
-
-XIII-2. — CHARLES PÉGUY. — un nouveau théolo-
 
 gien, M. Fernand L'audet/ tes mRAReE Pt eee
 
@@ -3802,21 +3601,9 @@ XIII-3. — une famille de républicains fouriéristes.
 
 XIII-4. — CHARLES PÉGUY. — les mystères de Jeanne
 
-d'Arc.— II. — le porche du mystère de la deuxième
-
-XIII-5. — RomaIN ROLLAND. — Jean-Christophe. —
-
-II. — la fin du voyage. — II. — le buisson
-
-XIIT-6. — ROMAIN RoLLAND. — Jean-Christophe. —
-
-II. — la fin du voyage. — IL. — le buisson
-
 XIII-7. — une famille de républicains fouriéristes.
 
 — les Milliet, — X. — la Commune et le deuxième ,
-
-siège de Paris: 1871054 Ri 0e REP,
 
 XIII-9. — une famille de républicains fouriéristes.
 

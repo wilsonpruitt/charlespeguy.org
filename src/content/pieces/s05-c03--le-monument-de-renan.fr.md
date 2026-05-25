@@ -7,8 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 30011
 ---
-ES Ÿ RE APR A PC END CE COR 7e gd Ne eh RC) AE
-te AEARE “ae ot RE D EST SE ES ÉTARTES EE Lan at: és R ae
 Le portrait d'Évariste Galois, avant la page. . . . . 9
 _ Pauz Dupuy. — La vie d'Évariste Galois . .... 9 3
 I. — Acte de naissance d'Évariste Galois . . . . . 83 25
@@ -28,20 +26,15 @@ registres du Conseil royal de l'Instruction
 VIIL — Dernier écrou de Galois à Sainte-Pélagie. . . 98
 IX — Acte de décès de Galois. -/."..- © COTES ;
 X. — Procès-verbal de l'autopsie de Galois. . . , . 100 1
-#
 
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce deuxième cahier le
-L Le Gérant : CHARLES PÉGUY ei.
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués 4 L
-IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8078 n
 
 Nos Cahiers sont édités par des souscriptions men- k
 suelles régulières et par des souscriptions extraordi- à
 naires ; la souscription ne confère aucune autorité sur f
 la rédaction ni sur l'administration : ces fonctions À
-demeurent libres. L
--_ Nous servons : .
 des abonnements de souscription à cent francs ; À
 des abonnements ordinaires à vingt francs ; .
 et des abonnements de propagande à douze francs. 1
@@ -103,37 +96,22 @@ réponse un retard considérable.
 
 | 0
 
-| ENMRS s EN I TIRER
-Perd : Et VHC LES st
-
 Nous avons fait tirer à cinq mille exemplaires pour
 ce cahier un vient de paraître constitué par l'avertissement de M. Jules Tannery, par trois passages du cahier
 et par la table détaillée des matières.
 
-SÉVRRS SR Se RE TE à vie PE s MARNE Ce
-J A sn TS LA CAS Ge hs HMS TR NES CES
-PAR de rt RL PRET : 1 FSPTR :
 Us avons fait tirer à trente exemplaires sur grand
 4 24
-Ent s (ARE MINES $ É = £ e L Does
 
-| TROISIÈME CAHIER DE LA CINQUIÈME SÉRIE .
-
-| SEPTEMBRE DIX-NEUF CENT TROIS
 paraissant vingt fois par an
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-RATES FRA INT DRAC es AR he de : |
 Pour savoir ce que sont les Cahier de Om aine, ù
 _ ü suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers, |
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième .
 _ arrondissement. On recevra en spécimens six cal iers sr
-de la deuxième, de la troisième et de la quatrième
-série. | l Lio
 Nous mettons ce cahier dans le commerce; nous le
-dE D il
-L Tate DR Le
 Sur les textes et les commentaires publiés A
 trois premières séries des cahiers, se référer au Lx
 Sixième cahier de la quatrième série, cahier de cour. = >
@@ -142,13 +120,6 @@ a _ de catalogue, un cahier de 72 pages, un fra ne .
 Nous publierons dans un cahier de la cinqu série 2
 le relevé sommaire des textes et commentaires. publiés Û
 _ dans Les cahiers de la quatrième série. ie PRE 2 SA
-
-L'aNEREE £ PNR Far
-% ne > rés per à 4 lux À “x Le
-Era L ANA | in
-En DE A rs à 41. SM se
-A NT SPP REE me Mt ee et : OU PES FE -
-FRA ar OR PEAR PS LEUR OT, Pet (AE
 
 Ce cahier n'est pas un cahier de Renan; nous ferons
 un cahier de Renan, si nous le pouvons, quand sa
@@ -164,15 +135,6 @@ au commencement de la cérémonie, mademoiselle
 Moreno, de la Comédie Française, a récité la Prière
 sur l'Acropole :
 
-û * RE Ne nn ee (ne CASE Me TE NON
-LCR Ê ‘ MR UN Dix STONE Ter à FREE + TR
-
-OE x Se VarRERe l'épe de rue
-
-L À Der Pre MN LE
-
-ne CE Mu Dre OS HE TA ne
-
 O noblesse ! à beauté simple et vraie ! déesse dont le
 culte signifie raison et sagesse, toi dont le temple est
 une leçon éternelle de conscience et de sincérité, j'arrive tard au seuil de tes mystères ; j'apporte à ton autel
@@ -187,7 +149,6 @@ soleil ; les fleurs sont les mousses marines, les algues
 baies solitaires. Les nuages y paraissent sans couleur,
 . et la joie même y est un peu triste ; mais des fontaines
 ; d'eau froide y sortent du rocher, et les yeux des jeunes
-| à
 
 filles y sont comme ces vertes fontaines où, sur des fonds
 d'herbes ondulées, se mire le ciel. -
@@ -276,8 +237,6 @@ enfanta après s'être replié sur lui-même, après avoir respiré profondémen
 rement unie à son essence; toi qui es sa compagne et
 sa conscience ; Énergie de Zeus, étincelle qui allumes
 
-(1) AOHNAËE AHMOKPATIA®. Le Bas, Inscr., I, 32.
-
 et entretiens le feu chez les héros et les hommes de
 génie, fais de nous des spiritualistes accomplis. Le jour
 où les Athéniens et les Rhodiens luttèrent pour le sacrifice, tu choisis d'habiter chez les Athéniens, comme plus
@@ -346,7 +305,6 @@ celles du cou de la colombe. Ne rien aimer, nerienhaïr
 absolument, devient alors une sagesse. Si une société,
 si une philosophie, si une religion eût possédé la vérité
 
-#5 : _ LA PRIÈRE SUR L'ACROPOLE
 absolue, cette société, cette philosophie, cette religion
 aurait vaincu les autres et vivrait seule à l'heure qu'il
 est. Tous ceux qui, jusqu'ici, ont cru avoir raison se
@@ -438,7 +396,6 @@ commune. Ne nous y arrêtons pas! Nous n'avons pour les
 repousser qu'à rappeler les paroles si sincères que prononçait Renan, il y a vingt ans, à son retour à Tréguier,
 au milieu de ses amis de France et de Bretagne: |
 
-« Oui, j'ai aimé la Vérité, je l'ai cherchée, je l'ai suivie,
 où elle m'a appelé, sans regarder aux durs sacrifices qu'elle
 m'imposait. J'ai déchiré les liens les plus chers pour lui
 obéir. Je suis sûr d'avoir bien fait. »
@@ -465,8 +422,6 @@ yeux cette vivante ‘et touchante image du Grand Breton,
 seront comme leurs pères, d'honnêtes gens et de bons
 
 M. Guillerm, maire de Tréguier, a répondu ainsi :
-
-|
 
 Monsieur le ministre,
 
@@ -562,7 +517,6 @@ venues en foule, fières, enthousiastes, émues. Pas un con-
 
 à cours attendu n'a fait défaut.
 
-LE PERS DE ee CRU LE MENT Ba
 inauguration du monument SA
 
 Le gouvernement de la République a tenu, dès la première heure, à apporter le sien.
@@ -740,7 +694,6 @@ superbe prière. Après cette revue de ses jours, il songe
 
 ; si l'on veut, que la vie est un fruit savoureux. Ceux qui la
 
-d RL: - à Le 4, Ph HT ve TS LE pe RÉ
 inauguration du monument et
 comparent, pense-t-il, à la rose de Jéricho qu'on trouve en
 la froissant pleine de cendre mettent leur propre faute sur ‘#4
@@ -951,7 +904,6 @@ scientifique et avec plus de sérénité. Voilà l'œuvre à
 
 laquelle Renan s'est voué. On ne saurait contester
 | qu'elle marque une date dans l'histoire de la civilisa-
-| tion moderne.
 
 | L'influence exercée par la publication de la Vie de
 . Jésus a été d'autant plus profonde que cette œuvre
@@ -996,12 +948,10 @@ Renan avait prévu les sympathies et les haines qu'il ;
 allait exciter, et il rappelait souvent à cette occasion i
 30 1
 
-éé DISCOURS DE M. BERTHELOT
 une parole attribuée au Christ par l'évangéliste
 Matthieu : « Ne pensez pas que je suis venu apporter
 la paix sur la terre; je suis venu apporter non la
 paix mais l'épée. » Ce fut en effet la lutte de toute
-sa vie.
 
 A cette époque ce n'était pas une entreprise banale
 que de ramener dans un enseignement officiel le Dieu
@@ -1063,7 +1013,6 @@ vaut pour lui la vertu.
 Mais il a quelque désenchantement de la politique.
 C'est sur ce-point que nous nous séparions parfois,
 parce que je croyais davantage au triomphe, ou plutôt
-à la prépondérance finale de la liberté, de la justice et
 
 de la raison : « Sans doute les flots de la démocratie,
 lui disais-je, sont mobiles comme la mer; mais n'importe ! ayons la foi. Ces flots nous porteront; ils porteront le vaisseau de la raison et de la démocratie,
@@ -1081,11 +1030,6 @@ du peuple et de l'humanité !
 .
 M. Anatole France, membre de l'Académie fran-
 | çaise, a parlé ensuite :
-| \
-
-|: FASO dE LATTES
-QE: (ne nets. ET
-#4 EE RAR
 
 É Mesdames et messieurs,
 Je sens vivement l'honneur qui m'est échu de porter
@@ -1128,7 +1072,6 @@ est un peu plus optimiste que de raison et n'a pas cette
 douceur, ce moelleux de la maturité, on y trouve Renan
 , tout entier, Renan dévoué à la science, attendant le
 règne de la science et lesalut du monde par la science.
-Ses premières contributions à la linguistique et à la
 critique furent un Essai sur l'origine du langage, une
 étude sur Averroès et la philosophie arabe au moyen
 âge, et cette Histoire générale des langues sémitiques,
@@ -1225,9 +1168,7 @@ mobilier sacré au culte régnant et que les nouvelles
 _ religions ne sont guère que des hérésies. Troisiè-
 4 30
 
-l s t ses
 ins paix que dans guerr à
-il
 ,
 
 inauguration du monument
@@ -1286,7 +1227,6 @@ chrétienne fixant la légende et substituant à la commu-
 | ñauté primitive la hiérarchie sacerdotale. IL conduisit
 _ son histoire jusqu'aux temps où l'Église eut ses livres
 - sacrés, le germe de ses dogmes, les premières formes
-ÿ de sa liturgie, et il la termina à la mort de Marc-
 -  Aurèle, qui fut la mort du monde antique.
 S Ce livre nous découvre dans l'humilité même du
 e christianisme, la cause de son triomphe. Rome étend
@@ -1326,7 +1266,6 @@ leurs émeutes et leurs turbulences. Sa police apaise à
 coups de bâton leurs querelles au sujet d'un certain
 Christus, puis cette Rome, providence de l'univers, les 3
 
-| DISCOURS D'ANATOLE FRANCE
 _ laisse dédaigneusement croupir dans la misère et
 l'infamie. Elle n'essaie pas d'adoucir leurs maux; elle
 ne fait rien pour les gagner à elle. Elle ne leur apprend
@@ -1427,7 +1366,6 @@ Il exprima le contentement de la tâche accomplie dans
 _ des termes que je veux rapporter parce qu'on y voit
 . quenilâge nila maladie n'avaient altéré en lui ce
 : sentiment exact du devoir que je vous ai montré comme
-. le principe et le fondement de sa vie.
 
 inauguration du monument
 © « Si je venais à mourir demain, l'ouvrage, avec l'aide ë |
@@ -1459,8 +1397,6 @@ assidûment les séances consacrées à ce grand recueil |
 Armand Dayot rapporte que l'auteur des Origines du
 Christianisme et de tant de beaux livres, disait parfois : : F
 
-RO CR SE RP EE RSR mom 9 CE à re Ce AS En Es Le
-di JE DISCOURS D'ANATOLE FRANCE 4
 « De tout ce que j'ai fait, c'est le Corpus que j'aime le
 
 « Je pourrais bien m'amuser un peu », écrivait-il dans
@@ -1473,7 +1409,6 @@ grâce de fortes pensées ; il confiait à ses amis inconnus
 les craintes, les espérances, les doutes qui l'agitaient,
 exposait sa philosophie et confessait sa foi. En 1891,
 comme en 1848, il croyait fermement que l'avenir était
-à la science et à la raison.
 
 Sa philosophie morale était celle du parfait savant. IL
 considérait que le plus noble emploi qu'on püût faire
@@ -1564,7 +1499,6 @@ J'appellerai les professeurs et les élèves de ce Collège +
 de France, qui fut la demeure de son intelligence et la
 maison de sa pensée. J'appellerai ses amis, ses dis- ;
 ciples, et tous ceux qui l'ont connu. Ils témoigneront
-tous de sa bonté, de sa tendresse, de sa douceur et de à
 son courage. 4
 
 Renan se fit toujours du devoir une idée précise et &
@@ -1593,7 +1527,6 @@ faire pardonner sa supériorité à force de simplicité, de
 déférence pour autrui, et, pour y mieux réussir, il pre- ;
 nait volontiers les dehors d'un homme ordinaire. Dans 4
 
-ne | DISCOURS D'ANATOLE FRANCE re
 | des souffrances longues et parfois cruelles, il gardaïit sa
 douceur, et sa joie restait abondante : il la composait
 de la joie des autres. Il gardaït du bien qu'on lui voulait une mémoire toujours fraîche, et le mal qu'on lui
@@ -1603,7 +1536,6 @@ et non la haine. »
 
 Voilà l'homme sur lequel l'Église a, pendant un demisiècle, versé l'injure et l'outrage. Il les souffrit avec une
 tranquillité souriante. Il disait dans une de ses pré-
-faces de la Vie de Jésus :
 
 « J'écris pour proposer mes idées à ceux qui
 cherchent la vérité. Quant aux personnes qui ont
@@ -1726,7 +1658,6 @@ vapeurs d'un reste d'encens leur pâle et morne déclin. ;
 54 -
 
 Tu n'as rendue plus belle que je n'étais et plus grande.
-: Tu m'as nourrie de ta force et de ta doctrine, et par toi,
 par ceux qui te ressemblent, mon esprit s'est élargi
 jusqu'à pouvoir contenir l'univers de Képler et de
 
@@ -1788,7 +1719,6 @@ prenait sa forme et naissait à la lumière. L'avenir ne
 s'y trompera pas: on reconnaîtra mes œuvres à leur
 stabilité. Les édifices de l'ignorance et de l'erreur
 
-| DISCOURS D'ANATOLE FRANCE :
 s'écroulent misérablement. Tu l'as dit : Rien ne résiste,
 rien ne dure, que ce qui a été mesuré et calculé par :
 moi, car je suis la prévoyance, l'ordre et la mesure, car
@@ -1806,14 +1736,6 @@ perdu. Lentement, mais toujours, l'humanité réalise les
 rêves des sages. »
 
 ï de la famille :
-
-2 MERS + SANS RS HAT ESS ue ie Re En =
-SE 2 Pets 7 DE SNS ART = Dee SOS DEP “3
-Siret RPAUAR 2 4 TE Ÿ RS LÉ ni SE F. in "5 da nn”
-
-LE T VE NE RTE SR bE FALSE ter CS ER
-
-|
 
 L'homme bon à la mémoire duquel vous rendez un hommage dont je viens vous remercier au nom de sa famille,
 aurait été ému dans les profondeurs de son cœur fidèle, de
@@ -1846,7 +1768,6 @@ l'éclatante cérémonie trécorroise, Il y aurait salué, à cause
 
 3 59
 
-ou Re. : RES - MES tr È
 inauguration du monument +
 du caractère nouveau de ces fêtes, à cause de ce concours
 du peuple et des plus hautes autorités, c'est-à-dire de la
@@ -1902,12 +1823,6 @@ avec vous le génie qui sut fondre et unir le Rêve et la
 La musique des équipages de la flotte s'est fait
 _ entendre à la fin de la cérémonie.
 
-RC STE: RÉ DE SR Mie F
-m'a Ris MES AR « RPANSSE 4
-US n ; + ee, Mes os
-et Fe - pr ET MAS LEnT Er
-
-| PA DEAR OUT ANS TASER S TOUS SUSEO SEEN
 Ê Nous sommes heureux de joindre à ce cahier de
 _ commémoration l'étude suivante, que nous avons reçue *
 de M. René Litalien, professeur au lycée de Brest; nos x
@@ -1964,7 +1879,6 @@ choya, l'enveloppa, le protégea. Chez Henriette, les
 | assurer à sa mère une vieillesse tranquille et respectée,
 à () Ma sœur Henriette, page 12.
 
-René Litalien Des.
 à son jeune frère la libre détermination de sa vie, elle
 avait accepté à Tréguier, puis à Paris, la tâche quel
 quefois humiliante, toujours pénible, de l'institutrice. +
@@ -1994,7 +1908,6 @@ ment avec toi. » {Lettres intimes, pages 218-219) |
 (2) Ma sœur Henriette, page 22. Cf. Lettres intimes, pages 179, .
 (4) Ma sœur Henriette, page 23.
 
-| LA CRISE RELIGIEUSE DE RENAN LUS
 Ë son frère. (1) Elle connaissait mieux que personne son
 esprit, son caractère, ses aptitudes; sans lui en parler,
 elle prévoyait, elle prédisait les incertitudes qui devaient
@@ -2053,8 +1966,6 @@ qui les unit aux réflexions que Renan poursuit alors.
 Cette influence d'Henriette, nous la retrouverons, tantôt
 68 3
 
-# LA CRISE RELIGIEUSE DE RENAN
-
 | discrète, tantôt plus claire, à tous les moments de
 
 Ë la crise qui commence.
@@ -2112,7 +2023,6 @@ c'est-à-dire tant qu'il n'aborda pas l'étude des textes .
 un peu sceptiques et panthéistes. Si tu vas jamais à Koenigsbersg, je 4
 te charge d'un pèlerinage au tombeau de Kant. » Cf. Cognat, Cor-— Ë
 
-a CN ou
 ‘sacrés eux-mêmes, sa foi chrétienne ne fut pas sérieusement atteinte ; ce ne fut pas le dogme qui l'effraya le
 premier, ce fut la discipline.
 Avec le sérieux et la bonne foi qu'il mettait en toute
@@ -2131,9 +2041,7 @@ des « occupations ordinaires des hommes »; (3) il
 | dénonce, sans doute sur la foi de Bossuet, qu'il lit beau-
 | coup à cette époque, le vide de la vie « des cercles et
 des salons »; (4) il ne saurait s'arrêter à une vie tout
-| (1) Lettres intimes, 15 septembre 1842, page 98; cf, page 116.
 : (2) Cf. Théorie et pratique des sacrements, Paris, 1736, tome III,
-| (4) Ibid., page 99.
 
 extérieure, où l'homme reste « étranger à soi
 Cet éloignement du monde a pour conséquence le
@@ -2164,12 +2072,10 @@ hommes auprès de Dieu, il est en même temps chargé 3
 mére] 12 mai 1843 : « Ce sont les goûts paisibles et studieux que j'ai
 puisés à vos côtés qui m'ont conduit vers le sacerdoce. » à
 
-| us LA ve RELIGIEUSE DE RENAN 1 FD 2
 | de répandre parmi les hommes les grâces de Dieu; il Re
 est le serviteur de Dieu, le serviteur du « prochain ». ie
 Renan sent déjà qu'il n'est pas fait pour l'action, mais ant
 pour lâ pensée; il est tout entier au plaisir, à la « pas- +
-sion », à la « fureur » (1) de la recherche et de la spé- A
 culation ; il est déjà « le pur chercheur de vérité ». (2)
 C'est une anomalie singulière que le séminaire prépare
 à l'action par l'isolement; la réflexion solitaire n'a pas re
@@ -2191,7 +2097,6 @@ vont pas aux fonctions attachées à l'état ecclésiastique; ÿ
 . Jun ne lui paraît qu'un moyen pour donner aux autres
 _ le plus de satisfaction possible. Encore, malgré le
 _ préjugé créé par toute son éducation, l'état ecclésias- dr
-| (1) Souvenirs, page 244. :
 
 tique ne lui paraît-il pas seul à pouvoir satisfaire ses “#9
 goûts « studieux et sédentaires »:il discute entre l'Église
@@ -2221,7 +2126,6 @@ lui aussi? NE
 à comme une des marques de la vocation ecclésiastique M
 74 508
 
-| de
 4 la défiance de soi-même, la docilité d'esprit. Or Renan a cs
 _a au plus haut degré le sentiment des devoirs délicats
 qu'entraîne l'exercice de la raison, mais toute docilité |
@@ -2269,7 +2173,6 @@ re Autour de lui trop de caractères lui semblent vils; il de
 des hommes et voir les choses en elles-mêmes, si fon':
 veut trouver quelque chose de bon et de beau »; (6ÿ 7.
 solvuntur objecta, sans doute; mais ces objections
-| : os 4 WA
 | cependant reviennent toujours dans son esprit, parce
 : * que toujours la réalité est là qui le choque. Et quand
 S on le voit écrire à sa sœur : « Hélas! ma bonne Hen- #
@@ -2325,7 +2228,6 @@ retrouver sa mère « l'occupe tout entier »; sa mère FT
 | « est le centre naturel où se portent ses désirs et ses
 ; espérances, dans les moments où il les laisse libres de #
 suivre leur pente naturelle »; (2) et il a peu l'habitude À
-F4 de les contrarier. MX ÿA
 # Henriette lui promet, comme il le demande, d'épargner à sa mère le récit d'hésitations dont on ne peut x
 encore prévoir l'issue, (3) qu'elle s'emploie à hâter. |
 Elle ne combat pas les idées de son frère sur la sublimité de l'institution sacerdotale; (4) qu'importe en de
@@ -2370,7 +2272,6 @@ tes opinions présentes. » (3) On ne saurait mieux faire
 entendre combien il est improbable que ce philosophe
 Ces efforts ne sont pas vains. Après avoir lu les
 
-‘hs At RER Ua AT TRUE d LE cs 10) 0 Fe à AN
 réflexions d'Henriette sur la discipline ecclésiastique, 2704
 _ Renan est frappé d'y reconnaître si exactement les 100
 siennes. (1) Et elle de son côté ne feint pas d'ignorer son. Los k
@@ -2534,7 +2435,6 @@ monie, et, une fois de plus, peut-être avec l'illusion,
 qui dura peu, qu'il n'obéissait à aucune détermination
 | étrangère, « suivit passivement la ligne qu'une force
 : supérieure traçait devant » lui. (3) Mais, dès le jour
-À où il prenait ce premier engagement sérieux, il en L
 4 donnait une interprétation singulièrement hardie, qu'il
 .__ a attribuée plus tard à son directeur. (4) En récitant les s
 jl paroles du psaume : Dominus pars hereditatis meae,.…
@@ -2544,7 +2444,6 @@ _ du psaume, c'était tout ce qui n'est « ni beau, ni bon, .
 ni vrai ». (7) En un mot, il traduisait les versets du
 _ vieux roi juif dans la langue du spiritualisme cousi_  nien; la consécration sacerdotale devenait pour lui une
 
-rs profession de foi philosophique ; en ce n om ent dont il LA
 Ni avait fait ressortir toute l'importance, rien de chrétien +
 en lui, pas même un de ces élans de dévotion où il.
 (CYR devait pourtant, plus tard encore, retrouver quelquefois qi
@@ -2574,7 +2473,6 @@ Une seignement élémentaire et classique » pour lequel il n'a il 4 F
 mure que de la répugnance; il accepterait donc peut-être À
 < D cette offre, mais pour quelques années seulement et « à 4 ;
 
-‘518 | LA CRISE RELIGIEUSE DE RENAN ne
 . la condition de n'être employé que dans les séminaires à
 "4 du diocèse de Paris ». Quand il s'agit de ses intérêts
 4 ‘ essentiels, c'est-à-dire de ceux de son progrès intellec-
@@ -2626,9 +2524,6 @@ $ jets qu'il examine ne supposent-ils pas tous que cette
 
 ‘4 Saint-Nicolas, Saint-Sulpice, et la maison de l'arche-
 
-de LR AANE
-
-A0 Re éolien ON
 vêque. Il a déjà accepté, malgré elle, l'idée de la « discie K. 4
 pline; mais n'est-ce pas accepter une servitude tou PARRE NS À
 
@@ -2703,7 +2598,6 @@ multiplient qui révèlent son détachement des doctrines
 : établies. Il va passer ses vacances de 1844 en Bretagne; à
 4 (2) Renan, Essais de morale et de critique : Lamennais.
 
-ri 0 René Lialim ON
 il y retrouve avec un charme toujours nou an le &Y
 | dresse de sa mère et les souvenirs de son e afa 0e 4 Re 1
 . mais qu'il se sent loin déjà de ses vieux maîtres! Ces
@@ -2725,7 +2619,6 @@ de l'Allemagne. (4) Comment pouvait-il être à la foisle
 disciple des sulpiciens, de Herder et de Kant? ne
 devait-il pas se lasser de cette inconséquence, et, s'il
 | fallait choisir, abandonneraït-il ce qui était l'œuvre
-> : NO
 propre de sa pensée ? RER
 ES Le moment approchaït où il se croirait obligé de 7%
 choisir, car on allait lui proposer de prendre le sous
@@ -2740,8 +2633,6 @@ _ pour la cérémonie de la tonsure, il demanderait 6
 A un délai. Or, ses angoisses, ses doutes n'ont pas ÿ
 
 $ cessé; et pourtant voilà qu'il lui faut « insérer son k
-
-y action dans la décision de sa destinée »; (x) il ne
 
 À ‘veut se déterminer cette fois que par une « certitude
 absolue, résultat non d'influences étrangères ou des
@@ -2772,8 +2663,6 @@ mencement de l'année classique suivante, ce précep-
 4 naissance ». (6) Comme au temps d'Issy, l'espoir renaît
 
 chez Henriette ; à ce retour d'indécision, à cette hypo- :
-
-| (5) Ibid., premier décembre 1844, page 205.
 
 j thèse d'un recul possible, elle comprend que son frère E %
 A se dégage enfin, elle va l'y aider de toute son autorité. He:
@@ -2827,13 +2716,11 @@ _  illétouffe, et, en fait, ils'y substitue. Renan lui demande
 en vain ses titres et sa méthode, et rien ne le satisfait.
 F L'Eglise catholique, dans un âge où la science a tout ‘
 F renouvelé, vit sur les raisonnements naïfs des premiers
-# = LE HSE RE ESR
 ‘ ! (1) Vincent de Lérins, Commonitorium peregrini, 1,23; cf. Cognat,
 (2) Vincent de Lérins, Commonitorium peregrini, I, 23.
 x (3) Jangey, Dictionnaire apologétique de la foi catholique, article
 (1 (4) R. P. de la Barre, S. J., La vie du dogme catholique (Étude reli-
 
-| PR GE SR ET ST RASE RS PE ENS I MERE € RS EP D) MANAITA AS.
 chrétiens ou des anciens juifs. Pour Renan ni re
 # traire, les mystères et les dogmes ne sont qu'une
 a « mythologie » (x) qui tombe devant la critique, une
@@ -2845,7 +2732,6 @@ _  Telles sont les certitudes qui s'imposent maintenant à “15
 _  l'esprit libéré de Renan; et, quel que fût pour lui le ii
 | charme du passé, « tout a dû céder à la perceptionde
 * la vérité ». (4) Jésus seul est resté debout, le « Jésus de …
-# À A, Fe ce
 sa souffrance ». (6) Les paraboles prêchées sur les che- … cs F
 mins de Galilée ou sur le lac de Tibériade, le sermon 24
 ‘ sur la Montagne, la nuit douloureuse de Gethsémani, NN
@@ -2853,7 +2739,6 @@ tels sont, tels seront toujours les articles du Credo de Life
 Renan. C'était bien celui qu'il retrouvait chez les philo
 sophes allemands, en particulier chez celui qui lui était 0
 le plus familier, Herder. (7) Dans cet « homme dd _.
-# 4 2 . Le:
 peuple » qui prêcha « le royaume de Dieu », Herdee …
 admire « l'humanité la plus touchante »; il oppose
 comme Renan la religion de Jésus, c'est-à-dire « sa cha- 5
@@ -2866,7 +2751,6 @@ yes (4) Lettres intimes, page 228. G” NE H
 (7) Herder, Philosophie de l'histoire, livre XVII. | À “ “FAR
 94 15
 
-: DE C7 SRE PS SE SE Licy PP RTE NT URI sens %
 _ ruption de tous les enseignements du Christ, l « impur dr
 _  limon descendu d'une source limpide ». Pour Renan 7
 su comme pour Herder, le « christianisme pur », (1) c'est RAS
@@ -2892,7 +2776,6 @@ _ disent qu'il faut admettre tout cela, qu'on n'est pas ‘
 catholique sens cela. O mon Dieu, mon Dieu, que faut_ il être donc ?.. » (10) |
 1862, lecon d'ouverture au Collège de France.
 # - (6) Souvenirs, page 309, lettre à Liart, du 22 mars 1845.
-#4 (10) Ibid., page 229.
 
 A cette question, sa sœur va répondre. Maintenant
 que le problème et sa solution sont nettement posés, le
@@ -2922,8 +2805,6 @@ gnement laïque. Qu'il poursuive ses études dans les »
 langues orientales, qu'il entre à l'École Normale, …
 : comme le lui conseille un de ses maîtres, (5) ou qu'il
 
-| à + Ar {à gi A 0 Ce
-4 ren | LA CRISE RELIGIEUSE DE RENAN RS
 à enseigne au petit séminaire Saint-Nicolas, sa vie ne
 F reprendra jamais le caractère ecclésiastique. Il a mis à
 J confidentiellement au courant de son état d'esprit trois
@@ -2940,7 +2821,6 @@ et il convient avec sa sœur de tout un vocabulaire
 spécial pour les lettres qu'ils échangeront pendant les
 Malgré toutes ces précautions, la douceur coutu- #,
 mière de ses vacances fut, cette fois, troublée d'amer_  tume. Il avait le sentiment douloureux que ses maîtres ,
-fe et sa mère le comprenaient de moins en moins et
 l'auraient blämé s'ils l'avaient compris ; les lectures |
 hébraïques et allemandes auxquelles il consacrait
 surtout ses vacances le confirmaient dans ces
@@ -2990,7 +2870,6 @@ Re _perçant le cœur de ma mère ». (2) Henriette proteste sa
 ni contre toute pensée d'abandon, l'assure « que revenir
 # ; au passé lui est complètement impossible », (3) espère :
 œil s'est ressaisi. Et cette fois elle a raison d'espérer ;
-et Si Renan a eu quelques moments de faiblesse, si, en
 23 _ revenant à Paris, il a cru encore « en être réduit pour
 4 longtemps aux demi-mesures », (4) il a su, devant un 23
 _ événement imprévu, prendre la ferme décision que

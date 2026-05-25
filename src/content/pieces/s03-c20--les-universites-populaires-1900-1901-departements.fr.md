@@ -16,7 +16,6 @@ f n'existe plus que dans les collections complètes.
 Fe sur l'affaire Dreyfus et la participation des Socialistes
 à au pouvoir en régime bourgeois, enquête. ouverte à la
 ‘4 huitième, onzième cahiers de la première série,
-| s épuisés, .
 | n'existent plus que dans les collections complètes.
 | Lionel Landry. — Courrier de Chine, cinquième
 cahier de la deuxième série, épuisé,
@@ -59,13 +58,10 @@ Bernard Lazare. — ZL'Oppression des Juifs dans
 l'Europe orientale, les Juifs en Galicie.
 
 Bernard Lazare.— Courrier de Galicie et de Roumanie.
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont, — 6130
 
 LS Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi_ maires; la souscription ne confère aucune autorité sur
 . la rédaction ni sur l'administration : ces fonctions
-Nous servons
 e des abonnements de souscription à cent francs;
 à ; des abonnements ordinaires à vingt francs:
 < et des abonnements de propagande à huit francs.
@@ -85,24 +81,17 @@ six cahiers de la deuxième et de la troisième série.
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce dix-neuvième cahier
 
-CE ER 2 LT ges & Vis TE ie #- F2 En se hs
 - : Les cahiers de Bernard Lazare, l'Oppression des Juifs
 __ dans l'Europe orientale, les Juifs en Roumanie, les:
 Juifs en Russie, les Juifs en Galicies CES
 as le cahier de Jean Deck, de la Finlande:
-BE 8 ce cahier de Quillard'; a Res w
-Ca ‘ et les cahiers analogues + SN AR PRE 27 NES
 sont fails pour mettre nos abonnés au fait des situations SR
 k présentes et des événements récents; pour les tenir … D
 * _ au courant des événements éventuels, nous publierons
 ne des mêmes auteurs dés courriers à mesure que les
-qe événements le demanderont. ; j: TUE
 je René Salomé nous prépare un cahier de la-Belgique;
 + on nous prépare un courrier de la Martinique; un ere
 EN de Madagascar: un d'Alger, éviction de l'antisémitisme.
-La. x LEA TLEP Ni ct we
-ne LITRES JR NT RES
-4 2: ï « = ne USE TETE DAT". Fr tar
 
 1900-1901
 paraissant vingt fois par an
@@ -114,10 +103,7 @@ six exemplaires pour dix francs
 douze exemplaires pour seize francs
 vingt exemplaires pour vingt-quatre francs.
 
-à Mes dE R ne k J Voir
-
 Ce cahier, notices d'U. P. départementales pour d'U. P. parisiennes pour 1900-1901, le Bulletin numéro2
-de la Société des U. P. — qu'il suffit de demander au
 secrétariat de la Société, 28, rue Serpente, Paris sixième,
 
 — forment un ensemble de documents nécessaires su
@@ -129,10 +115,8 @@ exemple l'état où en sont arrivées les U. P. en 19011902. Nous savons d'où s
 ont été leurs tendances à l'origine. Attendons quelques
 années avant d'entreprendre aucune publication d'ensemble sur elles.
 
-| CHARLES GUIEYSSE
 % Les tendances que l'on trouve à l'origine des U. P.
 ‘$ù _ sont diverses ; j'en vois au moins deux tout à fait È
-| opposées.
 ji La première — qui n'apparaît guère à Paris — dérive
 l de cette idée que ce qui est désirable avant tout, c'est
 - la paix et l'union entre tous les individus, l'amour entre
@@ -156,7 +140,6 @@ $ les U. P., dont nous avons tant attendu, nous les verrons
 de province l'on se plaint que les ouvriers ne viennent
 point, ou ne viennent plus beaucoup; ils fuiront définini
 
-Les Universités Populaires 1900-1907
 tivement les U. P., si l'on y parle paix, union, amour,
 au lieu d'y parler émancipation et justice.
 
@@ -214,7 +197,6 @@ point de reproches; ce sont les conférenciers qui ne
 . travail comme on enseigne des jeunes gens obligés de
 venir en classe; on ne conférencie pas devant un audidk toire d'ouvriers comme devant un auditoire de petits
 
-Les Universités Populaires 1900-1901
 bourgeois constamment à la recherche de distractions
 et d'amusements bon marché. La première règle de la
 pédagogie est que pour donner un enseignement convenable il est nécessaire d'étudier et de connaître son
@@ -265,14 +247,11 @@ an Guieysse, sur l'Avenir des Universités Populaires.
 çà ressources s'élèvent à environ 450 francs fournis par les
 cotisations des sociétaires, suffit à couvrir les dépenses normales de loyer, éclairage, concierge, assurance, etc. Nous
 avons été heureux de pouvoir mettre notre local à la disl position de diverses sociétés ayant un caractère analogue à j
-Lx celui de l'U. P. A., telles que la section Alaisienne de la
 Al Ligue de l'Enseignement et l'Association des anciens élèves
 _ des Écoles laïques.
 ë Les réunions organisées par l'U. P. A. ont eu lieu réguet lièrement deux fois par semaine; à ces séances ordinaires,
 fixées à l'avance, il faut joindre d'autres réunions acciden-
 ;. telles. Deux ont été consacrées à des concerts, trois à des
-
-Les Universités Populaires 1900-1907
 
 lectures, toutes les autres ont eu le caractère de conférences JÆ
 sur les sujets les plus divers : littérature, histoire, philosophie, législation usuelle, hygiène, éléments des sciences
@@ -298,8 +277,6 @@ un programme aussi varié et attractif que le permettront %
 les ressources dont elle disposera.
 En somme, les résultats de l'année que nous clôturons A:
 / sont encourageants et l'U. P. A. est en bonne voie de
-
-: 3 septembre 1901 ‘le
 
 Notre U. P. est fondée du mois de mai 1901. Pendant les ; %
 mois de juin et juillet il y a eu deux causeries par semaine.
@@ -352,7 +329,6 @@ k Je vais donc un dimanche à Trélazé (L. Ménard est de là),
 Là près de deux cents personnes répondirent à l'appel du
 | camarade Ménard, leur collègue. A cette matinée, puisque
 
-Les Universités Populaires 1900-1907
 c'était une après-midi de janvier, je parle done de la
 Maison du Peuple et de son U. P., Ménard également, et f
 d'accord on décide de lancer une U. P. basée comme je le
@@ -422,7 +398,6 @@ prochain, cette fâcheuse coïncidence ne se produira pas.
 qui s'étaient mises à notre disposition, quand le mois d'avril est arrivé et qu'il nous a paru bon de cesser nos réunions.
 Cependant, le 20 avril, nous aurons la séance solennelle
 
-Les Universités Populaires 1900-1907
 de clôture; et pour cette fois, l'U. P. sortira de son modeste
 domicile; elle se transportera dans la grande salle desconcerts pour la soirée que nous organisons, avec le concours
 tout spontané et si précieux de Maurice Bouchor, auquel se
@@ -448,7 +423,6 @@ TU. P. d'Angoulême, nous croyons de notre devoir de remer- ù cier publiquement
 membres du comité, conférenciers, etc.; et nous nous
 croyons autorisés à les convoquer, dès maintenant, pour, hi
 l'hiver prochain, continuer ce qui a été si bien commencé.
-Président du Comité de l'U. P. D:
 Professeur de Philosophie au Lycée
 
 La Solidarité, U. P. d'Annecy, a trouvé, après bien des
@@ -494,7 +468,6 @@ de Courteline; les Coopératives belges; les Misérables;
 () Société d'Instruction Populaire des arrondissements d'Annecy
 et de Saint-Julien (Haute-Savoie). ».,
 
-Les Universités Populaires 1900-1907
 les Origines du socialisme; le Génie de la France; la
 M. Schæœndeærffer, ingénieur en chef : la Coopération des
 idées; l'Exposition (avec projections); Théorie mécanique L
@@ -538,7 +511,6 @@ est établi dans un ancien asile de vieillards, mis à la disDe position de la S
 } avec billard et jeux divers; le Comité s'est réservé une
 À salle de délibérations. Les services sont assurés par un
 4 gérant logé dans l'immeuble. Un jardin va être créé autour
-de la maison : on y installera un jeu de quilles et un gym-
 | nase pour l'été. Une grande salle de conférences, qui nous
 est prêtée par une école primaire voisine du siège social,
 | complète cette installation. Le budget normal est d'enviren
@@ -555,7 +527,6 @@ varie de trois cents à cinq cents personnes. Quatre fois par
 plus sérieux et d'un intérêt quelquefois plus restreint, comprenant chacun cinq ou six leçons, et suivis le plus souvent de diseussions. La bibliothèque et la buvette sont ouvertes tous les soirs de causeries et les dimanches dans
 ' l'après-midi. Nous nous sommes attachés plus particulièrement à traiter, à diverses reprises et sous toutes les formes,
 
-Les Universités Populaires 1900-1907 *1
 trois questions qui nous semblent devoir tenir la première !
 place dans le programme d'une Université Populaire : ArCOOLISME, GUERRE ET Paix, CoopÉRATION. Même en abordant d'autres sujets, les conférenciers se sont le plus souvent inspirés de cette préoccupation dominante. Voici un
 aperçu des causeries faites depuis le mois d'octobre 1900:
@@ -583,7 +554,6 @@ Géographie. — Algérie et Tunisie. — Japon. — Chine. — e.
 Hygiène. — La phtisie. — Les maladies des peintres. 70408
 
 Droit. — Explication du Code (questions nouvelles). — à
-Les lois ouvrières.
 
 Les textes de nos Lectures ont été empruntés à Molière,
 nand Gregh. Ce sont les poésies de V. Hugo et surtout les
@@ -631,7 +601,6 @@ est le moindre effet, et cette préface était nécessaire à l'en-
 
 4 seignement moral et social que nous avons donné cette
 
-Les Universités Populaires 1900-1901
 année. L'année prochaine, nous voudrions provoquer dans
 la Société populaire l'organisation d'une série de cours professionnels et la création d'œuvres de mutualité dont nous F
 avons déjà jeté les fondements en instituant un bureau f
@@ -698,8 +667,6 @@ Le Cercle laïque d'éducation morale de Beauvais est dans
 sa troisième année d'existence. La nouvelle organisation
 de la Société, fondée sur l'adjonction aux membres dona1
 
-Les Universités Populaires 1900-1901 E
-
 teurs, payant une cotisation annuelle de ro francs, de (M
 fe membres actifs, payant une cotisation mensuelle de 25 cen- }:
 times, a donné de bons résultats. La Société a été admi- à
@@ -709,7 +676,6 @@ membres de l'enseignement public faisant partie de la
 1° Conférences publiques. — Elles ont été distribuées en
 trois cycles. — I. La science : a) la science et l'action;
 b} l'origine de l'homme, l'origine de la société, l'origine
-de la religion; c) la science de la santé (l'hygiène), la
 science de la beauté (l'esthétique). — II. La justice : a) les
 maux de l'humanité : 1° le paupérisme, 2° la guerre,
 3 l'intolérance; b) la justice dans la révolution : 1° la d
@@ -770,7 +736,6 @@ pouvant contenir quatre cents personnes. Ce local, spécia-
 
 & lement aménagé à cet effet, a été gracieusement mis à notre
 
-Les Universités Populaires 1900-1901
 disposition par le conseil municipal, ainsi que l'éclairage i
 L'Université Populaire fonctionne sous la direction d'une
 commission exécutive de neuf membres; un secrétaire
@@ -851,7 +816,6 @@ qui a su obtenir et organiser pour nous le concours d'une
 
 C élite d'artistes aussi dévoués que distingués ; grâce aussi
 
-Les Universités Populaires 1900-1901
 à M. Maldiney, le sympathique conférencier, dont la
 science égale la modestie, toujours prêt, le premier, à payer
 de sa personne.
@@ -871,7 +835,6 @@ D'avance, ils peuvent être assurés de l'attention la plus
 sympathique et la plus fraternelle.
 Je vous adresse ci-dessous la réponse aux questions que
 vous avez posées à M. Mornay au sujet du cercle Edgar
-Il y a un local spécialement affecté à notre U, P.
 Les ressources normales consistent dans la cotisation
 annuelle de 6 francs acquittée par les 140 membres du
 Cercle. Ces ressources n'ont pas suffi jusqu'ici à assurer le
@@ -948,9 +911,6 @@ vaste salle où l'on organisera des cours professionnels À
 pour les apprentis et les ouvriers des divers corps d'états.
 Cette salle est en voie d'appropriation.
 Enfin, il y a un petit logement pour la concierge chargée î
-de la garde et de l'entretien de l'immeuble. Û
-
-de NH — DÉPARTEMENTS
 
 La série des conférences a été inaugurée par une soirée
 donnée par M. Maurice Bouchor le 15 novembre, dans une
@@ -996,7 +956,6 @@ l'une de ces soirées aura plus particulièrement le caractère
 
 ; de soirée récréative, littéraire et musicale.
 
-Les Universités Populaires 1900-1907
 Un cours d'adultes, un cours d'allemand et peut-être un
 cours d'anglais seront ouverts pendant le même temps.
 
@@ -1039,8 +998,6 @@ opinions de s'exprimer, en les soumettant toutes à la dis-
 
 ; cussion ; admettant tous les partis, elle n'en représenterait
 
-| aucun. »
-
 : Les membres les plus actifs des syndicats donnèrent leur
 
 | adhésion. Le sous-préfet de Brest, l'inspecteur d'académie
@@ -1066,7 +1023,6 @@ furent élus.
 
 On choisit un local où l'on aménagea une salle de conférences pouvant contenir une centaine de personnes, et une
 
-Les Universités Populaires 1900-1901
 heures de loisir pour faire le mobilier; association fut
 aidée dans ses premières dépenses par un don de plus de
 deux cents francs de l'amiral Réveillère. La Société républicaine d'éducation populaire de Brest fournit un premier
@@ -1102,8 +1058,6 @@ Braz et Bouchor. L'U. P. a l'intention de donner une fois
 par mois des séances de violon, chant et lecture.
 L'U. P. a adressé au conseil municipal de Brest une
 “ demande de subvention qui n'a pas encore été discutée; elle »
-
-| _ - "If — DÉPARTEMENTS
 
 compte surtout sur les cotisations de ses membres, qui
 étaient, à la fin de mars, plus de 260. à
@@ -1145,7 +1099,6 @@ une œuvre née de ce rapprochement amical : le bureau du
 
 } syndicat des travailleurs du port a demandé à quelques ë * M os
 
-Les Universités Populaires 1900-1907 Æ
 professeurs du lycée d'organiser, à son siège social, des
 cours du soir à l'usage des syndiqués et de leurs enfants. à
 L'U. P. Brestoise semble destinée à vivre; mais dût-elle È
@@ -1153,7 +1106,6 @@ mourir demain, son œuvre morale lui survivrait ; la formation d'un nouveau mili
 en dépit des liens sociaux habituels, en dehors aussi de
 toute unité de parti — uniquement par une commune
 volonté de perfectionnement intellectuel et moral. Ë
-Secrétaire de l'U. P. À
 A Calais, nous avons beaucoup de peine à faire aboutir
 notre œuvre. Nous nous sommes heurtés fréquemment à ù
 l'inertie des uns et au mauvais vouloir des autres; il est
@@ -1214,10 +1166,6 @@ Nous comptons pour cela sur tous les esprits libres, et
 
 " c'est à eux que nous adressons cet appel.
 | Puisse-t-il être entendu !
-x Le président
-Ê Le secrétaire Lepoux
-
-Les Universités Populaires 1900-1907
 
 L'U. P. de Clermont, fondée en septembre dernier, a À
 inauguré ses conférences le 19 novembre suivant dans une
@@ -1285,7 +1233,6 @@ Ces messieurs nous encouragèrent à persévérer dans notre
 œuvre; spontanément ils nous offrirent leur précieux concours et celui des professeurs et instituteurs. Notre idée
 marchait donc sous de bons auspices. Une réunion prépa-
 
-Les Universités Populaires 1900-1901
 ratoire, à laquelle furent invitées toutes les personnes î
 susceptibles de faire des conférences, eut lieu dans une
 salle que nous louâmes à cet effet. L'accord fut parfait et
@@ -1363,9 +1310,6 @@ Marne qui, en toutes circonstances, ne manqua pas de nous
 être utile par ses conseils.
 En prévision des jolies soirées estivales, le Comité a
 
-| be! hs
-# ; 1 +
-Les Universités Populaires 1900-1907 +4
 songé qu'il serait peut-être nécessaire de laïsser une liberté
 entière à nos adhérents, leur permettant ainsi d'admirer
 de visu des paysages que seule la nature est à même
@@ -1438,15 +1382,11 @@ et installation complète d'éclairage au gaz acétylène.
 Inutile d'ajouter que nous avons foi dans l'avenir de
 notre chère Université populaire.
 
-4 bibliothécaire ï LE CATEAU
-
 1 Voici une petite ville de 11.000 âmes, toute industrielle,
 
 … quiest dotée d'une Université Populaire type, pourrions-
 
 …_ nous dire, et fondée à bien peu de frais.
-
-Les Universités Populaires 1900-1907 ‘4
 
 Le fondateur de cette Université est M. G. Lemyre, rédacteur au Progrès du Nord, de Lille.
 
@@ -1527,7 +1467,6 @@ cours suivis par chacun des maîtres.
 ; les travaux de l'année du début, il résulte que la limite d'âge pour les admissions devra être élevée et portée à dix- l sept ou dix-huit ans : les tout jeunes gens, en effet, ne
 s'intéressent pas également à toutes les matières du pro-
 
-Les Universités Populaires 1900-1907 748
 gramme et dès que les sujets traités sont un peu sérieux et
 ne s'adressent pas à leur imagination, comme la littérature
 et l'histoire, ils se montrent dissipés et peu attentifs.
@@ -1568,7 +1507,6 @@ Ce local est mis gratuitement à la disposition de l'U. P.
 4 par le Conseil municipal de Lisieux.
 Ÿ L'association est définitivement organisée, et compte à ce d
 té jour:
-| a) — 94 membres actifs
 ce qui lui assure un revenu annuel de 807 francs.
 
 Les conférences ont lieu deux fois par semaine: le jeudi
@@ -1588,7 +1526,6 @@ Projets pour l'hiver prochain. — 1° Établir des cours pratiques à mesure qu
 
 | etc., etc.). IL existe déjà un cours d'anglais fait par les proi
 
-Les Universités Populaires 1900-1901 ‘3
 fesseurs du collège et très bien suivi par cinq élèves /ceux à
 qui demandent seulement).
 
@@ -1654,7 +1591,6 @@ conférenciers, sont la meilleure preuve que l'œuvre de l''Université Populair
 
 La Société de l'U. P. L., créée en décembre 1899, — sur l'initiative de madame Desparmet-Ruello, directrice du
 
-Les Universités Populaires 1900-1901
 lycée de jeunes filles de Lyon, — sous le nom de Société .
 lyonnaise d'instruction et d'éducation populaire se compose
 de membres sociétaires et de membres participants, (x) au .
@@ -1670,7 +1606,6 @@ Section de la Croix-Rousse. — La section de la CroixRousse qui compte 300 memb
 premiers numéros des Annales de l'Université populaire
 lyonnaise) est organisée d'une manière définitive et puissamment assise.
 
-Sous la haute direction du comité de l'U. P. L. elle a à sa
 tête une commission de gérance composée de seize commis- L
 saires (huit ouvrières et huit ouvriers) nommés à l'élection L
 par les membres participants. Cette commission, ainsi que
@@ -1731,7 +1666,6 @@ assisté aux cours et conférences faits par la section de la
 
 Dans ces nombres sont comprises beaucoup de personnes
 
-Les Universités Populaires 1900-1907 k|
 qui ne sont point membres participants de l'U. P.L., l'entrée
 de la grande salle du rez-de-chaussée ayant été laissée À
 libre pour permettre aux Croïix-Roussiens de se rendre
@@ -1769,8 +1703,6 @@ Q pour l'aider à sortir de la phase critique qu'elle traverse et
 l'amener à réaliser le plus possible, dans son organisation,
 l'idéal de justice sociale qui sera le plus haut degré de son
 
-| MARSEILLE
-
 L'Université Populaire : le Foyer du Peuple de Marseille, a été fondée dans le courant du mois de février
 1901. Cette création a acquis immédiatement une influence
 considérable dans la classe laborieuse; ses organisateurs
@@ -1803,7 +1735,6 @@ société, le Foyer du Peuple rayonne dans tous les quartiers de la ville de Mar
 est relativement ambulant. Les conférenciers se transportent selon les demandes des organisateurs de réunions,
 soit dans des salles préparées spécialement pour l'assem-
 
-Les Universités Populaires 1900-1907
 blée, soit dans les écoles communales, soit dans les bars,
 les brasseries et les cabarets.
 En dehors des séances destinées aux conférences, Le
@@ -1839,8 +1770,6 @@ naturels les plus pittoresques ;
 vement par des ouvriers et communiquées aux patrons,
 soit directement, soit dans les syndicats professionnels
 
-# -___ 1 — DÉPARTEMENTS
-
 ‘4 L'Université Populaire Le Foyer du Peuple de Marseille
 est en relation permanente avec les principales sociétés
 d'enseignement et d'éducation pour les adultes de la région
@@ -1850,7 +1779,6 @@ objectif particulier, d'avoir non seulement des conférenciers disponibles pour 
 réaliser la possibilité de prêts et d'échanges de vues pour
 projections lumineuses. Les sociétés avec lesquelles l'Université Populaire Le Foyer du Peuple est en relations sont
 | 1° La Société des Conférences Populaires Municipales
-ë 2° La Société Lakanal
 / 3° La Société Marseillaise d'enseignement professionnel
 
 4 4° La Société Académique de Comptabilité pour l'ensei-
@@ -1881,7 +1809,6 @@ patronaux, est nouvelle. Jusqu'à ce jour, ce sont les patrons
 enseignement aux prolétaires et aux classes laborieuses. A
 l'aide de la méthode mise à l'étude par le Foyer du
 
-Les Universités Populaires 1900-1907
 Peuple, ce seront les classes dirigeantes qui entendront
 les vœux recueillis par les travailleurs. Sous la forme de ?
 conférences faites aux patrons par les ouvriers, un échange *.
@@ -1951,7 +1878,6 @@ public différent de celui auquel ils s'adresseront la plupart
 du temps. Ainsi entraînés, ces jeunes gens n'hésiteront
 plus pour créer à leur tour sinon de petits centres de
 
-Les Universités Populaires 1900-1907
 sociétés analogues, du moins des conférences dont les habitants des communes suburbaines pourront retirer un
 
 En présence de cette aflluence de bonnes volontés, nous .
@@ -2025,9 +1951,7 @@ pas de vacances, nous nous arrangerons pour être toujours auprès d'eux. Lorsqu
 - diverses salles, nous nous réfugierons dans les jardins.
 
 ) Pour la Solidarité de Montauban
-Le secrétaire-général
 
-Les Universités Populaires 1900-1907
 La Société d'enseignement populaire, fondée en 1898, est
 depuis deux ans en pleine prospérité. Elle s'applique d'une
 part à varier ses exercices, à diversifier ses modes d'action,
@@ -2093,8 +2017,6 @@ collaborent à l'œuvre. Le conférencier ne reçoit jamais
 d'autre compliment que les applaudissements de l'auditoire.
 Pourtant nous avons publié et largement répandu trois
 conférences avec noms d'auteurs. »
-
-Les Universités Populaires 1900-1907
 
 Chacune de nos réunions comporte deux parties: la conférence, et une lecture ou audition musicale. La lecture est
 accompagnée de quelques mots d'explication sur l'auteur,
@@ -2164,7 +2086,6 @@ nous des Crésus, car nous n'avons que bien peu de choses
 et chauffés partout où nous allons. Nous pouvions done
 disposer d'un peu d'argent. D'autre part, nos édiles vont
 
-Les Universités Populaires 1900-1907
 créer la Maison du peuple. Ils l'ont promis, je suis convaincu qu'ils tiendront leur promesse. Mais les plans ne
 sont même pas faits, à plus forte raison les murs, et en
 attendant il nous a semblé qu'on pouvait et qu'on devait
@@ -2227,13 +2148,11 @@ semaine, il y a peu de monde naturellement. Deux
 membres du comité sont de service tous les dimanches, en
 cas de réclamation, de discussion ou d'un imprévu quelconque. Mais les quatre cent douze membres de l'Enseignement populaire sont là chez eux.
 
-Fondée il y a moins d'un an, notre U. P. a eu un succès
 qui a certainement dépassé notre espérance, sinon notre
 
 La séance d'inauguration eut lieu le 7 juillet 1900, au
 Cirque municipal, où M. le baron d'Estournelles de
 
-Les Universités Populaires 1900-1907 k&
 Constant, député de la Sarthe, prononça en présence de
 dix-huit cents personnes, un brillant discours sur les
 « Résultats de la Conférence de la Haye ».— Puis vint
@@ -2272,8 +2191,6 @@ quatre cantons de la ville. Enfin, la science ne devant
 jamais prendre trop d'expansion, nous ouvrirons les portes
 toutes grandes au public. Toutefois, nous réserverons à nos
 adhérents des conférences spéciales et des récréations au
-Le Secrétaire général
-| RENNES
 U L'Université Populaire de Rennes a subi, durant la campagne 1900-1901, une transformation importante, que j'avais
 . prévue dans mon compte rendu de l'an dernier, mais que E
 + je n'avais osé croire si prochaine. Elle constitue aujourd'hui
@@ -2297,8 +2214,6 @@ cette Bourse du Travail qui nous avait donné une si cor_ diale hospitalité.
 ÿ De cette hospitalité, nous avons profité cette année
 _ encore. Ce sera certainement la dernière. Nous avons de
 _ sérieuses raisons de croire que la municipalité fera tous
-
-Les Universités Populaires 1900-1901
 
 ses efforts pour nous faire déguerpir de la Bourse du Tra- Î
 vail. Maintenant que nous avons un budget régulier, nous
@@ -2374,7 +2289,6 @@ du beau rêve qu'avait esquissé Michelet, il y a un demisiècle?
 
 Que ferons-nous l'année prochaine? Tout d'abord, nous
 
-Les Universités Populaires 1900-1907 à
 aurons à nous organiser matériellement, c'est-à-dire à
 trouver un local, à l'aménager et faire face aux frais d'inslallation, de loyer etd'entretien. Pour les conférences, nous
 eomptons multiplier les séries. Nous croyons que la série L
@@ -2389,7 +2303,6 @@ Saint-Brieuc. Deux de nos anciens étudiants sont en train
 d'organiser une Université à Saint-Servan et l'on nous demande d'aller en organiser une autre à Fougères. Nous
 avons donc du travail en perspective, et en perspective
 aussi la joie de l'effort couronné de succès. à
-| Victor BAscx
 
 Notre U. P. est vieille seulement de trois mois.
 
@@ -2444,7 +2357,6 @@ suivies jusqu'à ce jour : jamais moins de deux cents per-
 mordi dans la bibliothèque par un camarade et parfois
 l aussi une lecture le jeudi: de vingt à quarante personnes
 
-Les Universités Populaires 1900-1907 ri
 (les sympathiques et les enthousiastes de l'œuvre) assistent
 à ces causeries ou lectures qui sont toujours commentées
 et discutées ensuite.
@@ -2521,9 +2433,7 @@ différentes et courtes valent mieux).
 
 Puis de la musique qui nous a si bien réussi; sur ce
 
-Les Universités Populaires 1900-1907 à
 point nous sommes éclectiques, anciens et modernes sont à
-également prisés. | L
 
 Enfin le chant, qui a toujours grand succès, et qui n'est
 pas à dédaigner comme propagande. La philosophie d'une
@@ -2543,8 +2453,6 @@ de la déclamation pour servir l'idée.
 Nous tâcherons surtout d'instruire et d'éclairer en étant
 attrayant. C'est la meilleure façon d'attirer la foule et aussi
 de la retenir.
-
-Le Secrétaire ‘
 
 L'Université Populaire de Saintes, bien que constituée, ne
 fonctionnera pas avant un mois, son siège social n'étant
@@ -2589,11 +2497,8 @@ outre son utilité professionnellement pratique, a pour but
 
 pourront profiter de toutes les conférences faites à la
 Bourse du Travail sur des sujets d'économie sociale et
-| politique.
 | Ce programme arrêté en assemblée générale est l'exposé
 de nos projets pour la campagne prochaine.
-
-Les Universités Populaires 1900-1907
 
 La Mutualité Intellectuelle, Université Populaire de SaintQuentin, se réunit dans une ancienne salle de café, dépendant du théâtre, et qui lui a été gracieusement octroyée
 par la Municipalité socialiste. Ce local ne lui est pas spécialement consacré ; tous les mercredis, les membres de
@@ -2653,7 +2558,6 @@ l'organe.
 Vers la fin de 1900 quelques ouvriers mécaniciens demandent à deux fonctionnaires des ponts et chaussées
 deux ou trois leçons de mathématiques par semaine.
 
-Les Universités Populaires 1900-1907 s
 Bientôt après, ces premiers maîtres venant à faire défaut,
 
 4 deux professeurs du Lycée et un industriel viennent prêter £
@@ -2692,7 +2596,6 @@ sans doute à gagner également.
 
 Dire _ Je suis forcé de renvoyer à plus tard les détails : notre -
 \T _ histoire ne fait que de commencer.
-PAS E. Récéyac
 ee Professeur de philosophie au Lycée
 _ En septembre 1900, dans une réunion politique au cerele
 + de l'Alliance sociale, un citoyen émit le vœu de créer à
@@ -2717,13 +2620,11 @@ car si la municipalité nationaliste de Toulon ne veut
 Loubière, et là encore la population ouvrière venait en
 _ foule entendre la bonne parole.
 | Voici la plupart des conférences dans l'ordre où elles ont
-| été faites
 ; Citoyen Guenin, répétiteur au lycée : les Corporations
 ouvrières avant la Révolution.
 À Citoyen Claude, professeur au lycée : le Socialisme.
 " Citoyen Segond, professeur au lycée : l'Idée de Justice.
 
-Les Universités Populaires 1900-1907
 Citoyen Passeron, de Lorgues (Var) : Victor Hugo.
 Citoyen Conil, de Lorgues (Var) : Jeanne d'Arc.
 6 Citoyen Segond : le Patriotisme. ‘
@@ -2762,10 +2663,6 @@ ont bien voulu prêter à l'œuvre en formation. Je remercierai aussi les confé
 (de Lorgues à Toulon, il y a 100 kilomètres), pour semer
 là bonne parole et hâter l'émancipation du prolétariat.
 
-Vu, Le Président
-
-| TOURS
-
 | C'est au mois de juin 1899 qu'un comité d'initiative se forma dans le sein de la loge les Perséverants Écossais.
 ré Ce comité, à son tour, désigna un certain nombre de
 citoyens très connus pour leurs opinions républicaines et
@@ -2803,7 +2700,6 @@ relatifs aux Universités Populaires qui lui furent communiqués.
 
 Les tendances et le but de l'Union populaire de Tours y
 
-Les Universités Populaires 1900-1907
 furent exposés ; afin d'écarter toute espèce de doute dans
 s l'esprit des Tourangeaux, la création des U. P. fut représentée comme étant une conséquence naturelle de l'état de
 trouble dans lequel venait de vivre le pays. C'est au nom
@@ -2891,8 +2787,6 @@ Ab! si nous avions de l'argent!
 
 Q Malgré tout nous espérons pouvoir nous installer mieux en octobre prochain.
 
-Les Universités Populaires 1900-1907
-
 Au début nous avions jusqu'à trois causeries dans trois
 quartiers ouvriers. Le nombre d'auditeurs y variait de
 soixante-dix à quatre-vingt-dix dans chacun.
@@ -2965,7 +2859,6 @@ l'homme dans la nature (M. le docteur Bougrier). — L'évolution des animaux su
 La lune et les planètes (M. Croccichia, répétiteur au lycée).
 — Un ouvrier de génie, G. Stephenson (M. Peyrot). —
 
-Les Universités Populaires 1900-1901
 Cours : Hygiène pratique (consultations gratuites par M. le
 docteur Bougrier). — Algèbre et géométrie (M. Jaudel). —
 Géométrie (M. Filleteau, instituteur). — Comptabilité commerciale (M. Filleteau, instituteur). — Dessin industriel et
@@ -3023,17 +2916,13 @@ Nous sommes en ce moment en pourparlers pour louer
 un local, qui sera ouvert tous les soirs, mais ce qui nous
 gêne le plus, c'est la question des fonds.
 
-Le vice-secrétaire
-
 Les Veillées populaires (U. P.) ont été fondées en septembre dernier sur l'initiative de la Bourse du Travail, de
 MM. Roques et André, professeurs au lycée, avec le concours de M. Alengry, inspecteur d'Académie. Les statuts
 ont été approuvés et publiés, on les trouve en tête du carnet qui est délivré à chaque adhérent.
 
-Les Universités Populaires 1900-1907
 L'U. P. a un Conseil d'administration qui a pour présisident M. Tavé, maire de Tulle ; pour secrétaire M. Chartaingt, secrétaire de la Bourse du Travail ; pour trésorier
 M. André, professeur au lycée ; le conseil est complété par
 des délégués de la Bourse du Travail et par des professeurs de l'enseignement secondaire et primaire.
-La Bourse du Travail a mis à la disposition de VU. P.
 son local malheureusement défectueux et insuflisant. ‘
 L'U. P. a pour ressources normales les cotisations de
 ses adhérents (minimum un franc par an), une allocation de
@@ -3052,13 +2941,10 @@ de nouveaux conférenciers. Il sera sans doute donné, L
 pour le besoin de l'œuvre, soit dans le courant de l'été, soit
 en octobre, à la réouverture des conférences, une grande
 fête artistique et littéraire.
-L'U. P. de Tulle a adhéré à la Ligue de l'Enseignement.
 Son existence est enfin assurée, elle vivra et prospérera
 grâce au concours intelligent et empressé qu'elle a tou84
 
 | jours rencontré autour d'elle dans toutes les classes de la
-
-Trésorier de l'U. P. à Tulle
 
 Notre Société d'éducation populaire mutuelle compte soixante-neuf membres, dont dix membres honoraires.
 , Ceux-ci, sauf deux, se désintéressent de la marche de la
@@ -3089,7 +2975,6 @@ La Société a un local à elle, mais trop grand. Nous en
 cherchons un correspondant mieux à nos besoins et à nos
 ressources. Celles-ci sont alimentées par les seules cotisa-
 
-Les Universités Populaires 1900-1907
 tions : o franc 5o par mois pour les membres actifs et la
 même somme, seulement payée en une seule fois, pour les
 
@@ -3160,7 +3045,6 @@ milieux les moins favorables.
 
 Le point le plus embarrassant a été de trouver un local.
 
-Les Universités Populaires 1900-1901
 Le conseil municipal de Vannes, peu favorable à mon projet, n'a pas voulu nous en concéder un. Le temps avançait
 cependant : la date de la première séance était annoncée
 dans les journaux et nous ne savions pas où se ferait la
@@ -3198,7 +3082,6 @@ et adaptations.
 ; Enfin, je groupais à mon domicile particulier les douze à
 quatorze amateurs qui répétaient trois à quatre fois leurs
 morceaux de musique avant chaque lecture populaire men-
-| suelle.
 Nos ressources ont été tirées uniquement d'une souscription publique dont nous avons pris la tête, M. le Préfet et
 moi, et qui fort heureusement nous a rapporté assez gros,
 de quoi solder largement nos dépenses qui dépassent
@@ -3227,7 +3110,6 @@ vaste salle au rez-de-chaussée, trois autres au premier
 
 La première de ces pièces qui, en tous temps, sert de
 
-Les Universités Populaires 1900-1907 ‘4
 vestiaire, peut être, dans les mois d'été, utilisée comme salle
 de récréation. Quelques jeux : tonneau... etc., y sont déposés. Il est question et il est possible d'y installer un tir à la
 
@@ -3274,9 +3156,6 @@ ouvertes non plus seulement le soir du mercredi, mais d'un
 autre jour de la semaine, quand la bibliothèque, devenue
 plus importante, sera complètement organisée.
 
-NA 2} Vus An FRS in) x) FH La *: 2) JA
-| UN è RU F FR JR
-Mur in no) 4 LE
 put Les notices que l'on vient de lire étaient classées par
 ordre alphabétique. RAD CES noi K
 pl RE. _ Les notices que l'on va lire ont été classées à part, she
@@ -3284,7 +3163,6 @@ en dernier lieu, parce qu'elles présentent, comme on l PRE:
 | verra, un caractère particulier ; pour la même ra son
 14 | nous avons donné tout au long les documents à nnexés
 | à ces notices. DE | LOS
-mn de - EL NU EC PNR
 
 Brioux-sur-Boutonne (Deux-Sèvres). — Societé d'instruction et d'éducation populaire
 
@@ -3312,7 +3190,6 @@ La société a pour local la salle de classe. Là ont lieu
 chaque semaine les réunions ordinaires de ses membres au
 nombre de 90 actuellement, et chaque quinzaine des conférences y réunissent en moyenne plus de deux cents personnes.
 
-Les Universités Populaires 1900-1907
 L'instituteur est président de droit de l'association et
 garantit ainsi le caractère de neutralité politique et religieuse qu'elle s'impose; il maintient l'œuvre dans la ligne
 qu'elle s'est tracée et évite les querelles et les rivalités personnelles qui affaiblissent le rôle des Universités.
@@ -3343,7 +3220,6 @@ La Société a dù son succès et son développement à l'activité de tous, en 
 institutions scolaires et aussi à l'appui de l'Université poitevine dont les membres'se sont mis gracieusement à sa
 disposition pour toutes ses conférences.
 
-; ue, à LE DEUX-SÈVRES
 WWN Disons que grâce au dévouement et à l'énergie de son
 _ vaillant président, M. le pasteur Soulier, l'Université poitesine va être le centre d'action de toutes les Universités
 : populaires de la région. Les neuf conférences qui ont été
@@ -3373,7 +3249,6 @@ Au mois de janvier 1898, M. Auguste Gaud donnait dans
 la grande salle des fêtes de l'Hôtel de Ville, sous la présidence
 de M. Paul Mercier, avocat à Niort, et avec le concours du
 
-Les Universités Populaires 1900-1907
 poète mothais Henri Caillou, une conférence ethnographique et historique sur Chef-Boutonne et ses environs et
 sur les poètes des Deux-Sèvres. Cette fois encore, il réussit
 
@@ -3406,8 +3281,6 @@ et le titre des sujets traités par chacun d'eux
 1° M. Paul Mercier, avocat à Niort : de l'Éducation patriotique.
 
 2° M. Sillion, instituteur : la Lecture en famille.
-
-la Vigne et le Vin.
 
 & M. Rillaud : des Engrais chimiques.
 
@@ -3454,7 +3327,6 @@ entendre dans le courant de l'été.
 Notre Société d'Instruction populaire, fondée par M. Sillion, qui n'a ménagé ni son temps ni ses efforts pour
 assurer sa prospérité, mais qui, en raison de certaines
 
-Les Universités Populaires 1900-1907
 divisions locales, n'a pu réussir à grouper plus tôt autour
 de son œuvre de nombreux adhérents, sera prochainement
 organisée d'une manière définitive. Des projets d'organisation d'une section de tir, de chant, et de représentations
@@ -3520,7 +3392,6 @@ filasse du vieux Tobie, la musique et les vers, qui avaient
 eu un si prodigieux succès, ont beaucoup manqué aux
 spectateurs cette année. Le morceau de résistance du programme a pourtant intéressé ; il était Cabotins! de Paille- ron, mis en trois actes et réduit à des rôles d'hommes. La
 
-Les Universités Populaires 1900-1907
 pièce ainsi troussée demeurait si vivante que le publie l'a
 crue faite exprès et y a vu des personnalités, notamment,
 sous les traits de l'imbécile M. de Laversée, Le baron que
@@ -3580,8 +3451,6 @@ Le Comité élit, chaque année, un président, un vice-président, un secrétai
 Le Bureau est chargé de l'organisation des conférences,
 des leçons et de la bibliothèque. Les résumés des conférences, demandés aux conférenciers eux-mêmes, seront
 
-Les Universités Populaires 1900-1907
-
 Le secrétaire remplit les fonctions de bibliothécaire et
 Article 6. — Une Commission de contrôle de trois membres, pris en dehors du Comité, est nommée par l'Assemblée
 générale, chaque année, pour vérifier et arrêter les comptes
@@ -3625,8 +3494,6 @@ cas, — par neuf voix au moins, et le membre exclu peut X
 alors en appeler à l'Assemblée générale. b
 
 Article 12. — La dissolution de la Coopération ne peut
-# L AA e
-tes DEUX-SÈVRES
 être votée que par une Assemblée générale extraordinaire
 expressément convoquée à cet effet, au scrutin secret et à la
 majorité des deux tiers des votants.
@@ -3635,7 +3502,6 @@ bibliothèque seraient versés aux bibliothèques scolaires de ‘
 . Chey et ses archives déposées à la mairie.
 Article 13. — En cas de modification aux statuts, la à
 Coopération devra demander de nouveau, à l'autorité eompétente, l'autorisation prescrite par l'article 291 du Code
-Le Secrétaire Le Président
 * Voulez-vous me permettre de vous soumettre un projet
 pour la réalisation duquel votre concours serait précieux ?
 Les principales communes de notre arrondissement sont
@@ -3654,8 +3520,6 @@ recteur, — il a pris un sens aristocratique de lieu d'honneur et de repos, alo
 désigne pas lui aussi une rangée de fauteuils pour vieillards glorieux, indique une maison d'éducation ou un asile
 de charité.
 5 103
-
-Les Universités Populaires 1900-1907
 
 Université est bien l'appellation qui convient, non tant
 parce qu'elle est à la mode que par toute l'allégresse d'esprit qu'elle implique, par les traditions de travail, de dévouement et de coopération intellectuelle qu'elle représente.
@@ -3718,8 +3582,6 @@ se porter garant de son acceptation. D'autre part, un procèsverbal d'élection 
 Article 6. — La cotisation est fixée, pour tous les
 membres et membres correspondants, à au moins 10 francs
 
-| par an. ‘
-
 Article 7. — Les membres et membres correspondants
 sont nommés à vie.
 
@@ -3731,8 +3593,6 @@ Les démissions motivées et réitérées peuvent être
 le Maire ; le Président du Tribunal ; le Procureur de la République
 l'Inspecteur de l'enseignement primaire ; le Curé-Doyen ; le Pasteur,
 président du Conseil presbytéral ; le Principal ; le Juge de paix.
-
-Les Universités Populaires 1900-1907
 
 La cessation, pendant trois ans, du paiement de la cotisation est considérée comme une démission.
 
@@ -3781,7 +3641,6 @@ pour être répartis entre les Universités populaires de l'arrondissement.
 ne pourra être votée que par les deux tiers des membres
 de l'Université, dans une séance spécialement convoquée à
 - ecteffet, et sera soumise à l'approbation de l'autorité com-
-| pétente. ,
 } Article premier. — Les membres de droit et les membres ci-contre désignés se réuniront à Melle, sur la convocation et sous la présidence de M. le Sous-Préfet, à l'effet
 Article 2. — Sur nouvelle convocation de M. le SousPréfet, moins d'un mois après la première, l'Université
 poitevine tiendra sa première séance dont l'ordre du jour
@@ -3789,16 +3648,13 @@ poitevine tiendra sa première séance dont l'ordre du jour
 accepté leurs fonctions, par M. Lalot, secrétaire de la pre- *
 mière séance ; »° Vote des statuts ; se à
 3° Élection du bureau
-4° Des commissions ; À.
 5° De membres pour remplacer les non-acceptants, s'il y
-6° Des membres correspondants
 7° Fixation de l'ordre du jour et établissement d'un programme.
 Cercle Poitevin d'études et d'éducation sociales, dit
 Les principales communes de l'arrondissement de Melle
 sont ou vont être incessamment pourvues d'universités
 populaires, de sociétés d'instruction populaire, de commisÀ sions de bibliothèques ou autre organisation travaillant à
 
-Les Universités Populaires 1900-1907
 l'extension, à la propagation, à la vulgarisation des sciences
 et des idées générales.
 
@@ -3870,7 +3726,6 @@ Le titre qui fut choisi d''Université poitevine contient déjà
 l'indication sommaire du programme de l'association : d'une
 part, ses membres ne demandent qu'à être pour l'Université
 
-Les Universités Populaires 1900-1907
 de France de réels auxiliaires, en étendant son action, et
 pour les universités populaires des collaborateurs utiles ; et,
 d'autre part, si déjà l'habitante d'un coin du Poitou est poitevine tout comme celle de sa capitale, il est vrai, aussi, que,
@@ -3936,7 +3791,6 @@ rien avoir de politique ni d'aristocratique; ils ont tenu à
 l'affirmer, en portant, pour la première année, à la présidence de l'Université, un homme dont le nom, incontestablement français et plébéien, ne figurera jamais dans tout
 l'arrondissement sur une afliche ou un bulletin électoral ni
 
-Les Universités Populaires 1900-1907
 comme candidat ni comme patron. La vertu républicaine
 par excellence, — l'Université le proclame, — c'est le désintéressement.
 Les membres de l'Université poitevine sont, enfin, des
@@ -3966,7 +3820,6 @@ droit sont : d'une part, les deux représentants donnés par
 le suffrage universel à ces deux personnalités morales, la
 , 112
 
-ni DEUX-SÈVRES
 : ville de Melle et son arrondissement ; d'autre part, les fonc-
 
 | tionnaires dont la situation administrative et littéraire fai-
@@ -4001,9 +3854,6 @@ Article premier. — Une société est fondée dans l'arrondissement de Melle, q
 d'étude et d'éducation sociales. Entreprise démocratique,
 œuvre nécessaire, son but est de réunir les ouvriers de la
 
-M FUN Ne EN Oen Et
-
-Les Universités Populaires 1900-1907
 pensée, de fournir à leur travail des moyens et des encouragements, et de favoriser l'instruction populaire. Elle tient
 une séance régulière une fois par mois, d'octobre à juillet.
 Son siège social est à Melle.
@@ -4067,8 +3917,6 @@ Article 18. — Toute modification aux présents statuts ne
 pourra être votée que par la majorité absolue des membres
 de l'association, dans une séance spécialement convoquée à .
 cet effet, et sera soumise à l'autorisation de l'autorité compétente. À
-
-Les Universités Populaires 1900-1907
 
 Melle (Deux-Sèvres). — Cercle poitevin d'étude et
 d'éducation sociale, dit : Université poitevine
@@ -4137,8 +3985,6 @@ donné le désir d'améliorer sans cesse leur entreprise en
 pesant tous les avis entendus; et elles les ont serrés les
 uns contre les autres dans une étroite, puissante et redoutable solidarité.
 
-Les Universités Populaires 1900-1907
-
 Comprenant le secours qui était porté à l'esprit d'émancipation et de laïcisme, l'inspecteur de l'enseignement primaire, l'élite des institutrices et des instituteurs (l'un vient
 de recevoir le diplôme d'honneur, un second la médaille de
 bronze, un troisième la médaille d'argent, un quatrième les
@@ -4183,7 +4029,6 @@ au secrétaire, M. François Lalot, directeur de l'École com-
 Commune de Lezay (Deux-Sèvres). — Enseignement
 ; des Adultes. — Conférences. — École publique de
 garçons du bourg.
-L Nombre
 Années Titres des Conférences d'auditeurs
 —_ Nos colonies d'Afrique (Algérie, Sé- -
 _ Guerre de Cent Ans; Jeanne Darc. . 120
@@ -4203,8 +4048,6 @@ s'augmente chaque jour.
 
 L'instituteur espère, au cours de l'hiver prochain, pouvoir
 fonder une Université populaire unissant les bonnes
-
-L'Instituteur
 
 À titre d'essai, et pour constituer comme une section,
 analytique, de l'index que nous préparons pour la fin de |
@@ -4401,7 +4244,6 @@ quatrième série l'introduction et la conclusion ci-dessus
 annoncées. Ce livre est à mettre dans toutes les bibliothèques, en particulier dans les bibliothèques populaires, en un temps où les politiciens de l'une et de à
 l'autre domination dénaturent à qui mieux mieux le
 
-| 1 i
 | Vient de paraître chez Calmann Lévy, en vente à la
 | librairie des cahiers
 ErNEsr RENAN. — Lettres du séminaire, 18381846, un volume in octavo de 350 pages
@@ -4427,12 +4269,9 @@ Les œuvres complètes d'Ernest Renan deviennent
 ainsi au catalogue de Calmann
 Histoire des origines du Christianisme
 Vie de Jésus.
-Les Apôtres
 
 Saint Paul, avec cartes des voyages de saint Paul.
-L'Antéchrist.
 Les Évangiles et la seconde génération chrétienne.
-L'Église chrétienne.
 Marc-Aurèle et la Fin du Monde antique.
 Index général pour les sept volumes de l'Histoire des
 Origines du Christianisme. L
@@ -4440,7 +4279,6 @@ Le Livre de Job, traduit de l'hébreu, avec une étude
 sur le plan, l'âge et le caractère du poème, un volume
 Le Cantique des Cantiques, traduit de l'hébreu, avec
 une étude sur le plan, l'âge et le caractère du poème,
-qu. s un volume Ÿ
 L'Ecclésiaste, traduit de l'hébreu, avec une étude sur £
 l'âge et le caractère du livre, un volume
 Histoire générale des langues sémitiques un volume
@@ -4549,8 +4387,6 @@ prie instamment. Je viens de relire l'article; si aimable qu'il soit,
 c'est la même chose. Je souhaite avant tout que le moi, la personne
 vivante avec son ton de voix, son geste, ses meubles, échappe au
 
-| VIII
-
 un grand sacrifice qu'il fit à ses confrères des Débats que .
 de consentir à figurer dans le tableau de Jean Béraud,
 reproduit en 1889 dans le livre du Centenaire; (1) et quand
@@ -4580,14 +4416,11 @@ G) Le Livre du Centenaire du Journal des Débats, 1 volume grand ,
 l'édition in-16 des Origines de la France contemporaine.
 4 134
 
-nie ‘Re CAHIERS DE LA QUINZAINE
 ‘4 conformer, tout en demeurant dans les limites qui nous ont
 _ été imposées par sa volonté suprême.
 I. — L'enfance et l'éducation.
-Li: La famille et la première éducation; l'année de Phi- ; À
 1 losophie, introduction de la Destinée humaine, examens
 Ê d'entrée à l'École normale.
-IL. — L'École normale.
 Première année : lenouveau milieu; la préparation à
 Ÿ la licence, travaux particuliers
 Seconde année : la vie à l'École, la réaction de 1850.
@@ -4632,8 +4465,6 @@ auditeurs au Conseil d'État, l'administration des corps;
 le commencement de mise à exécution de ce projet;
 le désir qu'avait l'Empereur de restreindre la compétence des conseils de guerre, et peut-être même de les $
 supprimer tout à fait en temps de paix.
-
-_ CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 
 | rez-de-chaussée, Paris.
 
@@ -4687,12 +4518,10 @@ M. Gabriel Séailles, un cahier de 48 pages, un frane À
 58 Romain Rozzanp. — Le 44 Juillet, action populaire k un fort cahier de 252 pages, trois francs cinquante
 ÿ Douzième cahier.— Monographies, Personnalités, un
 * cahier de 72 pages, un franc
-JÉRÔME ET JEAN THarAUD. — Dingley, l'illustre
 
 | cahier de 88 pages, un franc
 nationaux ; Félicien Challaye, la Russie oue de Vladivostock, journal d'un expulsé, un cahier de 72 pages,
 un franc
-ANATOLE FRANCE. — Cahiers de la Quinzaine
 la liberté par l'étude ; la loi est morte, mais le juge est
 vivant; vol domestique; les juges intègres; discours un cahier de 72 pages, un franc
 Seizsième cahier. — Les élections; emprunt des
@@ -4706,7 +4535,6 @@ un cahier de 72 pages, un franc
 Dossier Gohier; ligue française pour la défense des
 | Droits de l'Homme et du Citoyen ; élection Beauregard
 élections dans l'Yonne; René Salomé, courrier de
-> 139
 
 PIERRE QUILLARD. — Pour l'Arménie, mémoire et d fort cahier de 168 pages, trois francs
 Vingtième cahier. — Les Universités Populaires
@@ -4735,9 +4563,7 @@ administrateur des cahiers, 8, rue de la Sorbonne, Paris. $
 
 . è Nos Cahiers sont édités par des souscriptions menk _ suelles régulières et par des souscriptions extraordi1 naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-| demeurent libres.
 
-Nous servons
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
 et des abonnements de propagande à huit francs.

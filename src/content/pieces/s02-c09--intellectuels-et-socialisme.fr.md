@@ -13,7 +13,6 @@ M. Paul Mantoux, professeur agrégé d'histoire, et
 M. Charles Guieysse, gérant de Pages libres. Lagardelle répondra sans doute. J'y reviendrai aussi dès que
 je le pourrai. M. Mantoux nous écrit
 Paris, ce premier février 1901
-Mon cher Péguy,
 
 Je n'avais pas entendu la conférence de Lagardelle
 le travail d'abord, les conférences après. Je suis bien
@@ -35,7 +34,6 @@ par un corps soumis à l'action de la pesanteur sont proportionnelles au carré 
 de manganèse mis au contact de l'acide chlorhydrique
 donne de l'eau, du chlore et du chlorure de manganèse:
 
-MnO? + 4HCI — MnCE + CI + 2H°0. — Les maladies
 À ._ infectieuses sont causées par la présence dans l'orga_  nisme de bactéries microscopiques. — J'ai suivi, note
 d bien, l'ordre établi par Auguste Comte dans sa classifi-
 cation des sciences. J'arrive à la sociologie. Suis-je en
@@ -212,7 +210,6 @@ d'un cordonnier décriant l'usage des chaussures, A toi
 Paul Mantoux l
 
 M. Charles Guieysse nous écrit :
-Mon cher Péguy
 
 J'admets bien volontiers les conclusions de la Causerie de Lagardelle, dans leur ensemble : un intellectuel doit mettre son savoir, sa puissance de pensée au
 
@@ -373,7 +370,6 @@ délégués au patron de l''Usine ?
 L'action politique électorale — essentiellement
 révolutionnaire, et même brutale aujourd'hui,
 - puisqu'un parti triomphe quand il a une voix
-Que
 
 de majorité, — et l'action politique parlementaire — essentiellement révolutionnaire aussi parce
 qu'une loi détruit en un jour quelque chose qui
@@ -567,7 +563,6 @@ que je pense, je dirais que le mouvement socialiste
 
 devrait se définir ainsi : méthodique organisation
 
-LIBRAIRIE DES CAHIERS ra
 Etant donné qu'à partir du septième cahier inclus
 nous avons cessé d'envoyer nos cahiers à tous ceux de
 nos anciens abonnés qui n'avaient pas accepilé nos
@@ -644,7 +639,6 @@ cahier de Lagardelle, pas un seul groupe d'études ou
 d'étudiants ne nous en a demandé. Le Groupe des
 Étudiants Collectivistes de Paris, qui a fait des folies
 
-ne LIBRAIRIE DES CAHIERS !
 pour un citoyen quémandeur, ne nous a pas demandé
 ” un seul exemplaire de cette brochure.
 
@@ -787,8 +781,6 @@ de midi à sept heures.
 
 Nous serons heureux surtout de fournir aux bibliothèques. Nous ne saurions trop engager nos amis
 perdus des campagnes et des petites villes à fonder sans
-
-nantes LIBRAIRIE DES CAHIERS
 
 formalités des bibliothèques. Autant les groupes à par-
 

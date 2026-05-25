@@ -7,18 +7,6 @@ author: eddy-marix
 isAvertissement: false
 wordCount: 30634
 ---
-PRE ee A ee ic) NA DS TU OR
-Hi: 7 it et Dieu t Ye à 2 ,$H#DE
-s Res LATE RS € V4 F4 AE AE je ps Lee TU
-RE un rte AN ÉE PR EU » PAL ++ 17] ANSE
-
-** Cure mA A Dh EC PRE 7 Rte # ; 24 ù RL à “ RTE À Ë
-M ot D Le Mes SR DUR :
-4 TÉMeNE Ÿ LES be s de « F7 PISE »
-Ÿ ME Dur Hs À Rat A 1 ne RU ane RS
-OC RENOMMER ET ER Cd A ARS ER TNE PEN de ee Mae, A ET A)
-Le NAT ES LE DNS ER RE RES OS ER Aer
-
 Ballade de Guthe et Quéique de Schubert
 Gexte allemand et traduction nouvelle
 par @. Gatulle Mendès
@@ -31,48 +19,11 @@ double collection d'épreuves monochinomes et polychnomes, $ur japon mince et $u
 13 exemplaires — numéros 3 à 14 — $un japon ancien, contenant une collection d'épreuves
 monochinomes et polycinomes, Sur chine, au prix net dm. ............. 400 fuanc$
 * 200 exemplaires — numéros 15 à 214 — $um vélin à la cuve des papetenies du Marais, filigrané
-LTHMA ED ARS abus mn de acc ne oo de doi over 400 fief
 5 collections, $ux japon ancien, d'épreuves monochnomes et polychnomes, au prix de 425 Francs
 16 collections, $ur chine, d'épreuves monochromes et polychnomes, au prix netäe 400 francs
 
-| TARA À RL
-TNA ; « 2 ne RESTE AC, sn 3
-MO 0: rés 4 Dr Ho SA NE DE EL ni |
-
 120 i d'imprimer trois mille exemplaires de ce septième cahier 14
-Rae le jeudi 22 décembre 1904 F PATES
-ue EE & Par :
-| ANOESRS à l'Imprimerie Ernesr PAYEN De
-LS MR TE rad 4 TO TON TE CR là. THOUTSOREANNEE A © ER
 
-4 eee SAN DURS EE Le TN MR AR en) HE T'ES ENS
-de, ; ; S er LR ART D ES TRIER Ts
-ARE CPP: LE AT Le Sn ns
-on AR ON PRES tr He] Ne Sue CE à EUR Er AU DE
-Le PINS ES in RM tr SE Le À
-+ AEERE DR et ne Ge pt re NA Ar
-
-LR dr de AURA LES ANA PARTS
-MECS lee) LUS O0 UT TA NV: Et em T Ÿ Ne Li Ve 2 FN
-
-PRET CR CE ER VAE Pate Pure te PRE ERA Cu an) ASE 1 TRRONEESS
-
-CARE EU ARE Re SET à MAG ra pe l:ie me 2 LS
-| ROIS DR STTES RUC MT ORNE Le : 14 HAS PE ?
-| TANITRSSSESRRRS are RAS, PAS AA AS EEE DÉS TEE US
-#0 D Ja ré Pare: HONOR SAS
-TES s ñ x EVTOR Far: S (1 STE NES né
-af un RE DNS Én ATOS SNS NAATESS Ac DOTE ne A
-L'EST ERR Le Laure PO Er + LA PAR pe RP nt.
-RNA ET de 20 ul PAM (9 per AE
-
-tip aire He Re ni RER A RS CU
-RS A M ANSE ne nt À a ae MEnt
-AO RU TU EEE SNS AE È k ee
-
-Re. La RAS CE en es NPA CRT AE ue AÉRENS
-
-| LR |
 Il est impossible de suivre honnêtement le mouvement litté- ue, /
 raire, le mouvement d'art, le mouvement politique et social si ne | H à
 l'on n'est pas abonné aux Cahiers de la Quinzaine. 2 ;
@@ -80,8 +31,6 @@ Pour savoir ce que sont les Cahiers de la Quinzaine, il sufit É |
 d'envoyer un mandat de trois francs cinquante à M. André ae |
 Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, 4 à
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en à: 2 |
-spécimens six cahiers de la deuxième, de la troisième et de la a:
-| hr
 Pour savoir ce qui a paru dans les cinq premières séries des el <
 cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André > 1
 Bourgeois, même adresse ; on recevra en retour le catalogue analy- Be |?
@@ -90,7 +39,6 @@ tique sommaire, 1900-190f, de nos cinq premières séries, premier 4 |
 k très denses, in-18, grand jésus, marqué cinq francs. E ||$
 Pour s'abonner à la sixième série des cahiers, qui est la ee ||
 | série en cours, envoyer un mandat de vingt francs à M. André EE |
-| 3 a 5 A Per f
 | Bourgeois, même adresse; on recevra en retour les cahiers déjà E |
 Û parus de cette sixième série; puis on recevra de quinzaine en -4
 quinzaine, à leur date, les cahiers à paraître; toute personne qui D |
@@ -100,10 +48,7 @@ premier cahier de cette série, qui est le catalogue analytique Re |
 l Nous mettons le présent cahier dans le commerce; septième Dee | £
 Le cahier de la sixième série; un cahier vert de 188 pages; in octavo | È
 À grand jésus ; nous le vendons vingt francs. , ee |
-| BRAS |
-| . 1550 EE:
 
-be ET CAHIER POUR LE DIMANCHE DE PAQUES
 (Ma tragédie de Tristan et Iseut
 ES | paraissant vingt fois par an
 | 4 $ 8, rue de la Sorbonne, au rez-de-chaussée
@@ -115,12 +60,10 @@ Pour savoir ce que sont les Cahiers de la Quinzaine, il suffit à à
 d'envoyer un mandat de trois francs cinquante à M. André +8)
 Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, nue
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en Bée
-spécimens six cahiers de la deuxième, de la troisième et de la ; AS
 Pour savoir ce qui a paru dans les cinq premières séries des Mo:
 cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André ra
 Bourgeois, même adresse ; on recevra en retour le catalogue analy- 5e
 tique sommaire, 1900-1904, de nos cinq premières séries, premier ir
-ne SR je s & 7
 cahier de la sixième série, un très fort cahier de XI+408 pages : ee
 très denses, in-18, grand jésus, marqué cinq francs. , ee
 Pour s'abonner à la sixième série des cahiers, qui est la 2
@@ -135,25 +78,7 @@ Nous mettons le présent cahier dans le commerce; septième …
 cahier de la sixième série; un cahier vert de 188 pages; in octavo Fe
 grand jésus ; nous le vendons vingt francs. , TE
 
-CR, DA ne LOTS NE
-DR TES Re PR à Dont Le
-| NM Du SRE ee NCHE RAMEAUX
-Re ee DE LA SIXIÈME SÉRIE Te
-LR Le dre Le. us
-là tragédie de Tristan et ISe “
-LIRE Res ; Ne
-ESS RARE 3 LE fr Ke
 HN RATS ant vingt fois par an FASO
-
-_ 8, rue de la ponte er PEN ES
-
-er Le - * . PTE EN A RS NN Er PP Put re € 1!
-
-AT in LT DE ARE ES è MS ENT CMOS FRANS
-
-AU LA AE TN UE OR UEr Fa ain DCE RPTIOES
-
-de Ris PAT ANUS D AE El Da AU $
 
 Nous avons publié dans nos éditions antérieures et dans nos
 cinq premières séries, 1900-1904, un si grand nombre de cahiers
@@ -183,19 +108,6 @@ reçoit, par le fait même de son abonnement, en tête de la série;
 nous l'envoyons contre un mandat de cinq francs à toute personne
 qui nous en fait la demande.
 
-|
-
-A ne MARS Ne
-ENT ME EN ARE PET MIE es He , ON
-FAC Put EN RS pe et D ACICHNET H { F4 L "4Fiae
-LE ss d st 8 Du Le: 1 DE Car DES
-
-Ne 2MIE LME NC EC EN EU LE ALES TAN US er LOU, snel NE LE
-AAA | ÿ M et. Re no
-HAE WA 4 RES NIAUL SES E wr
-Matt +0 ne er A A PS AIRE FREE
-1 HONNEURS TEA URL AURATE CA CI CA PEN EC PAS DIRE ET RICE sx va AE
-
 Pour le dimanche des Rameaux
 qui verdoient aux mains pieuses,
 lequel est aussi la fête
@@ -205,21 +117,10 @@ et des verdures lourdes de boutons
 pour que de même il soit la fête
 du chèvrefeuille amoureux du coudrier
 que chanta Marie de France
-et
 du rameau qui du cercueil de Tristan
 sur le rocher de rêve
 où jamais barque n'atterril ni pied ne se pose ;
 
-> CE ONRUE (: VEPSRES RP Et RE TRE TS A LEE FAN FR ROAR EPS ANT PERS
-
-Fg de RE ie ; DÉCOULE TETE
-
-MINES ATE “es x ÿ 1h ) Men CRIE Et
-
-NP NÉ TT CRAN LA He Fees ÿ REG PE
-CE RAS ADEME Het A Me Be
-
-\ "4 Der Li eu Sn ta Le)
 Et pour le dimanche de Pâques
 où le Dieu ressuscite pour les chrétiens
 à chaque retour des ans,
@@ -227,7 +128,6 @@ où l'amour divin se célèbre,
 pour que de même il soit le jour
 où ressuscitent les héros,
 ceux de la force, ceux du triomphe, ceux de la douleur,
-? et le jour où se célèbrent
 les joies, les désirs, les peines
 des simples chairs mortelles 1
 avec les amours
@@ -235,25 +135,7 @@ des simples âmes humaines ;
 : nous offrons ce poème.
 .
 
-DU Se pee sh à Re ne LOUE VA OS à
-DRE Lt on Li be C0 à JU PP RME D TE LOU CE TE RCD ES LIN UC UN NTM RP RER ;
-RE m0 ie CN de EU ET PEt AE Ale AUIEL 2 PSE Ro A PEL PT
-1,00 US re ÿ ï MARS A EUR + Ÿ ne re k
-UN ia Ne Ca EUR ER ETTERS
-IR PASTR At dre NE TE AS TES RS
-
-Med: d'apDis:-ti ue ral lbs DOS RE PUS LA LR RUES AT ER
-LS AURAS NE Sen d FA
-He ont
-
-APE ere or Te PARA \ PAPERS * Re À A DA me A VE ‘$ L
-ANR RSR Que RON Aa FE TT AS
-te 1, RÉDLA OO PAPE SES ET ER OR RAA OO SE ER de END à
-pos, 2 RIRES DT a 08 NO OE TE PENP NE ALIM FOR HE re ER
-NU AM A je cos CMS FEU DER TT DONNER AL.
-
 D''els dous fu il tut altresi
-ë Ki a la coldre se perneit :
 Quant il est si laciez e pris ;
 E tuz entur le fust s'est mis,
 Ensemble poent bien durer;
@@ -266,29 +148,9 @@ un rosier sur le cercueil d'Iseut ;
 leurs racines descendirent dans le cœur des amants;
 leurs rameaux s'inclinèrent l'un vers l'autre,
 k et se tressèrent étroitement
-L Henricn voN FREIBERG
-| <
-
-AL fi fes LIEN NRA ESS LA SE ET ER PRO QUO RE Ar PAL T M Te LIL MN
-LENS RAT SE RS PA re NON AU PAT ER it DRE A ne ATEN MIRE) Dr ROBE RES re |
-TR RAA RL EE ES on LE PRÉ A  V 7 Tene  TLOEN OT TNREE
-M AP Ar LENS TANT NS NES ie HAE een or HR ES Line “
-Sue). Re AE de à CU s se | FINE real es AT
-|| LC OMEES ï ; NÉ LRQ CEE ENS
-
-16 AR ent ALT Jr SHRUUES RAA ce CARTE ARR EL cn Pc à
 
 la tragédie de Trist “
 nc wédie de Tristan et Iseut
-
-Moi F ? de FR
-
-À deu à; OA BA Re Rare LA EPA ALES PSM AR AN UC OS DENT EN e TION ARR a N£
-TER Ne Ur RU RE CAS a de
-ON RS RSR ES Re es RAR Eee GS
-NOR ARR AN  VANRE re AE GE de RS AR
-LP Ro re EP DRE DE re ER a LA AE ie 1 1 NTATENE
-A ne jee nat MAL An M. MERE
 
 ISEUT, fille du couple royal d'Irlande.
 TRISTAN, roi de Loonois.
@@ -298,26 +160,6 @@ KAHERDIN, prince de petite Bretagne.
 L'action se déroule dans le Pr celtique, aux temps légendaires,
 entre l'Irlande, la Cornouailles et la Bretagne.
 
-A ou ee Re UE EAN HAN ENONEES
-
-LAC OR EER PAPER CRE es NEA AT TA re Lo à à
-
-a ru Le D NPA ARE RTE D MAN EME Mrso AS RUN ;
-
-1 RE IEEE PAU Sr dE NP TMS ES te OA A) Rene Last 18 PAM VE » CRAN À ta ga A LCA Pine) RSOIN EE RAR EA RATES
-
-ei, PAR LIL Re CARE SOLE nent PAR OS Ce
-fe LA HEAR NAS
-| a POUR A 6) ORRARRRS à 00 UN SET RAR PRG PRIE CE LS Lure ge aa
-
-à RS MUST SNA es RES ARR eh LIE 0 A LE AUDE) AA ER a EL PS ONE
-Re à ce D
-: VA RARE Y NE das re LU NASA
-#2 jt 4 ‘ Le fiat f Lt 08
-RÉ PAPE EU NO DORA AR EN ee fa ne DAS REP r à DE PT
-
-So ee MODES à ARE A A EE  L'IPAR S Ÿ
-| |! \ | \ | | | ]
 Une salle dans le palais de Weisefort, en Irlande.
 ï Au chemin du palais, qui monte de la ville,
 S'élèvent les sanglots de la foule servile ;
@@ -353,7 +195,6 @@ Que du vainqueur du monstre Iseut soit la fierté; ;
 Des victimes allant grossir la théorie,
 J'offrirai mes espoirs en fleurs à la patrie.
 Car l'époux de hasard pourrait être écarté
-A jamais, Ô ma mère, en sa vulgarité, :
 De mon jeune désir même indécis et vague
 Tel qu'il vole au nuage ou flotte sur la vague!
 
@@ -393,7 +234,6 @@ Puisse donc...
 : Laisse, enfant, nos grands morts qui reposent;
 Et fais que tes regrets indignes ne les osent
 Troubler pour les chagrins dont leur deuil s'est accru!
-Car si tu l'as nommé le vaillant disparu, :
 Ton âme, indifférente au deuil qui nous attriste,
 Pleure, en pleurant Morholt, ta douleur égoïste!
 Écoute ! Les rumeurs grandissent, dirait-on ;
@@ -420,13 +260,10 @@ la tragédie de Tristan et Iseut ë
 Faudra-t-il donc, princesse au teint des pâles fleurs,
 Sur ton jour nuptial que nous versions des pleurs ?
 
-Que t'importe, Brangien ?
-
 Elle serait ingrate
 
 L'enfant, jadis par vous arrachée au pirate
 Et traitée en servante honorable au palais,
-De ce chagrin d'Iseut si je me consolais !
 
 Eh bien, rassure-toi car la triste épousée
 Pourra, chère Brangien, par ta main empressée
@@ -456,8 +293,6 @@ Sur la couche d'hymen, dans le matin vermeil, à
 Vous auriez ce pouvoir ?
 Le sortilège est prêt !
 Et bientôt tu tiendras l'amour dans un coutret!
-
-#
 
 la tragédie de Tristan et Iseut
 Surtout, tu prendras soin que nul autre ne puisse
@@ -531,7 +366,6 @@ Qui git devant le seuil; puis les chères douceurs
 D'un asile en ces lieux et de soins guérisseurs.
 
 ÿ Toi? ton seigneur ? Qui donc êtes-vous ?
-Ce malade
 
 Dort, lassé par le choc d'une rude estocade,
 Car lui seul a bravé les venimeux ruisseaux
@@ -599,21 +433,16 @@ Hélas! Hélas! Enfant chéri de ma tutelle!
 
 Point de larmes, vieillard! Quittez la vaine peur !
 Vous, laissez là celui qui souffre en sa torpeur.
-Les Irlandais sortent.
 Il est bien vrai! Son corps ne montre point d'entailles.
 Le souffle du dragon, empestant les broussailles,
 L'étourdit. Faisons donc céder le dur étau
 De son sommeil.
 Elle prend un flacon dans un coffret et le tend à l'écuyer.
 ts Frottez ses tempes de cette eau.
-L'Écuyer obéit.
 ; Ma lance! Ramassez les tronçons!
-Il s'agite!
 Il parle! L'avez-vous entendu ?
-Le cher gîte,
 Bel oncle, le palais qui s'étend sur mon front,
 Est-ce le vôtre?
-Il vit!
 17 2
 
 la tragédie de Tristan et Iseut ‘
@@ -636,13 +465,11 @@ Et le fer au dragon projette son éclair! |
 Mais la lance se brise aux écailles et seule
 L'épée enfin se fraye un chemin dans la gueule! {
 
-| L'ÉCUYER
 Sauvé! Sauvé! Cher fils! Aux vergers lumineux
 Où coule, fleuve clair, la vie, en mille nœuds,
 ; Marche, triomphateur, avec ta joie illustre,
 Dans ta gloire éclatante et pure comme un lustre!
 O mon élève cher!
-| Rapides alcyons
 Qu'un large vol emporte où nous habitions,
 Annoncez au bon roi que l'épouse est conquise
 à Dont la virginité lui doit paraître exquise
@@ -680,7 +507,6 @@ Et vers qui j'ai bondi comme un trait vers la cible. :
 Du bon navigateur, agile en bien des jeux,
 Seigneur, on m'a conté le retour merveilleux.
 
-NE OP R TEE Maure 2 PAS END
 | Coulent vos jours ainsi qu'un ruisseau de prairie !
 N'êtes-vous pas de ceux dont la lèvre est fleurie
 De chants harmonieux et de mots exaltés ?
@@ -745,7 +571,6 @@ Auraient pu retrouver le bras qui le frappa,
 Vous vous êtes enfui! Mais ta vile prudence
 N'a fait que retarder l'orage qui condense
 Ses nuages sur toi! Chevaliers !
-Ne hâtez
 Point l'offense aux devoirs des hospitalités,
 
 la tragédie de Tristan et Iseut
@@ -782,7 +607,6 @@ J'ai cru qu'elle annonçait un espoir de tendresse,
 De la gueule, a fouillé jusqu'au cœur du griffon,
 Afin que, de mes mains, par l'exploit s'accomplisse
 . La promesse d'amour brillant dans ce fil lisse!
-| GORVENAL
 Vois, Tristan : La princesse écoute en se taisant
 Et ses mains ont caché son beau teint rougissant :
 Serait-ce ton pardon ?
@@ -797,7 +621,6 @@ Un même instant les vit s'envoler de la chambre
 Mais ils avaient laissé, comme un long filet d'ambre,
 Glisser en ondulant aux dalles de granit
 Le cheveu que chacun disputait pour son nid.
-> 25
 
 la tragédie de Tristan et Iseut
 Alors, pour m'éprouver, d'une mine hautaine,
@@ -891,21 +714,6 @@ Iseut va me quitter ! Mais toi, fidèle serve,
 Des soucis maternels rends moins lourdes mes parts ;
 Qu'ils s'aiment : Iseut et Marc ! Prends ce philtre et pars !
 
-| LE AU MASENS ri En a D A A RUE LE
-
-La CM PORC dog ANUS Ai PO AC HAS EANRS EAN à Dion
-
-°° LAC RE DEUXIÈME je
-
-> AA de RUE È gr Le D RE:
-
-Nes Ho Pr DIRAUE DES 24 RAA hi SET
-#0 Du DR NE A AE AE Po a L'HÈoe
-
-UE AE an U a N'ACAP RTL ES pes AT LADA A DAT AU AG AAI NI ANS En
-
-Ma MCE Nue
-
 Une tente sur le pont d'un navire.
 Danses et chants
 Bien, jeunes gens ! Fêtez, par vos ébats en chaines,
@@ -939,7 +747,6 @@ Cependant, le trésor gardé dans ce coffret,
 Quel est-il, dis-le moi, sur lequel tes deux coudes
 Se pressent, cependant que tu rêves et boudes ?
 Des parures d'Iseut.. que sais-je ?
-Tu mens!
 35,
 
 la tragédie de Tristan et Iseut
@@ -1014,7 +821,6 @@ Enveloppez Iseut de vos brises mystiques
 Et caressez, à vents frais de l'immensité,
 De vos souflles calmants son front perséeuté !
 
-L'indestructible mal!
 Pâle verdeur des mousses,
 Qui dans nos froides mers lavent leurs folles pousses,
 Mon œil ne te voit plus! Et vous non plus, glaciers,
@@ -1062,10 +868,8 @@ Sinon tourner sans fin, avec de vains sanglots,
 Dans la double prison des destins et des flots ?
 Que pense-t-elle ? Assez! Brangien, morne guetteuse !
 Détourne de mes yeux ton regard qui les creuse !
-|
 
 Va-t-en! Va-t-en! Va-t-en! Souviens-toi désormais,
-Si d'un appel pressant je ne te le permets, .
 De ne plus revenir! Laisse-moi pleurer seule
 Dans ma faiblesse indigne et mon désespoir veule !
 Sans doute, qu'elle sorte ! Et quel ami pourrait
@@ -1183,8 +987,6 @@ Celui-là n'a jamais vers un corps désiré
 Poussé d'un pâle amant l'appel désespéré!
 La femme de tes sens n'est pas encor bannie
 Que je ne puis nommer?
-Il sait! Ma félonie
-Est publique !
 Moi seul, enfant, j'ai pénétré
 Dans ta souffrance intime et ton amour sacré;
 Et quel autre que moi saurait plonger et lire
@@ -1316,8 +1118,6 @@ Avoir la solitude à jamais pour hôtesse !
 
 Que je ne fus aux jours de gloire et de revers
 
-|
-
 Où, mon esquif petit roulant au gré des lames,
 Une harpe m'était des voiles et des rames,
 Tandis qu'abandonné dans l'étroite paroi
@@ -1377,7 +1177,6 @@ Te décernant le prix de la mort du dragon,
 
 3 Mon père m'ordonna, comme au captif qu'on livre,
 
-j De te donner ma main tremblante et de te suivre !
 Oui, tu sais tout! Eh bien, rayonne donc plutôt
 Que de cacher ton front d'un pan de ton manteau
 Et de:gémir ainsi qu'un exilé sans frère,
@@ -1420,34 +1219,10 @@ Et pour ceux-là, qui la vidèrent jusqu'au bout,
 Dans la coupe d'amour la mort est endormie,
 Ils n'ont pu boire l'un sans boire l'autre !
 Crains-tu la mort ?
-Je n'ai ni crainte ni remord;
 Que la mort vienne donc!
 Que vienne done la mort,
 , Pourvu que nous ayons, d'une bouche ravie,
 Dans un large baiser eueilli toute la vie!
-
-LATE NI 1 Pan CR TN PRO DEBAT N ua Ke ren FRE VE SERRE
-0 fe Nu RSS SES
-| FACE à ! FANET i! CIC RENE :
-
-(ur Lau vit FU PTAÉ AÉrU AGE £ + ; É se DC & par SR
-
-HAE it Fe j 2 UNE V SA i je EE:
-4 ARTE TRANS PART N h) ft NA ARENSERT à Eee NE 44: rene
-
-SANTO EUR Les EE oi A 0 : PT Ai LOUE TS MORE) x
-BR Re ne SM RO TIRRS us ee TE) MAINS SP UE PA RE
-PEN ; san) Et FUEL M RESTES
-#4 _ L'AIR EEE ES I NCA RE ARE AE ET Te ARE dE FANEE
-0 son LA RUES PMATEE à bg e PAUSE
-
-NN A MR MEN ETS (PL is so PATE No Que
-
-D RASE TE CEE Lies BAPE ne ARE OV ESS
-
-NRA Mare ut toi EL EN ALES ral LAN SEE CSS
-
-Rs PA ne ne EU A RSA It RRQ, Ste NES at) ee
 
 La nuit, devant le château de Tintagel.
 O belle aux cheveux d'or! Je n'imaginais point
@@ -1656,7 +1431,6 @@ Et l'amour qui se trompe, avec l'erreur.
 11 disparaît dans le château.
 Quoi! disparu déjà sans que pour son sermon
 Accusateur, ma main le châtie et l'abatte!
-Car il accusait ! Et si ma crédule hâte
 
 L'écoutait, je devrais, caché sur ces gradins,
 De mon noble manoir surveiller les jardins ;
@@ -1710,9 +1484,6 @@ Oui! Qu'Iseut vienne ! La cage
 S'ouvre et le rossignol vole à son cher bocage.
 
 Hélas! Pas une nuit prudents !
-
-Tu dis?
-Que j'ai
 
 La main, par qui fut vendangé
 
@@ -1880,8 +1651,6 @@ Pour parvenir à toi ne le pourrait franchir.
 Notre couple avec lui porte en chaque refuge
 La jeunesse sacrée au Dieu mème qui juge.
 
-Le roi! Le roi!
-
 la tragédie de Tristan et Iseut
 Il vient. Dans le château
 Il erra sans sommeil quelques instants. Bientôt,
@@ -1900,11 +1669,9 @@ Es-tu sorti si tard? Est-ce quelque prouesse
 Que tu cherches, ou bien ressens-tu la détresse
 D'un remords qui, la nuit, pèse plus lourdement ?
 Un songe affreux que j'ai fait.
-Un songe, vraiment ?
 Un songe? Ah! Ah! tu dis un songe ? Elle est bien lente
 Cette réponse si simple, et combien tremblante !
 Et te plaît-il conter quel songe ?
-Un sanglier
 Blessé me poursuivait jusque hors du hallier…
 Je m'éveillais; mais la bête, traînant son ventre
 Ensanglanté, hantait la chambre comme un antre.
@@ -1987,7 +1754,6 @@ La raison de tous deux exige un sacrifice;
 Et plus tard, délivrés du hideux maléfice,
 Nous recommencerons le passé ; — mais d'abord
 Il faut nous séparer, mon fils; — quitte le bord
-De Cornouailles ! :
 Quoi? Vous m'exilez! Le pacte :
 Est bien rompu, qui nous enchaïnait, et votre acte
 Impitoyable, à roi ! Terre! Terre où mon pié
@@ -2037,35 +1803,8 @@ Avant que de partir il n'est pas superflu
 Que je lui dise, Marc, de ne vous croire plu!
 Ne pense pas encor rentrer dans ma demeure.
 
-a 4 Ha! tu tends le bras. Ose donc! Que je meure 3:38
-AS ns = 0 Res SET AS 2 DE T RAEEC Y Û 2780
 FN 17 je te mène pas moi-même jusqu'à l'huis ! " Ÿ 14
 Va devant moi! 104
-| LCORSNNE OR > : 3 LINE
-| SEMESTRE ISEUT NE
-ete a ñ ; \ Va! Tristan ! Je te suis! ee
-
-FAN a OM NE »{ MANIERE RE AN TE ne AT
-Sal PAR Lu ja) Rene en AN AN ES As D EU NO ONU
-TN AMP MEINE ET DA AUIQ RENTE EE re EEE 4 ea gate (;
-NON INRenNAn MN ARE Et en Re,
-_ LAS ENEESS D EE AU VAN LA it ARE EL
-Le PM PMR MAT EN SEE n ms UN rl NP tre Né HA RS LR
-ANR AP AE SN CEA LR re ne Fa PA NE ar US AREA
-LES tre al CNE Ne Ur CHA RAIN HE RE EUX
-MUR H ke AO CAN ARR AT A A Re An le MAT LT
-LORIENT Aer RENE 1 NAS (hi je EAN PARIS
-
-He nee Roots PAR HUE ANT SAN OL nue SR RE
-MES PRESENT er ARE fie UN EEE RCE AE NRA TOR te SRSE FE RE
-Y'A TÉENÉNNESSES e # ne)
-
-| LÉ ENRE ere SANTE DANCE HET He AA LS tas A Lee Pate UM
-RE à. ‘(4e ce > EU MNT nas et
-RENE (et { à PE Enr) \ ' ÿ SALE 71 LL INR
-{SET ne TD N À a! Tone ARMES AT OEA :
-LLC TRAINERS her à 35 AN FU CAR HR RTE ne,
-AT dnnst DR Va à Er dj AE RE a Tr CE ES PAPAS a
 
 Une grotte dans la forêt.
 Voici le premier jour de l'été : la ramure
@@ -2144,8 +1883,6 @@ L'ouragan n'en a point chiffonné le satin
 Et sa verdure est fraiche, ainsi qu'à son matin,
 D'où s'élance, élargie en corolle, une antenne.
 
-| ACTE QUATRIÈME
-
 Là-bas, sur l'herbe grasse, autour de la fontaine,
 Les tilleuls parfumés vont bientôt s'effleurir :
 J'avais dit à Brangien, la douce, d'y courir
@@ -2190,8 +1927,6 @@ Quelle bête as-tu vue ?
 Un cerf rare, et serré
 Par ton limier Husdent: muette est la poursuite,
 
-OR RP EE MR AP LE QU ra EN Am
-
 I1 le chasse vers nous en lui coupant da fuite ;
 Fils, tu l'as bien dressé : l'éclat de ses abois
 
@@ -2208,7 +1943,6 @@ Dont nous avons lous deux été les artisans.
 Ami, chante ton lai qui passera les ans,
 Dis comment sur le sol que le bois mort endeuille
 Au coudrier rompu s'enlace un chèvreféuille,
-où
 
 la tragédie de Tristan et Iseut
 Module : « Iseut amie, ainsi s'en va de nous :
@@ -2253,7 +1987,6 @@ Sans réclamer de vous ni bienfait ni présent,
 97 7
 
 la tragédie de Tristan et Iseut
-RNA RE AE PRESS PUMA r I fe ne ee, Eat NUL)
 Vers leur pur nid d'amour qu'enelôt la forêt vierge,
 De mon œil conducteur je vous prête le cierge ?
 Regardez cette grotte : elle est, loin des cités,
@@ -2284,7 +2017,6 @@ Vous rappelle là-bas: Frocin, après ce prône,
 D'un ermitage vrai goûtera les saveurs,
 Les amants morts ou bien partis vers vos faveurs!
 Je les tuerai, Frocin!
-Ah! bravo! Je préfère
 Cela, car c'est écrit : ce couple, dans ma sphère,
 Sans cesse portera quelque ombre ou quelque accroc.
 Mais vous n'en aurez pas le courage : c'est trop!
@@ -2334,7 +2066,6 @@ Seigneur, les voici!
 
 Je ne suis pas trop exigeant. Ainsi
 Chassez-les : c'est vraiment tout ce que je demande.
-Ils périront !
 Craignez que votre cœur s'amende!
 Ciel! je les vois ! Beaux, radieux et frais!
 Ah! je ne croyais pas que je les reverrais !
@@ -2398,7 +2129,6 @@ Et les déclarer, eux, sans reproche!
 Ne lui révèle pas le charme de ce lien
 Que nous seuls sachions nos destinées !
 
-O ma sœur, va!
 Seigneur, votre cœur, que surprend
 Ceci, pour le comprendre est vraiment assez grand
 Mais il est des secrets pour la bouche indicibles.
@@ -2458,7 +2188,6 @@ Et qu'il eût, en un jour, soudain désavoué
 Avec tous vos bienfaits son passé dévoué,
 Si quelque force, plus que ses souvenirs forte,
 N'avait dans son esprit déchainé sa cohorte ?
-| MARC
 . Quoi! l'adulière, ses baisers, ses voluptés,
 : Ils seraient innocents ceux qui les ont goûtés?
 Cela ne se peut pas! Je le sens! Je l'affirme
@@ -2501,10 +2230,8 @@ Pas! Il n'osera plus!
 15 Il nous séparera ! - Fe
 4 Il le peut trop. ë
 D Nous pourrons choisir entre Fe
-‘4 Ë L'obéissance et la. 4
 #1 Que la mort plutôt entre é -
 ‘4 \ Dans la grotte d'amour ! <
-% : Non! Nous obéirons ! k
 Le Iseut, je ne peux pas laisser aux flancs des troncs, Fi :
 110 Près desquels si souvent vibra notre caresse, a)
 ñ Couler le sang du corps qu'avec bonheur je presse ! 4 Ë
@@ -2533,14 +2260,12 @@ Je vivrai, quoi qu'il coûte, afin que toi sauvé,
 Et suivrai, pour toi seul, son ordre réprouvé!
 Mais je ne souffre pas que ta voix se repente
 De m'avoir de l'exil laissé suivre la pente!
-Non! Non! Car il me fut trop bon de me cacher,
 Tapie auprès de toi dans le creux du rocher,
 Et parfois accrochant l'hermine que je porte
 Aux glaçons hérissés sur la verdure morte ;
 Puis lorsque le temps clair fit pousser les bourgeons,
 Sous des branches en hutte ou sur un lit de jones,
 110 4
-|
 
 D'écouter près de toi, qui si bien les imites,
 Tous les petits oiseaux, advolés des limites
@@ -2573,7 +2298,6 @@ Demande à conserver pour lui seul la souffrance,
 Crois-tu qu'Iseut consente à ne point partager
 La lointaine amertume où tu vas te plonger?
 Oui, lointaine ! Mais jure, en quelque lieu que j'aille,
-Car il me va falloir quitter la Cornouaille,
 En quelque temps aussi que ce soit, sans délais,
 D'accourir près de moi si jamais j'appelais, 3
 Comme je jure ici, si jamais tu pourvoies
@@ -2606,7 +2330,6 @@ Tandis que vous seriez, dans votre humble caverne,
 3 Plus heureux que le roi, seul dans sa gloire terne !
 Terre où les laboureurs n'ont pas poussé leurs socs!
 
-| MARC
 Brangien! je t'emmène !
 Brangien paraît à l'entrée de la grotte.
 Brangien, dans sa prison suis cette forme humaine!
@@ -2652,28 +2375,7 @@ Son apparition prévue et surprenante ! à
 Subir cela serait plus que l'homme ne peut!
 Dieu ! l'éternelle absence ! Iseut! Iseut! Iseut!
 
-Lt ip SÉTAS MA RE AUS : nue PEAU 1 EN TETEAN À de RENE AUMENR “ DRE re
-14e ot à DUT L "ER ul ts 2 i! N Hi à ATP F FAR Dr,
-| LATIN AT AT dre PAIE HAL A RER KL TE
-| 79) CRE ANS PU TRERE LES AT NRA 1 ONE
-TR NA js nor LE 5 j* ne) “es $ El sk 1 vos
-NAN ER SA POSE ORAN REA AT fus: SO LRU
-JMS lent ra PACE TA to et ES D RATES LLIERS NATTUE
-|A ANNEES Spb UE at AR AT EE Ne CA ONE US LL TÉTRTNEN Ÿ
-
-F Ag :; M AA Le EEE 5e tv À MERE PRET NS CNE RUE ar:
-DR de Le ROBOT Eee EE +5 NE
 || LT RSS ete que L'HUUS
-
-AVANCE EX on
-A a A NE NE LAS td at AAC US
-
-D res, on #0
-LR ARMOR Al TU Ep Dre RTE SRE LE: AMENER
-
-1 ASS PÉTER RSR NAN TA TES he NON AU Late SE PRE Un
-
-LÉ TOUR eu Re en AT NE te Le
 
 Une Salle du Château de Tintagel.
 
@@ -2749,7 +2451,6 @@ De son séjour lointain. Et seule l'adorée è *
 La trouvera ! J'irai moi-même, sans surseoir,
 Je ne me connais plus de seigneur au manoir, ‘
 
-#
 Le nuage est mon maître et le vent qu'il recèle;
 Que m'emporte vers lui leur course universelle ! à
 Ab ! Tu me l'avais dit, sombre prédiction !
@@ -2762,12 +2463,10 @@ f « Tourmentés des désirs qu'aucun baiser n'apaise,
 t « Sans que jamais l'honneur ni le devoir leur pèse,
 « Ils courront tous les deux vers leur double cercueil
 È « Comme un esquif, poussé par le flux, vers l'écueil ! »
-Il m'appelle, Brangien !
 : Voici bien des journées
 Que vous pensez ceci...
 : Par la mer amenées;
 * Des clameurs, par moments, m'arrivent.…
-: Un signal
 Croyez-vous ?
 
 la tragédie de Tristan et Iseut
@@ -2777,17 +2476,12 @@ D'un miséreux, merci!
 Tristan ?.. Parle! Je fouille
 Tes yeux pour deviner!
 Puissiez-vous le revoir !
-Il meurt!
 
-#
-
-| GORVENAL
 Vous êtes prompte, Ô reine, à tout savoir!
 Brangien, il m'appelait… ê
 Reine, le temps nous presse,
 La nef qui m'amena demeure prête et dresse
 Sa voile sans répit !
-Le: Où Tristan ?
 Et la Bretagne est loin de la terre de Marc!
 La Bretagne est la halte où son pied las trébuche ;
 En vain de chaque peuple il a couru la ruche,
@@ -2878,7 +2572,6 @@ Tristan enfin m'appelle, il demande, il implore
 Le droit inespéré de me revoir encore! :
 
 la tragédie de Tristan et Iseut
-Quoi !
 Daignez me permettre un langage écouté !
 Depuis que le pardon fut par nous accepté,
 De ce pacte, seigneur, quelle que fût la clause,
@@ -2957,11 +2650,9 @@ Elle ait du moins regret de ne pouvoir m'aimer ! À
 Tu peux partir, Iseut, ton époux l'autorise !
 
 # Entrez, mes preux !
-La décision prise
 Vous tous connaissez-la : Rejoignant mon neveu,
 La reine va partir et c'est moi qui le veu! É
 Heureux le cœur rempli d'un amour admirable
-Qui, s'il n'a pu trouver un accueil favorable,
 Par l'abnégation et le renoncement
 Sait du moins affirmer son noble sentiment,
 Et faire à celui-là que' vainement il aime -
@@ -2969,13 +2660,6 @@ Le sacrifice auguste et complet de soi-même !
 Je meurs, je ne verrai plus jamais votre loit ;
 Dieu vous garde, seigneur !
 Gorvenal, hâte-toi!
-
-AR Re DER LE AP PAR ANRT AT PS EL TR HR LEE) ABET te Le ARE RT de à
-DC 0 SN as LAS CES
-M nu PNA EEE (PACS RE A or ne
-1 ERA RER TPehEl LE Mid ACROSS a:
-+ ARTE (D HAE MENACE 4 AA UT Dot) de
-DE fi (25 AN 4 R ti. (NAMUR ES Fi
 
 Une tempête sur la grève de Penmarch.
 Toujours son appel inlassable !
@@ -2994,7 +2678,6 @@ Le salut longuement pour elle préparé;
 Tu le lui donneras !
 
 D'entre vos yeux, ne quitte un instant la tempête!
-Je t'écoute, Tristan.
 
 Cher fils d'un père honnête,
 à Sous lequel la Bretagne est fière de servir,
@@ -3020,29 +2703,23 @@ Tes craintes; parle pour celle que nous aimons.
 Dis; je retiendrai tout !
 
 Elle ne viendra pas!
-| KAHERDIN
 j O désespoir léger ! Elle viendra !
 
 Qui ne la connaît pas, près de moi la défend ?
 
 ; la tragédie de Tristan et Iseut
-Elle viendra !
 Plût à Dieu ! Mais Gorvenal tarde,
 Tu vois, à la convaincre et, seul, il ne hasarde
 Point de retour !
 Eh bien ?
 Apaise-toi! e
-Mes amis, si Dieu veut
 (Car il ne faut jamais, même quand l'heure passe,
 Ne plus espérer des surprises de l'espace)
 Qu'un vaisseau par ce temps entre dans le chenal,
 Regardez bien la voile, amis, que Gorvenal
 
-| ACTE CINQUIÈME
 | Hissera comme un signe au-dessus de la hune
 Et de qui la blancheur dira bonne fortune!
-‘Ils savent.
-| TRISTAN
 ÿ Oui! Oui! mais l'océan est trompeur ;
 ; Je le connais : souvent, dans la molle vapeur
 4 Qui le caresse, j'ai cru voir la voile blanche,
@@ -3055,8 +2732,6 @@ Plus d'une fois, et les astres m'ont bien déçu!
 | Regardez! Un vaisseau peut être inaperçu
 Là-bas derrière ce mobile monticule !
 | Viennent-ils?
-| KAHERDIN
-Pas encor.
 
 la tragédie de Tristan et Iseut
 Mon cœur bat à se rompre au plus léger espoir,
@@ -3090,8 +2765,6 @@ Au temps de votre quête et lorsque je doutais
 Par l'impossible et certe ! un homme se retrouve,
 142 3
 
-| F ACTE CINQUIÈME
-
 Surtout quand il a nom Tristan. Or il fallait
 
 1 Me chercher en tous lieux ! Partout où l'on allait
@@ -3119,8 +2792,6 @@ f Le long rugissement en moi de mon chagrin! >
 Mais moi je n'ai trouvé, sur tout mon long parcours,
 
 De mon bonheur unique aucun, aucun secours !
-
-| KAHERDIN :
 
 } Quel accompagnement à sa voix que la rage ‘
 De l'ouragan ! Ceci me paraît un mirage
@@ -3151,7 +2822,6 @@ Et, sans en rien remettre aux douteux lendemains, k
 Les désirs inquiets, les espoirs surhumains, :
 Lui versèrent à flots, de leurs urnes fécondes, Ê
 L'éternel infini dans de brèves secondes!
-|
 
 Il est peut-être vrai.
 
@@ -3175,34 +2845,20 @@ Pour la quérir !
 la tragédie de Tristan et Iseut
 ; N'importe ! Elle te peut guérir ;
 Or il faut qu'elle vienne! ;
-Elle vient!
-Il me trompe
-Pour me retenir !
 Non! Tu vas ouïr la trompe
 Du vaisseau ! Je le sens! Iseut! Iseut! Je sen
 Ce qu'autrefois, lorsqu'elle avançait entre cent!
 Quelque chose, je te le jure! la précède !
 Un vaisseau! — Le vaisseau de Gorvenal! — A l'aide!
 Comme il est rudoyé!
-La voile? Regardez!
 
-PRET Et 20 hope ARR TEUS UR
-DEA Ur fre Sn Les AU LA “5
-to RS EN RARE LE PEUPLE \ e HR”.
 La voile est blanche! fe de LATE
-NE CT Tsent! Ieeut ! ; Ai
 
-ANSE î À Ah! vous tardez VC
 À | A les secourir, vous ! Re
-ue ‘5 MR Le peuple sort. L ÿ cE %
-LATE ad ne É S à:
-D OU AND D Gris an on ss
 
 la tragédie de Tristan et Iseut
 Il s'est brisé !.…
 Je ne la verrais pas!
-‘ L'ami m'a tué!
-Il tombe.
 Elle aussi, sûrement, car là-bas ils ont hué!
 Morts tous deux et si près! Le destin n'est pas pire!
 Il ne vivra plus bien longtemps, quoiqu'il respire.
@@ -3236,8 +2892,6 @@ Roule de l'argent clair dans sa majesté mûre !.…
 En verra l'harmonie et la fidélité.
 Oui, la fidélité !.… D'une bouche ravie
 Dans un large baiser cueillir toute la vie!
-Il meurt.
-KAHERDIN, TRISTAN mort, LE MARIN BRETON
 Seigneur, ils sont sauvés !
 Les secours divins sont arrivés
 Trop tard! Hélas ! Tristan est mort ! qu'on avertisse
@@ -3247,11 +2901,8 @@ De la nature, 6 toi, qui nous fais pour ceux-là
 Dont la vie était belle ébranler tôt le gla,
 Et qui mêles sans cesse, en un cruel caprice,
 ; À l'amour créateur la mort dévastatrice,
-| Tristan ! Tristan !
 KAHERDIN, au corps de Tristan
 | ‘Réponds des cieux!
-| SCÈNE XI
-| ISEUT
 
 la tragédie de Tristan et Iseut
 Et moi non plus n'aurai revu tes yeux.
@@ -3289,7 +2940,6 @@ Enfin, la forêt vierge, où l'étroite fossure
 
 S'enchantait des chansons que l'été plein susurre ;
 
-| ACTE CINQUIÈME
 Et toujours nous sentions des choses approuvé
 | Le principe jadis en elles conservé
 Et dont le sort, meilleur que les hommes ne croient,
@@ -3301,21 +2951,6 @@ Pour avoir su le goût des caresses qui tuent...
 Elle se penche tout entière sur le corps de Tristan et meurt dans
 un baiser.
 
-1F$e Les COR Era #
-Ka, (RENE Never PAR ee je ei à es : PNR LAPNPE A PONT
-PR NE ee EN RM EU CE LE EL AU AE EE
-LIRE L pen s v LR 0 SONMINEES
-
-DER RIFRRE dit: RM NEE Amie ie JUS A ARE 1!
-
-RAR MEN TE PME ANR 4 ET RU CERF pu
-
-2 FU ON er RP ANR D HR RES ne to AA
-re « VC 4 | à DMX FAURE ne Au”
-| ACOPEREI whe È Fe L jee + AURAS CURS Mage
-eu LU ES AT DE SE EN SR EU TENUE
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles
@@ -3343,11 +2978,6 @@ L'abonnement ordinaire cesse de fonctionner pour chaque
 série au plus tard le 31 décembre qui suit l'achèvement de cette
 série; ainsi du 2 octobre au 31 décembre 190{ on pouvait encore
 avoir pour vingt francs les vingt cahiers de la cinquième série
-
-LANTERNE FAR ue di NE c! Ti Fa nee Sn ES VAUT ES UNE GA 5 NS CENTER
-re FRE A FE HAE en tie CORRE FA Dr on RAA PA OS Re
-103 ape 7e TRES "Ù PATATE) AE AE NRA ty L'AR Nr RE ÿ
-| LMI 35 à ANTENNES À ss 12) CHAOS tr
 
 : À partir du premier janvier qui suit l'achèvement d'une
 série, le prix de cette série est porté au moins au total des prix

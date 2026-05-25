@@ -8,29 +8,11 @@ isAvertissement: false
 ocrSource: "Archive.org vision OCR 2026-05-24; HathiTrust alt-scan splice for pp.20-21, 118-121 (see PROGRESS.md §1)"
 wordCount: 42755
 ---
-[leaf 0270]
-
 7
-
-[leaf 0271]
-
-[leaf 0272]
-
-[leaf 0273]
-
-[leaf 0274]
 
 11
 
-[leaf 0275]
-
-[leaf 0276]
-
 13
-
-[leaf 0277]
-
-[leaf 0278]
 
 dans la prison
 
@@ -52,8 +34,6 @@ tenait la lanterne, en tête du cortège de mort.
 (1) Mes Cahiers rouges. Cahier IV, page 28.
 
 15
-
-[leaf 0279]
 
 Sainte-Pélagie, qui donne rue de la Clef, celle que nous
 avons si souvent franchie, du temps de l'Empire, est
@@ -91,8 +71,6 @@ pattes appuyées sur les cuisses. Quand un visiteur
 
 16
 
-[leaf 0280]
-
 frappe à l'huis, Méchin se lève, va tirer le verrou,
 entr'ouvre le lourd battant. On passe. Et Méchin
 n'oublie jamais d'esquisser le salut militaire, tout en
@@ -128,8 +106,6 @@ Et le colosse, d'un geste de mélodrame, brandit, sur
 
 17
 
-[leaf 0281]
-
 la tête de Méchin angoissé, une hache, une vraie
 hache, dont le tranchant luit comme l'éclair.
 — Méchin, ta dernière heure est venue... La Révo-
@@ -164,8 +140,6 @@ dans la nuit du mardi 23 mai, les exécuteurs.
 Je regarde B. Il comprend mon interrogation muette.
 
 18
-
-[leaf 0282]
 
 — Oui, c'est là qu'ils sont entrés... Des hommes
 
@@ -206,8 +180,6 @@ Nous remontons vers l'entrée de la prison, au greffe
 
 19
 
-[leaf 0283 — repaired 2026-05-24 from HathiTrust]
-[leaf 0284 — repaired 2026-05-24 from HathiTrust]
 [NOTE] Real Vuillaume pp.20-21 sourced from HathiTrust alt scan and spliced in 2026-05-24, replacing earlier [POLLUTION] markers. Original Archive.org bound-in Milliet content (s13-c09 "un cas de conscience" / "SÉJOUR A ROME") preserved in raw/s13-c11-ocr.txt.bak-pollution.
 
 où fut interrogé Chaudey. Et, tout en marchant, je songe encore au 248ᵉ, à Régère, au fils chef de bataillon, à Rigault... Non, Régère ne peut avoir été mêlé au drame. Je l'ai connu. C'était un doux. Son fils Henri, non plus, n'était pas un sanguinaire. Je le revois, en uniforme de brigadier de dragons, arriver, échappé de Sedan, à notre brasserie de la rue Saint-Séverin, au bras de son père, déjà des nôtres. Longuet le choisit, quelques jours après, comme capitaine adjudant-major... Non, encore une fois, il n'y a là qu'une coïncidence. Ni l'un ni l'autre des deux Régère n'a été complice de Rigault. Le 248ᵉ était du quartier. Il était de garde à proximité. Une dizaine d'hommes ont été réquisitionnés. Ils sont venus. Ils ont fait la sinistre besogne.
@@ -231,8 +203,6 @@ Nous montons, B., G. et moi, l'escalier du pavillon de la Presse. Chaudey était
 — Quand j'entrai dans sa chambre — continue B. — Chaudey était assis, là, entre ces deux fenêtres, à sa
 
 21
-
-[leaf 0285]
 
 table de travail. Il se dressa vivement, la main appuyée
 sur un livre qu'il lisait, sa haute taille enveloppée dans
@@ -270,8 +240,6 @@ plus loin.
 
 22
 
-[leaf 0286]
-
 avec Slom, (1) du 23 Mai. Slom avait assisté, au greffe
 de la prison, à l'entrée de Chaudey, à son interroga-
 toire par Rigault. Slom n'est plus. Il a laissé, de cette
@@ -307,8 +275,6 @@ rouges, IV, pages 26, 116 et suivantes.)
 du procureur de la Commune.
 
 23
-
-[leaf 0287]
 
 CHAUDEY. — J'ai fait mon devoir.
 (Trois fois même question, trois fois même réponse.)
@@ -348,8 +314,6 @@ en 1880, nommée à un poste, dans l'enseignement des dames
 d'assistance, à la Ville de
 
 24
-
-[leaf 0288]
 
 Paris. Les recherches ont été vaines. Je regrette d'autant plus
 qu'une conversation avec la veuve du commandant tué
@@ -392,8 +356,6 @@ debout... tête nue. Il avait gardé sa robe de chambre.
 Quand l'interrogatoire fut terminé, il jeta un regard sur
 ceux qui l'entouraient. Rigault était resté assis devant
 
-[leaf 0289]
-
 la table... B., sur un signe de Rigault, sortit. Il revint
 avec une lanterne... Le cortège se forma. B. en tête.
 Chaudey. Le commissaire Clermont. Préau de Vedel,
@@ -432,8 +394,6 @@ Le peloton du 258e attend. Face au mur d'angle.
 
 26
 
-[leaf 0290]
-
 Pendant le trajet, au témoignage de Slom, et aussi
 de B., il n'a pas été dit une parole... Les pas résonnent
 sur le pavé...
@@ -452,7 +412,6 @@ la Dette, à droite, une borne, surmontée jadis d'un
 réverbère appendu à une corde. Le réverbère, dont j'ai
 vu la rainure, encore existante lors de notre visite,
 était déjà enlevé en 1871. La lampe de B. éclaire seule
-la scène. (1)
 
 Rigault se place contre le mur de gauche, le mur de
 pierres meulières. Derrière lui, Slom, et, à côté, le com-
@@ -472,8 +431,6 @@ Brusquement, Rigault tire son sabre.
 (1) Voir plus loin le croquis, fait par Slom.
 
 27
-
-[leaf 0291]
 
 Un bruit d'armes... des crosses qui frappent les
 pavés... Un coup de feu isolé...
@@ -511,8 +468,6 @@ par Edgar Monteil. Une brochure, 26 pages, Paris, Charavay, 1885,
 
 28
 
-[leaf 0292]
-
 pourtant pas un homme de premier plan. Les situations
 périlleuses, comme celle qui l'a surpris à l'Hôtel de
 Ville le 22 janvier, le trouvent quelque peu désemparé.
@@ -544,8 +499,6 @@ n'avait été atteint que dans le chemin de ronde. Ou le poursuivit.
 Rejoint près de la chapelle, il fut ramené devant le
 mur et fusillé.
 C'est à ce moment, quand le gendarme s'échappe,
-
-[leaf 0293]
 
 que, d'après le récit de Préau de Vedel, Slom aurait
 saisi le revolver du commissaire de police Clermont,
@@ -583,8 +536,6 @@ On a dit et écrit partout que Gustave Chaudey avait
 
 30
 
-[leaf 0294]
-
 n'est pas Pilotell qui arrêta Chaudey. Quand, le 13 avril,
 il se rendit au domicile de l'ancien adjoint au maire de
 Paris, ce dernier était absent. Pilotell perquisitionna,
@@ -594,8 +545,6 @@ J'ai demandé à Pilotell de me faire un récit détaillé
 des incidents qui entourèrent l'arrestation. Voici, sans
 y rien changer, la lettre que je reçus de Pilotell. Je la
 transcris à titre de document historique.
-
-Mon cher ami,
 
 ... Après le déjeuner ordinaire à la Préfecture de
 police, le 13 avril, où nous étions toujours une vingtaine (1)
@@ -610,8 +559,6 @@ s'éteindre à Nancy, à 80 ans. Comme chef de partisans en 1814 et
 1815, il rendit à son pays des services signalés. »)
 
 31
-
-[leaf 0295]
 
 commissaire. Arrivés à la bonne, nous lui entrer. Madame
 Chaudey ne demanda ce que je désirais.
@@ -628,8 +575,6 @@ chercher un serrurier.
 Un quart d'heure après, le tiroir de droite du bureau était
 ouvert. J'y trouvai des papiers assez importants, et, de
 plus, un brouillon de lettre, non finie, que je lus.
-
-          « Mon cher Picard,
 
 « On m'a laissé seul (1) avant hier, à l'Hôtel de Ville (le
 22 janvier évidemment) et j'ai été prendre sur moi de le
@@ -654,8 +599,6 @@ au dire du sieur Picard, comme on le verra plus loin, été très vif. Les trois
 n'avaient guère plus de 20 ans.
 
 32
-
-[leaf 0296]
 
 — Mais, monsieur, vous me laissez sans argent, dit
 — Avez-vous assez de cent francs? dis-je à madame
@@ -697,8 +640,6 @@ nouvel ordre à la Préfecture de police, plus un paquet de lettres. »
 
 33
 
-[leaf 0297]
-
 Arrivés à Mazas, Chaudey, se tournant vers moi :
 — Je n'ai encore rien pris...
 Et comme il faisait mine de tirer de l'argent de sa poche :
@@ -718,8 +659,6 @@ se rendre à Sainte-Pélagie. (1) J'étais de jour-là (23 mai) avec
 Ferré, que je quittai rue Hautefeuille pour ne plus jamais le
 revoir. Je ne revis Rigault que mort, rue Gay-Lussac, le
 
-À toi.
-
 J'avais posé à Pilotell deux questions. Les voici, avec
 les réponses :
 
@@ -737,8 +676,6 @@ soir à Sainte-Pélagie. Il ne dit pas toutefois à Pilotell ce qu'il se
 proposait d'y faire.
 
 34
-
-[leaf 0298]
 
 2° Sais-tu d'où vient la résolution prise par Rigault
 de fusiller Chaudey? Brusque. Où déjà décidée de
@@ -771,8 +708,6 @@ aucune condamnation. Les séances du jury d'accusation furent
 interrompues par l'entrée des troupes de Versailles.
 
 35
-
-[leaf 0299]
 
 leur donne rendez-vous aux Quatre Chemins, en face
 de l'église Saint-Pierre, pour, au premier signal des
@@ -807,8 +742,6 @@ manifestation en faveur de la Commune.
 
 36
 
-[leaf 0300]
-
 je passe dans une inutile action en temps précieux que
 je brûle de copsacrer au service de Sa Majesté. » Sapia
 reprend du service, mais ce pour démissionner encore
@@ -841,8 +774,6 @@ brunes, Sapia est orateur facile. Il est assidu aux
 réunions publiques du temps où apparaît à toutes les manifestes
 cations. Il signe l'Affiche Rouge (Place au Peuple! Place
 
-[leaf 0301]
-
 à la Commune! (5 janvier 1871). Tous ceux dont nous
 prononçons les noms ici, Monteils, Gentelini, Champy,
 Melliet, Régère, ont signé l'Affiche Rouge...
@@ -857,13 +788,7 @@ bataillon, sur la place, je croisai un groupe qui portait
 
 38
 
-[leaf 0302]
-
 39
-
-[leaf 0303]
-
-[leaf 0304]
 
                           le 22 janvier
 
@@ -890,8 +815,6 @@ Père Duchêne. La prise de Mazas, l'émeute du lende-
 main, deux incidents qui se tiennent étroitement.
 
 41
-
-[leaf 0305]
 
 Le 22 — un dimanche — la place de Grève est pleine
 de monde. Une foule plutôt curieuse qu'hostile. Des
@@ -927,8 +850,6 @@ La gendarmerie est au Carrousel. À l'Hôtel de Ville, les
 mobiles du Finistère emplissent la salle du Trône du
 
 42
-
-[leaf 0306]
 
 premier étage, la salle Saint-Jean, les cours. L'orage
 est prêt. Qu'un coup de fusil soit tiré, d'un côté ou de
@@ -966,8 +887,6 @@ sion à la Préfecture de police.
 
 43
 
-[leaf 0307]
-
 Le capitaine adjudant-major Bernard. Le commandant
 du bataillon de mobiles du Finistère, comte de Legge.
 En face d'eux, appuyés à la grille, quelques-uns tenant
@@ -1003,8 +922,6 @@ de Sfax, où il réside, le récit de sa journée. Alphonse
 Humbert, qui fut l'un des délivrés de Mazas, et l'un des
 
 44
-
-[leaf 0308]
 
 combattants du lendemain. Alexandre Girault, depuis
 député de Paris, un de ceux qui forcèrent la porte de
@@ -1042,8 +959,6 @@ amenées là pour la curiosité. (Cette consigne fut exactement
 observée.) Sur ces paroles, Tony Révillon, tranquillisé, se
 
 Voici maintenant le récit de Chaudey, tel qu'il m'a été
-
-[leaf 0309]
 
 fait, que je l'ai transcrit et qu'il a été signé par son auteur,
 ainsi que formule de procès-verbal de déposition de témoin,
@@ -1089,8 +1004,6 @@ mait, impétueusement, que l'autorité dont ils ne savaient
 
 46
 
-[leaf 0310]
-
 pas user contre l'ennemi, leur fut immédiatement retirée
 et remise aux mains de chefs plus capables de conduire
 leurs soldats au combat, et, plus soucieux d'un bon emploi
@@ -1128,8 +1041,6 @@ kiosque de vente de journaux, en face du 2 de l'avenue
 Victoria, a eu lieu quelques instants avant une surprise en écho du
 
 47
-
-[leaf 0311]
 
 Bernard Salvador, (1) mort secrétaire de la rédaction
 de l'Officiel, est resté dans mon cabinet pour survivre, d'un coin
@@ -1172,8 +1083,6 @@ battra dans les rangs de l'émeute.
 
 48
 
-[leaf 0312]
-
 — J'avais été arrêté — me raconte Humbert —   pour avoir
 signé l'Affiche Rouge. J'occupais, à Mazas, une des cellules
 du rez-de-chaussée de la sixième division. Je dormais à
@@ -1213,8 +1122,6 @@ là... Il faut agir. Et agir vite. Tout d'abord, où allons-nous?
 
 49
 
-[leaf 0313]
-
 Nous discutons. Flourens, Léo Meillet, quelques autres.
 Irons-nous à l'Hôtel de Ville? Je suis de cet avis. Rien ne
 sera plus facile que de reconnaître le coup qui vient de
@@ -1237,8 +1144,6 @@ bandoulière. Sur la place, Eudes et Goupil, (1) Nous entrons
 au café de la Garde Nationale. Eudes me dit que Blanqui
 est tout près, dans une maison de la rue Saint-Bon, que Blanqui,
 ni sur la place, ni au café de la Garde Nationale, ni ailleurs,
-de toute la journée. On m'a dit qu'il était au café du Gaz.
-Je ne l'y ai point vu.
 
 On va, on vient. Des groupes. Des hommes armés, pêle-
 mêle avec une foule grouillante. C'est un dimanche. De
@@ -1257,13 +1162,10 @@ membre de la Commune. Démissionnaire le 12 avril.
 
 50
 
-[leaf 0314]
-
 Temple, une colonne de gardes nationaux en capotes
 vertes, tambour battant, drapeau coiffé d'un bonnet rouge.
 A leur grand garçon, fort, moustachu, Goubault, (1) on
 a dit souvent que la colonne était conduite par Malon. Non.
-Je n'ai pas vu Malon. La colonne va se ranger le long de
 la grille. Il me semble qu'ils ne sont guère plus de cent à
 Dumont, de Belleville, — le petit Dumont, comme on
 l'appelle... Il grimpe à la grille... Je le vois un instant, qui
@@ -1299,15 +1201,12 @@ direction générale des Contributions directes.
 
 51
 
-[leaf 0315]
-
 — Une blague, inventée par Vallès... As-je brisé les
 aiguilles?... Tu aurais-je brisées que je n'avais guère le
 temps de m'en assurer... J'étais dans la fumée... Je te l'ai dit,
 au hasard, sans voir... Plongé dans d'inexplicable me pous-
 sait... L'exaltation... Une pensée de vengeance... La volonté
 d'agir de façon qu'on ne puisse dire que je n'étais pas là.
-— Tu as vu Sapia?
 — Non. Il était avenue Victoria, Je n'ai pas quitté le café
 de la Garde Nationale et ses abords.
 — Et après la fusillade?
@@ -1341,8 +1240,6 @@ Je n'en sais rien, je le répète. Cela se peut... Tout ce que je
 
 52
 
-[leaf 0316]
-
 puis dire, c'est qu'il heurta la porte violemment, et que, à
 ce moment même, les mobiles firent feu... Cela, je l'ai
 entendu et vu... C'est tout ce que je sais de ce 22 janvier...
@@ -1371,7 +1268,6 @@ entra au journal comme metteur en pages. Je ne l'ai plus
 dissements... Je ne le connaissais pas vraiment.
 — Protot, Rigault, ne t'ont jamais parlé des incidents
 de l'affaire Chaudey?
-— Jamais.
 
                           le capitaine Montels
 
@@ -1382,8 +1278,6 @@ inoccupées, de l'exil, nous parlions du 22 janvier, de la
 l'Ami de Marat. Un ou deux numéros.
 
 53
-
-[leaf 0317]
 
 fusillade de mort, des responsabilités encourues. Mon-
 tels était des nôtres. J'ai noté ce qu'il nous disait. Son
@@ -1424,8 +1318,6 @@ aussi cette place qui fut placardée l'Affiche Rouge.
 
 54
 
-[leaf 0318]
-
 bourg. Le vieux Brandely. D'autres. Chaussevert portait un
 À notre arrivée à l'Hôtel de Ville. Nuit noire, froide. Per-
 sonne dans les rues. Prés du candidature du milieu, Émile
@@ -1460,11 +1352,8 @@ Les envahisseurs de Mazas — on l'a vu par le récit
 
 (1) Mes Cahiers rouges, VII, pages 34 et suivantes.
 (2) Lavalette, de l'Internationale. Membre du Comité Central
-du 18 mars.
 
 55
-
-[leaf 0319]
 
 refuse de descendre à l'Hôtel de Ville, où il ne paraîtra
 pas de toute la journée. Montels est, lui aussi, monté à
@@ -1503,12 +1392,9 @@ qu'après l'armistice! Et M. le capitaine de garde nationale,
 une quarantaine, par la rue Saint-Antoine. Drapeau
 rouge. Fusils chargés sur l'épaule. Au coin du quai
 Bourdon, un petit groupe de gardes nationaux armés
-sortent de la salle de bal, où un tient un club. Ils se
 joignent à nous. « Vive la Commune! Pas d'armistice! A bas
 
 56
-
-[leaf 0320]
 
 les traîtres! » Rue Saint-Antoine, des hommes se détachent
 des groupes qui discutent. « Où allez-vous? — Prendre
@@ -1550,8 +1436,6 @@ délégation qui sort. Je reconnais Tony Révillon.
 auteur des Assemblées parlantes.
 
 57
-
-[leaf 0321]
 
 Champy, Gentelini et moi nous apprêtons à franchir la
 porte de la grille.
@@ -1599,25 +1483,11 @@ Chaudey, Arago, les trois autres et moi, qui remplissais
 
 58
 
-[leaf 0322]
-
 I. — Le capitaine Montels, qui, le
 22 janvier 1871, conduisait la deuxième
 délégation reçue à l'Hôtel de Ville
 par Chaudey, une demi-heure avant
 la fusillade.
-
-[leaf 0323]
-
-[leaf 0324]
-
-[leaf 0325]
-
-[leaf 0326]
-
-[leaf 0327]
-
-[leaf 0328]
 
 alors près de Jules Ferry les fonctions de secrétaire. Vous
 étiez donc, monsieur Montels, un des trois délégués. — Par-
@@ -1657,8 +1527,6 @@ plus âgé, avait 26 ans, « j'en paraissais à peine 25 ou 24, m'écrit-il.
 Et, pourtant, j'avais 8 ans de service et de campagne au
 2e zouaves, vu le feu plusieurs fois, pris part au siège de Puebla et
 à la bataille de San-Lorenzo. »
-
-[leaf 0329]
 
 — Plus de vivres! Jules Ferry nous a déjà dit cela le
 18 septembre. J'étais là... Nous voulons combattre... S'il
@@ -1701,8 +1569,6 @@ avons vu. Les mobiles tout prêts. Je redis les paroles de
 
 62
 
-[leaf 0330]
-
 Chaudey. « Pas d'impatience, dis-je, en terminant. Nous
 attendons des renforts. Le peuple décidera. Nous sommes à
 ses ordres. » Je posais le pied à terre, abandonnant ma
@@ -1744,8 +1610,6 @@ Vinoy, conduisait, avec Serizier, le fameux 101e.
 
 63
 
-[leaf 0331]
-
 étage... On vient nous avertir que les gardes républicains,
 venant par le Pont-Neuf, s'apprêtent à nous cerner... La
 partie est perdue. Je traverse au pas de course la rue de
@@ -1766,7 +1630,6 @@ m'a raconté de ses deux journées des 21 et 22 janvier :
                           me dit Girault —
                                                 j'étais place de l'Hôtel-
 de-Ville avec quelques hommes de notre compagnie. La
-2e de tirailleurs du 33e bataillon, 37e régiment de marche. Le
 signal d'envahissement devrait être donné à trois heures. Il
 ne vint pas. Nous attendons. Enfin, la nuit tombée depuis
 longtemps déjà, un contre-ordre arrive. La partie était
@@ -1785,8 +1648,6 @@ Guadeloupe et ensuite de Paris. — Demay, Felessus, Guillaume,
 nommés dans ce récit, militants révolutionnaires de Belleville.
 
 64
-
-[leaf 0332]
 
 25e bataillon — le mien. Quelqu'un propose de sonner le
 tocsin. D'autres gardes s'étaient joints à nous. Sur mon
@@ -1827,8 +1688,6 @@ baïonnette... Le citoyen fit demi-tour, et il se précipita
 vers la porte de la cellule d'Humbert, qu'il ouvrit. Non-
 velle manifestation de mauvaise humeur à la sortie. Gardes
 et gardiens formaient le cercle dans la rotonde, près de la
-
-[leaf 0333]
 
 porte de sortie. Nous n'étions plus que quatre dans la pri-
 son. Guillaume, qui fut déporté, Dumont le typo, l'autre
@@ -1871,8 +1730,6 @@ contre la vie de l'Empereur. Envoyé à l'île du Diable. De retour
 tionnaire. Arrêté après le 31 octobre.
 
 66
-
-[leaf 0334]
 
 du Temple. À la hauteur de la rue de la Verrerie, nous
 apercevons en enfilade la façade de l'Hôtel de Ville et une
@@ -1917,8 +1774,6 @@ dérante, s'étaient déjà distinguées le 31 octobre. Elles
 
 67
 
-[leaf 0335]
-
 fournirent, le 22 janvier, une centaine de combattants.
 C'est le détachement des Batignolles qui arriva par la
 rue du Temple, drapeau tricolore au vent, coiffé d'un
@@ -1956,8 +1811,6 @@ Nous continuons notre route, sans autrement nous inquiéter
 au lycée Condorcet, où il est resté jusqu'à sa retraite, en 1910.
 
 68
-
-[leaf 0336]
 
 des sommations municipales. Mais il nous faut un chef.
 On s'en va chercher, avenue de Clichy, le commandant du
@@ -1998,8 +1851,6 @@ tête, Fontaine. À ses côtés, Malon et Victor Clément, qui fut
 Varin et Malon. » (L'Internationale, par James Guillaume,
 
 69
-
-[leaf 0337]
 
 Tout en marchant, nous poussions des cris. « Guerre à
 outrance ! A bas les traîtres ! » Je crie de toutes mes forces
@@ -2042,8 +1893,6 @@ de-Ville à 10 janvier (voir le récit précédent d'Humbert).
 
                               70
 
-[leaf 0338]
-
   Qu'y a-t-il ? Que se passe-t-il ?... Un grand bruit de fenêtres
 qui s'ouvrent... Des coups de feu... Un gros nuage gris,
 paresseuse de fumée... Autour de moi, des gens crient,
@@ -2084,8 +1933,6 @@ de feu, que je regagnai les Batignolles.
 
                                71
 
-[leaf 0339]
-
 sans que la moindre sommation ait été faite. J'étais au
 premier rang. Toute la volée des projectiles passa au-dessus
 de ma tête, allant frapper ceux qui étaient à l'autre bord
@@ -2101,12 +1948,6 @@ vêtements civils, on le conduisit à l'Hôtel-Dieu, où il
 mourut. Nous l'accompagnâmes, par une superbe matinée
 de février, au Père-Lachaise. Louise Michel parla sur sa
 tombe, où nous plantâmes un petit drapeau rouge...
-
-[leaf 0340]
-
-[leaf 0341]
-
-[leaf 0342]
 
   Sur cette terrible après-midi du 22 janvier, j'ai pu
 consulter un document intéressant. Une note manuscrite
@@ -2129,8 +1970,6 @@ sur lesquelles se balancent des glands de soie noire.
 
                                75
 
-[leaf 0343]
-
 Pierre Denis fabriquait tout cela lui-même. Cordonnier,
 tailleur, couturière. Proudhonien fervent, il entamait,
 une fois attablé devant n'importe quoi, carafe d'eau,
@@ -2152,7 +1991,6 @@ la Commune du 20 avril. Il échappe aux conseils de
 guerre. Il se retrouve collaborant avec Portalis au
 Corsaire. Il est le dernier conseiller du général Boulanger,
 dont l'étoile s'éteint. Il publie le Mémorial de Saint-
-Brelade. Il tient un drame A la Vie, à la Mort ! Il
 meurt en 1907. Quelques mois avant sa fin, pour la
 première fois depuis la Commune, il se présente en
 omnibus, enfoncé dans un coin. Étrangère à ce qui
@@ -2165,8 +2003,6 @@ au dolman sanglé à la taille, soutaché de passemen-
 
                               76
 
-[leaf 0344]
-
                      « note sur Chaudey »
 
   De la note sur Chaudey de Pierre Denis, j'extrais ce
@@ -2177,7 +2013,6 @@ faits. Si incomplète qu'elle soit, la note de Pierre Denis
 va nous permettre d'établir la vérité sur la plus grave
 des accusations qui furent dirigées contre l'adjoint au
 maire de Paris, celle d'avoir, le 22 janvier, « fait balayer
-la place ».
   Voici l'extrait de la note de Pierre Denis :
 
    ... Le 22 janvier, Jules Ferry était venu déjeuner avec son
@@ -2205,8 +2040,6 @@ pas manqué de les publier, puisqu'elles chargeaient Chaudey.
 Cette demande de cavalerie et de mitrailleuses peut se rapporter
 
                                77
-
-[leaf 0345]
 
   — Ce Chaudey est fou, dit Jules Ferry.
   Et on me demanda si j'avais des renseignements. Je n'en
@@ -2251,8 +2084,6 @@ que Chaudey ait donné l'ordre de tirer sur la foule.
 
                                78
 
-[leaf 0346]
-
 coin de la rue de Rivoli ; là on ne put me renseigner que
 très vaguement. Il était venu en effet une assez grande
 foule, d'ailleurs inoffensive, sur la place. Un homme au mac-
@@ -2289,13 +2120,10 @@ maire de Paris. C'est celle que conduisait Tony Révillon.
 Tony Révillon et la fusillade.
 (2) Six morts, le commandant Sapia, les capitaines Chateignaux
 (ce bataillon) et Thollain ; le prêtre Gobert, deux inconnus. Qua-
-(3) Pas La Cécilia, Sapia.
 (4) Albert Callet, étudiant en droit, plus tard attaché à la délé-
 gation aux Affaires extérieures, avec Paschal Grousset.
 
                                79
-
-[leaf 0347]
 
 Naturellement cette délégation avait été suivie par des
 curieux parmi lesquels ne se trouvaient que quelques
@@ -2338,8 +2166,6 @@ Blanqui*, dans *L'Aurore* du 26 mars 1907.
 
                                80
 
-[leaf 0348]
-
 confirmé d'une façon formelle et authentique le fait que
 Chaudey avait donné l'ordre de tirer. Ce n'était pas abso-
 lument un secret, car Cambon et d'autres personnes pré-
@@ -2375,8 +2201,6 @@ Pas une seule de ces dépêches n'a été envoyée par
 Chaudey. Trois émanent de Cambon. Ce sont ces trois
 dépêches qui ont été lues par Pierre Denis. On doit
 
-[leaf 0349]
-
 considérer leur texte comme très exact. Elles n'ont subi
 aucune mutilation, principalement en ce qui regarde le
 rôle joué par Chaudey, puisque c'est lui que vise, à n'en
@@ -2407,8 +2231,6 @@ par la Commission d'enquête, afin de mettre en relief ce qui
 
                                82
 
-[leaf 0350]
-
   Chaudey consent à rester là ; mais prenez des mesures le
 plus tôt possible pour balayer la place.
   Je vous transmets, du reste, l'avis de Chaudey.
@@ -2427,7 +2249,6 @@ dépêche (1 h. 55 m.) de Cambon : « La place est à peu
 près vide. » La place s'était vidée à la suite du geste
 des mobiles « braquant leurs fusils sur la place ». « La
 foule remplira à nouveau la place, dès qu'une émotion
-se sera calmée. A 2 h. 50 m., il y aura « beaucoup de
 monde et très-hostile ».
   Voici cette pièce :
 
@@ -2437,8 +2258,6 @@ monde et très-hostile ».
 parer de l'Hôtel de Ville, paraît, quant à présent, avoir
 
                                83
-
-[leaf 0351]
 
   Après l'incident dont j'ai rendu compte, des gardes
 mobiles ont paru aux fenêtres du palais, braquant leurs
@@ -2475,8 +2294,6 @@ l'Hôtel de Ville dans la journée du 22 janvier.
 
                                84
 
-[leaf 0352]
-
   Le gouverneur de l'Hôtel de Ville, colonel Vabre, qui
 présidera, en mai, la cour martiale du Châtelet.
   Le commandant des mobiles bretons, comte de Legge,
@@ -2510,8 +2327,6 @@ de l'émeute. Dans cette même note manuscrite que
 
                                85
 
-[leaf 0353]
-
 nous citions du haut, Pierre Denis raconte qu'ayant
 rencontré Chaudey à l'Hôtel de Ville, ce dernier l'invec-
 tiva rudement au sujet de sa collaboration au Combat
@@ -2528,7 +2343,6 @@ trouvant avec Courbet et quelques amis, s'oppose « avec
 emportement » à l'acceptation de la croix, donnée
 par M. Maurice Richard, alors ministre des beaux-arts.
 
-  La scène —
               s'est passée dans
 un café, défunt depuis longtemps, rue Bourbon-le-Château,
 n° 1, à l'angle de la rue de Buci. Castagnary (1) était présent.
@@ -2548,8 +2362,6 @@ en 1880, la croix de la Légion d'honneur qui lui était offerte.
 Ponts, route d'Asnières, 185, Clichy (Seine). (Extrait du Bottin).
 
                                86
-
-[leaf 0354]
 
 il est nommé chef du 34e bataillon de la garde
 nationale. Au 31 octobre, Vabre est rentré à Paris.
@@ -2585,8 +2397,6 @@ vision de l'émeute. Il est tout prêt à la recevoir,
 l'écharpe au flanc, les fusils chargés.
 
                                87
-
-[leaf 0355]
 
   Le comte de Legge commande le 3e bataillon des
 mobiles du Finistère, à l'Hôtel de Ville, depuis le
@@ -2624,8 +2434,6 @@ du 3e bataillon des mobiles du Finistère.
 
                                88
 
-[leaf 0356]
-
 assez qu'il avait la plus grande envie de se mettre à
 l'abri. Il est donc raisonnable de croire que, hâtive-
 ment, frénétiquement, quand il fut revenu de ses émo-
@@ -2659,8 +2467,6 @@ Défense nationale. Déposition des témoins. Tome II. Séance du
 
                                89
 
-[leaf 0357]
-
   Qui donc donna l'ordre de faire feu ?
   Ce n'est très probablement pas Vabre. Ce n'est pas
 de Legge. Ce n'est pas non plus Chaudey.
@@ -2692,8 +2498,6 @@ dant de Legge nous définit ainsi leur état d'esprit.
 confié, et que, depuis le 31 octobre, où ils les avaient
 
                                90
-
-[leaf 0358]
 
 conquis, ils s'étaient tous les jours attendus à
   Comment, dans une telle atmosphère, les coups de
@@ -2731,8 +2535,6 @@ la fusillade générale. » C'est la même situation que la 22 janvier
 
                                91
 
-[leaf 0359]
-
 fait « balayer la place ». Cela résulte de l'examen
 impartial des documents. (1) Il s'est énergiquement
 opposé à ce que l'on donnât l'ordre de tirer sur la foule.
@@ -2746,7 +2548,6 @@ Ville, abandonnant à son adjoint la responsabilité d'une
 bataille possible ? Depuis deux jours, l'émeute est dans
 l'air. Ce ne sont que dépêches sur dépêches des auto-
 rités militaires. De Vinoy, appelant des troupes, de
-l'artillerie, de la cavalerie. L'on a, en partout, place de la
 Concorde, dans les casernes, dans les secteurs, prêtes à
 descendre au premier appel. L'heure est vraiment
 angoissante. Et c'est cette heure que choisit Ferry pour
@@ -2767,8 +2568,6 @@ avec instance la mise en liberté de Chaudey. (Voir Mes Cahiers
 rouges, VII, pages 72 et 73).
 
                                92
-
-[leaf 0360]
 
 chiffres et les quantités, je reçois la nouvelle qu'on
 menace d'attaquer l'Hôtel de Ville, etc. » (1)
@@ -2806,8 +2605,6 @@ sixième arrondissement, mairie de la place Saint-Sulpice.
 
                                93
 
-[leaf 0361]
-
 feu. Il a su interdire l'exécution, demandée par Vabre
 et par l'autorité militaire, des prisonniers faits sur la
 place. Il eût interdit de même aux officiers de mobiles
@@ -2844,7 +2641,6 @@ utiles à sa défense. En particulier, ceux des personnalités,
 
                                94
 
-[leaf 0362]
 II. — Disposition du peloton d'exécu-
 tion qui, au commandement de Raoul
 Rignault, fusilla Gustave Chaudey dans
@@ -2856,24 +2652,14 @@ l'exécution).
 
                                95
 
-[leaf 0363]
-
-[leaf 0364]
 "2° Disposition du chemin de ronde et places occupées par Chaudey et le peloton d'exécution."
 Labels: "ronde / Sentier / A [Chemin de]". Figure "Chaudey".
 Peloton list: "Rignault Peloton d'exécution / Boitier / Prean de Vidal / Slom et Clermont".
 Marginal note to the right: "Le pour Caillet pour voir Chaudey existait un effet / mais à droite c'est à dire où le peloton d'exécution et le mur A. Donc, on [tirait] le peloton ; à côté à lui à gauche était le mur B. R. Rignault."
 
-[leaf 0365]
-
-[leaf 0366]
 [plate — second view / photograph of the same Slom facsimile sketch reproduced on leaf 0364. Same caption and layout.]
 
                                96
-
-[leaf 0367]
-
-[leaf 0368]
 
 militaires ou civiles, le commandant de Legge et Cambon,
 d'autres, à son gré, qui étaient à l'Hôtel de Ville le
@@ -2913,10 +2699,6 @@ l'instruction de l'affaire Chaudey. Celui-ci avait comparu deux fois
 devant lui. Les procès-verbaux de ces deux interrogatoires ont
 disparu dans l'incendie de la Préfecture et du Palais de Justice.
 
-[leaf 0369]
-
-                            le mur
-
   Quelques mois après la visite que je fis avec G. et B.
 à la vieille prison, le hasard me conduisait rue Monge.
 Je voulus voir ce qui restait de Sainte-Pélagie, du
@@ -2931,8 +2713,6 @@ de mètres, un mur en grosses pierres meulières, nu,
 démantelé, avec, à hauteur d'homme, un rebord... Le
 mur, resté seul debout dans cette ruine, c'était le mur
 au pied duquel était tombé Gustave Chaudey.
-
-[leaf 0370]
 
   Observation sur la gravure représentant l'exécution de
 Chaudey. — Slom n'a jamais porté aucun nom sous la
@@ -2952,7 +2732,6 @@ compte qu'il n'avait jamais servi.
                             Le jour laissé pour voir
   [ici le croquis de      mais à droite, c'est-à-dire
     Slom                  entre le peloton d'exécution et
-  reproduit en              le mur A. Donc, en C, le
   fac-simile                peloton ; à côté de lui, à
                           taire, et Clermont, commis-
                           saire. Préau de Vedel, à droite,
@@ -2966,8 +2745,6 @@ petit nombre d'exemplaires, le lecteur pourra consulter l'exem-
 plaire de la Bibliothèque Nationale, Lb57 8261.
 
                                99
-
-[leaf 0371]
 
   Page 13. — Si Raoul Rigault vint à Sainte-Pélagie, avec
 le projet de faire fusiller Chaudey, il n'en parla pas à
@@ -2998,7 +2775,6 @@ dit : « Vous avez raison de ne pas faire penser à cela. »
 Il s'est alors qu'il envoya Slom lire en dicter le contenu du
 procès-verbal qu'il venait de dicter. Slom ne lit aucun
 interrogatoire et le peloton et les assistants crièrent : « Vive
-la Commune ! »
 
   Page 24. — Exécution des gendarmes. — Les gendarmes
 étaient placés contre le mur de ronde qui tourne à droite.
@@ -3007,8 +2783,6 @@ la Commune ! »
 de la Commune (8 avril), puis juge au tribunal civil (13 mai).
 
                               100
-
-[leaf 0372]
 
 Les acteurs et spectateurs du drame étaient placés comme
 je l'ai dit. Lorsque le commandement commença, un des
@@ -3025,21 +2799,10 @@ cevais la silhouette de Chaudey. J'entendis, au moment
 de la détonation, le cri très prononcé du soldat : « Vive la
   Voilà toute la vérité sur cet événement.
 
-[leaf 0373]
-
-[leaf 0374]
-
                               103
-
-[leaf 0375]
-
-[leaf 0376]
 
                               105
 
-[leaf 0377]
-
-[leaf 0378]
 Membre du Comité Central du 18 mars,
 directeur de l'Intendance à la délé-
 gation à la Guerre. Fusillé le 16 mai
@@ -3048,18 +2811,7 @@ gation à la Guerre. Fusillé le 16 mai
 
                               107
 
-[leaf 0379]
-
-[leaf 0380]
 [plate — photograph: Édouard Moreau de Bauvière portrait, head and shoulders, bearded.]
-
-[leaf 0381]
-
-[leaf 0382]
-
-[leaf 0383]
-
-[leaf 0384]
 
   Genève, 1871. — Un soir, au sortir d'une réunion de
 la Société des Proscrits, (1) Arthur Arnould (2) a reçu de
@@ -3078,8 +2830,6 @@ d'entre eux, ni ce n'est tous, avaient atteint la terre d'exil dans une
 (2) Arthur Arnould, membre de la Commune.
 (3) Charles Gouhier, membre du Comité Central. Voir Mes Cahiers
 rouges, VII, pages 52 et suivantes.
-
-[leaf 0385]
 
 Londres, ne voyant personne, vivant complètement
 isolé. Le bruit a couru qu'avant son départ il avait fait
@@ -3116,8 +2866,6 @@ nationale... Moreau n'a jamais signé, pendant le Siège,
 
                               110
 
-[leaf 0386]
-
   Et nous nous mettons à causer de Moreau. Qui
 parmi nous, l'a connu ? Arnould évoque ses souvenirs.
 Trente à trente-cinq ans, portant haut la tête, les yeux
@@ -3153,8 +2901,6 @@ nationale... Moreau n'a jamais signé, pendant le Siège,
 
                               111
 
-[leaf 0387]
-
 aucune affiche. Ni l'Affiche Rouge du 5 janvier 71.
 Ni l'affiche du jour de l'entrée des Prussiens... (1) Il
 n'était pas du 31 octobre, ni du 22 janvier. Il n'était
@@ -3189,8 +2935,6 @@ Comité des Vingt arrondissements.
 (3) Mes Cahiers rouges, Cahier II, pages 187 et suivantes.
 
                               112
-
-[leaf 0388]
 
 dissement... Quand monsieur Moreau arriva à l'Hôtel de
 Ville au 18 mars, Charles de Beaufort l'y suivit, pour entrer,
@@ -3231,8 +2975,6 @@ cation de « petit commissionnaire en marchandises ».
 
                               113
 
-[leaf 0389]
-
 était, lui, au 187° bataillon, commandant Boudin. Il marcha,
 dans les compagnies de guerre, à Champigny et à Buzenval...
 Il était brave, d'une bravoure froide, et d'un patriotisme
@@ -3269,8 +3011,6 @@ gence de mon interlocutrice, qui voulut bien me confier
 
                               114
 
-[leaf 0390]
-
 la précieuse photographie qu'elle possédait. Elle me
 confia aussi quelques lettres, celles qui lui restaient et
 qu'elle avait pu garder de lui de retrouver. Car elle aussi
@@ -3306,8 +3046,6 @@ lesquels Eudes et Brideau, qui furent condamnés à mort et délivrés le
 vard de la Villette.
 
                               115
-
-[leaf 0391]
 
 ministre (1) ne déroule en quarante-huit heures le chaos que
 lui a laissé le maréchal Lebœuf, et, avant de régulariser les
@@ -3350,8 +3088,6 @@ avait été préparée par des espions prussiens.
 Rochefort s'évanouissant aux obsèques de Victor Noir, à Neuilly.
 
                               116
-
-[leaf 0392]
 
 minuit, on me déclara qu'on ne pouvait me conduire que
 le surlendemain à Éconché. Il me fallut me contenter
@@ -3433,8 +3169,6 @@ Contre-ordre : nous ne partons plus que dans la nuit de mardi à mercredi, à qu
 
 121
 
-[leaf 0397]
-
 pendant les longues et soulnaires factions de nuit des
 sentinelles perdues. Plus d'une y a mis, à l'endroit de la
 poitrine, à la place du cœur, de ces baisers adolescents
@@ -3469,8 +3203,6 @@ titre, former des souhaits : le moment n'est donc jamais
 mieux venu. Puisse l'année aux premières qui vient
 
                               122
-
-[leaf 0398]
 
 avec elle les derniers débris de nos hontes et la dernière
 étape de nos revers ; puisse celle qui vient, être l'aurore
@@ -3512,8 +3244,6 @@ vais me coucher à tout hasard.
 
                               123
 
-[leaf 0399]
-
   Une lettre curieuse par ses conclusions. Le patrio-
 tisme de Moreau ne rencontrerait-il pas plus d'occasions
 d'être satisfait, si, au lieu de rester dans la garde
@@ -3521,7 +3251,6 @@ nationale, il prenait rang dans un régiment de l'armée
 de ligne. La question avait été débattue entre lui et le destina-
 taire des lettres ici publiées. Décidément, Édouard
 
-  Je ne vous ai pas répondu au sujet du 49e de ligne. La
 raison est que je ne puis rendre plus de services en donnant
 une impulsion quelconque dans la garde nationale qu'en
 rang dans une escouade de ligne. Occupé à cacher encore
@@ -3544,8 +3273,6 @@ il l'a dit, de général, d'ingénieur, de chef de partisan
 et de tribun, va se dégager le membre du Comité
 
                               124
-
-[leaf 0400]
 
 Central, bientôt commissaire civil au ministère de la
 Guerre de la Commune. La dernière lettre, le dernier
@@ -3574,10 +3301,7 @@ cette réunion à laquelle il a dû assister.
                               126
 
                               127
-[leaf 0403]
 [blank verso — bleed-through of "II / LA COMMUNE" visible from facing half-title]
-
-[leaf 0404]
 
                        à l'Hôtel de Ville
 
@@ -3603,8 +3327,6 @@ précédent billet, dans la nuit, après quelque orageuse
 séance du pouvoir nouveau. Édouard Moreau explique
 
                               129
-
-[leaf 0405]
 
 les raisons qui lui ont dicté son attitude. Il est de ceux
 qui, refusant de se présenter à la Commune, (1) ont,
@@ -3642,8 +3364,6 @@ ment son mandat au terme convenu. Lorsque j'ai vu les
 
                               130
 
-[leaf 0406]
-
 élections fixées, comme on m'avait porté candidat, je suis
 allé déposer publiquement ce mandat, et refuser la place
 que la Commune m'offrait. Le lendemain, j'en recevais de
@@ -3676,8 +3396,6 @@ Nous partons pour Versailles. A bientôt, j'espère.
 
                               131
 
-[leaf 0407]
-
   Édouard Moreau écrit rarement. Ses multiples occu-
 pations ont tari sa plume. Voici une lettre intéressante.
 Édouard Moreau semble avoir eu une influence prépon-
@@ -3703,16 +3421,12 @@ régnait dans la direction des opérations militaires.
 des séances où les membres du Comité, aidés des chefs
 de légion, poursuivaient leur conspiration contre la
 
-         DE LA GUERRE          2 h. du matin.
-
   Nous sortons de séance. Le Comité Central avait appelé
 à sa réunion les vingt chefs de légion de Paris ; quinze sont
 
 (1) Mes Cahiers rouges, III, page 127.
 
                               132
-
-[leaf 0408]
 
 venus. Cette convocation a été faite après un arrêté pris
 par le colonel Rossel, sur une nouvelle formation qui
@@ -3745,8 +3459,6 @@ nale, et au nom d'une révolution pacifique attaquée par les
 colonel ou chef de corps, à quelque titre que ce soit, qui,
 dans les trois jours, n'aura pas donné son adhésion à la
 cessation des hostilités ou déposé ses armes portées contre
-
-[leaf 0409]
 
 Paris, sera condamné à mort, ses biens meubles seront
 saisis, ses biens immeubles rasés au niveau du sol, le
@@ -3781,14 +3493,11 @@ mais la résolution est prise, et mes collègues ont l'air
 
                               134
 
-[leaf 0410]
-
   Si nous réussissons, je demande, de suite après, les élec-
 tions pour la Constituante.
   Je tombe de sommeil.
 
   Quoi qu'il arrive prochainement, ne vous étonnez pas.
-Venez me voir : il y a du nouveau et de l'important.
 
   Le lendemain, 9 mai, Moreau est nommé par le Comité
 de Salut public commissaire civil de la Commune auprès
@@ -3802,14 +3511,6 @@ ment détaillé de ce qu'il voulait faire. Lui, qui songeait
 pour une Constituante !
 
                               135
-
-[leaf 0411]
-
-[leaf 0412]
-
-[leaf 0413]
-
-[leaf 0414]
 
   J'ai retrouvé, à la Société des Auteurs dramatiques,
 le titre de la piécette donnée par Édouard Moreau au
@@ -3833,8 +3534,6 @@ MM. Émile Thierry et Schubert.
 imprimé de la comédie d'Édouard Moreau. La Biblio-
 
                               139
-
-[leaf 0415]
 
 thèque Nationale n'en possède pas. A-t-elle seulement
 jamais été éditée ? La Bibliothèque Nationale possède
@@ -3868,12 +3567,9 @@ ques, écrites sans prétention, qu'on lira cependant avec
 
                               140
 
-[leaf 0416]
-
           Si j'étais amoureux de vous,
           Au moment où la sève monte,
           En mai, mois des nouveaux époux
-          Où l'on aime, à ce qu'on raconte,
           Si j'étais amoureux de vous,
           Tout comme un chat dans la gouttière
           Je penserais des mi...a...ous !...
@@ -3910,8 +3606,6 @@ ques, écrites sans prétention, qu'on lira cependant avec
 
                               141
 
-[leaf 0417]
-
           Si j'étais amoureux de vous,
           Dans mon bras, vous berçant penchée,
           Je vous tiendrais sur mes genoux
@@ -3934,7 +3628,6 @@ ques, écrites sans prétention, qu'on lira cependant avec
          Je t'obéirai, mon poète.
          Je suis le grand et le banal,
          Le blasphème et le cri de fête,
-         Je suis et le Bien et le Mal !
 
                               2
 
@@ -3949,7 +3642,6 @@ ques, écrites sans prétention, qu'on lira cependant avec
 
                               142
 
-[leaf 0418]
 IV. — « Nous partons pour Versailles ! »
 Fac-simile d'un billet, adressé par
 Édouard Moreau à une personne amie.
@@ -3961,23 +3653,13 @@ Au-dessous, le fac-simile des diverses
 
                               143
 
-[leaf 0419]
-
-[leaf 0420]
 Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
   "E. Moreau / fils du faubourien" (with a flourish),
   "E. Moreau / de Bauvière",
 
                               144
 
-[leaf 0421]
-
-[leaf 0422]
 [plate — duplicate / second reproduction of the same Édouard Moreau facsimile (same text "Nous partons pour Versailles. A bientôt, j'espère." and signatures). Page 144.]
-
-[leaf 0423]
-
-[leaf 0424]
 
                               3
 
@@ -4018,8 +3700,6 @@ Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
          A deux, c'est lutter dans la voie ;
          A deux, c'est garder son honneur !
 
-[leaf 0425]
-
          Un contrat. C'est une facture
          Un nom vaut tant... Mais la future
          Donne en plus son corps pour appoint...
@@ -4032,7 +3712,6 @@ Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
          Tout se vend ! Chacun est à vendre...
          Pour qui sur la place a réussi.
          Achetons ; mais sachons n'en prendre
-         Que le plaisir... ou le profit.
 
                               8
 
@@ -4058,8 +3737,6 @@ Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
 
                               146
 
-[leaf 0426]
-
          La pincette et la main je rêve,
          Et tout en tisonnant mon feu,
          Au souvenir qui s'en élève
@@ -4072,7 +3749,6 @@ Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
          Dans mon mauvais cœur vous venez bénir !
 
          Lisette, il fait un temps superbe :
-         A Romainville ! Un cervelas !
          Notre nappe, à nous, c'était l'herbe,
          Et le cabinet, les lilas.
          Puis, revenant de Romainville,
@@ -4093,12 +3769,9 @@ Top of page, cursive: "Nous partons pour Versailles. A bientôt, j'espère."
 
                               147
 
-[leaf 0427]
-
          Mais un jour, où donc est Lisette ?
          Où donc est-elle ? Et tout se tait.
          Dernier mot de ma pâquerette,
-         Ma maîtresse m'abandonnait !
          Au ciel mon étoile se cache...
          Mon triste bonheur s'envola,
          Et doucement, sur ma moustache
@@ -4134,8 +3807,6 @@ ouvrir la boite pour en tirer la drogue, et briser l'os pour
 
                               148
 
-[leaf 0428]
-
 en sucer la moëlle. » Cela dict à l'occasion des paroles non
 idoines à exprimer la pensée par le menu.
   Somme, et pour ne point soumettre à trop longue épreuve
@@ -4151,16 +3822,9 @@ tienne en joye et vous ait en sa très sainte garde.
 
                               149
 
-[leaf 0429]
-
-[leaf 0430]
-
                               151
 
-[leaf 0431]
 [blank verso — faint bleed-through of a later chapter title "VI / L'ABATTOIR" visible]
-
-[leaf 0432]
 
   La défaite frappe Édouard Moreau comme un coup
 de foudre. Le 3 mai, il rêvait d'une Constituante.
@@ -4179,8 +3843,6 @@ se précipitent sur Paris, et que, si vaillante que soit la
 résistance, la Commune est d'avance vaincue, et la
 Constituante reléguée dans la plus lointaine nuit.
   Si la défaite surprend Moreau, les incendies, qui
-
-[leaf 0433]
 
 commencent dès le mardi, le terrifient. Aux heures les
 plus exaspérées de son patriotisme, il n'a pas entrevu
@@ -4220,8 +3882,6 @@ amis de Moreau.
 
                               154
 
-[leaf 0434]
-
 son cousin. Il le voit sortir de la boutique de la rue
 Sedaine, où Beaufort vient de passer devant une cour
 martiale présidée par le colonel Goïs. Delescluze est là,
@@ -4258,8 +3918,6 @@ pied chez lui, rue de Rivoli, 10, vers midi.
 
                               155
 
-[leaf 0435]
-
 gouvernants que l'on peut descendre, la tête haute, les
 marches de son Hôtel de Ville, avec la certitude de
 trouver au bas l'étreinte de ta loyale et robuste
@@ -4274,7 +3932,6 @@ C'est là que Moreau a vécu tout le Siège, avec le mort
 d'hier, son cousin de Beaufort, chez sa tante, madame
 de Bauvière. Pourquoi n'entrerait-il pas ? Il ne songe
 même pas qu'il a certainement été signalé. Dès la prise
-de possession du quartier, on a dû venir là. Son
 adresse est connue. Il passe le seuil. Il n'est pas seul.
 Une personne dévouée, celle à qui sont adressées les
 lettres reproduites ici, l'accompagne. Ils montent, ne
@@ -4295,8 +3952,6 @@ Comité Central avaient délégué à l'Officiel, rédigea entièrement ce
 beau manifeste, ni aussi plusieurs des autres affiches qui suivirent.
 
                               156
-
-[leaf 0436]
 
 Moreau et la personne qui l'accompagne — se dirige
 vers l'Hôtel de Ville, enveloppé de fumée et de flammes.
@@ -4332,8 +3987,6 @@ les prisonniers, parqués, comme des bêtes fauves, dans
 
                               157
 
-[leaf 0437]
-
 la galerie couverte du premier étage. Dans le vestibule
 du rez-de-chaussée, des officiers causent et rient. Je
 lève les yeux. Monsieur Moreau est accoudé au balcon.
@@ -4361,24 +4014,11 @@ espérer longtemps... Mais il fallut bien abandonner
 tout espoir... Où a-t-il été déposé, après l'affreuse
 mort ?... Oh ! l'horrible destin...
 
-[leaf 0438]
-
                               159
-
-[leaf 0439]
-
-[leaf 0440]
 
                               161
 
-[leaf 0441]
-
-[leaf 0442]
 [scan artifact — two-page-spread view showing leaf 0440 (p.161 half-title "I / LE DÉCRET DES OTAGES") on left and beginning of leaf 0444 (p.163 content) on right]
-
-[leaf 0443]
-
-[leaf 0444]
 
                                          rédigé par Protot
 
@@ -4399,8 +4039,6 @@ s'étonner que l'on ait été si mal renseigné jusqu'ici sur
 les incidents qui ont conduit au vote du fameux décret.
 
                               163
-
-[leaf 0445]
 
   Dans la nuit du 4 au 5 avril, la Commune tint deux
 séances. La première, celle du 4, qui se termina vers
@@ -4440,8 +4078,6 @@ Nous regagnâmes l'Hôtel de Ville. Dès mon entrée en séance,
 je remis mon projet de décret au président. Il était environ
 
                               164
-
-[leaf 0446]
 
 massacre. Nous ne pouvons pas violer le droit des gens. Il
 faut agir légalement. » La salle est trémissante. « Rasloul
@@ -4485,8 +4121,6 @@ Fontaine, qui devait être nommé (29 avril) directeur des Domaines.
 
                               165
 
-[leaf 0447]
-
 deux heures du matin. Le président en donna lecture à
 l'assemblée, très nombreuse, très calme. Le projet fut adopté
 à l'unanimité. Les procès-verbaux de la Commune, qui sont
@@ -4523,8 +4157,6 @@ mune adopte sans discussion le décret à l'unanimité.
 
                               166
 
-[leaf 0448]
-
   A peine dix lignes, c'est tout ce que disent les procès-
 verbaux sur les deux importantes séances de la nuit du
   Pas un mot de Protot, qui rédigea le décret.
@@ -4537,14 +4169,7 @@ verbaux, qui l'ont induit en erreur.
 
                               167
 
-[leaf 0449]
-
-[leaf 0450]
-
-[leaf 0451]
 [blank verso — bleed-through of "LA MORT DE DELESCLUZE" visible]
-
-[leaf 0452]
 
   J'ai raconté (Cahier VII, pages 97 et suivantes),
 comment Delescluze, dans l'après-midi du jeudi 25 mai,
@@ -4568,8 +4193,6 @@ nous sommes heureux de donner place ici :
 Maxime Vuillaume, et comme je ne suis pas entièrement
 
                               171
-
-[leaf 0453]
 
 d'accord avec la version qu'il tiendrait d'Arnold, relative-
 ment aux faits qui ont précédé, et peut-être même la mort
@@ -4610,8 +4233,6 @@ approuvée, ou du moins non combattue par mes collègues
 
                               172
 
-[leaf 0454]
-
 qui en ont parlé, la responsabilité de leurs dires, mais voici
 comment les choses se sont passées au moment où Deles-
 cluze, profondément accablé par l'outrage qu'il venait de
@@ -4648,8 +4269,6 @@ l'attendait le secrétaire de Washburne.
 (1) Parent était mon chef d'état-major à l'Hôtel de Ville (Note de
 (2) Malroux (lieutenant-colonel), directeur de la cavalerie à la
 
-[leaf 0455]
-
   Les cavaliers, placés sur deux rangs, allaient entourer la
 voiture ; j'étais à cheval, prêt à donner le signal du départ,
 lorsque Arnold, oui, Arnold, lieu empressée, me notifia que
@@ -4665,7 +4284,6 @@ chacun d'un fusil, m'ayant aperçu, vinrent me demander
 pourquoi je n'étais pas sur la route de Vincennes, je leur
 répondis rapidement que Delescluze avait renoncé à l'affaire
 et qu'il m'avait quitté devant la mairie.
-  Ils se mirent à sa recherche, le virent mourir, et l'on
   Si, comme je l'espère, je parviens à publier mes Souvenirs,
 ils renfermeront plus de détails ayant trait aux faits ici-
 dessus, et à d'autres qui se produisirent en cette même
@@ -4685,8 +4303,6 @@ Washburne ». Cet intermédiaire de la dernière heure
 
                               174
 
-[leaf 0456]
-
 était-il, comme je l'ai supposé, (1) M. Mac-Kean, qui fut
 l'un des secrétaires de l'ambassadeur américain ? Il
 serait difficile de l'affirmer. M. Washburne avait plu-
@@ -4703,16 +4319,9 @@ l'intermédiaire.
 
                               175
 
-[leaf 0457]
-
-[leaf 0458]
-
                               177
 
-[leaf 0459]
 [blank verso — faint bleed-through "III / LE MUR" visible]
-
-[leaf 0460]
 
   14 janvier 1911. Rendez-vous a été pris, rue du Repos,
 chez Monsieur F., qui fut, pendant de longues années,
@@ -4736,8 +4345,6 @@ trous béants, ouvertures de carrières abandonnées.
 Du côté est, derrière le tertre qui fait face au Mur,
 
                               179
-
-[leaf 0461]
 
 de grandes fosses avaient été creusées pour les morts
 des combats du Siège. Fosses garnies intérieurement
@@ -4774,8 +4381,6 @@ la Commune, mais j'ai été forcé. Nous avons voulu nous
 
                               180
 
-[leaf 0462]
-
 échapper par la porte de Romainville. Les Prussiens nous
 ont arrêtés, et ils nous ont remis aux gendarmes, qui nous
 ont conduits à Mazas... » Par l'adresse, je vis que le fusillé
@@ -4789,7 +4394,6 @@ n'existait pas. Le tertre, troué de puits et de galeries, se
 prolongeait, en pente douce, jusqu'au Mur. La tranchée
 était beaucoup plus profonde. Ce sont eux qui l'ont com-
 blée, avec la terre qu'on y a apportée pour les recouvrir.
-La fosse creusée, on les y descendus un à un, de la
 hauteur où ils avaient été fusillés (1) et où ils étaient
 couchés depuis la veille... J'en ai compté 145. Des gardes
 nationaux, des gens en capote militaire, quelques bourgeois.
@@ -4811,9 +4415,6 @@ derrière le tertre. (2)
 
 (1) Voir Monde Illustré du 27 juin 1871, une petite gravure repré-
 sentant la descente des cadavres qui vont être ensevelis en 1871.
-(2) Mes Cahiers rouges, VII, 106.
-
-[leaf 0463]
 
 enterré ici, pendant ces jours de la Commune, bien du
 monde. Les cadavres qu'on ramassait dans le quartier.
@@ -4845,14 +4446,9 @@ Père-Lachaise, devant les six cents côté enterrés 188 fédérés,
 fusillés en cet endroit, et un peu plus loin, près du Mur, devant
 une fosse qui renferme 700 à 800 de ces malheureux (Liberté du
 
-[leaf 0464]
-
                               183
 
-[leaf 0465]
 [blank verso — bleed-through "IV / LE GRAVEUR CUCINOTTA" visible]
-
-[leaf 0466]
 
   1910. Nous causons, avec un ami, Henri Saffrey, des
 cours martiales, autres que les grands abattoirs —
@@ -4874,8 +4470,6 @@ devant moi une sinistre histoire. Quelqu'un qui a été con-
 duit à Chaptal, et dont nul depuis n'eut jamais de nouvelles.
 
                               185
-
-[leaf 0467]
 
 Le graveur Cucinotta. (1) Un de ses amis. Mon père demeu-
 rait alors rue de Rome. Graveur lui aussi, il connaissait
@@ -4917,8 +4511,6 @@ un récit de la mort du Cucinotta.
 
                               186
 
-[leaf 0468]
-
 de relever le blessé, de le mettre à l'abri. Cucinotta ne peut-il
 pas secourir l'infortuné, comme il a secouru les blessés du
   Le graveur n'hésite pas un instant. Il passe à son bras
@@ -4958,8 +4550,6 @@ entassait là les cadavres et on les précipitait sur la
 
                               187
 
-[leaf 0469]
-
 voie par dessus la grille. En bas, les cadavres
 étaient relevés, entassés sur des wagons découverts,
 et transportés hors Paris, où ils étaient inhumés dans
@@ -4971,31 +4561,16 @@ M. Riant, qui fut conseiller municipal. Sur l'emplace-
 ment de cette propriété a été édifié un lycée de jeunes
 filles, le lycée Racine...
 
-[leaf 0470]
-
-[leaf 0471]
-
-[leaf 0472]
-
                               191
 
-[leaf 0473]
 [blank verso — bleed-through "LES DEUX INDEX" visible]
-
-[leaf 0474]
 
               Le nom souligné est celui d'un membre
                        de la Commune.
 
                               193
 
-[leaf 0475]
-
-[leaf 0476]
-
                               195
-
-[leaf 0477]
 
   Cambon (Paul). — 58. (et non    Constant Martin. — 57.
   Clément (sous-greffier). — 23.    121.
@@ -5003,42 +4578,24 @@ filles, le lycée Racine...
 
                               196
 
-[leaf 0478]
-
     82.
 
                               197
-
-[leaf 0479]
 
                                      81. 82. 86.
 
                               198
 
-[leaf 0480]
-
                               199
-
-[leaf 0481]
 
                               U   Villiaumé (le père, et non le
 
-[leaf 0482]
-
-[leaf 0483]
-
-[leaf 0484]
-
                               203
 
-[leaf 0485]
 [blank verso — bleed-through "LA TABLE" visible]
 
-[leaf 0486]
-  DU MÊME AUTEUR aux Cahiers de la Quinzaine...             5
   MAXIME VUILLAUME. — mes cahiers rouges                    7
 
-[leaf 0487]
   onzième cahier              de la treizième série
 
   I. — Le capitaine Montels, qui, le 22 janvier 1871, conduisait la
@@ -5061,8 +4618,6 @@ filles, le lycée Racine...
 
                               206
 
-[leaf 0488]
-
        IV. — « Nous partons pour Versailles ! »
        Fac-simile d'un billet adressé par Édouard Moreau à une personne amie.
        Le billet n'est pas daté, mais il a certainement été écrit le 3 avril,
@@ -5071,7 +4626,6 @@ filles, le lycée Racine...
 
                               207
 
-[leaf 0489]
   onzième cahier              de la treizième série
 
   INDEX alphabétique général des notices biogra-
@@ -5081,24 +4635,14 @@ filles, le lycée Racine...
   Nous avons donné le bon à tirer après corrections
   pour dix-huit cents exemplaires de ce onzième cahier
   et pour vingt-huit exemplaires sur whatman le mardi
-                                          Le gérant : CHARLES PÉGUY.
 
   Ce cahier a été composé et tiré par des ouvriers syndiqués
 
   JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, SURESNES. — (180.)
 
-[leaf 0490]
-
-[leaf 0491]
-
-[leaf 0492]
-
                               211
 
-[leaf 0493]
 [blank verso — bleed-through "LES NEUF SOMMAIRES" visible]
-
-[leaf 0494]
 
   I. — une journée à la cour martiale du Luxem-
   Avant-propos de Lucien Descaves :
@@ -5118,8 +4662,6 @@ filles, le lycée Racine...
   l'histoire qui ment.
                               213
 
-[leaf 0495]
-
   L'ARCHEVÊQUE (mercredi 24 mai) ; le capitaine de Beau-
 fort ; premier cadavre ; la cantinière Lachaise ; Six
 fusillés, six otages ; Nous voulons l'archevêque ; Et
@@ -5138,22 +4680,17 @@ Devant les juges ; Saint-Omer ; Émile Goïs ; Aujourd'-
 
   III. — quand nous faisions le « Père Duchêne ». —
 
-  LA RÉPUBLIQUE DE LA MORT ! — I. — Je rencontre Ver-
 mersch ; Colonne en tête ; — II. — La République ou la
 Mort ! ; la mère Gaittet ; l'argent ; — III. — Est bou-
 gremement en colère ; — IV. — Mort et Résurrection ;
-  NOS APRÈS-MIDI ; — I. — dans la Fournaise ; — II. — la
 Commune Proclamée ; Celui qui n'est pas là ; jusqu'à
 la mort ; — III. — Le Canon du Père Duchêne ; des
 Héros ; — IV. — Henriette la jolie cantinière ; à Beau-
 chez Protot ; — VI. — notre citoyen curé ; — VII. —
-  LE BATAILLON DU PÈRE DUCHÊNE ; — I. — Si nous formions
 un bataillon ; Brillant uniforme ; ça ne va, çà va chez ;
 Rossel ; Déjeuner à la Caserne ; — II. — Bataille ;
 
                               214
-
-[leaf 0496]
 
   Reçu du citoyen Vuillaume ;
   Jusqu'au Père-Lachaise ;
@@ -5169,20 +4706,12 @@ court ; Vision d'horreur ; Légende et Vérité ; Témoi-
   DELESCLUZE ; — un nouveau Baudin ; à Sainte-Élisabeth ;
 l'anneau de plomb ; l'acacia ; résolution suprême ;
   deux amis du Père Duchêne ;
-  A L'HOTEL-DIEU ; — Cigares d'un sou ; au Parvis ; la
 gloire de Paget ; autels et lilas ; incendiaire ;
   ceux du quartier ;
   CHEZ GLASER ; — l'Empire ; la Guerre ; la Commune ;
   ceux de l'exil ;
-  MON AMI LE COLONEL ; — Genève ;
-  LE PÈRE GAILLARD ; — Genève ;
 
                               215
-
-[leaf 0497]
-
-  DIMANCHE A LA FRONTIÈRE ; — Genève ;
-  OISEAUX DE PASSAGE ; — Lausanne ;
 
   V. — par la ville révoltée ;
   L'ENTRÉE DES PRUSSIENS ; — Premier mars 1871 ; Bonjour,
@@ -5193,18 +4722,13 @@ plus beau jour de ma vie ! ;
   LA COLONNE ; — Survivants d'Austerlitz ; Place Vendôme ;
 César écroulé ; Victoire et Revers ; quatre ans après ;
   ceux qui se battent ;
-  AUX ARMES, CITOYENS ! ; — la nuit du 3 avril ; Bataillons
 qui défilent ; dans les lilas ;
   TYPES D'INSURGÉS ; — l'Hercule ; Voltaire et Rousseau ;
   CANAILLE HÉROÏQUE ; — deux témoignages ; les beaux
 brigands ! ; enfants de la Commune ;
-  çà et là ;
-  LA PIÈCE DE LA COMMUNE ; — de la Monnaie au Onzième ;
 la pièce « au Trident » ; Reliques ;
 
                               216
-
-[leaf 0498]
 
   matin de bataille ;
   sous l'Odéon ; un pavé, citoyen ; chez Lapeyrouse ; rue
@@ -5220,9 +4744,6 @@ perquisitionner ; gardien de la paix ! ; Fuite ;
   Accueil ; la chambre aux Prussiens ; Apparition ; Malin
   Départ ; vers le Jura ; Contrebandier ; au Port ;
 
-[leaf 0499]
-
-  LE FUSILLÉ DU PONT-NEUF (Mercredi 24 mai)
   LES DOMINICAINS (Jeudi 25 mai) ; la lettre de Léo Melliet ; le Moulin-
 Saquet ; nous sommes trahis ! ; Serizier ; protestation
 suprême ; témoignages ; Moreau le Dominicain ;
@@ -5239,8 +4760,6 @@ je ne veux plus vivre ! ;
 
                               218
 
-[leaf 0500]
-
   I. — SAINTE-PÉLAGIE ; — dans la prison ; la porte ; le prison-
 nier ; l'interrogatoire ; le chemin de ronde ; « J'ai fait
 mon devoir » ; André Slom ; l'arrestation ; Théodore
@@ -5255,14 +4774,9 @@ de Legge ; l'ordre de faire feu ; mentalité ; Jules Ferry ;
 devant le Jury d'accusation ;
 
   I. — LE SIÈGE ; — Genève ; rencontre ; vers Paris ; arres-
-  II. — LA COMMUNE ; — à l'Hôtel de Ville ; à Versailles ;
-  III. — L'HOMME DE LETTRES ; — au Théâtre Rossini ;
 
                               219
 
-[leaf 0501]
-
-  IV. — LE CHATELET ; — défaite ; la cour martiale ; la
   I. — LE DÉCRET DES OTAGES ; — rédigé par Protot ; les
 
   Plusieurs de ces cahiers rouges étant épuisés, comme
@@ -5275,7 +4789,6 @@ stance des sept premiers cahiers rouges.
 
   Voici le sommaire du volume :
 
-  MAXIME VUILLAUME. — Mes Cahiers Rouges au
 temps de la Commune ;
   Une Journée à la Cour martiale du Luxembourg ;
   Un peu de vérité sur la mort des Otages ;
@@ -5288,15 +4801,12 @@ amis ; Le Bataillon du Père Duchêne ; Derniers Jours ;
 
                               220
 
-[leaf 0502]
-
   Par la Ville Révoltée ;
        Chez Glaser ; L'Entrée des Prussiens ; La Colonne ; A
        l'Hôtel-Dieu ; A la Justice ; Protot et Me Rousse ; Vol-
        taire et Rousseau ; Au Club Séverin ; Café d'Orsay ;
        Concert aux Tuileries ; La Pièce de la Commune ;
        Pourquoi Delescluze marcha-t-il à la mort ? ; Matin de
-       Bataille ; La Rue Rouge ;
        Mon oncle le Maréchal ; Hors Frontière ; Genève ;
   Ceux de l'Exil ;
        Mon ami le Colonel ; le Père Gaillard ; Dimanche à la
@@ -5304,17 +4814,3 @@ amis ; Le Bataillon du Père Duchêne ; Derniers Jours ;
        Le citoyen Privé ; Rang ; Dombrowski ; Le Mur ; A Bré-
 
   Ce volume est en vente à la librairie des cahiers.
-
-[leaf 0503]
-
-[leaf 0504]
-
-[leaf 0505]
-
-[leaf 0506]
-
-[leaf 0507]
-
-[leaf 0508]
-
-[leaf 0509]

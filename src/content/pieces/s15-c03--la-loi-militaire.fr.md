@@ -306,16 +306,11 @@ L'intitulé du projet de loi ayant pour objet de modifier la loi du 21 mars 1905
 
 « Projet de loi modifiant les lois des cadres de l'infanterie, de la cavalerie et de l'artillerie, en ce qui concerne l'effectif des unités, et fixant les conditions du recrutement de l'armée active et la durée du service actif et la durée du service dans l'armée active et ses réserves. »
 
-Des effectifs
-
 Les lois relatives à la constitution des cadres et des effectifs de l'infanterie, de la cavalerie et de l'artillerie sont
 
 modifiées comme suit en ce qui concerne l'effectif des unités : (1)
 
 | | Compagnies des régiments d'infanterie | Compagnies des bataillons de chasseurs à pied | Régiments de cavalerie | Batteries d'artillerie de 75 et 155 T. R. | Batteries d'artillerie à cheval |
-|---|---|---|---|---|---|
-| Unités à effectif normal.. | 140 | 160 | 540 | 110 | 140 |
-| Unités à effectif renforcé. | 200 | 200 | 810 | 130 | 160 |
 
 Les effectifs fixés par les lois des cadres et des effectifs représentent les nombres au-dessous desquels le total des hommes du service armé présents dans les différentes unités ne peut être abaissé. Ces effectifs ne peuvent être modifiés que par des lois spéciales indépendantes des lois de finances.
 
@@ -478,7 +473,6 @@ l'approbation de juges compétents, (1) c'était l'évidence que l'effectif norm
 La Commission de l'Armée reprit ses travaux le 24 avril, sous la présidence de M. Le Hérissé. Le Conseil supérieur s'était réuni la veille. Il avait arrêté les chiffres suivants pour les effectifs de l'intérieur et pour ceux de la couverture, effectifs minima et effectifs à l'incorporation :
 
 | | Effectifs minima | Effectifs à l'incorporation |
-|---|---|---|
 | Compagnie d'infanterie de couverture... | 200 | 220 |
 | Compagnie d'infanterie de l'intérieur... | 140 | 154 |
 
@@ -487,7 +481,6 @@ La Commission de l'Armée reprit ses travaux le 24 avril, sous la présidence de
 | Batterie montée de couverture... | 140 | 154 |
 | Batterie montée de l'intérieur... | 110 | 121 |
 | Batterie à cheval (couverture et intérieur). | 125 | 192 |
-| Batterie de montagne... | 140 | 154 |
 | Batterie à pied de couverture... | 160 | 176 |
 | Batterie à pied de l'intérieur... | 120 | 132 |
 
@@ -496,9 +489,6 @@ La Commission de l'Armée reprit ses travaux le 24 avril, sous la présidence de
 | Compagnie du génie de couverture (sapeurs-mineurs, sapeurs de chemins de fer)... | 200 | 230 |
 | Compagnie du génie de l'intérieur (sapeurs-mineurs, télégraphistes)... | 140 | 154 |
 | Section de projecteurs... | 50 | 55 |
-
-| Section d'aviation... | 60 | 66 |
-| Compagnie d'aérostation... | 150 | 165 |
 
 Le ministre de la Guerre avait accepté ces chiffres ; il en informait la Commission de l'Armée par une note dont M. Le Hérissé donna lecture.
 
@@ -992,8 +982,6 @@ Chute volontaire, chute due à l'égoïsme de la famille qui a préféré le bie
 
 Il n'y a donc pas d'autre moyen de donner à nos effectifs le nombre et, par le nombre, l'instruction plus forte, la couverture plus forte, la mobilisation plus rapide, il n'y a pas d'autre moyen de rétablir, dans la mesure du possible, l'équilibre militaire, il n'y a pas d'autre solution au problème de vie et de mort qui est posé devant nous que la prolongation de la durée du service dans l'armée active. (Applaudissements au centre et sur divers bancs)
 
-Il n'y en a pas d'autre.
-
 Mais quelle doit être cette prolongation ?
 
 Vous connaissez celle que nous proposent certains de nos collègues.
@@ -1440,8 +1428,6 @@ M. le général Pédoya. — Nous avons été battus parce qu'à ce moment nous 
 
 M. Jaurès. — On avait la loi de sept ans.
 
-M. Driant. — Et Bazaine.
-
 M. le général Pédoya. — Nous avons été battus parce que nos magasins avaient été vidés par la campagne du Mexique, que l'armée manquait de tout. (Vifs applaudissements à l'extrême gauche et à gauche)
 
 M. Jules-Armand Razimbaud. — Comme aujourd'hui par le Maroc.
@@ -1774,8 +1760,6 @@ M. Jaurès. — Je ne dis rien à l'égard de M. Reinach qui ne puisse être dit
 
 Dès que je pris connaissance du discours de M. Jaurès, j'adressai au directeur du Temps la lettre suivante :
 
-Mon cher directeur,
-
 La Faculté me condamnant à rester alité, voulez-vous me permettre de répondre dans le Temps aux allégations de M. Jaurès dans la séance d'hier ?
 
 Je reconnais, comme j'en suis déjà convenu dans une conversation avec M. Jaurès, que l'indication précise du triangle Montereau-Moret-Fontainebleau est du capitaine Gilbert, reproduite par M. Jaurès dans sa proposition de loi sur l'organisation de l'armée. La protestation véhémente de M. Jaurès n'en est pas moins tardive, et au surplus en contradiction avec sa thèse générale du repliement et de la concentration en arrière.
@@ -1872,8 +1856,6 @@ Il rappela donc que « l'incorporation à vingt ans n'était pas d'initiative go
 
 Comme « il se produisait en faveur de cette réforme un mouvement dans l'opinion publique », le Gouvernement était tenu de l'examiner.
 
-Le Sénat m'excusera,
-
 dit alors M. Barthou,
 
 d'entrer dans les détails, mais cela est nécessaire (Parlez ! parlez !) parce
@@ -1883,8 +1865,6 @@ qu'il y a là une question non seulement de dignité personnelle, mais d'autorit
 Le 11 juin, je provoque, au Ministère de la Guerre, après la séance de la Chambre, une réunion à laquelle je convoque le général Joffre, le général Pau, le général Legrand, le Directeur du Service de Santé, M. le Ministre de l'Intérieur, le Président de la Commission de la Chambre, M. Le Hérissé, MM. Joseph Reinach et de Montebello, auteurs d'un contre-projet.
 
 Le ministre de la Marine, M. Baudin, et le rapporteur de la Commission de l'Armée, M. Paté, avaient été également convoqués et assistaient à la réunion.
-
-Nous examinons,
 
 la question de l'incorporation à vingt ans ; je pose des questions au Service de Santé. Le Service de Santé me déclare, qu'à la condition que certaines mesures rigoureuses soient prises, il n'est pas opposé au principe. Je me retourne vers le généralissime, je me retourne vers le général Pau, je leur demande en quoi le principe de l'incorporation à vingt ans et de l'application de la mesure à la classe 1913.
 
@@ -2209,8 +2189,6 @@ Et, comme M. Vincent demanda la parole, le ministre de la Guerre insista : « No
 
 M. Vincent n'avait pas renversé en si peu d'instants un chapitre si considérable de la loi pour laisser croire qu'il avait seulement travaillé à faire revivre l'ancien projet de M. Étienne. Il tint, avec raison, à marquer toute la portée de son succès personnel, à donner tout son sens au vote que la Chambre allait émettre, première victoire des adversaires de la loi. Ayant commencé par remercier de leur adhésion le ministre de la Guerre, le président et le rapporteur de la Commission :
 
-dit-il,
-
 comme nous sommes tous ici désireux d'une absolue clarté, je me permettrai de rappeler que l'amendement que j'ai déposé étant ainsi libellé : « Tous les
 
 hommes reconnus aptes au service militaire sont tenus d'accomplir effectivement la même durée de service »...
@@ -2294,8 +2272,6 @@ même séance du 7 juillet, que la règle égalitaire, qui venait d'être posée
 Le résultat du scrutin était à peine prononcé que M. Breton escalada la tribune pour développer l'amendement suivant : « La présente disposition n'est pas applicable aux mesures ayant pour but exclusif de maintenir et de développer la population du pays. » C'était poser à nouveau toute la question des familles nombreuses. On a reproché à M. Breton de l'avoir reprise prématurément ; il eût fallu attendre quelques jours, donner à la Chambre le temps de réfléchir aux conséquences de son vote. Quoi qu'il en soit, il y avait d'autant plus de mérite à cette intervention de M. Breton qu'adversaire très résolu de la loi de trois ans, il se séparait, dans leur manœuvre victorieuse, de ses amis.
 
 Il exposa avec beaucoup de force l'idée sociale qui avait inspiré le Gouvernement dans son premier projet, puis, M. de Montebello et moi dans notre contre-projet.
-
-dit-il,
 
 la Chambre écarte du projet toutes les dispositions ayant pour but exclusif d'arrêter la dépopulation de notre pays, elle assumera devant l'histoire la plus écrasante responsabilité. (Applaudissements sur divers bancs) Si nous n'agissons pas, l'Allemagne n'a qu'à attendre quelques années, nous serons bientôt pour elle une proie facile. Actuellement, vous le savez, il naît cinq Allemands contre deux Français, de telle sorte que, dans vingt ans, nous n'aurons plus que deux soldats à opposer à cinq envahisseurs allemands.
 
@@ -3212,5 +3188,3 @@ S'ils revenaient en France avant leur passage dans l'armée territoriale, ils de
 Pendant les périodes de résidence obligatoire à l'étranger prévues par les dispositions du présent article, les intéressés sont admis à faire en France, chaque année, des séjours de trois mois.
 
 Dans le délai de six mois à partir de la promulgation de la présente loi, le Gouvernement présentera un projet de loi réglant les conditions de recrutement des indigènes en Algérie, aux colonies et dans les pays de protectorat.
-
-# OCR COMPLETE — Reinach, La Loi militaire, end of Loi du 7 août 1913 Art.47, p.298

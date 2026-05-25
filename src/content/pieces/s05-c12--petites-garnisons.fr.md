@@ -245,8 +245,6 @@ notre préfet violet, plat comme une punaise en face d'un lourdaud magistrat rur
 
 Le royaliste Courrier du Maine raconte ainsi les réceptions du premier janvier :
 
-Le premier janvier
-
 L'expulsé du Carmel a eu soin de publier dans la Semaine dite religieuse la liste des personnes qui se sont présentées à l'Évêché le premier janvier.
 
 Cette liste n'est pas longue, et il suffit de la parcourir pour constater à quel point le Préfet violet est tombé bas dans l'estime de ses diocésains : des fonctionnaires, rien que des fonctionnaires, c'est-à-dire des hommes qui étaient contraints et forcés à saluer celui qui figure l'évêque de Laval.
@@ -370,8 +368,6 @@ Non seulement M. Brochard ne peut rien contre l'application de ces lois, mais il
 d'influence ?... C'est encore pour cette raison que nous voterons tous pour lui.
 
 Propriétaires, bouilleurs de cru, — cultivateurs, ouvriers, votez pour M. Lesellier, il y va de votre intérêt !...
-
-Vos dévoués serviteurs,
 
 (Avenir de la Mayenne, 15 mars 1903)
 
@@ -929,8 +925,6 @@ C'est le tour de M. Roche, conseiller municipal, un des vieux amis et collègues
 
 elle étreint tous les auditeurs. Il doit renoncer à parler plus longtemps et c'est M. Octave Desnoues qui lit le discours suivant :
 
-... Mes chers amis,
-
 Lorsque dimanche se répandit dans Sandillon la nouvelle de la mort d'Amédée Bonhaume, ce fut, chez nous tous, une profonde émotion.
 
 Non pas seulement cette émotion qui se produit lorsque s'en va tout à coup une personne à qui paraissait promise encore une longue vie, mais aussi l'émotion profonde qui étreint le cœur lorsque disparaît un ami justement apprécié et aimé.
@@ -971,8 +965,6 @@ On a beaucoup commenté divers incidents.
 
 Le curé de Sandillon crut devoir faire une démarche pour éviter le « scandale » d'un enterrement civil. Il se heurta à la volonté expresse de la famille de
 
-[leaf 0330] [p. 115]
-
 faire respecter les instructions souvent et hautement affirmées d'Amédée Bonhaume.
 
 D'autre part, le conseil municipal, lorsque vient à mourir un des conseillers, se réunit d'urgence, offre une couronne et assiste en corps aux obsèques. Jamais Amédée Bonhaume ne refusa sa cotisation pour rendre au collègue disparu, — même réactionnaire, — un dernier hommage. Il assistait aux obsèques. M. Baguenault (de Puchesse) et ses collègues réactionnaires ont cru devoir changer cette coutume digne et correcte.
@@ -983,8 +975,6 @@ Ceci se passe de commentaires, comme aussi l'attitude singulière, pour ne pas d
 
 Le *Progrès du Loiret*, dans son numéro daté du samedi 19 décembre 1903, publiait le compte rendu suivant :
 
-[leaf 0331] [p. 116]
-
 Cérémonie laïque et républicaine
 
 Ainsi que nous l'avons annoncé, le mariage de M. Henri Guingand, fils du sympathique député de Gien, avec mademoiselle Adrienne Couté, de Montargis, a été célébré, mercredi matin, à la mairie de cette ville.
@@ -993,13 +983,9 @@ Et cette cérémonie a été, pour les deux familles, l'occasion d'affirmer haut
 
 La cérémonie, d'ailleurs, grâce à M. le maire de Montargis, n'y a rien perdu en solennité. L'assistance était nombreuse, qui se pressait dans la magnifique salle des fêtes de l'hôtel de ville, et nous nous excusons à l'avance des oublis inévitables que nous commettrons dans la longue énumération des personnes qui avaient tenu à donner aux nouveaux époux et
 
-[leaf 0332] [p. 117]
-
 à leurs familles un témoignage public de leur sympathie :
 
 M. Raux, sous-préfet de Montargis ; M. Vauzy, sous-préfet de Gien ; M. Pannet, conseiller général de Gien ; MM. Rain et Chomette, conseillers d'arrondissement ; M. Thibault, maire de Gien ; MM. Delaporte et Malâtre, adjoints au maire de Montargis ; M. Perrier, procureur de la République ; M. Craponne, substitut ; MM. Slauve et Letercq, juges ; M. Vrabet de Amade, ingénieurs ; M. Goubin, maire de Chalette ; M. Sibre, capitaine de gendarmerie à Gien ; M. Intins, ancien maire de Gien ; M. Merry, directeur de *la Vraie République* ; MM. Martin et Gogois, délégués de la Libre-Pensée de Gien ; M. Boitiat, inspecteur primaire ; M. Dupont, directeur de l'école de garçons ; mademoiselle Evelin, directrice de l'école des filles de la rue Gambetta ; mademoiselle Roulleau, directrice de l'école de filles de la Chaussée ; M. Gastebled, sous-inspecteur d'enregistrement ; MM. Nouailles, Dardel, Combes, professeurs au collège ; MM. Raillard et Falleau, professeurs au Chesnoy ; M. Jaget, inspecteur des chemins de fer ; MM. Noël, Diedrich et Ferrez, président et vice-président de la coopérative P.-L.-M. ; MM. Mainguet, Prudhomme, Ballot, Lelong, Girard, conseillers municipaux de Montargis ; M. Lafaix, percepteur ; M. Mazoyer, juge de paix ; M. Bailly, notaire ; M. Lefèvre, commissaire de police ; M. Boiraud, président de l'Association fraternelle des employés de la coopérative P.-L.-M. ; M. Midol, trésorier de la caisse d'épargne ; M. Bonneau, contrôleur ; M. Démonté, préposé en chef de l'octroi ; M. Duval, économe de l'hospice ; M. Briais, receveur munici-
-
-[leaf 0333] [p. 118]
 
 pal ; MM. Marlin, Alassœur et Perthuis, conseillers municipaux de Chalette ; M. Harry, adjoint au maire de Villemandeur ; M. Musson, secrétaire de la sous-préfecture ; M. Quirin, vétérinaire ; M. Huard, conducteur des ponts et chaussées ; MM. Gillet, Carlet, Chételot, Corbasson, Revel, conducteurs et commis des ponts et chaussées ; MM. Lecointre, trésorier du Comité des Droits de l'Homme ; Chaumeron, Marx, Gravier, Legros, Chartier, Demné, Guille, etc., etc.
 
@@ -1014,8 +1000,6 @@ On annonce : « Monsieur le maire ! » et M. Sédillot fait son entrée, aux acc
 M. le maire présente ses civilités à la nombreuse assistance, procède à l'examen des pièces de l'état civil et recueille le consentement des parents. Et l'orchestre fait entendre la fantaisie de Dancla (solo pour violon, exécuté par M. Parouty fils).
 
 Une agréable surprise était réservée à la nombreuse assistance. Un chanteur invisible, accompagné par l'orchestre, nous fait entendre un morceau spécialement
-
-[leaf 0334] [p. 119]
 
 composé pour la circonstance et dû à l'un de nos concitoyens qui désire conserver l'anonymat. Nous croyons faire plaisir à nos lecteurs en le reproduisant :
 
@@ -1050,8 +1034,6 @@ composé pour la circonstance et dû à l'un de nos concitoyens qui désire cons
   Sous son niveau plaçant vos têtes,
   Vous dit : « Ayez les mêmes droits. »
 
-[leaf 0335] [p. 120]
-
   Oui, l'homme, ainsi que sa compagne,
   Du foyer sont les souverains ;
   Le sceptre d'or de Charlemagne
@@ -1063,7 +1045,6 @@ composé pour la circonstance et dû à l'un de nos concitoyens qui désire cons
 
   Vers vous, enfin, grave et sereine,
   S'avance une dernière sœur :
-  La Trinité républicaine
   Se complète dans sa splendeur.
   « Aimez et soutenez vos frères, »
   Soupire la *Fraternité*;
@@ -1086,8 +1067,6 @@ Ce plaisir, aujourd'hui, est singulièrement augmenté par la considération et 
 
 Mon cher monsieur Guingand, vous êtes le député loyal
 
-[leaf 0336] [p. 121]
-
 et franchement démocrate auquel, non seulement les populations républicaines de l'arrondissement de Gien, mais encore celles du Loiret tout entier sont fortement attachées.
 
 Nous sommes fiers et heureux d'avoir aujourd'hui à marier votre fils, et le brillant cortège qui vous accompagne, en ce jour de fête, dit combien nous vous tenons tous en grande estime.
@@ -1108,8 +1087,6 @@ De tout cœur, nous vous souhaitons le bonheur que garantit, et c'est à ce bonh
 
 Les deux époux prononcent ensuite le *oui* sacramentel et M. Sédillot leur déclare unis par les liens du
 
-[leaf 0337] [p. 122]
-
 mariage. Les témoins de M. Guingand sont MM. Rabier et Vazeille, députés ; ceux de la mariée, M. Couté, de Pannes (son oncle), et M. Chambellan, directeur d'école à Étampes.
 
 M. Couté donne lecture de l'acte de mariage, cependant que M. Sédillot prie la charmante mariée d'inaugurer sa vie de dame en faisant une œuvre de charité. Les demoiselles d'honneur quêtent alors pour le bureau de bienfaisance. (La quête a produit 74 francs 80.)
@@ -1124,8 +1101,6 @@ Nous ne voulons point terminer ce trop rapide compte rendu sans adresser à M. l
 
 Un grand nombre de personnes s'étaient fait excuser. Citons parmi elles : M. Fort, président du tribunal de
 
-[leaf 0338] [p. 123]
-
 commerce ; M. Tachard, président de la Société d'agriculture, etc.
 
 Au cours des réceptions, M. Martin, délégué de la Libre-Pensée de Gien, a prononcé l'allocution suivante :
@@ -1138,19 +1113,9 @@ L'acte viril accompli aujourd'hui, d'un consentement mutuel, est un bon présage
 
 Et, heureux, par le chemin du travail et de l'honneur, ainsi que l'ont fait vos ascendants, vous parcourrez la vie, que nous vous souhaitons très longue.
 
-[leaf 0339] [blank verso]
-
-[leaf 0340] [half-title]
-
-[leaf 0341] [blank verso]
-
-[leaf 0342] [p. 127]
-
 Georges Clemenceau.— *Discours pour la liberté*. — Je n'ai pu revenir plus tôt sur ce cahier, cinquième cahier de la cinquième série ; je n'ai pu apporter plus tôt les quelques commentaires que je préparais ; l'édition, la fabrication de cahiers tous les jours plus considérables, la publication de textes tous les jours plus considérables m'ont totalement empêché pendant deux mois d'écrire ces commentaires ; mais nous sommes ici d'accord sur ce que nous devons avant tout éditer, fabriquer, autant que nous le pouvons, des cahiers tous les jours plus considérables, publier, autant que nous le pouvons, des textes tous les jours plus considérables ; que les textes valent par eux-mêmes et passent avant les commentaires ; que nous devons réduire nos commentaires autant que la publication de nos textes nous le demande ; que nous savons lire des textes ; et que nous nous passons aisément de commentaires.
 
 Ce que je voulais noter seulement, c'était d'abord ce que ne pouvaient pas bien imaginer d'eux-mêmes ceux de nous qui n'avaient pas assisté à la séance même, c'est ce que nous ont rapporté tous ceux de nos abonnés qui avaient assisté à la séance ; beaucoup d'entre eux n'étaient pas des habitués des séances parlemen-
-
-[leaf 0343] [p. 128]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1158,13 +1123,9 @@ taires ; habitués et non habitués rapportaient cette impression à peu près u
 
 Parties de grande polémique et parties de grande comédie, à côté du compte rendu sténographique officiel, de l'avis unanime des assistants, ne pouvait donner aucune idée, tant elles étaient vives, et tant il est atténué ; c'est pour cela qu'avant publié ce compte rendu sténographique nous devons le compléter à part par cet avertissement qu'il est aussi incomplet ; parties de polémique ancienne et de grande comédie, qui faisaient dire aux anciens, parlant aux jeunes : à présent vous savez une idée de ce que fut comme orateur l'ancien Clemenceau. Il faut croire en effet que à l'ancienne école parlementaire de M. Clemenceau a laissé un si grand souvenir, dans la mémoire de ceux qui l'ont assisté à la séance même, qu'aujourd'hui l'École était assez grande en effet ; assez grande en elle-même ; assez grande par la qualité de ceux qui en étaient les adversaires ; assez grande par tout la qualité, par toute la valeur de la politique
 
-[leaf 0344] [p. 129]
-
 parlementaire en ce temps ; les périodes politiques de même forme ou de même apparence ne sont pas forcément de même qualité, de même grandeur, de même taille ; les républicains d'alors, les opportunistes et les radicaux étaient moins petits sans doute que nos radicaux de gouvernement ; si nous savons quelque chose vraiment, c'est nous savons que Clemenceau renversait les grands opportunistes, ce n'est pas seulement parce que la pièce paraît toujours mieux que le présent ; ce n'est pas seulement parce que nos anciens nous ont dit que leur temps valait mieux ; mais sans doute c'est parce qu'en effet la troisième République, à mesure que des mains de ses rêveurs, de ses martyrs et de ses ouvriers elle est descendue aux mains des politiciens, est descendue tous les jours plus bas dans la petitesse et dans l'ingratitude, dans la corruption. Comme ce grand Bernard-Lazare un jour me le disait ; et je me rappelle textuellement ses paroles ; c'était au moment où il devait évident que les politiques parlementaires, ayant dénaturé l'affaire, allaient dénaturer la reprise de l'affaire : *Les opportunistes*, me dit-il, *ont mis trente ans pour se pourrir ; les radicaux n'ont pas mis trente mois ; les socialistes n'auront pas mis trente jours.* Tout nous fait croire que la vie politique parlementaire était tout de même un peu moins petite dans la première période, pendant les premières années de la malheureuse République.
 
 Ce qui suit, encore aujourd'hui, et dans les discours de M. Clemenceau, et dans quelques-uns de ses articles, c'est que les uns et les autres nous présentent plusieurs des rares textes
-
-[leaf 0345] [p. 130]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1172,15 +1133,11 @@ où nous pouvons avoir connaissance de ce que fut la République, la tradition r
 
 Un grand, un énorme mouvement, événement d'histoire, comme le christianisme, enveloppe tout un système philosophique, mental, sentimental, moral, religieux, toute une vie, tout un monde de pensée, de théologie, de philosophie, d'amour divin, de sentiment, de passion, de charité, des sacrifices, de don ; cela va sans dire ; mais il y a une proportion entre le développement, le déroulement historique du contenu mental et sentimental qui satisfait l'esprit ; pareillement un grand, un énorme mouvement, événement d'histoire, comme l'espérance, comme le socialisme, enveloppe tout un système philosophique, mental, sentimental, moral ; ayons le courage de le dire, métaphysique ; toute une vie, tout un monde de pensée, de métaphysique, de philosophie, d'amour humain, de sentiment, de passion, de solidarité, de communication : cela va bien encore ; il y a si cette même proportion gardée du déroulement historique du contenu mental et sentimental ; mais la satisfaction de l'esprit n'est pas la loi de la réalité ; il y a de grands mouvements, de grands événements de l'histoire qui ne sont pas emplis d'une réa-
 
-[leaf 0346] [p. 131]
-
 lité mentale, sentimentale, correspondante ; il y a de grandes réalités mentales, sentimentales, qui n'obtiennent jamais les mouvements, les événements d'histoire qu'elles nous paraissent mériter ; il y a des événements sans contenu ; il y a des contenus sans événement ; c'est là, du moins il me le semble, un sujet de méditations impuisables pour les philosophes et pour les historiens, selon que l'on aborde tel ou tel problème et cette inquiétude apparente du contenu même ou partant de l'événement, c'est un problème où l'histoire et la philosophie, venues de chez elles chacune, sont étroitement, solidairement engagées.
 
 Par exemple particulier, c'est un cas particulier de problème que de savoir si le socialisme, ayant commencé à donner un mouvement, un événement d'histoire assez proportionné à son contenu idéal, ayant promis, ayant fait espérer la continuation, et l'achèvement de ce mouvement proportionné, ne devrait pas, sous nos yeux va s'arrêter court, pour avoir été criminellement remis aux mains des politiques parlementaires ; c'est un problème particulier de savoir si le socialisme en fin de compte sera un mouvement proportionné ou un mouvement disproportionné, improportionné, à l'événement d'histoire socialiste épuisera dans son déroulement tout au plus tout le contenu de l'idéal socialiste.
 
 A peu près c'est un fait désormais acquis, et l'explication seule de ce fait donné réserverait les inconnus du problème, d'un cas particulier qui provoquerait les méditations, que le mouvement républicain a de beaucoup dépassé le contenu, l'idéal correspondant ; ni dans l'histoire de sa
-
-[leaf 0347] [p. 132]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1190,8 +1147,6 @@ Pourtant si redoublement de ces hautes et grandes considérations nous regardons
 
 Nous avons du mal à nous le représenter aujourd'hui, parce que tout ce qui tient à la République bourgeoise et à l'État démocratique nous apparaît à travers les
 
-[leaf 0348] [p. 133]
-
 déformations radicales, à travers les contrefaçons politiques ; mais ce ne sont là que les tristes conséquences de la corruption, les tristes résultats de la décadence ; il y a eu un personnel républicain ; et la constance et le dévouement de ce personnel prouve que si un mouvement, un événement d'histoire a besoin d'un idéal approprié, ajusté, en fin de compte, proportionné qui l'emplisse pour demeurer au livre de l'humanité, il n'a pas besoin d'un idéal aussi plein pour tenir une assez pleine réalisation temporaire.
 
 Ainsi, comme je l'ai dit dans un précédent *avertissement*, une humanité n'en remplace une autre que si elle est au moins aussi grave, au moins aussi efficiente ; mais un mouvement, un événement d'histoire, temporaire, n'est nullement proportionné à l'événement, au mouvement intérieur dont il fait le déroulement historique.
@@ -1200,21 +1155,15 @@ De même que dans la vie familière et dans la vie de l'histoire nous connaisson
 
 Ainsi un remplacement stable, une survivance, exige au moins une égalité de valeur, de grandeur, de gravité, d'efficience ; mais un événement ne représente pas toujours son contenu ; il y a là une sérieuse difficulté, sur laquelle je reviendrai ; tout ce que j'en ai pu dire aujourd'hui était pour nous garder d'une erreur que je vois souvent commettre au détriment des républicains.
 
-[leaf 0349] [p. 134]
-
 *douzième cahier* *de la cinquième série*
 
 La tentation est ici, en effet, la tentation est grande, premièrement d'évaluer le passé sur le présent, deuxièmement d'évaluer l'événement sur le contenu, l'histoire sur la philosophie, le déroulement sur le mouvement de pensée.
 
 Quand un jeune homme, un homme au-dessous de vingt ans, assiste aujourd'hui aux manifestations de la politique parlementaire, il est tenté de croire qu'il en a toujours été ainsi ; nous avons assez anciens pour avoir dans les premiers temps de nos enfances recueilli le témoignage de mœurs beaucoup moins corrompues, qu'il nous soit permis d'apporter ce témoignage aux jeunes socialistes en faveur de l'ancienne République bourgeoise ; on peut nous en croire ; et nous sommes témoins impartiaux ; il y a eu un temps, et non seulement sous le second Empire, mais dans la première période, pendant les premières années de la troisième République, où ce beau mot de République ne servait pas seulement aux généraux de brigade qui veulent devenir généraux de division, aux généraux de division qui veulent devenir généraux commandant un corps d'armée, aux généraux commandant un corps d'armée qui veulent devenir ministre de la guerre ; ce mot de République a été prononcé, défendu, honoré par des hommes qui ont bravé, pour fonder la République et pour la défendre, les extrêmes dangers des puissances réactionnaires ; pour moi je considère comme un bonheur personnel d'avoir connu, dans les premières années, quelques-uns de ces vieux républicains ; hommes admirables ; durs pour eux-mêmes ; et frères et bienveillants ; je n'ai connu par eux ce qu'était une conscience
 
-[leaf 0350] [p. 135]
-
 entière et droite, une intelligence à la fois laborieuse et claire, une intelligence et demi-voulue naïveté, une bonté ancienne, un courage aisé, gai, infatigable ; et ce perpétuel renouveau de courage et de gaieté ; nous ressemblons peu à ces hommes ; et nous devons continuer à les aimer d'autant ; nous avons des soucis et des tristesses, des peines mêmes qu'ils ne connaissaient pas ; justement parce que notre socialisme est plus plein, il nous fatigue davantage, nous vieillit plus que ne faisait une simple républicanisme ; ces vieux républicains sont plus jeunes à cinquante ans que nous ne le sommes à trente ; ils n'ont pas connu les désillusions, les détournements et les déceptions qui nous attendaient au seuil de l'action socialiste ; ce sont aussi des hommes qui n'écoutent pas volontiers leurs propres désillusions ; ils ont connu des temps heureux, où les républicains vétaient des republicains, et le reflet de cet ancien bonheur, les illuminant encore aujourd'hui, leur maintient une perpétuelle jeunesse.
 
 Les réactionnaires bourgeois, les républicains orléanistes, les nommaient hier épouvante les rouges, les radicaux ; car ce nom même de radicaux, prostitué aujourd'hui à toutes les aventures de politique et d'argent, recouvrait en ce temps ancien, et dans les départements, que je connais, la constance et la fidélité des plus admirables dévouements républicains ; mais jeunes gens ne connaissent guère aujourd'hui de tels hommes ; les mœurs politiques de tous les partis politiques parlementaires sans exception, bourgeois et prétendus socialistes, ont subi depuis vingt ans une altération dont peuvent seuls s'apercevoir les hommes d'un certain âge ; et tout le monde participant au mouvement, à
-
-[leaf 0351] [p. 136]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1226,15 +1175,11 @@ Nous ne devons pas plus faire porter à ces vieux républicains la peine des alt
 
 Je ne sais pas s'il y a de ces vieux républicains à nos jeunes socialistes assez de communication ; le serait
 
-[leaf 0352] [p. 137]
-
 vite dit, et le serait d'un marxisme grossier, inexact, sans doute infidèle, de dire qu'après tout ces républicains étaient des politiciens bourgeois ; non, ils n'étaient nullement des politiciens ; et même ils n'étaient des républicains bourgeois ; ils étaient des ouvriers républicains ; ils ont été les ouvriers de la République ; ils attendaient tout de la République ; ce n'est pas de leur faute si, remise criminellement aux mains des politiques parlementaires, la République a fait faillite ; ils ne sont pas plus responsables de leurs politiciens que nous ne sommes responsables des nôtres.
 
 Je ne crois pas qu'il y ait entre ces vieux républicains et nos jeunes socialistes assez de communication ; il y a entre les uns et les autres l'espace de plusieurs générations révolutionnaires ; ce qui est vrai c'est les hommes de ma génération seuls peuvent avoir eu, dans les toutes premières années de leur apprentissage, avec ces vieux républicains, cette communication immédiate qui ne peut plus s'instituer. Ainsi ces vieux républicains sont toujours jeunes, et pourtant ils ne sont plus guère que par nous en communication avec la jeunesse révolutionnaire ; et nous en communication directe avec la jeunesse révolutionnaire.
 
 Que nos jeunes socialistes ne croient donc le témoignage que nous apportons ; et si ne les ayant pas connus personnellement ils ne peuvent avoir pour ces vieux républicains l'amitié particulière que nous avons, ils ne doivent pas manquer de les estimer grandement ; car s'il est vrai que notre socialisme est beaucoup plus plein d'idéal, de contenu, et d'événement espéré, que leur simple République, il est vrai aussi que dans la réalité ils ont effectué, ils ont réalisé beaucoup plus que nous
-
-[leaf 0353] [p. 138]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1244,23 +1189,17 @@ Si ces hommes ont gardé, pour les discours et pour les articles de M. Clemencea
 
 Oublions pour cela les enseignements que nous avons reçus dans nos classes de logique, oublions tout ce que nous avons eu nous-mêmes peine à apprendre sur la première tentation scolaire, sur la deuxième tentation ici, et c'est la grande tentation scolaire, est de mesurer la réalité de l'événement républicain à la réa-
 
-[leaf 0354] [p. 139]
-
 lité de son contenu mental, et un jeune homme, un homme au-dessous de vingt ans, à peine entré dans les premières années de son apprentissage, ayant aperçu les immenses profondeurs du socialisme révolutionnaire et libertaire, jettera un coup d'œil dédaigneux sur cette pauvre ancienne République politique bourgeoise et dira : Il n'y avait rien dans cette misérable et vieille République ; aucune pensée, aucun système, aucune philosophie, aucune connaissance de l'histoire ; donc elle n'a rien pu développer dans l'événement ; il n'y a pas eu un personnel républicain, un dévouement républicain, un dévouement républicain. — Erreur grossière, jeunes écoliers, — je parle comme ces anciens, — confusion venue de naïveté. Cette République, si pauvre, en théorie, de contenu mental et sentimental, a, dans la réalité, suscité un peuple de dévouements qui la dépassaient de beaucoup ; et c'est justement de quoi nous n'avons pas à nous vanter, que le socialisme, qu'un socialisme aussi plein de sens en soit encore à soulever les dévouements jeunes, constants, non vieillissants, qu'une République aussi pauvre a certainement suscités.
 
 La satisfaction de l'esprit ne fait pas la loi de la réalité ; les événements ne sont pas proportionnés justement à leur contenu ; nous qui représentons le grand socialisme, combien de défaillances, de fatigues et d'aigreurs ne reconnaissons-nous pas autour de nous, et la simple République bourgeoise, mère ingrate, a été servie en son temps par tout un peuple d'ouvriers laborieux et gais.
 
 Ainsi est la réalité ; dans la même nation, à trente ans de distance, il y a eu un mouvement qui n'était
 
-[leaf 0355] [p. 140]
-
 *douzième cahier* *de la cinquième série*
 
 rien, qui n'avait rien, ni grande philosophie, ni grande pensée, ni grand contenu, ni grand sens ; et toutes ces pauvretés ensemble ont animé un grand personnel, ont fait, ont constitué une existence, ont obtenu un déroulement dans l'histoire, un événement ; il y avait rien ; et il y a eu, il s'est passé quelque chose, il a existé quelque chose ; aujourd'hui un mouvement capital, plein de philosophie, plein de pensée, plein de sens, plein de contenu, n'obtient rien, ni personnel, ni dévouement, ni travail ; il y avait beaucoup ; et il n'y a plus rien ; nulle réalisation ; nulle existence ; en dehors de la déperdition politique parlementaire ; peu avait donné beaucoup ; beaucoup ne donne rien ; tel est aussi l'effet d'abattement de la désillusion produite sur une génération, au commencement de sa vie morale et sociale, par le manquement de la génération précédente.
 
 Ainsi est la réalité ; Hugo était un bourgeois ; et même il l'était pas en des meilleurs parmi les bourgeois ; il n'en a pas moins obtenu un peuple de lecteurs ouvriers, qui lisaient pieusement, constamment, patiemment, avec enthousiasme ; et joyeusement ; car ces hommes étaient joyeux ; bons et gais ; ils chantaient ; on ne chante plus comme ils chantaient ; ils allaient, ils chantaient, l'âme sans épouvante ; ils avaient des souliers autant qu'aujourd'hui nous en pouvons avoir ; ils chantaient des chansons qui n'étaient nullement des pornographies et qui n'étaient pas non plus l'inévitable *Internationale* ; ils chantaient la *Marseillaise* ; et toute la disparate de fortune obtenue par les mauvais mouvements se ramasse en la disparité de fortune obtenue par les deux hymnes ; ce mouvement, où il n'y avait presque rien, s'est manifesté par un grand événement,
-
-[leaf 0356] [p. 141]
 
 parce qu'un peuple de pauvres gens y ont mis leur cœur ; cette *Marseillaise*, dont les paroles sont si peu pleines, et si contestables, elle a tenu, dans la réalité de l'histoire, de la passion révolutionnaire complète comme aucune *Internationale* n'en a contenu encore.
 
@@ -1270,8 +1209,6 @@ Il ne s'agit pas de chercher et de trouver dans les articles et dans les discour
 
 C'est un des raisons pour lesquelles nous avons publié en un cahier ce *discours pour la liberté* ; ces discours n'était pas un simple discours parlementaire ; il était contaminée parfois d'intentions parlementaires ; on y reconnaît aisément des parties parlementaires ; M. Clemenceau est sénateur ; il y a un ministère
 
-[leaf 0357] [p. 142]
-
 *douzième cahier* *de la cinquième série*
 
 Combes à soutenir ; d'où les contaminations parlementaires ; je ne suis pas suspect de n'apercevoir pas dans un discours sénatorial, même de M. Clemenceau, les contaminations politiques parlementaires ; mais nous sommairement le discours de M. Clemenceau *pour la liberté* était plus et autre qu'un simple discours politique parlementaire.
@@ -1279,8 +1216,6 @@ Combes à soutenir ; d'où les contaminations parlementaires ; je ne suis pas su
 Sur M. Clemenceau parlementaire, homme politique, sénateur, candidat, peut-être, à quelque ministère qui à la présidence du conseil, politicien sans doute, ministériel et combiste, je n'ai aucune illusion ; nul homme, quel que soit son talent, ne peut se dérober aux servitudes politiques de telles situations ; M. Clemenceau parlementaire, homme politique, sénateur, candidat ministre, candidat président du conseil, politicien, ministériel et combiste ne peut donner, ne peut valoir que ce que le parlementarisme, la politique, le sénat, la candidature, le ministérialisme, et le combisme permet de valoir, et de donner.
 
 Je n'ai aucune illusion sur la politique de M. Clemenceau. Trois jours après cette séance du mardi 17 novembre, où il avait prononcé le beau *discours pour la liberté*, dans la séance du vendredi 20 novembre 1903, M. Clemenceau, répondant à M. Waldeck-Rousseau, prononça contre *les congrégations* un discours, ou plutôt une exhortation, un entraînement où la politique reparaît toute, où il n'y a rien absolument rien, mais il n'y a rien du discours politique parlementaire que je délie le plus audacieux des politiciens de concilier avec le beau *discours précédent pour la liberté*, où même il est permis d'apercevoir en désaveu politique de ce beau
-
-[leaf 0358] [p. 143]
 
 discours ; dans l'intervalle de ces trois jours, que s'était-il passé ; la politique avait repris le dessus ; Clemenceau homme politique avait regretté son beau discours ; il en avait eu honte ; et il se hâtait de le rattraper ; il se faisait pardonner.
 
@@ -1290,8 +1225,6 @@ M. Clemenceau, un peu tard, s'en est aperçu ; et, comme pour compenser son anci
 
 Non que par un secret retour il n'y ait beaucoup d'antiministérialisme politique parlementaire dans le nouveau ministérialisme politique parlementaire de M. Clemenceau ; et dans cette séance du vendredi
 
-[leaf 0359] [p. 144]
-
 *douzième cahier* *de la cinquième série*
 
 20 novembre où il sauva le ministère de M. Combes, il tomba surtout, sinon le ministère même de M. Waldeck-Rousseau, du moins le ministère waldeckiste ; je vois qu'on s'en est beaucoup félicité autour de nous ; ces débats politiques parlementaires sont beaucoup trop savants pour que j'y puisse participer ; mais il semble que tous ces politiques parlementaires, prétendus socialistes, prétendus dreyfusistes, ont la mémoire courte ; car j'ai au contraire une mémoire extrêmement longue, et anormale, qui peut remonter jusqu'à plusieurs années et beaucoup ; j'ai connu un temps où ces vieux politiques parlementaires, dont nous n'avons jamais été, qui se gaudissaient aujourd'hui de M. Waldeck-Rousseau, se jetaient à ses pieds et le suppliaient d'accepter le pouvoir ; et en ce temps-là, qui eût proposé de confier le gouvernement de la République à M. Combes, on l'eût embarqué directement pour Charenton.
@@ -1300,13 +1233,9 @@ Ayant toute sa vie tomber obstinément des ministères dont les torts aujourd'hu
 
 Je n'ai aucune illusion sur le ministérialisme politique parlementaire de M. Clemenceau. M. Clemenceau est beaucoup trop intelligent pour croire lui-même aux raisons qu'il nous apporte et qu'il nous présente en faveur,
 
-[leaf 0360] [p. 145]
-
 en faveur gouvernementale, du gouvernement ; mais voilà ; lui-même il se dit : c'est de la politique ; ce sont des boniments politiques ; c'est bon pour le public politique ; — les politiques nous-mêmes pensent comme nous de la politique ; ils sont les premiers à l'estimer ce qu'elle vaut, c'est-à-dire à la mépriser ; mais ils disent : voilà, c'est de la politique ; — et ce mot excuse tout ; on fait ainsi, on diminue un domaine séparé où les obligations les plus simples de la morale ne fonctionnent plus, ne pénètrent pas, où les devoirs les plus élémentaires sont nuls et non avenus ; et les hommes politiques sont les premiers à savoir le peu que vaut le public politique.
 
 Je n'ai aucune illusion sur le nouveau ministérialisme, sur le ministérialisme politique parlementaire de M. Clemenceau ; comme tout le monde je suis excédé de lire tous les matins dans l'*Aurore* le même article, où toute l'argumentation, fort brillante, revient à qualifier de *romains* les catholiques français ; comme si ce n'était pas une gageure d'aberration que le jugement historique et social que de nommer romain tout un culte rituel, toute une religion, aussi vieille, aussi indigène, aussi terrienne, et aussi enracinée ; étaient-ils donc des Romains, un Théroude et un Villon, un Ronsard et un du Bellay, un Descartes, un Corneille, un Pascal, un Racine, un Chateaubriand, un Lamartine, un Pasteur ; devons-nous croire, si nous sommes nous-mêmes, qu nulles traces de leurs anciens et de leurs nouveaux catholicismes français n'aient subsisté dans ces pays ; devons-nous croire, si nous sommes sérieux et historiens, que tout un héritage de pensée, de sentiment, de religion, d'âme, aussi vieux, que tout un passé,
-
-[leaf 0361] [p. 146]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1318,13 +1247,9 @@ bien que je ne le tutoie pas ; comme tout le monde, plus que tout le monde, éta
 
 M. Clemenceau ne sait aussi bien que nous ; il disait l'un dans ses couloirs, par un de ces délicieux écarts de langage qui lui gardent l'amitié de ses amis, qui lui ramènent instantanément la sympathie des tiers, sympathie affectueuse, curieuse et amusée, mais bonne, — car ou a peur, on ne sait jamais bien quel acte, quelle parole va sortir de ce grand humoriste, échapper
 
-[leaf 0362] [p. 147]
-
 de sa fantaisie ou jaillir de sa verve, — il disait : Je ne sais pas si je ne deviens pas ridicule, avec mon histoire. — Mais belle le jour où cette pensée lui vint, comme il est aussi intraitable avec lui-même, et plus intraitable, qu'il ne l'est avec les autres, il a redoublé son histoire, il a refait son article avec une certaine volupté.
 
 C'est justement ce qui m'intéresse ; quand on veut mesurer les ravages de la politique parlementaire, on peut, on doit commencer par en évaluer les ravages moyens, ordinaires, la zone intermédiaire ; et puis quelles sont des effets de la politique parlementaire dans les esprits, dans les caractères moyens ; ce ne sont pas les caractères moyens qui manquent, les petits caractères, faibles, nuls ; ni les esprits nuls ; quand ensuite on veut déterminer les limites de cette zone même, par en haut et par en bas, et effectuer les mesures extrêmes, il faut considérer les *maxima* et les *minima* d'immoralité politique ; en haut les *maxima* d'immoralité politique parlementaire ; en bas les *minima* d'immoralité politique parlementaire ; les *maxima* sont intéressants ; et ils ne manquent pas non plus, ces *maxima* ; il faudrait comme exemple le cas d'un Edwards, le cas d'un Zévaès, ou le cas de M. Henry Bérenger, rien n'est aussi dégoûtant que de fouiller, fût-ce avec les instruments de la chirurgie, dans ces basses régions politiques parlementaires, non moins intéressants, non moins nombreux, les *minima* d'immoralité politique parlementaire peuvent apporter beaucoup de tristesses, ils apportent beaucoup moins de nausées ; ces *minima* d'immoralité politique parlementaire et non *minima* d'immoralité politique parlementaire ; et ce peut que les
-
-[leaf 0363] [p. 148]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1336,25 +1261,17 @@ Il est évident que ce que nous disons des cas moyens et des cas extrêmes, *max
 
 Jaurès fait un merveilleux exemple d'homme politique envahi peu à peu, ravagé par la politique parlementaire ; et si dans ces cahiers nous avons suivi dans
 
-[leaf 0364] [p. 149]
-
 un certain détail son évolution, ce fut pour beaucoup de raisons sans doute, mais ce fut en particulier parce que l'histoire de cette évolution nous renseigne admirablement sur la marche de la maladie.
 
 Clemenceau fait un exemple plus merveilleux encore ; ce n'est point par longues et lentes invasions, ce n'est point par vagues longues, ce n'est point par ondes que la politique parlementaire l'envahit et le pénètre ; il est beaucoup trop fort pour cela ; il se connaît trop bien lui-même ; et il connaît trop bien les environs ; la politique parlementaire fait le pain quotidien de son existence ; il connaît parfaitement la politique parlementaire et les moyens de cette politique ; il fut député, longtemps ; il est sénateur ; et a situation politique a presque toujours dépassé le grade politique où il était parvenu ; son action politique a presque toujours dépassé de beaucoup sa situation officielle ; aussi connaît-il parfaitement la politique et, n'en a presque jamais, comme Jaurès, ému des grandeurs où elle paraît conférer ; son caractère aussi le garde contre les automontages de coups, contre les envahissements de la fatuité ; la politique fait la trame ordinaire de sa vie, de ses articles et de ses discours ; il en parle brusquement, comme un homme averti, comme un homme spontané, un impulsif qu'il est, ayant des amitiés et des inimitiés, solides, que ses ennemis nomment des rancunes, il fait des orties ; qui, entendues en leur sens littéral, le mèneraient toute sa politique même ; cela lui vient justement de ce qu'il représente un peu parmi nous, dans leur esprit et dans leur geste, ces vieux républicains de je parlais ; cela lui vient surtout, et ensemble, de son tempérament même, qui, intraitable, subit malai-
-
-[leaf 0365] [p. 150]
 
 *douzième cahier* *de la cinquième série*
 
 sément les fictions, y compris et surtout les fictions de M. Clemenceau. Ou plutôt son tempérament fait en un exemple persistant d'un ancien tempérament ; indivisément il représente le tempérament des anciens républicains parce qu'ils avaient en eux ce tempérament ; et qu'on lui-même il en a gardé un. Ce sont de telles sortes qui lui maintiennent l'inaltié constante, obstinée, fidèle, de ses vieux amis et admirateurs ; car à son âge, ayant tant vécu, ayant subi tant de vicissitudes politiques, il a conservé ce que Jaurès n'a déjà plus, des amitiés et des admirations ; amitiés, admirations personnelles, d'hommes qui le connaît, qui ont fondé sur lui des admirations, des sympathies qu'il n'aura jamais connues, d'hommes ignorés, qui aiment et l'admirent silencieusement ; qui homme, aujourd'hui, n'a, encore, autant d'amis inconnus parmi les petites gens honnêtes et avisées ; il suscite même aujourd'hui des amitiés et des admirations ; tels de le premier abord, du premier choc, parmi de tout jeunes gens, socialistes, qui préfèrent son radicalisme natif et verjuteux aux vanités oratoires du socialisme scolaire ; ils savent tout ce qui lui manque ; mais ils aiment sa verve primesautière ; ils ont d'autres théories, ils ont d'autres oppositions, et le coup de bouture, ces raides agressions, ces saillies imprévues, ces plaisanteries à la Voltaire, à la Diderot ; car il n'est pas seulement un exemple d'une génération précédente, il remonte fort loin dans la tradition de l'esprit français ; il est clair, ouvert ; il n'est un *philosophe* qu'au sens du dix-huitième siècle ; mais en ce sens il est exactement ce qu'on nommait alors *philosophe* ; averti du travail
 
-[leaf 0366] [p. 151]
-
 scientifique et philosophique juste assez pour ne l'avoir pas approfondi, pas pénétré ; juste à point, assez renseigné, assez ignorant, pour en faire des exposés ; il est pour tous ses amis et admirateurs, pour les uns et pour les autres, j'entends pour les jeunes et pour les vieux, non pas comme un enfant gâté, mais, ce qui est plus amusant, plus rajeunissant, plus délicieux, comme un quart gâté, comme un vieil oncle, qui a de mauvais quarts d'heure, mais à qui, dans ses bons moments, on ne peut résister ; ces bons moments sont proprement les frasques du vieux politicien ; car c'est la trame ordinaire de sa vie politique, parlementaire, gouvernementale, qui condamnerait M. Clemenceau ; et ce qui le sauve, et ce qui lui ramène la sympathie des tiers, la mienne propre, c'est qu'à découvrer, ce sont justement ses moments d'oubli, ses incartades, quand le naturel, et par suite quand la vérité reprend le dessus ; ce sont ses frasques, ses blagues, ses gambades, ses brimades, ses boutades et ses écarts ; on lui pardonnera beaucoup parce qu'il a beaucoup blagué ; il n'a pas toujours, évidemment, le sens du respect que nous devons aux puissances politiques parlementaires ; il ne sait pas toujours obéir et trembler, comme nous devons ; cet irrespect démoniaque a manifestations intermittentes a beaucoup nui à sa carrière politique parlementaire ; mais c'est cela aussi qui le sauve dans la considération des honnêtes gens, dans l'estime des hommes libres ; on assure que c'est à une mauvaise plaisanterie qu'il avait faite à un député qu'il dut de ne pas devenir président de la Chambre ; de tels traits honorent un homme.
 
 La politique lui paraît sans doute, comme à tant
-
-[leaf 0367] [p. 152]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1364,15 +1281,11 @@ Il reste que certains jours, à certaines heures, le vieux sang de l'ancien rép
 
 Le vieil orateur à ces moments retrouve ces parties de grande comédie, des fameuses pochades, des grotesques politiques, des fantoches parlementaires, des bêtes de Voltaire et de Diderot se retrouve aussi le fils de Molière ; on m'assure que dans cette séance du mardi 17 novembre il y eut des parties de la plus grande
 
-[leaf 0368] [p. 153]
-
 et de la plus haute comédie ; on était à cent lieues du Sénat ; c'était tout le vieux débat français, — nullement romain, que l'on n'en croie, — de *l'honnête homme* et de la vie contre la domination de l'école ; c'était le vieux *dit* de Montaigne et de Rabelais, de Descartes et de Molière, de Pascal et de Rousseau contre nos ennemis les doctes ; et l'on dit que l'honorable M. Lintilhac, assis à sa place, faisait mine aussi piteuse que Thomas Diafoirus dessus son tabouret ; il essaya vainement de repousser les premières incursions ; vainement vainement, il se tint coi jusqu'à la fin de l'opération.
 
 Pour toutes ces raisons, et pour beaucoup d'autres, ce *discours* méritait de faire un cahier ; c'est une opération extrêmement intéressante que de chercher à déterminer les ravages de la politique parlementaire dans un homme comme Jaurès ou dans un homme comme Clemenceau, que de chercher à mesurer ces ravages, à en faire pour ainsi dire la reconnaissance topographique, la délimitation, la géographie, la mensuration ; que d'en lever les plans et de dessiner la carte ; nous avons parlé souvent de Jaurès, et dans un certain détail ; nous serons sans doute contraints d'y revenir quelque jour ; car la maladie continue ; nous parlerons beaucoup moins souvent de M. Clemenceau ; il n'est pas comme Jaurès entré dans le mouvement de la politique parlementaire prétendu socialiste, il quand il a fait des bêtises politiques parlementaires, il ne dit pas, comme Jaurès, aux spectateurs, que c'est par le socialisme.
 
 Je ne vais pas anticiper sur des recherches éventuelles ; mais on avait noté pendant l'affaire, — j'entends pendant l'ancienne affaire, cela va de soi, — que les dreyfusistes, ayant raison, avaient plus de talent
-
-[leaf 0369] [p. 154]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1384,8 +1297,6 @@ Les orateurs alors deviennent inéloquents et lourds, les conférenciers bafouil
 
 Il y a là non pas sans doute l'effet d'une justice imma-
 
-[leaf 0370] [p. 155]
-
 nente, mais tout de même comme une immanente sanction, une correspondance, une communication de la cause que l'on soutient au langage que l'on parle ; un homme, pris au hasard, peut très bien dire vrai et bafouiller ; mais le même homme, étant donné le même talent, le même génie, à valeur égale, à dispositions égales, — sauf exceptions et sommairement parlant, — parle plus net, agit plus droit, pousse plus franc de pied quand il sait qu'il dit vrai, que quand il sait qu'il ment.
 
 C'est ce qui fait l'intérêt particulier du *Bloc* et de certaines œuvres, ou études, plus littéraires de M. Clemenceau ; dans *le Bloc* il n'avait tout de même pas des préoccupations politiques autant immédiates.
@@ -1393,8 +1304,6 @@ C'est ce qui fait l'intérêt particulier du *Bloc* et de certaines œuvres, ou 
 *Cahiers de la Quinzaine. — Souscriptions mensuelles.* Je ne sais pas si j'ai dit, dans un cahier précédent, commençant mon compte rendu de gérance, du moins si j'ai exact dit qu'en fait les souscriptions mensuelles modestes annoncées pendant les séries précédentes ont été continuées, depuis le temps de leur annonce, avec une régularité, une constance parfaite.
 
 *Souscriptions extraordinaires*. Je suis heureux de lire dans les journaux qu'un prix Nobel, dix mille couronnes, quatorze mille francs, est allé à un périodique français peu lu, mais qui a un titre presque international ; cela fait un précédent ; quatorze mille francs feraient pour les cahiers une bonne souscription extraordinaire ; quatorze mille francs, tombant dans le budget de la cinquième série, feraient bien, mais ces quatorze mille francs s'ajusteraient assez à notre faim dévorante ;
-
-[leaf 0371] [p. 156]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1404,13 +1313,9 @@ La seule condition que nous y mettions, naturellement, est cette condition unive
 
 Reconnaissons ici l'infériorité naturelle de notre fortune, comparée à celle de nos camarades scientifiques. L'attribution du prix Nobel à un périodique d'action ne va pas comme l'attribution d'un prix Nobel à un chimiste ; un chimiste a quelques envieux, ayant des camarades ; mais il n'a presque pas d'ennemis ; un chimiste peut recevoir un prix Nobel sans rien aliéner
 
-[leaf 0372] [p. 157]
-
 de son indépendance. En outre, tout le monde peut vérifier. Tout le monde, après coup, peut voir ce que c'est que du radium. Il suffit que le chimiste en montre. Au contraire il s'est constitué officieusement parmi le personnel politique professionnelle pacifique une entente internationale assez curieuse, fort connue de tous ceux qui étudient le monde politique parlementaire ailleurs que dans la chaleur communicative des banquets. Il s'est constitué dans plusieurs pays, dans les pays parlementaires, un personnel politique pacifique professionnel dont nous ne devons parler qu'avec le plus grand respect, car ces hommes réchauffent en leurs mains, fomentent les premières, fabriquent les premiers contrats de la paix internationale ; nous examinerons quelque jour leur action ; je ne connais pas personnellement les pacifiques des autres pays ; mais les politiques parlementaires pacifiques professionnels français ont assez de regrettable, qu'ils se font la main en faisant la guerre aux pacifiques français qui ne sont pas politiques parlementaires, par exemple aux socialistes révolutionnaires ; on demanderait que ces grands apôtres politiques parlementaires de la paix internationale eussent un peu moins, pour leur consommation, pour leur usage particulier, les sentiments de la haine et de la guerre.
 
 Nous examinerons quelque jour leur action ; historien, nous examinerons ce que vaut, historiquement, leur action ; socialiste, et révolutionnaire, nous examinerons quelque jour ce que vaut une action sociologique, parlementaire ; nous examinerons particulièrement si les progrès de la paix internationale se mesurent aux quantités de champagne portées en son honneur ou au con-
-
-[leaf 0373] [p. 158]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1418,15 +1323,11 @@ traire s'ils ne se mesureraient pas aux ententes économiques et aux ententes mo
 
 Les hommes qui plus ou moins officiellement représentent parmi nous les populations opprimées, — non pas les populations ouvrières socialement opprimées chez nous et partout, mais les populations nationales nationalement opprimées en Extrême-Orient, en Afrique, en Finlande, en Russie, en Amérique, dans toutes les colonies européennes, en Roumanie, dans toute la péninsule des Balkans, dans tout le monde, — sont, de ce chef, grandement respectables ; ils ont droit à un premier respect, comme ambassadeurs, comme représentant parmi nous des populations étrangères ; ils ont droit à un deuxième respect, extraordinaire, comme ambassadeurs de populations opprimées ; à ce troisième et autre titre, ils ont dans nos luttes politiques parlementaires comme un privilège d'extraterritorialité ; les mêmes hommes, sommairement, sont aussi parmi nous des apostolats ne coïncident-ils pas autant que paraissent le croire des politiques parlementaires avisés et de révolutionnaires enthousiastes ; car la résistance à l'oppression, la révolte, si elle est le premier des devoirs, est exactement un devoir de guerre et non pas un devoir de paix ; et l'autre part, au contraire, le devoir de paix n'est pas un devoir de révolte et combat
 
-[leaf 0374] [p. 159]
-
 contre le devoir de justice ; mais laissons d'examiner cette contrariété intérieure de la paix et de la justice pour quand nous examinerons l'action des pacifiques ; aujourd'hui tout ce nous seulement noter que nous devons respecter triplement les pacifiques parmi nous, comme ambassadeurs, comme ambassadeurs de populations opprimées, comme ambassadeurs de la paix internationale, et nous devons leur conférer dans nos luttes civiques un véritable privilège d'extraterritorialité.
 
 Mais qui ne voit que réciproquement ces ambassadeurs, ces ambassadeurs de populations opprimées, ces ambassadeurs de la paix internationale, jouissant d'un triple respect, jouissant d'un privilège d'extraterritorialité, doivent éviter de participer à nos luttes civiques, s'y mêlant, doivent dévêtir la qualité d'ambassadeur ; la plus simple loyauté le demande, car nous ne pouvons, simples citoyens, nous battre, nous défendre contre des ambassadeurs ; la raison le demande, car des ambassadeurs ne peuvent se battre, des ambassadeurs de populations opprimées ne peuvent s'opposer eux-mêmes, des ambassadeurs de la paix internationale ne peuvent se battre ; et en même temps conserver ce triple caractère d'ambassadeur. Ils ne peuvent pas être à la fois dans le territoire pour donner des coups, et hors du territoire pour ne pas recevoir les riposties.
 
 C'est ce que l'on ne pas compris un assez grand nombre de politiques parlementaires français qui se sont fait une célébrité, une autorité spéciale comme ambassadeurs, comme ambassadeurs de certaines populations opprimées, comme ambassadeurs de la paix internationale et qui ensuite ont converti, qui journellement convertissent, comme nous, sur nous, cette autorité
-
-[leaf 0375] [p. 160]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1434,23 +1335,15 @@ morale en autorité de commandement politique parlementaire ; comme avocats et c
 
 De tous les détournements, de toutes les prévarications politiques parlementaires, celle-ci est je le dirai pas seulement la plus triste ; mais elle est aussi une des plus intéressantes ; nous la retrouverons le jour nous pourrons et nous l'examinerons alors ; on ne saurait trop insister sur un exemple aussi caractérisé ; le mécanisme en est admirable ; et le fonctionnement
 
-[leaf 0376] [p. 161]
-
 rare ; on peut le schématiser ainsi : un oppresseur nationaliste étranger opprime un peuple national étranger ; par exemple un Tsar nationaliste russe opprime un peuple national finlandais ; un député, mettons socialiste parlementaire français, se constitue en France le représentant, le défenseur, l'avocat, l'ambassadeur de ce peuple national étranger opprimé ; par des discours prononcés dans des meetings plutôt qu'à la Chambre, par des articles de journaux et de revues ; nous obtenons ainsi à l'ambassadeur une autorité morale, un triple respect ; l'ambassadeur alors se retrouve politique parlementaire ; comme politique parlementaire il convertit en autorité de commandement cette autorité morale qu'il avait reçue comme ambassadeur ; il exerce enfin cette autorité de commandement sur et contre les simples citoyens qui lui avaient constitué son autorité morale ; et quand, déniaisés, nous commençons à nous vouloir défendre contre cette autorité de commandement, l'ambassadeur se retrouve sous le politique parlementaire ; comment ! disent les bons camarades, vous avez écrit un mot contre ce député qui voulait vous imposer l'autorité de son commandement, son gouvernement, sa politique et son arbitraire ; vous ne savez pas, malheureux, que vous faites le jeu du Tsar et du Sultan.
 
 C'est, appliqué aux relations internationales, ce fameux : *vous faites le jeu de la réaction*, par qui les politiques radicaux réactionnaires obtiennent si aisément, depuis l'amnistie et la corruption de l'affaire Dreyfus, que les mesures de réaction les plus arbitraires, les plus violentes, les plus
-
-[leaf 0377] [p. 162]
 
 *douzième cahier* *de la cinquième série*
 
 graves, soient précisément volées par nos révolutionnaires professionnels de gouvernement fort ; mais il faut avouer qu'aussi appliqué aux relations internationales, avec les mutations, avec les agrandissements nécessaires, cette usurpation prend une valeur singulière ; en définitive l'opération revient à ceci ; elle fait un circuit, d'autorité en autorité, passant par le moyen de la liberté ; quelque part il y a un peuple opprimé ; mettons les Finlandais ; première autorité de commandement, de l'oppresseur sur les opprimés, du Tsar sur les Finlandais ; les Finlandais revendiquent leur liberté ; un Français en France revendique ensuite les libertés des Finlandais ; il est en France honoré d'une autorité morale ; il est, par cette honoration, nous lui faisons une autorité morale ; politique parlementaire, ce Français avocat et ambassadeur se fait de son autorité morale une autorité de commandement ; circuit fermé ; deuxième autorité de commandement ; cette deuxième autorité de commandement a ceci de raffiné qu'elle est exercée en France, par l'un de ceux qui revendiquaient les libertés finlandaises nationales, sur et contre ceux qui revendiquaient ces libertés ; c'est une autorité de commandement toute fondée sur une revendication de liberté ; l'oppression des Finlandais sert à deux fins de servitude, premièrement à la servitude des Finlandais ; deuxièmement à faire de la servitude française ; comme machine à faire de la servitude avec de la liberté, de l'autorité de commandement avec de la liberté, je ne connais rien de mieux, je ne vois rien que l'on soit jamais sûr que le jeu de détournement politique parlementaire ait dit son dernier mot.
 
-[leaf 0378] [p. 163]
-
 Nous aurons beaucoup à conter quand nous traiterons de la politique internationale de nos socialistes gouvernementaux ; nous examinerons en particulier comment il se fait qu'étant députés, ayant un pouvoir constitutionnel d'interpellation, de délibération, et de vote parlementaire effectif, ils n'interpellent jamais le Gouvernement sur sa politique étrangère à la Chambre, où il peut y avoir sanction efficiente, et pourquoi ils interpellent toujours le Gouvernement sur cette politique étrangère dans des groupes socialistes nationaux, où il n'est pas, où il n'est pas représenté, dans des meetings, où tout se passe en paroles ; nous leur demanderons comment on peut soutenir à fond et sans aucune réserve tout un Gouvernement, et n'accepter pas sa politique étrangère, à moins de supposer que la politique étrangère d'un Gouvernement est négligeable, pour les internationalistes, ou que toute notre prétendue opposition ne soit qu'un faux-semblant ; je continue aujourd'hui simplement le compte rendu de ma gérance ; il faut que je dise à nos amis, à nos souscripteurs, à nos abonnés, quel accueil nos cahiers reçoivent auprès des différents publics, auprès des différents personnels ; quand nos abonnés lisent un aussi grand nombre de cahiers, aussi travaillés, aussi considérables, publiés pour les populations opprimées de tout le monde, — et sans excepter les cahiers que nous avons publiés, en tenant aux cahiers des quatre premières séries, et au commencement de la cinquième, à la première partie de la cinquième, — quand nos abonnés lisent tant de cahiers, si considérables, pour les populations extrême-orientales, chinoises, massacrées par les expéditions européennes, asio-chinoises, opprimées par les mission-
-
-[leaf 0379] [p. 164]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1458,11 +1351,7 @@ naires catholiques et par les fonctionnaires français, pour les Juifs de Rouman
 
 C'est ici l'effet d'un de ces raisonnements que je suis beaucoup trop bête pour comprendre ; je n'ignore pas que le combisme a gagné toujours les jours du terrain dans le pays politique parlementaire ; et il en a encore pour un certain temps, à se maintenir ; les oppositions, les défections qui apparaissent tous les jours un peu plus nombreuses ne sont l'effet ni de révoltes libérales ni de révoltes libertaires ; elles ne sont elles-mêmes que les manifestations de combinaisons parlementaires et politiques ; elles menacent moins le combisme que le minis-
 
-[leaf 0380] [p. 165]
-
 tère de M. Combes ; et le combisme est aujourd'hui si puissant dans le monde politique parlementaire, si entré, et profondément, dans les mauvais raisonnements et dans les habitudes mauvaises, dans les plis de discours et dans les plis d'actes que son sort n'est plus lié au sort du ministère Combes ; ce qui est très grave, le combisme reçoit récemment d'illustres et de solennelles adhésions ; ce qui est beaucoup plus grave, et ce qui personnellement m'est très douloureux, je vois qu'il a gagné parmi nos amis, qu'il est entré dans les esprits, qu'il trouble les consciences, qu'il a pénétré ; le combisme réussit, et non d'une réussite éphémère ; non pas seulement de cette réussite extérieure et grossière dont nous pourrions pour un temps nous consoler, non pas seulement de cette réussite matérielle, temporelle, de puissance et de politique, d'aventure et de fortune, et d'opportunisme ; mais de cette réussite beaucoup plus grave qui est de la pénétration dans les consciences ; pour moi, quelque tristesse que j'éprouve quand je vois de grands amis, ou des amis prochains, se séparer, ou s'éloigner de nous, je ne bougerai pas d'une ligne ; je ne plierai pas ; je ne m'inclinerai pas ; je n'inclinerai pas mon idéal socialiste devant les substitutions, les altérations, les abâtardissements du radicalisme politique, devant les adulterations du radicalo-socialisme, devant les limitations de l'opportunisme ; je n'inclinerai pas ma méthode révolutionnaire devant les compromissions, devant les déviations de la politique parlementaire ; dreyfusiste, je n'inclinerai pas la justice devant la raison d'État ; je n'inclinerai pas la vérité devant la raison d'État ; je n'inclinerai pas devant la raison
-
-[leaf 0381] [p. 166]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1472,15 +1361,11 @@ C'est pour cela, je le croirais, ils l'ont, on ne connaissait pas l'esprit et le
 
 Singulière mentalité, vraiment, et que je ne puis pas même un imagination me représenter ; pour se faire le défenseur des libertés nationales finlandaises, n'est-il pas indispensable de se faire le complice des asservissements politiques parlementaires français ? pour qualifié contre les servitudes étrangères il est indispensable de participer aux asservissements français ? de tels raisonnements me passent.
 
-[leaf 0382] [p. 167]
-
 De tels raisonnements passent la raison ; mais dans le déraisonnement général d'un pays tout entier corrompu par la politique parlementaire, ils réussissent d'autant plus ; ainsi nos cahiers, pour avoir maintenu l'indépendance de la rédaction et de l'administration, l'indépendance de leur texte et l'indépendance de leur budget, contre les empiétements d'un gouvernement autoritaire, pour avoir maintenu des droits de la justice, les droits de la vérité, les droits imprescriptibles de la conscience, pour avoir maintenu leur idéal socialiste, leur méthode révolutionnaire, leur méthode dreyfusiste, leur méthode libérale, ou libertaire, sont ou maltraités ou au moins desservis par des hommes qui trouvaient tout cela excellent pour la France il y a quelques années, qui aujourd'hui trouvent tout cela excellent pour tous les autres pays que la France, qui aujourd'hui trouvent tout cela pernicieux pour la France, et dangereux, et hautement condamnable, par cette seule raison qu'aujourd'hui en France ils sont momentanément les plus forts.
 
 Singuliers maîtres Jacques ; ambassadeurs et parlementaires ; justiciers intermittents ; justiciers injustes ; véridiques intermittents ; véridiques menteurs ; avocats intermittents de la conscience inviolable et de la raison d'État ; défenseurs à éclipses ; alternateurs automatiques ; socialistes bourgeois ; révolutionnaires de réaction ; dreyfusistes antidreyfusistes ; libéraux d'asservissement ; libertaires d'esclavage ; parlementaires et ambassadeurs.
 
 Singuliers ambassadeurs aussi, qui pour satisfaire des rancunes ou pour ménager des combinaisons politiques parlementaires, maltraitent ou desservent celui
-
-[leaf 0383] [p. 168]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1496,8 +1381,6 @@ Autre chose est en effet de recevoir d'énormes subventions des nationalités op
 
 Ce qu'il y a de désagréable dans les fondations que l'on fait de prix et d'académies, c'est qu'en dehors des domaines strictement scientifiques, en France, les académies que l'on fait contre la vieille Académie ou à côté d'elle ressemblent à s'y méprendre à la vieille Académie, ayant même limité ses mauvais côtés plutôt que ses bons, son favoritisme et sa littérature plutôt
 
-[leaf 0384] [p. 169]
-
 qu'une certaine tenue, et que les prix vont toujours aux candidats qui ont le plus de parrains. Parrains combistes ou parrains réactionnaires, là aussi on a simplement substitué, au baptême catholique, un baptême laïque, un sacrement de défense républicaine.
 
 Contribution à ce que j'ai dit du vice bourgeois : les prix, surtout les prix en argent, comme les souscriptions, iront toujours de préférence aux riches, avares ou prodigues, et aux besogneux prodigues, aux institutions éblouissantes, sans rendement, sans travail, aux gérants dépensiers, aux grands consommateurs.
@@ -1506,23 +1389,17 @@ Enfin comment ne voient-ils pas que les hommes et que les institutions qui défe
 
 Ni la justice, ni la vérité, ni la liberté ne sont intermittentes ; elles ne sont pas intermittentes selon le temps ; elles ne varient pas avec les années ; elles ne sont pas intermittentes selon le lieu ; elles ne varient pas avec les pays ; elles ne varient pas avec les années politiques ; elles ne varient pas avec les pays, avec les partis politiques ; en ce sens elles sont universelles, comme elles sont éternelles, immuables ; on ne peut les servir un temps, les trahir un autre, les servir quelque part, les trahir ailleurs ; celui qui les sert autant qu'il
 
-[leaf 0385] [p. 170]
-
 *douzième cahier* *de la cinquième série*
 
 peut partout et toujours a seul qualité pour parler en leur nom.
 
 Ainsi l'entendait ce grand Bernard-Lazare ; assailli déjà des inquiétudes, menacé des fatigues, miné de la maladie qui devait nous le dérober treize mois plus tard, ce n'est point par une juxtaposition fortuite que dans le vingt-et-unième et dernier cahier, cahier supplémentaire, de la troisième série, la *consultation* suprême sur *la loi et les congrégations*, datée de Paris, 8 août 1902, joignait un énorme *mémoire et documents de Jean Deck pour la Finlande* ; ce n'était point par un voisinement fortuit que Jean Deck avait de l'amitié pour Bernard-Lazare ; mais cette amitié n'était d'une solidarité d'action ; ces deux hommes faisaient exactement le même métier ; il n'y a qu'une justice, finlandaise et française ; il n'y a qu'une vérité, finlandaise et française ; il n'y a qu'une liberté, finlandaise et française ; demain si les Finlandais, devenus les Russes, nous serions contre les Finlandais, avec les Russes ; la fidélité, la constance dans l'action ne consiste pas à suivre dans la voie de l'injustice les anciens justes, quand ils deviennent injustes ; elle ne consiste pas à suivre dans la voie du mensonge les anciens véridiques, devenant menteurs ; elle ne consiste pas à suivre dans la voie de l'erreur ou du mensonge les anciens libertaires ou les anciens libéraux devenus autoritaires ; c'est la justice même, à la vérité même, à la liberté même que nous devons constance et fidélité, non aux faibles hommes qui peuvent momentanément, et j'ajoute que parmi les hommes constant à beaucoup d'hommes et à beaucoup d'institutions, à tous les partis politiques, pour demeurer fidèle et
 
-[leaf 0386] [p. 171]
-
 constant à la justice, à la vérité, à la liberté ; pour demeurer fidèle et constant au dreyfusisme, il fallait fausser compagnie aux partis politiques parlementaires qui prétendant continuer le dreyfusisme en réalité de détournement, l'exploitaient, le méconnaissaient, le trahissaient ; le dénaturaient ; ce sont les hommes et les institutions politiques, ce sont les partis qui sont infidèles et inconstants à la justice, à la vérité, à la liberté ; pour demeurer fidèles nous-mêmes et constants à la justice, à la vérité, à la liberté, il faut que nous fassions aux hommes et aux institutions politiques, aux partis, des contre-infidélités, des contre-inconstances, égales et de sens contraire à leurs propres, directes, et véritables inconstances, à leurs propres, directes, et véritables infidélités.
 
 Ainsi l'entendait ce grand Bernard-Lazare. Miné déjà de la maladie qui treize mois après devait nous le dérober, ce n'est point par une juxtaposition fortuite, par un hasard de brochage et de circonstances que sa *consultation* suprême pour la liberté de la France rejoignait le mémoire et les documents de Jean Deck *pour la Finlande* ; c'était sans doute par un effet des événements et des circonstances politiques ; mais c'était aussi, et surtout, par un accord intérieur ; tout ce vingt-et-unième cahier était, intérieurement, un *cahier pour la liberté* ; et quel de nos cahiers n'est pas un cahier pour la liberté, s'il est vrai que dans les cahiers mêmes où la liberté n'est pas prononcée, où qui ne sont pas formellement des *cahiers pour la liberté*, la parfaite liberté laissée à tous nos collaborateurs présente en eux-mêmes presque unique de liberté en France.
 
 Ainsi l'entendait ce grand Bernard-Lazare. Je ne veux
-
-[leaf 0387] [p. 172]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1532,15 +1409,11 @@ La politique de M. Combes est accueillie avec faveur ; elle ne rencontre pas seu
 
 La terre de France est la plus vieille terre de liberté, la plus féconde ; la France est proprement dans le
 
-[leaf 0388] [p. 173]
-
 monde la mère de la liberté moderne ; il serait prodigieux que les efforts qu'elle fait pour aller au secours des peuples opprimés lui revinssent en servitude pour ses propres enfants.
 
 La politique de M. Combes est accueillie favorablement. Bernard-Lazare ne séparait pas les libertés françaises de toutes les libertés nationales et internationales ; comment l'eût-il fait, lui qui était plongé tout entier dans les revendications des libertés et de la vie des populations opprimées.
 
 Les hommes qui au-dessus de nous en France veulent asseoir la domination de l'État sont des hommes qui touchent au pouvoir et qui n'ayant jamais défendu les populations opprimées que dans les banquets et dans les meetings, n'ont pas connu, en dessous, le contact immédiat, direct, de la tyrannie ; comme autoritaires, comme gouvernementaux, ils en ont, par en-dessous, un contact qui sans doute leur est extrêmement agréable, et qui n'est pas tout doux d'exercer une autorité de commandement ; mais ni dans la chaleur communicative des banquets, déjà nommée, ni dans la fumée cérémonielle des meetings, ils n'ont, par en-dessous, le froid contact de la tyrannie hamidienne ou de la tyrannie tsariste ; nous n'avons eu, et comme nous pouvons l'avoir tous ceux qui font, le compte, sous leur propre responsabilité administrative et financière, leur propre effort de fabrication, un travail industriel de fabrication, un travail commercial de propagande ; quelques-uns de nos amis se sont demandé jadis pourquoi de le principe je me prononçais aussi nettement contre la démagogie combiste et contre la nouvelle raison d'État ; entre les nombreuses raisons qui aujour-
-
-[leaf 0389] [p. 174]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1550,11 +1423,7 @@ D'autres ont pu faire ce geste élégant ; d'autres nous ont démontré sérieus
 
 Un homme comme Bernard-Lazare, qui ne croyait pas aux banquets, qui n'allait plus beaucoup dans les congrès et dans les meetings, mais qui demeurait profondément dans les populations opprimées du travail industriel et commercial, du travail intellectuel aussi, ne
 
-[leaf 0390] [p. 175]
-
 travail diplomatique et du travail de propagande, qui avait pris et qui gardait le contact de l'ennemi, de la tyrannie ennemie, ne faisait pas de ces différences, politiques, parlementaires, inattendues ; se tournant vers le monde il ne revendiquait pas les libertés des populations opprimées pour ensuite se retournant sur Paris gouverner l'étranglement des mêmes libertés ; et parmi nous tous, et comme nous tous, n'était-il pas frappé, au plus profond de son instinct libertaire, par la similitude presque inespérée des raisonnements et des prétextes autoritaires dans tous les pays d'avant et de gouvernement. Qu'on oublie un instant les préoccupations politiques parlementaires absorbantes ; qu'on relise impartialement ces cahiers que nous préparions alors pour la Finlande ou pour les Juifs de Roumanie ou de Russie, et que l'on nous réponde, si ces raisonnements, si les prétextes, si les raisonnements autoritaires n'ont pas en tous pays comme une même résonance ; et en tout temps : un protestant des plus qualifiée me disait, au courant de juillet dernier, que les mesures préparatoires, ou les mesures d'approchement prises par le gouvernement radical successivement contre les catholiques présentent une singulière analogie avec les mesures d'approchement prises par Louis XIV contre les protestants avant la révocation de l'Édit de Nantes ; nous ne pouvons poursuivre ici la comparaison ; je demanderai peut-être à l'auteur même de la poursuivre en un cahier ; mais un véritable instinct de libéral, ou de libertaire, ne s'y trompe pas ; il y a comme un arrière-goût de l'autorité de commandement de le vrai libertaire, que le vrai libéral reconnaît dans un décret présidentiel comme dans un oukase impérial,
-
-[leaf 0391] [p. 176]
 
 *douzième cahier* *de la cinquième série*
 
@@ -1562,17 +1431,7 @@ et l'ayant reconnu, de quel front imposerai-il ici une autorité que là il comb
 
 Nous avons reçu, nous, ce contact immédiat et glacial de la tyrannie ; j'ai vu la poste française, qui est libre, sommairement, nous rapporter des cahiers que la censure tsariste avait refusés, ou s'était refusée à recevoir des cahiers marqués, soigneusement marqués, comme étant pour les populations opprimées du tsarisme ; tout leur travail paraît du travail assez proprement fait ; — nous avons vu dans ces cahiers des passages oblitérés ; c'étaient justement, ai-je besoin de le dire, les passages de liberté ; comme c'étaient justement les cahiers libres, les cahiers de revendications de ces populations opprimées ; et ce n'étaient pas seulement des sujets russes, abonnés aux cahiers, à qui le gouvernement du Tsar interdisait ainsi, matériellement, de recevoir un ouvrage fait pour eux, mais c'étaient des citoyens français ; et non seulement des citoyens français habituellement demeurant en Russie, ou en France, mais ce n'étaient des cahiers adressés par mutation ou par faire suivre à un ingénieur français que ses travaux avaient momentanément appelé à Odessa ; quand on a dans sa main tenu un de ces fragiles cahiers à qui tout un empire est barré, on ne saurait croire combien le combisme paraît peu spirituel, et combien le monopole de l'enseignement excite peu d'enthousiasme ; car le gouvernement amène et allié refusa des cahiers qui pour le moment en France nous paraissent l'innocence même : ainsi le *Joseph d'Arimathée*, de M. Gabriel Trarieux ; que voyant les mains à rien de tel, l'État ne fait que mes amis les plus puissants, fût-ce fait contre nos ennemis les plus redoutés ; car je connus de la vieille liberté du bon ; que
 
-[leaf 0392] [p. 177]
-
 la respiration de la liberté a du bon ; que la France est un bon pays, et Paris une bonne ville ; qu'il ne fallait pas que l'effort de tant de générations fût perdu ; car nos aïeux n'ont pas tant souffert et tant lutté, tant vécu et ils ne sont pas morts seulement pour assurer la multiplication des palmes académiques ; mais ils ont peiné, lutté, souffert leur vie et leur mort pour que ce peuple devînt un peuple libre, pour que ce coin de terre devînt le chaud foyer de la liberté dans le monde, pour que Paris devînt ce qu'il est, littéralement la capitale de la liberté dans le monde.
-
-[leaf 0393] [blank verso]
-
-[leaf 0394] [blank]
-
-[leaf 0395] [blank]
-
-[leaf 0396] [p. 181]
 
 *Notre catalogue analytique sommaire* . . . . . . . 2
 
@@ -1586,15 +1445,11 @@ FÉLICIEN CHALLAYE. — *La France vue de Laval* . . . 13
 
 *Le Progrès du Loiret*, numéro daté du vendredi 29 janvier 1904. — *Obsèques du docteur Gebaüer* . . . . 105
 
-[leaf 0397] [p. 182]
-
 *douzième cahier* *de la cinquième série*
 
 *Le Progrès du Loiret*, numéro daté du jeudi 21 janvier 1904. — *Nouvelles du département* ; — *arrondissement d'Orléans* ; — *Sandillon* ; — *obsèques de M. Amédée Bonhaume* . . . . . . . . . . 110
 
 *Le Progrès du Loiret*, numéro daté du samedi 19 décembre 1903. — *Arrondissement de Montargis ; cérémonie laïque et républicaine* . . . . . . . 116
-
-CHARLES PÉGUY. — *Cahiers de la Quinzaine* . . . . 127
 
 *Georges Clemenceau ;* — *discours pour la liberté* . . 127
 
@@ -1602,21 +1457,14 @@ CHARLES PÉGUY. — *Cahiers de la Quinzaine* . . . . 127
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce douzième cahier le mardi 15 mars 1904.*
 
-  *Le Gérant :* CHARLES PÉGUY
-
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 IMPRIMERIE DE SURESNES (E. Payen administrateur), 9, rue du Pont. — 8644
-
-[leaf 0398] [blank, p. 183]
-
-[leaf 0399] [p. 184]
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur la rédaction ni sur l'administration ; ces fonctions demeurent libres.
 
 Nos Cahiers paraissent par séries ; une série paraît dans le temps d'une année scolaire, d'une année ouvrière, d'octobre-novembre à juin-juillet ; l'abonnement se prend pour une série.
 
-Nous servons :
   des abonnements de souscription à cent francs ;
   des abonnements ordinaires à vingt francs ;
   et des abonnements de propagande à douze francs.
@@ -1630,5 +1478,3 @@ Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou
 Pour tout changement d'adresse envoyer soixante centimes, quatre timbres de quinze centimes.
 
 L'abonnement de propagande cesse de fonctionner pour chaque série à l'achèvement de cette série ; la quatrième série normale ayant fini fin juin 1903, on pouvait jusqu'au 30 juin 1903 avoir au prix de propagande les vingt premiers cahiers de cette série.
-
-[leaf 0400] [blank, p. 185]

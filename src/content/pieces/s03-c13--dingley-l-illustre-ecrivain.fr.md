@@ -12,41 +12,12 @@ wordCount: 15121
 
 Les Cahiers publieront des mêmes auteurs
 
-A AR EN 8 0 ce ns FAC
-M en 4. ALORS ES RENE
-
-tt Ni EN PATIO) SAR Re
-
-Riu Des mêmes auteurs jf
 Ales Are en vente à la librairie des cahiers
-ON AE € oltineur débile D RARES APT A
-VAE La Lumière 7 FT SERRES ess . SA
 
 A la mémoire de Mr. Cecil Rhodes,
 mort avant la consommation de son injustice.
 
-HAN SOUS : Rire RAM A EN
-ee de De À SORA ER PRTE
-MA VEAL 27 eee k h VAS bar n VENTE ON NAS 0 8 lee
-des vis RAR < à CEST RRE MT EN a ne
-| RAS) ; LR PN EN ES RE
-ne en OT Fr A RO EU
-Le SA au FUEESS DE DE a
-no Rata ALES NAT RER ne: ES
-ANS lie PE à LES Ie Has % dure _
-ne À Rae A à
-Re 3 MENT ee NICE Le
-US AT ne ENT RE Rae
-ne mo - Fe SÉRIE ST rte ee
-
-| CES Ÿ
 8, rue de la Sorbonne, au rez-de-chaussée
-
-ns à Ce HR MERE Es A ee ares
-
-D ee ne DR 0 SR
-
-M ni A BRU
 
 Partout où l'on parle anglais, personne n''ignore
 le nom de l'illustre écrivain Dingley. Les enfants
@@ -554,7 +525,6 @@ et les imbéciles!
 — C'est dommage, répondit Mrs. Dingley en
 regardant tour à tour le dessinateur et le journaliste;
 vous avez réalisé, messieurs, le type le plus moderne
-d'héroïsme : le dévouement à la Nouvelle et à
 l'Image.
 
 — Oh! nous, répondit Cox, qui faisait avec ses
@@ -579,8 +549,6 @@ mulâtre fut tué par le dernier obus qu'il photographia?
 — Impossible de pousser plus loin le dévouement à l'Image!
 
 — Vous n'avez jamais été blessé, monsieur Thibert? demanda Mrs. Dingley.
-
-— Mon Dieu non.
 
 — La Providence veille sur vous!
 
@@ -673,7 +641,6 @@ coin il y en avait qui luttaient.
 
 Dans l'étroit espace où tous ces hommes étaient
 entassés, trois cents auraient été mal à leur aise.
-Ils descendirent.
 
 Dans la cale, quarante mulets étaient au fond.
 Leurs litières n'étaient séparées que par une
@@ -814,7 +781,6 @@ elle présidait aux rêves de quelques brutes.
 
 — Bah ! répondit Dingley, ce temps est loin!
 
-L'Hindoue commença:
 — Tu te souviens de Chamba, près d'Amiritzir ?
 Dingley revit aussitôt la plaine ardente sous le
 soleil, au pied des hauts Himalayas. !
@@ -847,7 +813,6 @@ Dingley, le menton étayé sur ses poings fermés, les
 coudes au genoux, levait les yeux sur l'Hindoue qui
 se tenait assise le buste droit, les mains à plat sur
 les cuisses, dans l'attitude d'une déesse d'Égypte.
-Elle disait
 — Trois jours et trois nuits les Brahmanes hésitèrent. Ils n'auraient peut-être jamais eu le courage de
 paraître devant le roi Djehangir, si la foule ameutée
 devant le temple ne les avait contraints par sa clameur. Ils sortirent derrière le grand-prêtre, et s'en
@@ -1087,7 +1052,6 @@ Et ce diable d'homme me répond
 — Je n'en sais rien. Mais j'ai ses clichés. Les
 
 Les fifres et les cornemuses se mettent à jouer l'air: Écosse, verte Écosse, nous nous soufenons
-de toi.
 
 Le lendemain j'ai retrouvé Cox étendu sur une
 paillasse dans la cour d'une ferme, légèrement
@@ -1197,7 +1161,6 @@ il est bon.
 | Dingley se mit en selle.
 — Reconnaîtrez-vous votre route? demanda le
 _ reporter. À votre place, je demanderais un guide
-| au colonel.
 — Inutile. Les chevaux crevés marquent la route.
 Dingley s'élança de toute la vitesse de son petit
 cheval, sur le Veldt, dans la direction de Bloemfontein. La nuit était assez claire. Autour du cavalier, aussi loin que la vue pouvait s'étendre, une
@@ -1261,8 +1224,6 @@ auprès de son fils, que Archie pouvait mourir sans
 
  querie impolie à un jeune Boer qui lui demandait, dans l'anglais le plus élégant, qui il était et com-
 | ment il passait si tard dans ces parages.
-
-_ — Un reporter égaré !
 
 . — Vous nous permettrez de visiter vos poches, répondit le Boer : c'est l'usage de la guerre.
 
@@ -1406,7 +1367,6 @@ blessé à Colenso qu'il avait rencontré sur le paque- « bot. Harvey s'avança
 — Archie malade... je reviens... À
 — Pauvre enfant! Et qu'at-il?.… }:
 
-Hi Fe La dysenterie, j'ai peur. Il ÿ a encore un
 départ pour le Cap, aujourd'hui?
 
 PNelne sais. Tous les trains sont réquisi - tionnés pour les approvisionnements et les troupes...
@@ -1502,7 +1462,6 @@ l'armée se moquaient de sa science surannée.
 — Enchanté de vous voir, mon bon ami, dit-il
 en tendant à Dingley ses doigts tourmentés par la
 goutte. Sir John Carey m'assure que vous revenez
-à la Côte ? J
 — Je pars ce soir. Mon fils est malade.
 Mr. Colgrave fit la grimace :
 — Mauvaise affaire pour les enfants d'être à
@@ -1554,15 +1513,12 @@ pas le loisir de réfléchir à cet état nouveau de sa
 sensibilité, qui pouvaitavoir une si grande influence
 sur son talent : l'heure était venue de partir.
 A ce moment le major bègue se leva et portant à
-sa flûte de champagne à la hauteur de sa tête — à
 travers le verre plein Dingley aperçut son nez d'i- .
 vrogne démesurément grossi par la réfraction :
 — Messieurs, à la santé de l'illustre écrivain qui...
-qui... qui a eu le courage de laisser sa famille à la À
 Côte pour suivre les opérations de la guerre.
 — L'imbécile! murmura Harvey. On n'est pas L
 plus maladroit!
-— Monsieur, à la santé de la Reine et de sa vaillante armée! ‘À
 Harvey monta près de Dingley dans le cabriolet
 qui attendait à la porte. Ils franchirent sans mot L
 dire la distance qui les séparait de la gare. Le lieu- y LEUR
@@ -1585,8 +1541,6 @@ provisions bourré à éclater et d'où sortait le goulot
 d'une bouteille, une cruche meublaient cette manière
 de cabine.
 
-Le train siffla. *
-
 — Vous me télégraphierez, n'est-ce pas? répéta
 
 Dingley, appuyé contre la porte du fourgon, salua
@@ -1599,7 +1553,6 @@ French avec les troupes de Botha.
 
 Le train n'avançait qu'avec une désespérante
 lenteur. Une pluie fine et inlassable ajoutait sa
-tristesse à la monotonie du paysage. De la tête à la
 queue du train, du chauffeur aux soldats employés
 à la litière des bêtes embarquées, la même inquiétude : une surprise de l'ennemi. Dingley se serait
 estimé heureux, il y avait seulement quelques jours,
@@ -1622,7 +1575,6 @@ marche. Les passerelles jetées en hâte pourremplacer les ponts que les Boers e
 | fait sauter étaient si légères qu'un train à l'allure
 brutale de trente milles les aurait écrasées.
 
-Enfin on approcha de De Aar. A partir de là, la
 voie serait plus sûre. On avancerait plus vite... Il
 espérait trouver là-bas une dépêche de Jeanne : il
 fut déçu. Aucune dépêche ne l'attendait. Son
@@ -1659,7 +1611,6 @@ n'avait été touché qu'un cheval et le pauvre diable
 étendu là. Le blessé regardait de tous ses yeux,
 écoutait de toutes ses oreilles.
 Ses regards étaient épouvantés. Dingley lui
-— Où es-tu blessé ?
 Il ouvrit la bouche. Aucun son n'en put sortir. l
 — Sir, répondit un cavalier, il comprend tout
 ce qu'on lui dit, mais il ne peut pas parler. La balle,
@@ -1709,7 +1660,6 @@ le mécanicien...
 Dingley fut repris, un instant, par son désir de
 faire parler les gens incultes, de recueillir leurs
 impressions toutes nues, dépouillées de littérature; il aurait voulu l'interroger, lui demander qui il
-était, ce qu'il avait vu, ce qu'il regrettait.…
 Mais cet homme était aussi muet que s'il avait été
 mort. Couché raide sur la chaise longue, les yeux
 attachés aux planches noires du plafond, il était
@@ -1752,7 +1702,6 @@ médecin qui le reconduisait à la porte de la salle
 d'attente qui servait d'infirmerie, Dingley demanda
 — Il va mourir, n'est-ce pas ?
 
-Le médecin répondit
 — Hélas ! non. Il est fort possible qu'il vive!
 
 Le jour suivant il arrivait au Cap. Une légère
@@ -1767,8 +1716,6 @@ noir : elle semblait déserte.
 Dingley escalada le perron. Sa femme avait
 entendu grincer la voiture sur le sable de l'allée.
 Elle demanda penchée sur la rampe de l'escalier
-— Qui est là?
-Il répondit :
 — (est moi!
 Déjà il était près d'elle, sur un large palier où
 s'ouvraient trois portes : deux étaient sombres; la
@@ -1817,7 +1764,6 @@ sur sa nuque, COMME les fines branches du saule.
 Or, à mesure qu'elle avancçait, le long du canal, sur
 les deux rives poussaient de grêles bambous plus
 serrés que la trame d'un châle de cachemir. Personne ne vit ainsi la Vierge nue. Mais la Déesse
-ou le Dieu...
 Jeanne descendit le perron- Dingley accroupi sur
 les marches, la tête dans ses mains, ne la vit pas.
 L'Hindoue la regarda passer sans interrompre Sa
@@ -1849,28 +1795,15 @@ sur les genoux de l''Hindoue en murmurant, dans
 le patois de Calcutta
 — Des contes, dis, raconte-moi des contes.
 
-| } Hate A NES
-HR JUNE pi ni jh nor Et
-
 Jérôme et Jean Tharaud
-
-ou M nt or
-: RSS D de ie
 
 le mardi 15 avril 1902
 à l'Imprimerie de Suresnes
 9, rue du Pont
 
-CT A ads Me L MA CEE, af
-11 A ta GS RS qi A ot
-ne. î : ts tr AN A] LPO: RE tk 1h Us Fa
-
-" 4 AAA Te Vs EN A RAA gl NE nl Ai tue le Er
-
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
 
-Nous servons
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
 et des abonnements de propagande à huit francs.

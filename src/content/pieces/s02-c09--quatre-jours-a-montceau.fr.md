@@ -187,7 +187,6 @@ Caisse de secours et demanda des explications à la
 Compagnie au sujet d'un déficit de plusieurs centaines fe
 de mille francs qu'elle y aurait trouvé. Les explications
 demandées n'auraient pas encore été fournies à l'heure
-qu'il est.
 Cependant la Compagnie; battue aux élections,
 blessée au vif, atteinte dans ses moyens d'influence et
 d'informations, pour combattre le Syndicat rouge favorisa la formation d'un syndicat opposé, qu'on appela
@@ -339,8 +338,6 @@ pourront fournir un billet de nécessiteux signé de leur
 
 Les sans-travail n'auront droit à la soupe que s'il y en'a
 de reste.
-
-Le Bureau Syndical.
 
 En dessous, à droite, écrit à la main
 Ce matin soupe maigre sans portion.
@@ -546,7 +543,6 @@ Montceau, que violences immédiates contre les nonrouges et leurs propriétés. 
 sans avoir un respect religieux de la propriété d'autrui
 inutile, n'éprouvent en aucune façon le besoin de la violer pour le plaisir ; quand c'est nécessaire, pourquoi ne
 prendrait-on pas ce qu'il y a sous le soleil, mais quand
-ça ne presse pas...”? Et, de fait, il n'y a pas eu une
 seule violation de domicile privé depuis le début de la
 
 Donc, tout s'étant passé jusque-là le plus paisiblement
@@ -667,7 +663,6 @@ occuper du triomphe de nos légitimes revendications.
 Camarades, vous vous honorerez en accompagnant
 paisiblement nos morts à leur dernière demeure. »
 
-Et comme il est quatre heures et qu'il y a plus de F4
 trois heures que l'on piétine dans la neige, tout le 2"
 monde en a assez. On vote plus ou moins un vague
 ordre du jour, beaucoup de mains restant dans les
@@ -786,7 +781,6 @@ Allons, descendez. Eh quoi! vous les connaissez bien
 vous savez bien qu'ils ne valent pas la peine d'être (
 regardés.… » Et il gagne encore ainsi un peu de terrain.
 Enfin, le clairon sonne l'assemblée, et tout le monde
-s'en va de l'autre côté de la mairie.
 Alors il fallut bien annoncer qu'il y avait eu erreur,
 et que ni Guesde ni Lafargue n'avaient l'intention de
 parler ce jour-là. Ce fut Maxence qui se chargea de
@@ -866,7 +860,6 @@ camarades des autres puits. On sait bien que cette concession faite ne changera 
 vailleurs. Il n'est pas douteux qu'après cette grève,
 d'autres grèves viendront. Car tout ceci n'est bien qu'un
 épisode d'une longue lutte maintenant irrévocablement
-IÉAGIMERIE DE SURESNES (G. RicHARD, administrateur), 9, rue du Pont.—4100
 
 -_ Nous prions ceux de nos abonnés qui nous envoient
 

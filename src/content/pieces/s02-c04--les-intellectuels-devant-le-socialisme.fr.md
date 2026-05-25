@@ -7,7 +7,6 @@ author: hubert-lagardelle
 isAvertissement: false
 wordCount: 11577
 ---
-faite au GROUPE DES ÉTUDIANTS COLLECTIVISTES DE PARIS
 rue de la Sorbonne, au second
 
 Siège social : 23, rue de Pontoise (près le Square Monge)
@@ -56,7 +55,6 @@ Paris, le 15 novembre 1900
 Le Groupe des Étudiants Collectivistes
 
 devant le socialisme
-faite au GROUPE DES ÉTUDIANTS COLLECTIVINTES DE PARIS
 
 rue de la Sorbonne, au second
 
@@ -718,7 +716,6 @@ teux qu'elles se fussent accusées avec quelque
 énergie en l'absence d'excitations venues du dehors.
 J'ai assez bien connu le monde communiste, j'ai pu
 suivre la filière de l'idée; j'ai observé de près le
-travail d'initiation et de propagande; et l'on me
 croira quand je dirai que ni les initiateurs ni les
 propagandistes n'étaient de la classe ouvrière. »
 Le rôle des idéologues dans la première phase
@@ -997,7 +994,6 @@ pris par nos camarades allemands, selon Kautsky.
 c'est une vie de bourgeois modeste. Vous n'avez
 pas oublié que la Commune rémunéra ses fonctionnaires, quel que fût leur rang, d'une façon
 peu près égale. Son plus haut traitement fut
-de 6,000 francs!
 
 Et quant au rôle de théoriciens, que jouent principalement les intellectuels attachés au socialisme
 par des raisons scientifiques, il peut seulement
@@ -1275,7 +1271,6 @@ récent Congrès international des Étudiants et
 
 Anciens Étudiants Socialistes. Vous n'avez pas
 oublié avec quelle vigueur il a exposé les résultats
-de sa longue expérience de professeur. Par la
 simple préparation des esprits, par la seule prédisposition des consciences, accomplies par une méthode
 d'enseignement purement scientifique, les conclusions socialistes s'imposent d'elles-mêmes aux intelligences qui veulent s'appliquer à l'étude des
 
@@ -1283,7 +1278,6 @@ Je sais pourtant que ce sont plus souvent par des
 raisons d'ordre moral ou de simple enthousiasme
 que les étudiants sont gagnés au socialisme. L'idéalisme de leur jeunesse les pousse plus peut-être au
 premier abord que la conscience scientifique. Mais
-il n'y a rien là de contradictoire. Il faut susciter et
 nourrir ces élans de sentimentalisme, car ils sont la
 voie préparatoire aux adhésions réfléchies, le terrain qui portera les convictions raisonnées. C'est le
 point de départ, qui permettra d'atteindre au point

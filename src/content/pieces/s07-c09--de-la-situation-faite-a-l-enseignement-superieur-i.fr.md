@@ -10,55 +10,26 @@ wordCount: 37318
 .._ Que des mains, que des mains légères............ 39
 
 L'ÉSE _J'ai cueilli cette branche de saule fleurie. ......... 40 FER
-FANS PH Crayon:de cèdre NE TE NMERR, 41 4
-
-ne Ehônbfunéraire:; 2.6... Lei da REED :
 
 | Etvoici ce que je me suis souvent dit................. 49
 
-FÉES DENT FERA NS RATE à PE MERE PRE CAR tee sp SR
 Rens |" Arrivée la campagne... OR
-MN Ecsplatanes : à... TOUS
 ne Dans vos longues robes flottantes..........:...... 55 Fe.
-HE PoDéchébtes it Ne MARS 2 ion. SPORTS e
 _  Tenez-vous par la main, jillettes, et marchez...…… 77% SR
-Les Éamart dés arbres .:::.14.23400 00e NP SN
 nos Ce doigt posé entre mes deux épaules............. 87 #6 À
 _ Ma barque, lentement descend le filde l'eau... 88 0
 
-RP Re lot e dE RS RE
 __ huitième cahier de la sept ème série
 Nos cahiers sont édités prsseeseeses seen MO
-> « me : 2 ET UE
 Carces PÉeuy. — Cahiers de la quinzaine ... 9
 Éditions sur whatman, et particulièrement abonne- MAS à
-oi ment sur OIUMAN LCR ESS RUE 96:20
 Romain Rolland. — La Montespan, — drame en " me.
-| VO
-M Ee prix de la Vie heureuse. :.:......../..::..CO8NeS
 Septième cahier, cahier de Noël de la septième De.
-MO nine ee To dnobce à où VLC 80 CO EE
-#
 Nous avons donné le bon à tirer après corrections …
 pour deux mille exemplaires de ce huitième cahier
 et pour vingt-et-un exemplaires sur whatman le mardi
-dE Le gérant : CHARLES PÉGUY er
 | - Ce cahier a été composé et tiré au tarif des ouvriers syndiqués : 7
 QUE Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 665 46)
-#2 CR :  .
-
-# {
-CS L'RA at
-AREA CAR RES in 0 + Fer se
-Mer Le Pie Se Le PhRe ii
-ce LE NV AE FR : AE TUE" use EME LH PONT. fe He
-e ETES PAR A QU TE cit NAS: LAURE TES
-e ns La LAPS ii ne Va. A TNT + (ee bin [e (ts Le SATA A
-1600 14 CLS A RTE fe » PR D PME PE L A. | PR ra da À
-Late J Et: " der SAT PEgae 2S d: Lee #5] " 4 hs Be RS
-RARES LURS AE SRE | he NAC CUE Mer RU de N
-| en ER ne NES PATES RAS MALE à Dev gras
-LR ATRE x SN ETS LMP ER Ne de ue AL | He el TRES. LÉ:
 
 il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Cahiers
@@ -71,7 +42,6 @@ il suffit d'envoyer un mandat de trois francs cinquante k
 
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers |
-de la deuxième, de la troisième, de la quatrième, et
 
 de la cinquième série.
 
@@ -100,19 +70,6 @@ de la situation faite
 : ë - paraissant vingt fois par an
 E rue de la Sorbonne, au rez-de-chaussée
 
-DST DUT GS es NT AT OURS RER a EE A DR nc de
-DT RP de FRS x ë LOT PS7 CA é PF AE
-PO DRE 3 RENNES ALES Sa ie RE FRET ?
-RACE Re 7 VE De ACIER ES ER PE MATIN RAS er Ce LE PT er UD
-
-Ex k ne NA int À K Fes ŒAUVE PRO e ge x fé * "AE
-
-A a Le MANIERE Ve L er ee #
-CRE CAPES SEA LE : Ft E\ ot AA
-
-272 CHR RENAN TEE: : dé ; fs à On 4
-Ro ou
-
 Nous avons publié dans nos éditions antérieures et :…
 dans nos cinq premières séries, I900-190/, un si En À
 grand nombre de documents, de textes formant dos- : « siers, de renseignements et de commentaires; — un ER:
@@ -135,7 +92,6 @@ dans l'ordre ; il suffit de le lire pour trouver, à leur ‘14
 place, les références demandées. Ps 1
 $ Ce catalogue, in-18 grand jésus, forme un cahier M
 1 très épais de XII+-Z08 pages très denses, marqué cinq. Par a:
-D LA ietd
 
 FRE francs ; ce cahier comptait comme premier cahier de la
 d sixième série et nos abonnés l'ont reçu à sa date, le ;
@@ -165,14 +121,6 @@ peut consulter, — provisoirement, — la petite table
 1 analytique très sommaire que nous avons publiée en fin
 _ de ce cahier index.
 
-UE RE fi SET RAD SPRL A Le tar VER fe: PAPATENÉ
-| SRE + ABAAURRENS
-# L ; “CAS TRNEN ro ;
-ù L is r' De ne
-
-1, Bale NN MERE Nina te SNA UNE NT UE OUEN
-
-D : ne _ du premier janvier \n IS ie
 dans l'enseignement supérieur Me
 
 L Extrait de ce premier petit index alphabétique : : 4e
@@ -181,7 +129,6 @@ D Aulard, — Histoire politique de la Révolution fran- HS
 tas çaise, — extrait de l'avertissement, — un cahier en EA
 à Joseph Bédier, — sur l'œuvre de Gaston Paris......... #1
 Henri Bergson, — introduction à la métaphysique, — He É
-conclusion, — d'après la Revue de Métaphysique et de Ÿ DR si
 Émile Boutroux, président du Conseil de direction, — LT se
 4 discours lu pour l'inauguration des locaux et pour Ds « 4
 louverture des cours à l'École des Hautes Études RACE A
@@ -205,7 +152,6 @@ SR École socialiste, — une annonce, — un cahier en voie fi
 “0 Mémoires et dossiers pour les libertés du personnel TA
 #0 enseignant en France, — un cahier en voie d'épuise- FQ
 
-MS RARE NS NA és ut, FAN ON 100 de
 D —  — épuisé, n'est plus mis en vente que dans n
 ny les collections complètes de la troisième série ....... 113 É:
 DR: : Anatole France, — Pour et contre le socialisme; la 5
@@ -225,26 +171,18 @@ T8 intègres ; pensées de Riquet; discours pour la liberté Re
 NU —  — L'affaire Crainquebille, — édition com- mir 4
 F2 plète, — un cahier retiré du commerce, n'est mis en ÈS #3
 ds vente que dans les collections complètes de la qua- #70 1e
-ke meme série 222: UE SE LEUR D NDS OIE RTE 2 À
 fe — — Discours prononcé à l'inauguration du EEASS
 L. Charles Guieysse. — /ntellectuels et socialisme, — con- ; k'
 Le tribution, — un cahier en voie d'épuisement ........ (ER
 ‘æ — — les Universités Populaires et le mouve- 1
-7 INPI OUNFET LE et ES ee 2220 R OUTRE 114
 ®: — — édition du cahier Les Universités Popu- Ov.
 : — — annonce, préface au cahier les Univer- Ta +
 Daniel Halévy, — Michelet et Quinet; — et dans le ne
 même cahier présentation des quelques textes...... Ki Re
-| : deux francs 300 4108
 — — Louis Ménard, une étude préliminaire à
 la réimpression de Louis Ménard, Prologue d'une re
 4 Affaire Hervé, — mémoires et dossiers pour les libertés :447 0
 à du personnel enseignant en France, attentats dans En :
-Ne YYonne, — un cahier en voie d'épuisement ......... ÿ à
-
-eee LH UN SRG ERNST ERA A APSENSRS ETS dt
-
-A RRHeree ti L'un franc 106 SE
 
 ; —  — un cahier épuisé, n'est plus mis en gE ji
 
@@ -264,8 +202,6 @@ __ Antonin Lavergne, — Jean Coste ou l'instituteur de 1
 à que dans les collections complètes de la deuxième À à
 que - — — Jean Coste, édition Ollendorff............ LA
 
-He —  — la médaille, — la lettre de congocation..…. he
-
 (1 _ Interpellation Laverlujon, — mémoires et dossiers pour FE
 
 41 f. les libertés du personnel enseignant en France, — mn
@@ -280,21 +216,17 @@ _ Paul Mantoux, — /ntellectuels et socialisme, — une à
 
 neuvième cahier é A la septième série +
 __ Henry Michel, — Edgar Quinet........... deux francs 2 9 #4 ne!
-ne Le Palais du Peuple, dossier................. un franc Ba FR n
 TA Gaston Paris, — avec un portrait de Gaston Paris ; — 4 #
 nT Gaston Paris, Jaufré Rudel, une étymologie...
 Jean Perrin, — annonce d'un article Le principe d'équi- 24
 Ÿ valence et la notion d'énergie, annonce du livre Les 3 TP
-LA Principes: 400 unie EC at CEE 4
 nt Bibliothèque du Congrès international de Philosophie, RU :
 + Bulletin de la Société française de Philosophie, — , ia }
-bi: annonce... .l1suLee reel. 2200 nf PNICeTS ‘8
 D Edgar Quinet, — avec un portrait au crayon par Flora 4
 ie Géraldy ; quelques textes, choisis et présentés par : 110
 , Pour les étudiants russes, — un cahier en voie d'épui- #4
 Gabriel Séailles, — introduction au cahier les Univer- Be:
 sités Populaires, 1900-1901, I. — Paris et banlieue ..…… LE 4
-Ru un franc 130
 Le Socialisme et les intellectuels, une conférence du #1
 citoyen Lafargue, — un cahier en voie d'épuisement. a #
 > —  — documents, — un cahier épuisé, n'est *100
@@ -306,13 +238,9 @@ YA rieure, — un avertissement à La vie d'Épariste Galois (0
 6e So ciété des Universités Populaires, — annonce... 1)" NME
 $ St les Universités Populaires, 1900-1901, I. — Paris etban- er:
 
-Les Universités populaires 1900-1901. — I. — DéparLE PRES RC NI URL. 7 deus Mañcs 110072 0
 En sd $ Textes ‘et documents, — congrès des U. P. mai 1904... à Ro!
 Albert Valès, — une bibliographie pour le cahier ÈS
 
-PATES fl fe des k
-
-# j x : L ie he
 % Extrait de cette première table analytique très som- A
 Deuxième cahier de la sixième série, un cahier jaune de
 | XXXVI + 152 pages, in-18 grand jésus, bon à tirer du mardi $ 10
@@ -334,7 +262,6 @@ leçons de français ; pour la langue malgache; fagots et
 ce qu'il faut aux malgaches; écoliers malgaches ; arrêté ‘#22 |
 organisant le service de l'enseignement des indigènes à
 
-| TABLE ANALYTIQUE TRÈS SOMMAIRE di
 Jex GE _ Dixième cahier de la sixième série, un cahier jaune de PA
 _ XII+276 pages, in-18 grand jésus, bon à tirer du mardi dus:
 _ * -BrenNN. — Yves Madec professeur de collège ; AE
@@ -351,12 +278,6 @@ M Dix-septième et dernier cahier de la sixième série, un 51e
 “18 cahier jaune de XIL+ 136 pages, in-18 grand jésus, bon à FRE
 HR Pauz Dessarpns. — Catholicisme et critique. — Ré- br »  flexions d'un profane sur l'affaire Loisy. : 21
 
-AL TA J à VAS te
-ne o ! ï : ag DA 2 APR
-
-#6" 24/0 j ï Etc Pia :
-
-UN Re ee de dou te
 de Par les soins de notre nouveau collaborateur M. Fer- | À
 _  dinand Lot, directeur-adjoint à l'École pratique des t48t
 M _ Hautes Études, ce cahier viendra aux mains d'un certain à ns
@@ -377,7 +298,6 @@ ne: qu'ils fassent abonner à ces cahiers les bibliothèques JA
 _ dont ils ont la charge et la responsabilité. On peut
 nn. _ considérer une bibliothèque publique et même privée Wie
 
-| ou comme un instrument de science ou comme un 7 FA F
 | instrument, comme un organe d'enseignement. ] ‘4
 Fe Comme instrument de science, au seul sens que nous
 puissions donner à ce mot, nos cahiers forment déjà et 4 KE
@@ -440,22 +360,16 @@ A Une bibliothèque publique ou privée qui n'est pas
 use recompléter jamais. La limitation de nos tirages est
 . à chaque instant commandée par le nombre de nos
 
-| XVII
-
 É 4 abonnements. Depuis plus de six mois notre première jap:
 “ série est complètement épuisée et nous-mêmes ne pou
 D vons plus la donner à aucun prix. De notre deuxième
 PAL série nous pouvons dire qu'elle est en voie d'épuise
 1 ment, puisqu'il ne nous en reste pas dix collections
-#47 F 0 STATE
 ; complètes. Nous vendons ces collections complètes de
 on ‘ la deuxième série cent francs l'une, ce qui est le ne ++ #
 hi fixe d'épuisement. Nos autres séries s'épuiseront suœ
 M cessivement aussi.” +26
 L Sy Charles Péguy, gérant F0
-
-| Sn Je VAR
-dit EX DR APR CRAN PAR TS
 
 Fu en vente à la librairie des cahiers Fi
 
@@ -479,9 +393,7 @@ Paris, Bouillon, 1904, un volume in-octavo, xxxiv+928
 
 de la situation faite | LIENS
 à l'enseignement supérieur
-et! à à CR sk
 
-À DU MÈME AUTEUR ne:
 ee en vente à la librairie des cahiers Un: je
 | La Faculté de Philosophie en Allemagne et les Facultés
 | dés Lettres et des Sciences en France, — recherches
@@ -497,24 +409,12 @@ même recueil) ; 4 - 1°
 Les Facultés universitaires et la classification des
 paru très abrégé dans la Revue Internationale de l'Ensei- 14
 
-UT A LN EUR ES AE s à Lie (NE
-HE RL LE TU as
-LL EYE Er FRS VE de
-AR REFENT Sur PAU
-LES ON c , Lay est Le VE at
-DANS). 0x Ve EX DURE Ne t-tie OST NTEES
-
-Genre PRE HUE LA ME CE PART A 1 }
-RTE NA TE dl ANT LUE 14 Grue FAR 2 ASE 4 Le
-# Pa EE +71 7
-
 Le lecteur qui voudra bien parcourir ce cahier
 - s'étonnera certainement que les lacunes graves et nombreuses que nous signalons n'aient été aperçues ni par
 | le Ministre de l'Instruction publique, ni par la Direc-
 | tion de l'Enseignement Supérieur, ni par les Univer-
 _  sités elles-mêmes. Il était bien difficile en réalité qu'elles
 le fussent. Le ministre, homme politique avant tout, ne
-#
 peut imprimer à son département qu'une direction É
 . générale. Il n'a pas la compétence nécessaire pour
 + s'enquérir en personne des mille besoins d'une admi-
@@ -527,7 +427,6 @@ gnement supérieur lui-méme voit son attention épar-
 _ reproche d'ignorer ce qui existe à l'étranger et de
 Me ne pas instituer des comparaisons avec notre pays.
 
-| Ferdinand Lot di he
 é Quant aux Universités elles sont composées de spécia- : K |
 listes et ceux-ci ne s'intéressent à rien en dehors de £
 | leurs propres études. Qu'importe à lhelléniste que
@@ -564,7 +463,6 @@ Ces études, qui paraissent aujourd'hui, étaient ache- TASSE
 _ vées depuis un an. Les sommes consacrées par l'État ri Mt:
 _ à l'Enseignement Supérieur n'ayant point été accrues, 11e
 _ Les conclusions n'ont pas à subir de modifications ha:
-| sérieuses. 18
 
 On a profité de cet ajournement pour ajouter une Lt ke
 Fa annexe sur le Budget du Matériel en France et en 13e
@@ -575,22 +473,14 @@ plus utile sans doute, est faite de chiffres. L'intérêt * Ÿ
 Ke dans une institution des tares dont on n'aurait sans ce 10
 | secours qu'une perception confuse. LEURS
 
-PAT ne “ - ‘+ Sr Mons!
-ba. à N : L ‘g Fer (APRES
-TORRES d “Pi ar Le
-
-Li) RE as j Hd LES nd  : PRE PT EAN à DOME STIS DD
 à Les revenus des Universités et
 + et établissements d'enseignement supérieur # #4
 Re en Allemagne et en France bee
 ere Revenus ordinaires des Universités allemandes “102
-K et françaises en 1903 (en marks à 1 franc 25) ne
 
-| Hesse (Giessen)....................... 1.166.400 » É -
 | Sur ce total tout n'est pas à la charge de l'État. Les L
 droits d'inscriptions, de laboratoires, etc., représentent È
 un peu plus de cinq millions et demi de marks pour les È
-| 21 Universités allemandes.
 D'autre part, quelques Universités ont une fortune À
 # personnelle. Ce sont les vieilles Universités qui ont été %
 dotées jadis, à la Réforme, avec les biens des couvents A
@@ -610,19 +500,14 @@ Il faut se mettre dans la tête qu'en Europe on ne donne
 - exemple, si cette Université possédait un million et demi de rente. x
 Pas un sou, la chose est évidente. {
 
-pr. ANAE HN cer EEE 1 y LA T ROLE hs NES Ce tpe Du t)) \ #4
-| LES REVENUS DES UNIVERSITÉS ve
 pas de somme considérable à des pays qui ont trois à HR
 sept milliards de revenus. Les Universités modernes . k
 n'y peuvent vivre que par l'État. $
 Déduction faite de ces deux sources de revenus, les \
 21 Universités allemandes touchent annuellement des on
 différents Etats du « Bund » : fi
-| 3 — bavaroises............. 2.512.000 » ‘
-| 2 — badoïses............... 1.624.000! »
 1 Mettons en regard ce que dépense l'État français, non :
 à seulement pour ses 15 Universités, mais pour tout l'En4 seignement Supérieur : Le dernier Compte définitif du FN
-#1] REF ASA . . . . 2
 L Budget du Ministère de l'Instruction publique qui ait #
 "4 paru comporte les chiffres suivants : %
 ne Chapitre 10. Universités et Observatoires universitaires. TE 4
@@ -634,7 +519,6 @@ marks). Enfin, Halle et Gôttingen réunis ont presque autant de #Y
 ._ revenus que Paris. En Amérique Harward et New-Yorkontchacune ++
 ‘1 7 à 8 millions de rente.
 
-Ferdinand Lot  -. 7 NE MIRE
 — 13. Facultés dont les dépenses don- ;
 nent lieu à des comptes avec 1:
 — 19. Ecole des Langues Orientales. à
@@ -683,7 +567,6 @@ Ces deux catégories de ressources ajoutées au budget
 % les bénéfices (6 millions) qu'en retire l'Etat sous forme de droits
 Ÿ de diplôme. {
 
-ie ::ÿa VENT AAA Er Mate Re SA Lun RTS br dE AE j! ;
 Pre dans de simples Écoles, et non dans des Facultés, est
 to à la charge des Municipalités et des Départements.
 k Faisons état de ces subventions et aussi des rétribufie tions payées par les élèves. Le Compte définitif nous
@@ -691,7 +574,6 @@ k Faisons état de ces subventions et aussi des rétribufie tions payées par le
 Fa nale de l'Enseignement Supérieur ne dépassant pas
 13 ( l'année 1898, j'aurai recours à la Minerva, Lehrbuch der
 : gelehrten Welt, chez K. Trübner à Strasbourg, année
-#1, Amiens..:........3......Kranes 71.140 » d 33
 de "Marseille ie ELLES : 53
 | Ce qui, joint au total précédent, donne 21 millions 4
 Ainsi, les divers établissements d'enseignement supé- ?
@@ -699,7 +581,6 @@ rieur Français ont, tout compris, en chiffres ronds à
 | (1) Les villes qui ont l'astérisque sont sièges d'universités.  ? >, 10
 (2) Au compte de l'Etat depuis le 31 mars 1903. À
 
-LES REVENUS DES UNIVERSITÉS fe
 21 millions de revenus. Les Universités allemandes
 offrent en regard 37 millions. (1) La
 De ce dernier chiffre il faut déduire les 7 Facultés de
@@ -819,8 +700,6 @@ atteignent un chiffre sensiblement égal. Soit en chiffres
 ronds un total de 160 à 170 millions de francs de cré.
 dits extraordinaires pour l'ensemble de l'Empire accordés aux Universités de 1878 à 1903. (1) 4
 
-À %: REIN Le NL) sauts DOPA AS PEN ATTE <. TX A FA pel F mate
-N'PA LES REVENUS DES UNIVERSITÉS eu
 | Eh bien! la situation est beaucoup plus mauvaise d
 encore pour la France que ne le feraient croire les chiffres à
 précédents. C'est qu'en effet noë Facultés des Sciences \
@@ -903,14 +782,11 @@ j: ; officielles entonner la louange de la Troisième Répu-
 vérité c'est qu'elle est restée bien en arrière de ce
 É qu'ont fait, sans tant le crier, tous les royaumes et duchés germaniques.
 
-|
-
 | Les Facultés des Lettres et des Sciences de.
 en France et en Allemagne 4
 Étude de statistique du Personnel Enseignant 3
 : Les Facultés des Lettres françaises 4
 L et les Philosophische Fakultaeten d'Allemagne bi
-| Remarques préliminaires Be
 Une statistique n'est rien, — qu'un mirage, — si ellk
 n'est accompagnée d'éclaircissements. Nous allons les
 donner aussi nombreux que possible. >
@@ -924,7 +800,6 @@ disent les Allemands. Ils viennent en tête car ils sont
 « ordinaire » allemand a une situation pécuniaire et
 sociale sensiblement supérieure à celle de son collègue
 
-| eu STATISTIQUE DU PERSONNEL ENSEIGNANT de
 français, surtout en province. Il jouit d'une prérogative CA
 qui peut nous paraître singulière : il n'est jamais mis no
 à la retraite. Que l'âge ou les infirmités lui interdisent 5
@@ -936,12 +811,10 @@ plus besoin. Il ne cesse jamais jusqu'à sa mort de à
 figurer sur l'affiche de la Faculté. Néanmoins, je me |
 suis abstenu de compter dans ma statistique les vieux L
 professeurs ordinaires qui « ne lisent pas », comme
--on dit.
 E s'entend du professeur « extraordinaire ». Il complète, enrichit, l'enseignement du professeur ordinaire, - $
 mais ce n'est pas un suppléant. Il a bien une chaire
 | à lui, quoique celle-ci soit moins rétribuée et moins
 | considérée, et dotée, d'ailleurs, de prérogatives moin-
-| dres.
 D s'entend des privatim docentes ou « privat-dozents », i
 jeunes savants qui obtiennent de la Faculté le droit de 3
 _  professer à leurs risques. Ils n'ont pas de rétribution. ä
@@ -1024,7 +897,6 @@ choses qui paraissent moins fondamentales (on ne sait
 | généralement pas pourquoi). C'est vraiment un profes
 On voit que toutes les catégories précédentes re- A
 présentent des professeurs « extraordinaires ». C'est *
-l'ensemble du personnel de la deuxième et de la troi- pi
 sième colonne du tableau français qu'il faut assimiler à ..
 celui de la deuxième colonne (E) du tableau allemand, Fe
 
@@ -1035,7 +907,6 @@ mettent pas de pourvoir d'une chaire magistrale. "
 Le principal avantage que confère le titre d' « adjoint » $
 n'est pas d'ordre pécuniaire : il assure la sécurité. Le 4
 « maître de'‘conférences » n'est en effet nommé que pour
-‘ un an. Il suffirait à un ministre de ne pas renouveler 2e
 cette sorte de délégation pour ruiner absolument lave
 nir d'un maître de conférences. (1) En fait, ce renouvel- *
 (r) Pendant F « Affaire », se doute-t-on que les maîtres de confé- |
@@ -1152,9 +1023,7 @@ même deux et trois fois.
 1 (1) Presque toujours, ils ont pour origine une raison d'économie. à;
 La Faculté des Lettres, par exemple, au lieu d'avoir une chaire ou
 une conférence de métrique gréto-latine, demande cet enseigne25 ” Ferdinand Lot. — 2
-|
 
-JON NE At eee ES RL
 Je pense être parvenu avec de l'attention à échapper à
 
 cette cause d'erreur. Seulement, il était indispensable de
@@ -1184,7 +1053,6 @@ une rétribution insignifiante. C'est par ce procédé que l'Ecole des Ë
 Hautes Etudes (quatrième section) peut enseigner une masse con- F
 sidérable de sciences variées avec un budget minuscule. À
 
-SLR RO, ji Gus 1h | UE AE PR LL MA FR RS RE MAUINRR
 | une branche de la Géographie mais de l'Histoire, C'est Û
 | sous cette dernière rubrique que nous avons compris
 _ + les enseignements qui traitent de cette science au Col-
@@ -1254,7 +1122,6 @@ aucun grade du premier et il n'a aucun avantage en
 É perspective. Enseignât-il trente ans, cela ne lui vaudrait pas la moindre faveur. 4
 Dernière remarque, la plus délicate de toutes: L'unité . À
 
-Non STATISTIQUE DU PERSONNEL ENSEIGNANT
 professorale française vaut-elle l'unité allemande? Ÿ
 Scientifiquement oui, le plus souvent. Mais au point de
 9 vue du rendement pédagogique, non. Le professeur
@@ -1272,38 +1139,9 @@ insignifiante en comparaison de celle du premier.
 \] deux pays, le nôtre sera constamment et fortement
 
 ...
-| Ji
 .
 
-Ar (y HY NAT HA USA PAU LATE KA SUR ai gi NET s {
-# 5 00 NS
-CE D'À CEE dr Ex SE E € er 0
-« JO[EID oE|n OJE 0e lo blok blok/ploke L
-Breslau | a) » roro rx 1) » 2l oo) Sr
-Don ne A D ct D D et tt M BE
-Bai er De et D Et D et
-
-) A nt M LR QUE PERRET à DUREE GE AT RE ef He
-| HAN Ces | } Ë ;
-ta A Éd
-“g ÉLUS Pa pas PAU pen L'AIR UE EE CB ESRN LES
-
-France 1904 STATISTIQUE DU
-#2
-| 4 Sorbonne. ..........| 2] 1| 3] »| »| 1] 6] x| 3] x! »! »! 3] »! ri 6! 2] 31 xl »l » (
-| Clermont .…......... 1, », »] »| »] »] »} »} 2! »| »| »| »| »] »} 2} »| 1} »] »| »} pl
-| Dijon............... 1, »| »] »| »} »] 2! 1} »} »| »| »| »| »| »] 2] »| »] 1] »} »} »} »
-
-n d ML At 4 SN A hi ire ne RU re de cb ES ÿ
-dE AOY EPS me DEL E LSPAT QU OT ARIQUS CAES ji SEE UHR AVANT EEE
-le
-| 2 PHILOLOGIE MODERNE 5 a Bo
->| 1} »|"1| »| »| »! »| »| »|°1| »| 1] »| »| »| »| »] »] »! »| »] »| »! »! »| »| »l 10
-| a | | a À
-| % 15 24 21 3 8 19 3 354 :
 114 33
-
-| Ferdinand Lot ira TRE ke
 
 La différence d'organisation rend la comparaison dif- # 1
 : ficile. En Allemagne la philosophie, — exception faite.
@@ -1338,8 +1176,6 @@ A Paris même, il n'y a absolument aucun lien entre les is
 k (1) Outre une chaire à Rennes, on trouve une conférence sup- |
 
 . plémentaire à Lyon et un cours libre de 12 leçons par an à
-
-Rrn STATISTIQUE DU PERSONNEL ENSEIGNANT
 
 professeurs qui l'enseignent, l'un au Collège de France, 8)
 
@@ -1424,7 +1260,6 @@ est demeurée aussi arriérée : 8 ou 9 professeurs (1) ou |
 à fait exact. M. Jullian est [était] professeur d'histoire du Sud- L
 Ouest et ne consacre à l'Antiquité qu'une partie de son activité. 1
 
-dé STATISTIQUE DU PERSONNEL ENSEIGNANT Fes
 maîtres de conférences en 1904 (5 en 1896), en face des ;
 27 maîtres (dont 24 professeurs) de la province allemande ! — J'ai expliqué ailleurs et déploré le motif de *
 cette pénurie : chez nous l'histoire ancienne n'est im- |
@@ -1454,7 +1289,6 @@ _ professeur d'archéologie. J'ai relevé pour 1903, en
 +. Collège de France, etc., dans l'Archéologie plutôt que dans l'Hisn.. toire. Nous avons mis sous ce dernier chef l'Épigraphie, qui est une
 & science auxiliaire de l'Histoire et non une branche de lArt.
 
-| Ferdinand Lot NFSUÉE SRE + "Me À
 ° J'ai signalé à la « Société d'histoire moderne » (1)le
 développement qu'a pris l'enseignement de l'histoire
 moderne et contemporaine dans les Universités allemandes en même temps que l'histoire du Moyen-Age
@@ -1484,12 +1318,10 @@ France aussi les professeurs demandaient de loin en loin des D
 congés, > que les professeurs et dozents en congé (dont mon contradicteur) n'avaient pas été portés dans ma statistique. Celle-ci |
 subsiste donc. 4
 
-STATISTIQUE DU PERSONNEL ENSEIGNANT se
 gnement celui de la Géographie et le professeur d'his- &
 toire médiévale celui de l'Antiquité! Enfin, deux Uni- DA
 | versités, Aix et Grenoble, n'ont pas de professeur d'his- 4
 Combien plus grave est la situation de la France au {
-_ point de vue de l'Histoire de l'Art! É
 ( Déjà Paris est, — faute d'organisation, — fort inférieur ‘à
 - à Berlin. Quant à la province, c'est lamentable. Deux à
 _ maîtres de conférences, l'un à Lille, l'autre à Lyon; à
@@ -1571,8 +1403,6 @@ LA d (1) Dans le tableau on a compté un professeur à Dijon. Ce n'est
 x 11 qu'à moitié exact. La chaire est en réalité une chaire d'histoire lo-
 ; du “+ nue à laquelle se joint un enseignement artistique.
 
-ui ni
-
 ” pas avoir de professeur de géographie (Besançon, Cler- |
 a) Langue et littérature allemandes. — Jusqu'àlafin
 du dix-neuvième siècle dans l'enseignement de la Philo-
@@ -1653,7 +1483,6 @@ française ne l'est pas si bien qu'on pourrait croire. Vu À
 la richesse et l'importance de notre littérature il est
 impossible à un seul homme de l'embrasser toute '
 d'un maître de conférences, ce qui n'a lieu ni à Caen, 1
-ni à Dijon, ni à Grenoble, ni même à Lyon. A Nancy, à
 Besançon, on n'a pas voulu faire les frais d'une maîtrise À
 de conférences et on fait appel à un professeur du lycée. ‘4
 
@@ -1684,7 +1513,6 @@ ke ont été réalisés chez nous en ces dernières années.
 ML Néanmoins il reste encore à faire. Le dédoublement de la
 x chaire anglo-italienne (!) de Montpellier, — par exemple,
 À III. Signalons comme curiosité que l'enseignement de la
-‘| OU 45 Ferdinand Lot. — 3.
 
 langue et de la littérature provençales est plus développé
 en Allemagne qu'en France. On ne s'en étonnera pas D:
@@ -1718,7 +1546,6 @@ tous ces établissements se borne-t-on à enseigner les ;
 éléments du russe et à étudier un peu la littérature. La
 « philologie slave », à vrai dire, n'est pas enseignée
 
-| STATISTIQUE DU PERSONNEL ENSEIGNANT Ù +
 en France (tandis qu'elle l'est à Leipzig, à Berlin, à Bonn, » à Breslau, etc), sauf à l'École des Hautes Études, F
 k les années où le professeur de grammaire comparée |
 prend cette science comme objet de son enseignement.
@@ -1785,7 +1612,6 @@ rences de « grammaire », mais leur enseignement est, je-crois, 1
 plus philologique que linguistique; aussi les ai-je comptés parmi nù
 les philologues. Ki.
 
-|
 _ Ce domaine est immense et doit être subdivisé.
 Abstraction faite du Sanskrit dont il vient d'être question,
 | on doit distinguer les Langues Sémitiques, les langues
@@ -1847,13 +1673,9 @@ raire. Ajoutons que l''Européen qui ne saurait que la langue vulgaire, : 012
 sans posséder la languë savante et littéraire, ne jouirait d'aucune \
 estime, pas plus que chez nous un paysan qui ne saurait que son ee
 
-hi] STATISTIQUE DU PERSONNEL ENSEIGNANT
-
 être la plus heureuse création de M. Doumer en Indo-
 
 | Chine, fournirait aisément le personnel nécessaire.
-
-| = .
 
 L'Allemagne aussi est mal pourvue en dehors de la
 
@@ -1885,7 +1707,6 @@ l'Économie, « politique » comme nous disons, « natio-
 ù compte en moyenne deux professeurs ordinaires et
 i un extraordinaire ou un dozent. Les deux premiers
 
-| Ferdinand Lot MR. |
 enseignent alternativement l « Économie nationale 1
 théorique » et | « Economie nationale pratique ». F4
 
@@ -1896,7 +1717,6 @@ etcomme méthode, et comme programmes, et comme per- 1
 sonnel. Pas d'enseignement des faits économiques. 1
 L' « histoire des doctrines économiques » confiée trop
 souvent en province non à un spécialiste mais à un
-romaniste, ou à un civiliste, ou à un criminaliste, pour CE
 éviter de payer un homme compétent. De même pour
 l'économie industrielle. La Science financière, la Statistique, mal enseignées en province, ou même pas du }
 
@@ -1924,7 +1744,6 @@ pas embarrassé d'en citer plus de vingt aux Etats-Unis dont le É:
 personnel est plus riche que celui de Paris même en ce qui touche 4
 les Sciences économiques. x.
 
-| STATISTIQUE DU PERSONNEL ENSEIGNANT ,
 cernent, comme toujours, Paris. La province s'en tire
 | <omme elle peut, c'est-à-dire fort mal.
 | On a omis, dans les deux tableaux, un certain
@@ -1941,7 +1760,6 @@ L'Archéologie préhistorique compte une chaire à
 Berlin, une à Paris, à l'École du Louvre.
 | Les Antiquités mexicaines ont une chaire à Berlin,
 | une autre à Paris, au Collège de France (chaire du duc
-: de Loubai). k :
 La Phonétique générale et expérimentale est professée
 au Collège de France (par un chef de travaux) et à
 | l'École des Hautes Études (deux maîtres).,
@@ -1952,7 +1770,6 @@ un professeur à Paris (École des Hautes Études).
 4 manière insignifiante sur le total qui se trouve augmenté " |
 J de neuf unités du côté français, de six du côté alleLM
 
-| Ferdinand Lot nt
 D'autre part, il convient, pour comparer des choses £
 comparables, de faire abstraction des « lehrer » de
 « Staatswissenschaft » pour l'Allemagne, — puisque l'en- ;
@@ -1978,10 +1795,6 @@ Nous, qui aurions eu beaucoup à faire pour rattraper |
 des proportions sensiblement plus faibles. Il est clair 4
 qu'à marcher de ce train nous perdons notre rang de L
 
-fl ET
-
-gs à ns PROC ENDE PR ET: CRE A NOS 2P CAE ETE n æ
-LH NP SR 42 2 Lay 1 LAN Hi OPEN ER PRE NO: ce à TOR TRS PRE SUR
 | 1
 | Les Facultés des Sciences françaises |
 | et les Philosophische Fakultaeten d'Allemagne ;
@@ -1994,7 +1807,6 @@ La comparaison entre les deux pays est rendue
 | écoles techniques dont le personnel est en dehors de
 À l'Université. Cependant, dans de petits pays (Hesse,
 À Mecklembourg, etc.), la Faculté fait, comme en France, Li)
-| . A .
 | fonction d'école technique ; ÿ
 Ë 2 en France les étudiants en médecine font leur
 | première année à la Faculté des Sciences, ce qui a
@@ -2031,7 +1843,6 @@ On a pris grand soin d'éviter l'écueil des doubles |
 (1) Les Allemands ont aussi, en plus de l'enseignement universitaire, des écoles spéciales, ce qui complique encore les choses et J
 rend les rapprochements très difficiles. k
 
-| STATISTIQUE DU PERSONNEL ENSEIGNANT 1e
 emplois à Paris, et de ne compter qu'une fois le même ë
 professeur, même s'il enseigne dans plusieurs établisse- fé
 ments à la fois. F
@@ -2047,42 +1858,11 @@ maîtres de conférences de la Faculté des Sciences.
 Un cours complémentaire de mathématiques, de fondation privée, au Collège de France, a été porté aussi
 sous cette rubrique (maître de conférences). .
 
-| i
-
-É ÿ Le 2 pe fc |
-|  unrversrrés He Æ = E£ < ü È
-De RUN EN)) PURES PRRTEPEER ps &
-| Berlin... 715|[ 8] »| »| »1 5 3| 8] 2| 8/5] 2| r| 41
-|-Bonn.....…...) 51 11 21 »| »1 »1 11215) T7 ae en
-| Marbürg .....| 2| »| 2] »| »| »|1|1|2|2| 1) 32h02
-
-Doc hol rh) »} > SD SRE Cey PE QE TNA IL
-| > » » I » » | » » » | » » » » » » 15
-LE ne a eg Pa me ON
-| 15 | 50 | 28 | 12 | 2 5| &| 310/3%|11 31 3! 1| 636 |
-# D ES ES D SD on EE on.
-| 66 65 12 68 7 636 |
-
-France 1904 FACULTÉS DES SCIENCE:
-TAN TT AG de C]ITIA c
-Bordeaur.:....5..10hiia let LS MEN ON 20 T'AS ES te
-FA a 2 CE D SPA 2 tal aimez 1| 11 (Tr Later
 | | 3
 eee. Sn ce eee eee neeee  de —
-| Total général... 57 pe 52 6 …
-
-N PNA ri ARS ‘+ ton tés Rd EN ju s FA FE CREE
-D ma Le LHERSE
-| ÉTÉ g ESA 5 ge SUUNE
-| 4Se 0624 Fu 0 RUE
-
-Boo Pc er) a) TA) cl T|.A| 0
 
 4 16 37 17 12 129
-| 4o 6 42 13 343
-| 4 61 Ferdinand Lot. — 4
 
-#:
 La division est factice. Dans les petites Universités,
 aussi bien en Allemagne qu'en France, un professeur
 ù enseigne à la fois plusieurs branches des Mathéma- A
@@ -2112,8 +1892,6 @@ Es de maîtrises de conférences représente leurs deside- $
 \ pas bougé d'une façon appréciable. Le total allemand
 
 Fe (passant de 89 chaires à 95), s'est un peu plus élevé.
-
-| 3° PHYSIQUE GÉNÉRALE ET APPLIQUÉE
 
 ; On voit que Paris ne l'emporte que de bien peu sur
 
@@ -2153,8 +1931,6 @@ Br particulièrement l'électrotechnique, nous avons encore
 À magne, (je juge la chose impossible), mais pour ne e
 
 : pas laisser s'élargir encore l'intervalle qui nous en
-
-de
 
 La supériorité de l'Allemagne devient ici tout à fait
 écrasante. En 1896 déjà, elle possédait, rien que dans
@@ -2221,10 +1997,6 @@ Mais n'avoir pour la Géographie aucun enseignement
 
 (1) Le total allemand semble avoir baissé de 1896 à 1904 (62 au :
 lieu de 65) mais, en réalité, le personnel rétribué a augmenté : 47 au
-
-ÿ lieu de 44. J
-
-| 65 Ferdinand Lot. — 4.
 
 ni dans l'une ni dans l'autre Faculté, c'est vraiment trop à $ k
 peu. C'est ce qui se produit cependant à Besançon, à ‘ES
@@ -2323,7 +2095,6 @@ figure vis-à-vis de l'étranger.
 
 Nous avons vu qu'il n'en était pas de même de nos
 Facultés des lettres en province dont la situation est
-| franchement mauvaise.
 Il est visible qu'on à fait, proportionnellement, beaucoup plus pour les unes que pour les autres. Leur perF sonnel est égal à deux unités près (214 contre 216). Or,
 L le nombre des disciplines qu'une Faculté des Lettres a à
 _ distribuer est sensiblement plus considérable. Il y a
@@ -2337,7 +2108,6 @@ _ vis des 216 maîtres de tous ordres de nos Facultés des
 __ Lettres de province. à
 2e La différence est trop saisissante pour qu'il soit néces_ saire d'insister.
 
-F : x dr. SE. L se Ë
 Les lacunes du personnel enseignant PA ps
 des Facultés des Lettres et de Droit de province
 Ê:: Dans le chapitre précédent on a relevé aufuetà :
@@ -2349,27 +2119,14 @@ tableau d'ensemble. Notre vue sera plus nette. ce
 
 Il manque pour : les Facultés des Lettres, approxi
 
-ou LA
-
-Et Philosopine:. 2; RES ARS Te fs
-
-| — —"; masical 040, SUTSeS 14 (8
-
 Langue et littérature anglaises............. 5.528
 
-A 0 cc bé à si. 5 ji js Re Ne PA NO it,
-| Professeurs 1
-i de
-| Report... 85
 Linguistique générale et comparée........ 12
-| Philologie sémitique....................... 14
-| PHSPhOlO NIET ea alone: sde 3
 Ce total semble élevé au premier abord. On a vu
 | pourtant que nos évaluations ont été des plus modérées.
 Les besoins des Facultés des lettres sont grands parce
 qu'elles ont été de toutes les facultés les plus négligées.
 La raison s'en comprend aisément. Quand on entreprit,
-. il y a un quart de siècle, la réorganisation de notre en-
 | seignement supérieur, il fallut aviser au plus urgent.
 Les Facultés des Sciences et de Médecine accaparèrent,
 ; — c'est bien naturel — l'attention du gouvernement,
@@ -2444,7 +2201,6 @@ E vraiment colossale., Nous n'avons rien de semblable en
 :J l'École des Hautes Études est très intéressante, mais
 ‘4 elle ne touche que Paris. En province, comme toujours,
 À c'est le néant. Il serait pourtant bien nécessaire que
-L 73 Ferdinand Lot. — 5
 
 s dans chaque Faculté des lettres il y eût un pro FL,
 spécialement chargé d'exposer l'Histoire et la Socio Le
@@ -2478,8 +2234,6 @@ lègues auxquels seraient confiés, — dans notre dessein, 2
 — l'enseignement de l'indianisme et des littératures sé- EX
 mitiques. Ainsi renforcée, l'étude des phénomènes reli- Le
 
-L (Ar a is q ; Art is À SUUT QE < j
-At at A DR COTE Et AE da rt
 +  gieux pourrait être scientifiquement entreprise dans nos #1}
 ne Dans les pages ps précèdent on a surtout siRoe cap
 D les Facultés de province. Ce sont elles, en effet, qui mé-
@@ -2568,7 +2322,6 @@ SA Poitiers) on ne trouve pour la Zoologie et la Physio-
 logie qu'un seul préfesseur, ce qui est fort insuffisant, Aa tÈ
 Ë Pour la Botanique et la, Biologie végétale des maîtres 54 14
 de conférences font défaut à Clermont, à Grenoble, à | PE 4: t
-Dijon, à Poitiers. “Ne
 
 logie, Pétrographie, sont enseignées par un unique pro- fe
 fesseur, auquel on impose ainsi une tâche évidemment RU:
@@ -2599,7 +2352,6 @@ re _ le Droit commercial....... 1 ,
 
 _— — le Droitinternationalprivé 1 4
 
-| Lxs LACUNES DU PERSONNEL ENSEIGNANT AA
 : ARE »° Section administrative et politique |
 M: Professeurs ou agrégés pour le Droit Administratif. 1 ï
 \ 4 ” — —_ le Droit public et con-
@@ -2610,7 +2362,6 @@ Ni — — le Droit international
 
 \ Professeurs ou agrégés d'Économie politique théorique 1 ‘
 
-| Û OA LR EE ST Var
 ‘1 L'ensemble d'une Faculté de « Droit » ne saurait
 $ donc comporter un total inférieur à 16 maîtres. — Tout
 
@@ -2661,18 +2412,11 @@ les autres peuples, — sauf de l'Espagne, bien entendu.
 Néanmoins, si le Parlement consentait à créer en province les 200 chaires ou conférences qui manquent à
 nos Universités, celles-ci seraient dans une situation
 convenable. La situation actuelle est misérable.
-Et il n'y a, si l'État ne vient pas au secours de nos
 Facultés des Lettres, aucun moyen d'en sortir.
 Compter sur les particuliers serait folie. Depuis 1806,
 date de la constitution de nos Universités, qu'ont-ils
 ÿ (1) Deux Universités, Clermont et Besançon, demeurent privées
 de Facultés de Droit. Cela est regrettable, pour la première surtout, les études juridiques étant celles qui intéressent le plus les
-
-Li di ER 52 à None PAM Nes LA à
-
-|
-
-| LES LACUNES DU PERSONNEL ENSEIGNANT
 
 4 donné? Rien, — ou à peu près. (1) Les instituts de chimie
 
@@ -2829,7 +2573,6 @@ expliqué plus haut pourquoi il était vain d'attendre
 chez nous des donations, même très minimes. Nous ne
 demandons pas, d'ailleurs, à l'État français, d'être
 4 magnifique, mais simplement de ne pas nous laisser
-| croupir.
 t Quand il s'agit de l'Armée et de la Marine, les
 dépenses les moins justifiées sont votées les yeux fer-
 | més. Le Parlement accorde sans sourciller la mise en
@@ -2848,7 +2591,6 @@ fait leurs preuves. Mieux vaut rien qu'un personnel
 \ (1) Dont il faut défalquer les 7 ou 8 millions que rapportent à
 à l'Etat les droits d'examens et de diplômes.
 
-(34 _ Ferdinand Lot VAT Ce rh
 | médiocre de simples vulgarisateurs. Or, à l'heure
 actuelle, nous sommes encore loin en France d'avoir à
 tous les hommes nécessaires pour relever notre haut 15e
@@ -2881,7 +2623,6 @@ fait pour les constructions navales. ;
 (:) J'écarte naturellement la race des amateurs, la bande des L
 journalistes critiques d'art. Ces gens-là sont à fusiller, — tout sim- %
 
-A PR Fe Es RE LAS y FA Has JEU sÿ PRENECITAN (il pau (e
 4 Cette année 1905 pourrait fournir, au surplus, une “à
 * occasion financière inespérée. Si le Concordat est 5
 l dénoncé, que le Parlement n'oublie pas nos Universités 1
@@ -2911,7 +2652,6 @@ Ru. théologie catholique en 1885 avait eu ce résultat pour Paris en #
 à): # permettant de créer la 5* section de VEcole des Hautes Etudes. #
 
 4 1
-Le Privat-Dozentisme |
 Admettons que toutes les augmentations indiquées |
 aux chapitres précédents aient été effectuées, que nos ;
 Facultés provinciales soient renforcées de 150 à 200 pro- |
@@ -2959,7 +2699,6 @@ d'enseignement secondaire d'un niveau plus élevé qu'en
 aucun autre pays. » (3)
 (1) Charles Seignobos : Le régime de l'enseignement supérieur des
 lettres, — analyse et critique. (Paris, Imprimerie Nationale, 1904,
-.(2) Qui? où ? et quand? La vérité est qu'on n'a rien tenté de sé-
 1 rieux en ce sens.
 L (3) Assertion bien téméraire !
 4 89
@@ -2978,7 +2717,6 @@ exige sans cesse des heures supplémentaires. Nos pro- ?
 fesseurs de lycée n'ont plus une minute à eux et c'est de fl
 ce personnel qui peut à peine suffire à sa besogne pro- {
 fessionnelle que vous attendrez du travail scientifique ? 4
-Il n'en a pas le loisir, — et, d'ailleurs, n'a plus de j
 . ressort. L'auteur n'a donc jamais causé avec un
 collègue de lycée ? IL y a dix ou vingt ans, oui, le 4
 professeur pouvait travailler, — très peu. Aujourd'hui, |
@@ -2997,7 +2735,6 @@ Au reste, ce grand effort l'épuise, et s'il obtient une ‘4
 chaire dans une Faculté, il y a grande chance pour que, SH 48
 
 TN du mots
-ni AE LE PRIVAT-DOZENTISME ‘48
 i fourbu, il ne produise plus rien pendant le reste de sa
 
 F Ce mode de recrutement est donc défectueux au point
@@ -3135,24 +2872,14 @@ _{ approximatif, — de ces « privat-dozents » français? Cela : à
 dépendrait uniquement des crédits votés par le Parle- Ne
 ) ment. À titre de renseignement voici les chiffres que j'ai 4 |
 
-on supprimerait l'agrégation et le concours. On exigerait à la 1 Es 4
 place un grade scientifique élevé, un « doctorat en biologie » qui ‘234
 ouvrirait les portes de la Faculté de Médecine, comme le doctorat 44
 ès-lettres et és-sciences fait pour les Facultés des Lettres et les ; ST
 Facultés des Sciences. J À eus
 
-(HUE ii AMEN LE PRIVAT-DOZENTISME px di
-| LT 0) LA AS 4
 |. recueillis pour l'ordre des « Lettres », comme nous : Fo
 disons, dans les listes des Philosophische Fakultäten : : à
-l De pi
-fl 3 OS HÉpOt RS MR CR À RME NI ARS 2 LS
-ù CRE et RAA RES MR PRE E 3 à
-144 RO 0 Ua ee ne co ee à 21282 CENT AO ARE,
 
-( Re ET OS RER M où dan) s1aie V2 À
-! Monchens ut ne ARE RU y Er NE ae) ss
-# DAS Dolte eue LAN US ETES à
 be y Pour l'ordre des « Sciences » proprement dites (Mathé- pe
 #4 matiques, Chimie, Physique, Biologie) le total est un #
 ‘64 peu plus élevé. N,
@@ -3190,21 +2917,6 @@ conférences après plusieurs années de service. Son avantage principal est de 
 nest nommé en effet que pour un an, déplaçable et révocable ad
 nutum. Cf. plus haut.
 
-VHS MR AA PAS sn CE PPT P A AREA
-DRAP FR tàe 44 ACER Les SRE 2e
-ELS Ta Li PTE 1 Pie:
-de AN ATEN) x Ar Du
-BETULE C Here L £ ant Oe P
-REC "HR ENEN l wr. ils RE 7
-LA ARR 1 cave Ÿ: pb}
-Mrs ane c * Le -4 EE TRS
-FNESTEN N PA je LTER A 4 RARE a ee
-
-Fix TL LES
-sie F É : PET CRIE SA
-A EE ne. ere"
-
-pe CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 4 rez-de-chaussée, Paris, cinquième arrondissement.
 | Nos Cahiers sont édités par des souscriptions men-
 | suelles régulières et par des souscriptions extraordi- ‘
@@ -3231,8 +2943,6 @@ di tout temps et reçoivent un numéro d'ordre déterminé
 1 ce numéro d'inscription qui devient automatiquement le
 | numéro du tirage réservé à chacun des souscripteurs ; y
 | :  lédition sur whatman est strictement limitée au ;
-
-A 4 de es PSE
 
 Pour tout changement d'adresse envoyer soixante
 centimes, quatre timbres de quinze centimes.

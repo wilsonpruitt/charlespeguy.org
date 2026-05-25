@@ -7,15 +7,9 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 44858
 ---
-Jean-Christophe |
-|
 paraissant vingt fois par an |
 8, rue de la Sorbonne, au rez-de-chaussée |
 
-ir TUE VA ! ln 5 0ù Ch UN VRP VUE EN RON MC TR L'EIT TE
-
-fi MÉLMALS 187 A [HE AT AE D np, P, AA ASE SN PAT ET
-> à W, CURE
 1110008
 
 Sur les œuvres et les travaux de Romain Rolland
@@ -33,33 +27,9 @@ Romain Rolland publiés dans la quatrième série de nos
 
 Les œuvres et les travaux de Romain Rolland je |
 
-Hes de LE à dx
-
-#14 ;
-
-| à TS
-# Eye | 1. VAR
-
-Le een-Christ
-71 N-Christophe
 2 174
 
-| 4 2 Frs ETS nes
-
 14 (He #14 quando l'anima tua dentro dormia.… ‘à
-
-LOUE WA (NES CAR so (ES rad
-dr SA { ÉrBte Re AU
-| 0 +47 { LOVE RES à ti
-
-» At Ne HN hair A sr En e
-#_ TRUE 3 É HS
-TA n ei : | re DOS ENCRES +
-LS NE ( Purg. XVII
-on e h, QUNLY ya)
-RU AS ae Ré 'PPAN T: JUL LA (AL AURS vus & NUE, ho rÉ
-
-Nes + Î ALERTE. TES
 
 Le grondement du fleuve monte derrière la maison.
 La pluie bat les carreaux depuis le commencement du
@@ -89,7 +59,6 @@ s'agite. Hélas ! quelle épouvante! Les ténèbres, l'éclat
 brutal de la lampe, les hallucinations d'un cerveau, à
 peine dégagé du chaos, la nuit étouffante et grouil-
 
-: Jean-Christophe À
 lante qui l'entoure, l'ombre sans fond d'où se détachent, ‘1
 comme des jets aveuglants de lumière, des sensations T4
 aiguës, des douleurs, des fantômes : ces figures À
@@ -110,7 +79,6 @@ Tu ne le croirais pas. Allons, ce n'est pas ta faute. Ils 4
 sont tous comme cela. %
 
 L'enfant sortit de l'immobilité stupide où le plon- 1
-geaient la flamme de la lampe et le regard du vieux. IL ri
 se mit à crier. Peut-être sentait-il d'instinct dans les k
 yeux de sa mère une caresse qui l'engageait à se SE
 . plaindre. Elle lui tendit les bras, et dit :
@@ -142,16 +110,13 @@ rien de plus à dire; et, après un silence, il reprit d'un
 | ton irrité :
 : — Comment se fait-il que ton mari ne soit pas
 ( — Je crois qu'il est au théâtre, dit timidement
-? Louisa. Il a répétition.
 — Le théâtre est fermé. Je viens de passer devant.
 C'est encore un de ses mensonges.
 — Non, ne l'accusez pas toujours ! J'aurai mal compris.
 # Il doit être retenu par une de ses leçons.
 Re. — Il devrait être rentré, fit le vieux, mécontent. Il
 3 hésita un instant, puis demanda d'un ton plus bas, un
-i — Est-ce qu'il a... de nouveau ?..
 
-Jean-Christophe "
 — Non, père, non, père, dit précipitamment Louisa. VA
 Le vieux la regarda ; elle évitait son regard : 3
 — Ce n'est pas vrai, tu mens.
@@ -182,8 +147,6 @@ Il vint près d'elle, ramena les couvertures défaites sur ;
 ses épaules qui tremblaient, et lui caressa la tête de sa
 — Allons, allons, n'aie pas peur, je suis là.
 
-M Rd ne
-
 Elle s'apaisa à cause du petit, et essaya de sourire. ,
 — J'ai eu tort de vous dire cela.
 
@@ -193,7 +156,6 @@ Le vieux la regarda en hochant la tête :
 V'ai fait là.
 
 — C'est ma faute à moi, dit-elle. Il ne devait pas
-m'épouser. Il a regret de ce qu'il a fait.
 
 — Que veux-tu qu'il regrette ?
 
@@ -267,7 +229,6 @@ ses élèves bourgeoises, ainsi qu'il s'en vantait, eût été
 | brusquement choisir une fille du peuple, pauvre, sans
 éducation, sans beauté, qui ne lui avait fait aucune
 | Mais Melchior était de ces hommes qui font toujours
-le contraire de ce qu'on attend d'eux, et de ce qu'ils en
 attendent eux-mêmes. Ce n'est pas qu'ils ne soient
 avertis, — un homme averti en vaut deux, dit-on...
 É — Ils font profession de n'être dupes de rien, et de
@@ -277,7 +238,6 @@ diriger leur barque à coup sûr, vers un but précis.
 : est naturel, quand les choses sont livrées à elles-mêmes,
 elles ont un malin plaisir à contrecarrer leurs maîtres.
 
-Jean-Christophe &
 Le bateau laissé libre va droit contre l'écueil, et l'intrigant
 Melchior épousa une cuisinière. Il n'était cependant ni
 ivre, ni stupide, le jour où il s'engagea pour la vie
@@ -318,8 +278,6 @@ l'avait rapproché de la servante aux cheveux de lin? Il
 avait rempli son rôle ; et le petit Jean-Christophe venait
 de prendre pied sur cette terre, où le poussait son
 
-de
-
 La nuit était tout à fait venue. La voix de Louisa K:
 arracha le vieux Jean-Michel à la torpeur où il s'aban- :
 donnait devant le feu, en pensant aux tristesses pré- be
@@ -355,7 +313,6 @@ mille dangers à le laisser rentrer seul.
 
 Dans le lit, près de la mère, l'enfant s'agitait de nou-
 
-| L'AUBE
 veau. Une souffrance inconnue montait du fond de son
 être. Il se raidit contre elle. IL tordit son corps, il serra
 les poings, il fronça les sourcils. La douleur grandissait, tranquille, sûre de sa force. Il ne savait pas ce
@@ -384,8 +341,6 @@ entrecoupée. On dirait que cette misérable masse
 _ inconsciente et informe a le pressentiment de toute la
 vie de peines qui lui est réservée. Et rien ne peut
 
-| lapaiser…
-
 Les cloches de Saint-Martin chantèrent dans la nuit.
 
 . Leur voix était grave et lente. Dans l'air mouillé de
@@ -396,10 +351,6 @@ _ L'enfant se tut au milieu d'un sanglot. La merveilleuse
 
 | musique coulait doucement en lui, ainsi qu'un flot de
 
-|
-
-sa AUS R NE PANNES
-Jean-Christophe 14 ‘4
 lait. La nuit s'illuminait, l'air était tendre et tiède, Sa
 douleur s'é vanouit, son cœur se mit à rire ; et il glissa
 dans le rêve, avec un soupir d'abandon. Ë
@@ -429,27 +380,12 @@ très triste; car il se rappelait ses espérances déçues.
 Il pensait à ce qu'il faisait là, à cette heure, dans la
 rue; et de honte, il pleurait. ë
 
-À RS PTE TA UE Pure g tite NT AP SASNE
-DANS Co A art LCR OL NET { PA Le
-LE RÉ EE SFr net TUE (ES DC D AT Le
-sie NORME ET TES ae CETTE 2 ÿ HR AU its PES
-RAT LL AU ne / Mu ps At MATE.
-‘ie M PR N. et MORCENANNNEES
-
-NME FT NEMLE RU MA SEL ORAN ANS f FENTE A « AA NY ; 1 VX rer. RE A DE Qu fi HA ER
-ARAURRAEE re, VEN. fi LA! | 125 DÉCRET h LC IPS ANA og
-ni D
-#3 y PLAL } ti HT DRE A
-Max 2 QC RASE NE SES
-| RSA ER si 4 0 ANR EP OR MANS
-
 Le vaste flot des jours se déroule lentement. Immuables, le jour et la nuit remontent et redescendent,
 comme le flux et le reflux d'une mer infinie. Les
 semaines etles mois s'écoulent et recommencent. Et
 la suite des jours est comme un même jour.
 
 Jour immense, taciturne, que marque le rythme égal Ç
-de l'ombre et de la lumière, et le rythme de la vie de
 l'être engourdi qui rève au fond de son berceau, — ses
 besoins impérieux, douloureux ou joyeux, si réguliers,
 que le jour et la nuit qui les ramènent semblent ramenés par eux.
@@ -540,8 +476,6 @@ lequel il se traîne, et le papier du mur, dont les
 | effrayantes, et l'horloge qui jacasse des paroles boi-
 | teuses, qu'il est seul à comprendre. Que de choses .
 
-# \
-Jean-Christophe 4
 dans cette chambre! Il ne les connaît pas toutes.
 Chaque jour, il repart en exploration dans cet univers |
 qui est à lui : — tout est à lui. — Rien n'est indifférent, |
@@ -595,8 +529,6 @@ F le vent souffle de l'Est, de très loin lui répondent les
 un vacarme assourdissant, où se détachent, comme
 ; dans les jeux d'une troupe d'enfants, trois ou quatre
 
-Jean-Christophe
-
 voix, toujours les mêmes, plus criardes que les autres.
 Un pigeon roucoule au sommet d'une cheminée. L'enfant
 se laisse bercer par ces bruits. Il chantonne tout bas,
@@ -621,8 +553,6 @@ la porte est fermée. Pour l'ouvrir, il monte sur une
 chaise: tout s'écroule, il se fait très mal, il hurle ; et
 par dessus le marché, il est encore fouetté. Il est toujours fouetté !.…
 
-Re NT More ie NÉ lens et Le ' ; ;
-
 Il est à l'église avec grand-père. Il s'ennuie. Il
 n'est pas très à son aise. On lui défend de remuer, et
 les gens disent ensemble des mots qu'il ne comprend
@@ -631,7 +561,6 @@ solennelle et morose. Ce n'est pas leur figure de tous
 les jours. Il les regarde, intimidé. La vieille Lina, la
 voisine, assise à côté de lui, a pris un air méchant; à
 des moments, il ne reconnaît même plus grand-père.
-Il a un peu peur. Puis il s'habitue, et il cherche à se
 désennuyer par tous les moyens dont il dispose. Il se
 balance, il se tord le cou pour regarder au plafond, il
 fait des grimaces, il tire grand-père par son habit,
@@ -689,7 +618,6 @@ passe des heures à regarder ses ongles, en riant aux
 ressemblent à des gens qu'il connaît. Il les fait causer
 ensemble, et danser, ou se battre. — Et le reste du
 corps! Il continue l'inspection de tout ce qui lui
-appartient. Que de choses étonnantes! Il y en a de bien
 étranges. Il s'absorbe curieusement dans leur vue.
 
 Il fut rudement attrapé parfois, quand on le surprit
@@ -697,12 +625,6 @@ Il fut rudement attrapé parfois, quand on le surprit
 ainsi.
 
 .
-
-|
-
-|
-
-|
 
 Certains jours, il profite de ce que sa mère a le dos
 tourné, pour sortir de la maison. D'abord, on court
@@ -762,8 +684,6 @@ un cheval; il lui mettait doucement sa baguette sur le
 j retourner sur le dos la pauvre bête, en riant aux éclats
 \ de ses contorsions.
 
-Jean-Christophe
-
 Il inventait aussi d'attacher une vieille ficelle à son
 bâton magique, et il la jetait gravement dans le fleuve,
 attendant que le poisson vint mordre. Il savaït bien
@@ -808,9 +728,6 @@ moment de parler. C'était un désappointement qui lui
 était coutumier; car il se renouvelait aussi souvent que
 ses élans d'éloquence. Et comme il l'oubliait après
 4 chaque tentative, il ne parvenait pas à en prendre son
-il
-
-Jean-Christophe :
 
 Il parlait de Régulus, d'Arminius, des chasseurs de
 Lützow, de Koerner et de Frédéric Stabs, celui qui voulut tuer l'empereur Napoléon. Sa figure rayonnaiït, en
@@ -840,8 +757,6 @@ Christophe était moins heureux, quand grand-père
 plaçait au moment pathétique un de ses discours rentrés qui lui tenaient tant à cœur. C'étaient des considé-
 une pensée honnête, mais un peu connue, telle que:
 « Mieux vaut douceur que violence », — ou : « L'hon-
-
-| L'AUBE
 
 neur est plus cher que la vie », — ou : « IL vaut mieux
 être bon que méchant »: — seulement, elles étaient
@@ -874,7 +789,6 @@ fuyards ; il s'était jeté devant eux, menaçant et pleu-
 4 champ de bataille, — c'est ainsi qu'il appelait le lieu de
 la déroute. — Mais Christophe le rappelait impatiemif
 
-Jean-Christophe
 à ment aux exploits du héros; et il était dans l'extase de
 ces chevauchées merveilleuses par le monde. Il le
 voyait sdivi de peuples innombrables, qui poussaient
@@ -944,9 +858,7 @@ tout se tait. Sous la voûte des bois, le cri du pivert a
 | des timbres magiques. Au loin, dans la plaine, une
 
 voix de paysan interpelle ses bœufs ; le sabot d'un che-
-|
 
-: Jean-Christophe ÿ
 val sonne sur la route blanche. Les yeux de Christophe
 se ferment. Près de lui, une fourmi chemine sur une
 branche morte en travers d'un sillon. Il perd conscience... Des siècles ont passé. Il se réveille. La
@@ -1012,8 +924,6 @@ Des musiques s'éveillaient dans l'air; elles voletaient
 ; d'abeilles ; elles se balançaient gaiement sur le rythme
 
 de la carriole ; c'était une source intarissable de chan-
-
-Jean-Christophe
 
 sons : l'une succédait à l'autre. Christophe les trouvait
 superbes. Il y en eut une surtout qui lui parut si belle,
@@ -1081,9 +991,7 @@ suçaient les branches des saules avec un petit bruit de
 lèvres. La lumière était fine et brumeuse, l'air frais, le
 fleuve, gris d'argent, On revenait au gîte, et les gril-
 
-Jean-Christophe
 lons chantaient. Et dès le seuil souriait le cher visage
-de maman...
 
 O délicieux souvenirs, bienfaisantes images, qui bourdonneront, comme un vol harmonieux, pendant toute la
 vie! Les voyages qu'on fait plus tard, les grandes
@@ -1121,7 +1029,6 @@ bonheur est lorsque maman vient, qu'elle prend la
 sa demande, elle chante à mi-voix une vieille chanson,
 dont les mots ne veulent rien dire. Le père trouve cette
 
-Jean-Christophe
 musique stupide ; mais Christophe ne s'en lasse pas. Il \
 retient son soufle, il a envie de rire et de pleurer; son
 cœur estivre. Il ne sait pas où il est, il déborde de
@@ -1152,25 +1059,9 @@ qui ne croie au bonheur, qui n'y tende de toutes ses
 
 La vie se chargera vite de le mettre à la raison.
 
-D ne AA NS LAN QUAI
-MIE RE ARS À l VAL SUR #4 » EUA LATE 4 MEN ht Les
-Net à i A4 pi ls qu WE CAEN A ur | 1e /Nime ! RE EUR Tes en f Nés À
-{ (EE Ha on ( :. tr ANA ANEER MORT
-| NRA : DE CAL LA A: ir PEN :
-Ron SA A FXA SA #7 “ro eu rt ‘à ÿ
-RO . MA RATE FANS ol y A
-M ent TU he ALU) CAT ART CA
-
 w FES ARE L'alba vinceva l'ora Mmattutina È ie
 
 De EU Conobbi il tremolar della marina. AR #
-
-“AE ds j ser MG: TA !
-
-ME NES ci D AR AR AQU s ANNEE PAR
-nt sq PE RENTE AUS et A PRO GS SRE eV € ot X PSE AA ATNOMES
-Si ne i DNA ENS PAT ans:
-| FRA x AE * KT Te RCE FILS
 
 Les Krafft étaient originaires d'Anvers. Le vieux
 Jean-Michel avait quitté le pays, à la suite de frasques de
@@ -1200,7 +1091,6 @@ fort, tant de coups répétés n'avaient pas altéré sa solide
 
 | 53
 
-Jean-Christophe
 bonne humeur. L'épreuve la plus rude avait été la mort
 d'Ottilie, il y avait trois ans maintenant, à un âge où il
 est malaisé de se refaire une vie et de fonder un nouveau
@@ -1262,7 +1152,6 @@ la plume en main, qu'il se retrouvait seul, dans le
 . silence; et tous ses efforts pour ranimer les voix dispa-
 | 55
 
-Jean-Christophe
 rues n'aboutissaient qu'à lui faire entendre des mélodies connues de Mendelssohn ou de Brahms.
 
 « € Il est, dit George Sand, des génies malheureux
@@ -1312,7 +1201,6 @@ Jean-Michel, malgré son respect craintif de toutes
 les conventions sociales, il y avait toujours quelque
 chose de saccadé, d'inattendu, d'hurluberlu, qui fai:
 
-Jean-Christophe
 sait dire aux gens que tous les Krafft étaient un peu
 timbrés. Cela ne lui nuisit pas d'abord; il semblait
 que ces excentricités même fussent la preuve du génie
@@ -1405,7 +1293,6 @@ mais d'un air chagrin, en voyant les dégâts :
 
 Christophe était mortifié, et il avait le cœur gros.
 
-|
 .
 
 Louisa, qui ne laissait échapper aucune occasion de
@@ -1466,9 +1353,6 @@ casserole à l'autre, goûtant, donnant son avis, expliquant d'un ton sûr des r
 ordinaire écoutait avec respect. Le cœur de l'enfant se
 gonflait d'orgueil, en voyant combien on appréciait sa
 
-|
-
-Jean-Christophe
 mère, et quel rôle elle jouait dans cette belle pièce,
 ornée d'objets magnifiques d'or et de cuivre brillants.
 Brusquement, toutes les conversations s'arrêtèrent.
@@ -1528,7 +1412,6 @@ il examina les pieds de Christophe, et lui demanda
 
 avec quoi étaient faits ses bouts de souliers rapiécés.
 Christophe devint cramoisi. La fillette fit la moue, et
-# 65 IV.
 
 soufila à son frère, — Christophe l'entendit, — que c'était
 un petit pauvre. Christophe en retrouva la parole. Il
@@ -1588,7 +1471,6 @@ la maison, avec des cris aigus. On entendit les portes
 Ç battre, et des exclamations de colère. La dame accourut,
 | 67
 
-Jean-Christophe
 aussi vite que la traîne de sa robe pouvait le lui permettre. Christophe la voyait venir, et il ne cherchait pas
 à fuir ; il était terrifié de ce qu'il avait fait : c'était une
 chose inouïe, un crime ; mais il ne regrettait rien. Il
@@ -1621,8 +1503,6 @@ d'une fenêtre, au-dessus du fleuve; il s'y jeta hors !
 d'haleine; et ce fut un déluge de pleurs. Il ne savait
 pas au juste pourquoi il pleurait; mais il fallait qu'il
 pleurât; et quand le premier flot fut à peu près passé,
-
-he ta
 
 il pleura encore, parce qu'il voulait pleurer, avec une
 sorte de rage, pour se faire souffrir, comme s'il punissait ainsi les autres, en même temps que lui. Puis il (
@@ -1660,7 +1540,6 @@ parce qu'ils ont de l'argent. Et tout en frappant l'enfant,
 . Louisa criait à son mari qu'il était un brutal, qu'elle ne
 lui permettait pas de toucher le petit, et qu'il l'avait
 
-Jean-Christophe
 blessé. En effet, Christophe saignait un peu du nez;
 mais il n'y pensait guère, et il ne sut aucun gré à sa
 mère de le lui tamponner rudement avec un linge
@@ -1730,7 +1609,6 @@ cachée derrière les rideaux; et il se savait regardé ;
 
 , 71
 
-Jean-Christophe
 mais il feignait de n'y prendre pas garde, et il parlait
 gaiement. Il quittait même le pays, et voyageait au
 loin, afin d'augmenter sa peine. Il faisait de grandes
@@ -1781,8 +1659,6 @@ Sa mère le surveillait. Quand il avait fini :
 — Allons, prends-la donc !
 — Mais tu es malade, alors ?
 
-Jean-Christophe
-
 — Je ne suis pas malade, mais j'ai assez mangé.
 
 Il arrivait que son père lui reprochàt de faire le difficile, et qu'il s'adjugeât la dernière pomme de terre.
@@ -1827,7 +1703,6 @@ violence ses bras autour du cou, et ils pleuraient tous
 deux, en s'embrassant comme des désespérés.
 — Mon pauvre petit garçon !..
 Ils ne disaient rien de plus; mais ils se comprepaient. :
-|
 
 Christophe fut assez longtemps avant de s'apercevoir
 que son père buvait. L'intempérance de Melchior ne .
@@ -1882,7 +1757,6 @@ sans voir, avec des yeux qui clignotaient; sa figure
 de temps en temps un gloussement de rire stupide.
 Christophe fut saisi. Il crut d'abord que son père
 
-Jean-Christophe
 \ plaisantait; mais quand il vit qu'il ne bougeait pas,
 il fut pris de peur.
 
@@ -1949,8 +1823,6 @@ couvrait de baisers et de larmes ; et finalement, il le
 berça, en entonnant le De Profundis. Christophe ne
 faisait aucun mouvement pour se dégager ; il était glacé
 
-Jean-Christophe
-
 d'horreur. Étouffé contre la poitrine de son père, sentant sur sa figure l'haleine chargée de vin et les hoquets
 de l'ivrogne, mouillé par ses baisers et ses pleurs répugnants, il agonisait de dégoût et de peur. Il eût voulu
 crier, et nul cri ne pouvait sortir de sa bouche. Il resta
@@ -2012,7 +1884,6 @@ les sommations qu'on lui faisait après chaque correction, il répondait plus ra
 demanda au moins de dire pourquoi il s'obstinait : il
 serra les dents et ne voulut rien dire. Melchior l'empoigna, le porta à l'école, et le remit au maître. Revenu à
 
-Jean-Christophe
 son banc, il commença par casser méthodiquement tout
 ce qui se trouvait à sa portée : son encrier, sa plume;
 il déchira son cahier et son livre, — le tout d'une façon
@@ -2045,9 +1916,7 @@ plus d'une fois au logis, avec le nez saignant et des
 ._  étouffé d'une de ces mêlées furieuses, où il avait roulé
 sous son adversaire, qui lui cognaïit avec férocité la tête
 | 83
-|
 
-Jean-Christophe
 sur le pavé. Il trouvait cela naturel, étant prêt à faire
 aux autres ce qu'on lui faisait à lui-même.
 Cependant, il avait peur d'une infinité de choses ; et,
@@ -2064,7 +1933,6 @@ derniers restes sans doute d'une faune disparue, des
 
  hallucinations des premiers jours près du néant, du
 sommeil redoutable dans le ventre de la mère, de l'éveil
-de la larve au fond de la matière. ù
 Il avait peur de la porte du grenier. Elle donnait sur
 l'escalier, et était presque toujours entrebâillée. Quand
 il devait passer devant, il sentait son cœur battre; il
@@ -2107,7 +1975,6 @@ campagne, intimidait l'enfant, même en plein jour. Il
 oubliait ses craintes, quand le grand-père était là; mais
 quelquefois, le vieux le laissait seul, et sortait sans le
 
-Jean-Christophe
 prévenir. Christophe n'y avait pas pris garde. La
 chambre était paisible. Tous les objets étaient familiers
 et bienveiïllants. Il y avait un grand lit de bois blanc, au
@@ -2169,8 +2036,6 @@ regardait longuement, et jetait de temps en temps un
 les plis des rideaux. — Une image d'écorché dans un
 
 87 -
-
-Jean-Christophe
 
 ouvrage d'anatomie lui était plus odieuse encore. Il
 tremblait de tourner la page, quand il approchaït de
@@ -2238,8 +2103,6 @@ la nuit, par terreur des cauchemars. Mais la fatigue
 finissait par l'emporter; et c'était toujours quand il
 s'y attendait le moins, que les monstres revenaient.
 
-Jean-Christophe
-
 Nuit redoutable ! Si douce à la plupart des enfants,
 si terrible à certains d'entre eux! Il avait peur de
 dormir. Il avait peur de ne pas dormir. Sommeil ou
@@ -2279,8 +2142,6 @@ Christophe. Ainsi, il y avait un enfant, un petit garçon
 de sa mère, tout comme lui, qui avait le même nom,
 qui était presque pareil, et qui était mort !— Mort, il ne
 savait pas au juste ce que c'était; mais c'était quelque
-
-Jean-Christophe
 
 chose d'affreux. — Et jamais on ne parlait de cet autre
 Christophe; il était tout à fait oublié. Ce serait donc de
@@ -2355,8 +2216,6 @@ Melchior revint à la charge:
 — Oui, papa! Voilà tout ce que tu trouves à dire ?
 Cela ne te fait pas de peine ?
 
-t Jean-Christophe
-
 Louisa, qui comprenait l'enfant, fit : -
 
 — Chut ! laisse-le dormir !
@@ -2388,7 +2247,6 @@ quand ils dormaient. Louisa s'éloigna sur la pointe des
 pieds. Et pourtant, qu'il eût voulu la retenir! qu'il eût
 voulu lui dire combien il avait peur, lui demander de ?
 le sauver, de le rassurer au moins! Mais il craignait
-qu'on se moquât de lui, qu'on le traitât de lâche ; et
 puis, il savait trop déjà que tout ce qu'on pourrait dire
 ne servirait à rien. Et pendant des heures, ilresta plein
 d'angoisse, croyant sentir le mal qui se glissait en lui,
@@ -2427,8 +2285,6 @@ cette fantaisie à son égard. Ce devait être terrible de
 se sentir soudain détaché de la tiédeur du lit et entrainé
 dans le vide, mis en présence de Dieu. Il se figurait
 
-Jean-Christophe
-
 Dieu comme un soleil énorme, qui parlait avec une voix
 de tonnerre : quel mal cela devait faire ! cela brüûlait
 les yeux, les oreilles, l'âme entière ! Puis, Dieu pouvait
@@ -2459,7 +2315,6 @@ ans! »— D'autres fois, il allait jusqu'à vingt et un.
 C'était l'extrême limite. Il croyait que cela lui suflirait
 pour dominer le monde. Il pensait à ces héros qui lui
 
-| L'AUBE
 étaient chers, à Napoléon, à cet autre plus lointain,
 
 . mais qu'il aimait le mieux, à Alexandre le Grand. -
@@ -2535,7 +2390,6 @@ d'autres qui grondent. L'enfant les écoute longuement, un
 cloches, quand on est dans les champs, et que le vent
 les apporte et les éloigne tour à tour; puis, quand on
 
-Jean-Christophe
 prête l'oreille, on entend dans le lointain d'autres voix
 différentes, qui se mêlent et tournent, comme des vols
 d'insectes ; elles ont l'air de vous appeler, de vous
@@ -2600,8 +2454,6 @@ gammes qui ressemblent à un roi, commandant une
 armée, ou à une troupe de nègres attachés à la file. Il
 “vit avec étonnement que chaque soldat, ou chaque
 
-Jean-Christophe
-
 nègre, pouvait devenir à son tour monarque, ou tête de
 colonne d'une troupe semblable, et même qu'on pouvait
 en dérouler des bataillons entiers du haut en bas du
@@ -2643,7 +2495,6 @@ des aliments, pourvu que la quantité y soit, ce robuste
 appétit, pour qui toute musique est bonne, d'autant
 plus qu'elle est plus substantielle, — et qui ne fait
 
-Jean-Christophe
 pas de différence entre Brahms et Beethoven, ou, dans
 l'œuvre d'un même maître, entre un concerto creux et
 une sonate émouvante, parce qu'ils sont de la même
@@ -2710,7 +2561,6 @@ faire avec une lanière de saule.. Dieu sait pourquoi
 ces souvenirs lui revenaient à présent! — Mais le
 plus souvent, il ne voyait rien du tout; et pour-
 
-» Jean-Christophe
 tant, il sentait une infinité de choses. C'était comme
 s'il y avait une masse de choses très importantes,
 qu'on ne pouvait pas dire, ou qu'il était inutile de
@@ -2815,7 +2665,6 @@ qu'il sentait venir. Mais le système était mauvais, et il
 ne tarda pas à s'en apercevoir. Melchior était aussi
 têtu que lui; et il jura que, quand ils y passeraient
 
-Jean-Christophe
 deux jours et deux nuits, il ne lui ferait grâce d'aucune
 note, avant qu'elle eût été exécutée correctement. Puis
 Christophe mettait trop de conscience à ne jouer jamais
@@ -2838,11 +2687,8 @@ Il ne put achever. Une énorme gifle lui coupa la respiration. Melchior hurlait 
 C'était une grêle de coups. Christophe braillait au
 travers de ses sanglots :
 — Et puis... je n'aime pas la musique... je n'aime pas
-la musique !.…
 Il se laissa glisser de son siège. Melchior ly rassit
 , brutalement, et il lui frappait les poignets contre le clavier. Il criait : }
-
-Et Christophe criait :
 
 — Non! non! Je ne jouerai pas! ,
 
@@ -2876,7 +2722,6 @@ tombé ! il est tombé! » Les pas dégringolaient l'escalier. Son père, sa mè
 pleurant. Elle sanglotait : « C'est ta faute ! C'est toi qui
 l'as tué ! » Lui, agitait les bras, se jetait à genoux, se
 
-Jean-Christophe
 frappait la tête contre la rampe, criant : « Je suis un
 misérable ! Je suis un misérable! » — Ce spectacle
 adoucissait sa peine. Il était sur le point d'avoir-pitié
@@ -2910,9 +2755,6 @@ manquait jamais de le regarder longuement, quand il
 descendait les marches, en clopinant ; mais jamais il
 ne l'avait vu encore, comme aujourd'hui. Le chagrin
 
-ROUES ste MAN 2 MEN SOUPE MA? -
-
-|  L'AUBE
 aiguise les sens; il semble que toutse grave mieux dans
 les regards, après que les pleurs ont lavé les traces
 fanées des souvenirs. Le fleuve apparut à l'enfant
@@ -3000,7 +2842,6 @@ Il y va disparaître... — La musique tournoie, les beaux
 rythmes de danse se balancent, éperdus; tout est
 balayé dans leur tourbillon triomphal... L'âme libre
 
-| Jean-Christophe
 fend l'espace, comme le vol des hirondelles, ivres d'air,
 qui traversent le ciel avec des cris aigus... Joie ! joie!
 Il n'y a plus rien! O bonheur infini!
@@ -3013,22 +2854,6 @@ meurtrière s'était retirée, repue, dans le coin le plus
 obscur. — Et le petit Christophe était toujours penché
 au bord du soupirail, avec sa figure pâle, barbouillée..
 rayonnante de bonheur. Il dormait.
-
-à k Re de dy CA MUE TES pi CARRE ss true NT
-SN EME: AN T7, 4 : RURALE et VH$ LS: ra, Ve
-DRE Y K Ne à FUN) RATER ie or FLE < 20e
-VE Lo EYE L , ra x j pe NN) ER Le Mes KR à.
-nr: 5 FAIT Me HR RRRENS se re LATE
-RAA NE (Are ONCE EN RTE ant ÿ Û : ae pe
-PÉTER re ce A JIM EE SRE 3 k SO se
-
-ME Te TA DR SA ATOS PESTE ce AN
-DORA EE TTENES MUR Rte RE TA ER
-HAE NE ASE Su HP hi ERA 1% MA in ANAL Ve
-A RC CRAN NT VON Ka | ; RE dan di Le
-
-a PARTS AT IN HE ARE Lee ss ER ET IES
-LE MEFSNREET RS "Es Le rr ?,
 
 , 4
 
@@ -3059,9 +2884,7 @@ Mais, plus que tous les arguments, le souvenir pro-
 | fond de certaines émotions musicales l'attacha malgré
 lui, l'asservit, pour la vie, à cet art détesté, contre qui
 il tentait en vain de se révolter.
-|
 
-Jean-Christophe |
 Il y avait dans la ville, comme c'est l'habitude
 en Allemagne, un théâtre qui jouait l'opéra, l'opéra- É
 comique, l'opérette, le drame, la comédie, le vaudeville, et tout ce qui pouvait se jouer, de tous les , |
@@ -3120,7 +2943,6 @@ où il était impossible de se reconnaître. Christophe n'y
 voyait goutte; il confondait tout, prenait un personnage pour un autre, tirait son grand-père par la manche,
 pour lui poser des questions saugrenues, qui prouvaient qu'il n'avait rien compris. Et non seulement il
 
-Jean-Christophe
 ne s'ennuyait pas, mais ilétait passionnément intéressé. |
 Sur l'imbécile libretto, il bâtissait un roman de son
 invention, qui n'avait aucun rapport avec ce que l'on
@@ -3185,7 +3007,6 @@ Christophe ne pouvait pas répondre; il était encore
 
 4 125
 
-Jean-Christophe
 parler, pour ne pas briser le charme; il dut faire un
 effort, pour murmurer tout bas, avec un gros soupir :
 Le vieux sourit. Après un temps, il reprit :
@@ -3215,8 +3036,6 @@ deux actes de sa façon; mais il conservait si peu d'illu- l
 “sion sur leur valeur, qu'il n'avait jamais osé les sou- À
 mettre au jugement de personne. ê
 
-TU Pret
-
 Is ne se dirent plus un mot, jusqu'à ce qu'ils fussent
 rentrés. Ils ne dormirent ni l'un ni l'autre. Le vieux
 avait de la peine. Il avait pris sa Bible pour se consoler.
@@ -3244,8 +3063,6 @@ salle déserte, il commençait à s'inquiéter. Son grandpère lui avait racont�
 n'étant pas assez nombreux, les comédiens avaient
 préféré ne pas jouer, et rendre le prix des places. Il
 guettait les arrivants, il les comptait, il pensait :
-
-Jean-Christophe
 
 « Vingt-trois, vingt-quatre, vingt-cinq... oh! ce n'est
 pas assez... jamais ce ne sera assez! » et quand il
@@ -3295,8 +3112,6 @@ passage, au fond de la voiture, son manteau de fourrure, bien qu'il perdît des 
 rue, donnant de forts coups de pied et de poing à
 droite, à gauche, devant et derrière, pour conquérir et
 maintenir sa place au premier rang des badauds. Il se
-
-Jean-Christophe
 
 consolait, en passant la moitié de ses journées à guetter
 
@@ -3364,8 +3179,6 @@ peur. Mais il donnait de toute sa force des coups de
 tête, comme un bélier, dans les robes et les jambes
 qui le séparaient de Hassler. — IL était trop petit. Il ne
 
-Jean-Christophe
-
 Heureusement, grand-père vint le prendre à la sortie
 du concert, pour l'emmener à une sérénade qu'on donnait à Hassler. C'était la nuit, on avait allumé des
 torches. Tous les musiciens de l'orchestre étaient là.
@@ -3427,7 +3240,6 @@ lui étaient de vieux amis : comment il voulait être
 musicien comme Hassler, faire de belles choses
 comme Hassler, devenir un grand homme. Lui, qui
 
-Jean-Christophe
 avait toujours honte, il parlait avec une entière
 confiance, il ne savait ce qu'il disait, il était dans une
 sorte d'extase. Hassler riait de son babillage. Il (dit :
@@ -3497,8 +3309,6 @@ l'avait embrassé, ZI l'avait tenu dans ses bras! Qu'!
 — Ah! pensait-il, dans son petit lit, en embrassant
 passionnément son oreiller, je voudrais mourir, mourir
 pour lui! Ù
-| i
-|
 
 Le brillant météore, qui avait passé un soir dans
 le ciel de la petite ville, eut une influence décisive
@@ -3559,7 +3369,6 @@ Un jour que, chez grand-père, il tournait autour
 de la chambre, en tapant des talons, la tête en arrière,
 et le ventre en avant, il tournait, tournait indéfiniment,
 
-Jean-Christophe k
 à se rendre malade, en exécutant une de ses compositions, — le vieux, qui se faisait la barbe, s'arrêta de
 se raser, et, la figure toute barbouillée de savon; il le H
 regarda et dit :
@@ -3591,7 +3400,6 @@ et Christophe vit bien qu'il était content. Son petit >
 amour-propre ne manqua pas de travailler sur ces
 données ; il était assez fin pour juger qu'on l'avait
 138 4
-|
 
 apprécié ; mais il ne savait pas au juste ce que grandpère avait le plus admiré en lui : si c'étaient ses talents
 d'auteur dramatique, de musicien, de chanteur ou de
@@ -3626,11 +3434,7 @@ voulait pas reconnaître :
 
 — Grand-père, je ne sais pas.
 
-Il rougissait. \
-
 — Allons, petit sot, tu ne vois pas que ce sont tes
-
-Jean-Christophe |
 
 Il en était sûr; mais de l'entendre dire lui fit un coup
 
@@ -3645,8 +3449,6 @@ tu n'as jamais pu retrouver. — Menuet. C'est ce que
 tu dansais devant mon fauteuil... Regarde. :
 
 Sur la couverture était écrit, en gothiques admirables :
-
-WALZER, e MARCIA, op. 1 de JEAN-CHRISTOPHE KRAFFT.
 
 Christophe fut ébloui. Voir son nom, ce beau titre,
 ce gros cahier, son œuvre !.… II continuait de balbutier :
@@ -3670,7 +3472,6 @@ avec grand-père : |
 — Mais alors, grand-père, il faut que tu mettes aussi
 
 ton nom.
-| 140 É.
 
 — Cela n'en vaut pas la peine. Il est inutile que
 d'autres que toi le sachent. Seulement... — ici, sa voix
@@ -3751,7 +3552,6 @@ se mit à composer. Avant de savoir à peine écrire ses
 . lettres, il s'évertua à griffonner des noires et des croches
 | 143
 
-Jean-Christophe
 sur des lambeaux de papier, qu'il arrachaïit aux cahiers
 de comptes du ménage. Mais la peine qu'il se donnait
 pour savoir ce qu'il pensait, et pour le fixer par écrit,
@@ -3776,7 +3576,6 @@ myosotis un peu fanés. Quand il enlevait la casquette, à
 qu'il gardait frileusement partout, de crainte des cou- M
 rants d'air, il montrait un petit crâne tout nu, rose, et
 de forme conique, qui faisait la joie de Christophe et
-de ses frères. Ils ne se lassaient pas de le taquiner à M
 ce sujet, lui demandant ce qu'il avait fait de ses cheveux, et menaçant de le fouetter, excités par les
 grosses plaisanteries de Melchior. Il en riait le premier, et se laissait faire avec patience. Il était petit
 marchand ambulant; il allait de village en village,
@@ -3795,7 +3594,6 @@ chauve, poliment découverte, se montrait avec ses
 bons yeux et son sourire timide. Il disait : « Bonsoir à
 toute la compagnie », prenait soin d'essuyer ses souliers avant d'entrer, saluait chacun, en commençant
 par le plus âgé, et allait s'asseoir dans le coin le plus
-modeëte de la chambre. Là, il allumaït sa pipe, et il
 baiïssait le dos, attendant tranquillement que la grêle
 habituelle de quolibets fût passée. Les deux Krafft, le
 grand-père et le père, avaient pour lui un mépris
@@ -3811,7 +3609,6 @@ la supériorité d'esprit des Krafft, ne doutait pas que
 son mari et son beau-père n'eussent raison; mais elle
 aimait tendrement son frère, et son frère avait pour
 
-; Jean-Christophe
 elle une adoration muette. Ils étaient tous deux seuls
 de leur famille, et tous deux humbles, effacés, écrasés
 par la vie; un lien de mutuelle pitié et de souffrances
@@ -3840,8 +3637,6 @@ semblait naturel, et il paraissait suffisammentpayépar M
 le plaisir qu'il avait à l'offrir. Mais Christophe, qui ne
 dormait pas très bien, et qui, pendant la nuit, ressassait M
 dans son cerveau les événements de la journée, réflé-
-
-Lis Lt A AURA du 2 Pr AO AV LÉ 14 NT D Dit té de
 
 chissait parfois que son oncle était très bon; et il lui
 
@@ -3882,7 +3677,6 @@ souffreteuse était d'une tristesse et d'un sérieux indi-
 tour par les impressions mystérieuses, qui se reflétaient
 | sur le visage de Gottfried. Il tomba dans une vague torpeur. La terre était dans l'ombre, et le ciel était clair ;
 
-Jean-Christophe
 les étoiles naïssaient. Les petites vagues du fleuve clapotaient sur la rive. L'enfant s'engourdissait; ilmâchaït,
 sans les voir, de petites tiges d'herbes. Un grillon criait
 près de lui. Il lui semblait qu'il allait s'endormir. —
@@ -3907,20 +3701,15 @@ Gottfried ne répondit pas. |
 — Oncle ! répéta l'enfant, en posant ses mains et son |
 menton sur les genoux de Gottfried.
 La voix affectueuse de Gottfried dit : K
-— Mon petit. {
 — Qu'est-ce que c'est, oncle? Dis! Qu'est-ce que tu
 — Je ne sais pas. |
 — Dis ce que c'est! L
-
-D docile he lens de à MM Bd LCI Eee Me dé PAIE bd Si] ë
 
 — Je ne sais pas. C'est une chanson. ;
 
 — C'est une chanson de toi ?
 
 — Non, pas de moi! quelle idée !.. C'est une vieille
-
-— Qui l'a faite ?
 
 — On ne sait pas.
 
@@ -3957,14 +3746,8 @@ les autres. Il reprit : ;
 
 — Quoi donc?
 
-— Des chansons!
-
 — Des chansons ? oh! comment est-ce que j'en ferais ?
 Cela ne se fait pas.
-
-| 149 ;
-
-Jean-Christophe
 
 L'enfant insistait avec sa logique habituelle :
 
@@ -4029,8 +3812,6 @@ même temps, il n'eût jamais pensé que Gottfried pût
 — Quand tu serais grand, comme d'ici à Coblentz,
 jamais tu ne feras une seule chanson.
 
-Christophe se révolta : u
-
 | — Etsi je veux en faire !.….
 
 — Plus tu veux, moins tu peux. Pour en faire, il faut
@@ -4051,7 +3832,6 @@ Gottfried, après un long silence. — On ne savait s'il se
 parlait à lui-même, ou à Christophe. — Est-ce qu'ils ne
 chantent pas mieux que tout ce que tu pourras faire ?
 
-Jean-Christophe |
 Christophe avait bien des fois entendu tous ces bruits
 de la nuït, et il les aimait. Mais jamais il ne les avait
 entendus ainsi. C'est vrai : qu'est-ce qu'on avait besoin
@@ -4118,8 +3898,6 @@ Christophe protesta, rouge de colère :
 — Ah! fit Gottfried, sans se troubler. Il a raison sans
 doute. C'est un homme bien savant. Il se connaît en
 musique. Moi, je ne m'y connais pas.
-
-Jean-Christophe
 
 Et, après un moment :
 
@@ -4198,9 +3976,6 @@ joie autour de lui; et il revenait toujours à son argument ordinaire : « C'est
 ne dit rien. » — Jamais il ne voulut assister à un des
 petits concerts qu'on donnait à la maison. Si beau que
 
-|
-
-Jean-Christophe
 fat le morceau, il commençait à bâiller et prenait un
 air hébété d'ennui. Bientôt il n'y tenait plus, et s'esquivait sans bruit. Il disait :
 — Vois-tu, petit : tout ce que tu écris dans la maison,
@@ -4210,7 +3985,6 @@ Il parlait toujours du bon Dieu; car il était très pieux,
 à la différence des deux Kraft, père et fils, qui faisaient
 les esprits forts, tout en se gardant bien de manger
 gras le vendredi.
-|
 
 Soudain, sans que l'on sût pourquoi, Melchior changea d'avis. Non seulement il approuva que grand-père
 eût recueilli les inspirations de Christophe; mais, à la
@@ -4240,8 +4014,6 @@ Il y eut encore de longues conférences entre Melchior
 et Jean-Michel. Pendant deux ou trois soirs, ils discutè-
 rent avec animation. Il était défendu de venir les trou-
 
-air et, DRE ES A A AS
-Jean-Christophe
 bler. Melchior écrivait, raturait, raturait, écrivait. Le 1
 vieux parlait tout haut, comme s'il disait des vers. Par- 1
 fois, ils se fâchaient, ou tapaient sur la table, parce
@@ -4302,8 +4074,6 @@ sur eux l'auguste approbation de Ton regard paternel.
 « Oh! oui! car les Sciences et les Arts ont toujours
 trouvé en Toi leur sage Mécène, leur champion magnanime ; et le talent fleurit sous l'égide de Ta sainte protection.
 
-Jean-Christophe
-
 « Plein de cette foi profonde et assurée, j'ose donc
 m'approcher de Toi avec ces essais juvéniles. Reçoisles comme une pure offrande de ma vénération enfantine, et daigne, avec bonté,
 
@@ -4362,8 +4132,6 @@ le connaissait : on ne pouvait se flatter de faire illusion
 sur personne. Melchior eut alors une idée triomphale.
 Il décida que l'enfant serait mis en frac, avec une cravate blanche. En vain, la bonne Louisa protestait qu'on
 
-Jean-Christophe
-
 voulait rendre ridicule son pauvre garcon. Melchior
 escomptait justement le succès de douce gaieté,
 produit par cette apparition imprévue. Il en fut fait
@@ -4420,7 +4188,6 @@ flotte sur le fleuve, une petite pluie de printemps, ou
 bien un arc-en-ciel. Beethoven était le feu : tantôt un
 brasier aux flammes gigantesques et aux fumées
 
-Jean-Christophe
 énormes, tantôt une forêt incendiée, une nuée lourde
 et terrible, d'où la foudre jaillit, tantôt un grand ciel
 plein d'étoiles palpitantes, dont on voit, avec un battement de cœur, une étoile qui se détache, glisse, et
@@ -4481,9 +4248,6 @@ vite au piano, qui lui apparaissait comme un refuge, un
 îlot au milieu de la mer. Tête baïssée, sans regarder ni
 à droite ni à gauche, il défila au pas accéléré le long de
 
-#7 À
-
-Jean-Christophe
 la rampe ; et, arrivé au milieu de la scène, au lieu de
 saluer le public, comme c'était convenu, il lui tourna le
 dos, et fonça droit sur le piano. La chaise était trop
@@ -4547,8 +4311,6 @@ Enfin il arriva à la sortie de la scène, encombrée par
 les gens qui regardaient, se fraya un passage au travers, à coups de tête, et courut se cacher tout au fond
 du foyer. Grand-père exultait, et le couvrait de béné-
 dictions. Les musiciens de l'orchestre éclataient de
-
-Jean-Christophe
 
 rire, et félicitaient le petit, qui refusait de les regarder
 et de leur donner la main. Melchior, l'oreille aux aguets,
@@ -4617,11 +4379,8 @@ airs sont de moi. Mais celui-là, il est le plus joli. Il est
 de grand-père. Grand-père ne veut pas qu'on le dise.
 Vous ne le répéterez pas ?.. — Et, montrant le vieux :
 Voilà grand-père. Je l'aime bien. Il est très bon pour
-moi.
 
-Jean-Christophe j
 Là-dessus, la jeune princesse rit de plus belle, cria
-qu'il était un mignon, le couvrit de baisers, et, à la
 consternation de Christophe et de grand-père, elle
 raconta la chose à tous. Tous s'associèrent à son rire;
 et legrand-duc félicita le vieux, tout confus, qui essayait
@@ -4681,7 +4440,6 @@ s'abattit sur lui. Melchior cria qu'il serait privé de dessert. Christophe dit 
 voulait. Pour le punir, Louisa annonça qu'elle commen-
 çait par lui confisquer ses bonbons. Christophe, exaspéré, dit qu'elle n'en avait pas le droit, que le sac était
 
-Jean-Christophe
 à lui, à lui, et à personne autre: personne ne le prendrait ! Il reçutune gifle, eut un accès de fureur, et, arrachant le sac des mains de sa mère, il le jeta par terre,
 en trépignant dessus. Il fut fouetté, emporté dans sa
 chambre, déshabillé, et mis au lit.
@@ -4734,8 +4492,6 @@ de souffrir, quand on est fort !…
 Il rit. Son rire résonna dans le silence de la nuit.
 Son père se réveilla, et cria :
 
-— Qui est là?
-
 La mère chuchota :
 
 — Chut! c'est l'enfant qui rêve!
@@ -4751,29 +4507,20 @@ A neuvième cahier le jeudi 4 février 1904 "4
 ñ à l''Imprimerie de Suresnes
 Fo 9, rue du Pont j
 
-al j L LLC RUE l OR) Lits. 44 ae ep WAURR LA » 7 k ÿ |
 s [La lettre du petit Jean-Christophe au grand-duc Léopold
 | est inspirée de la lettre de Beethoven, âgé de onze ans,
 au prince électeur de Bonn.]
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce neuvième cahier
 le mardi 2 février 1904. ,
-Le Gérant : CHARLES PÉGuy
 | Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
-à IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8522
 
-POUR ENT OR te RU CUT ! à
-#1 ; + 2024 RER TRE
-
-ue AN CARE dc DAS Vue Le ES de fc ét te dal a ge
 É Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
-
-Nous servons :
 
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;

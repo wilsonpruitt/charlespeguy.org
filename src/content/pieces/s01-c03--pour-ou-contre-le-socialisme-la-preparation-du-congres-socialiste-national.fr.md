@@ -201,7 +201,6 @@ la fait. J'ai mal agi.
 — Tu ne le crois pas, répondit M. Bergeret, parce
 que tu n'as pas de philosophie et que tu ne sais pas
 tirer d'une action innocente et méprisable en apparence les conséquences infinies qu'elle porte en elle.
-Ce Clopinel m'a induit en aumône. Je n'ai pu résister à l'importunité de sa voix de complainte. J'ai
 plaint son maigre cou sans linge, ses genoux que
 le pantalon, tendu par un trop long usage, rend
 tristement pareils aux genoux d'un chameau, ses
@@ -209,7 +208,6 @@ pieds au bout desquels les souliers vont le bec ouvert comme un couple de canard
 dangereux Clopinel ! Clopinel délicieux ! Par toi,
 mon sou produit un peu de bassesse, un peu de
 honte. Par toi, j'ai constitué avec un sou une parcelle de mal et de laideur. En te communiquant ce
-petit signe de la richesse et de la puissance je t'ai
 fait capitaliste avec ironie et convié sans honneur
 au banquet de la société, aux fêtes de la civilisation.
 Et aussitôt j'ai senti que j'étais un puissant de ce
@@ -247,8 +245,6 @@ J'avoue que je ne retrouve pas à ce mot de bienfaisance sa beauté première : 
 pharisiens qui l'ont trop employé. Nous avons dans
 
 notre société beaucoup d'établissements de bienfaisance, monts-de-piété, sociétés de prévoyance, d'assurance mutuelle. Quelques-uns sont utiles et rendent des services. Leur vice commun est de procéder
-
-sa POUR ET CONTRE LE SOCIALISME
 
 de l'iniquité sociale qu'ils sont destinés à corriger,
 et d'être des médecines contaminées. La bienfaisance universelle, c'est que chacun vive de son
@@ -1926,7 +1922,6 @@ médiocre du grand positivisme mystique d'Auguste
 Comte; je comprends les impatiences et les ivresses de
 pensée des générations nouvelles qui cherchent, par les
 grandes philosophies de Spinoza et de Hegel, à concilier la conception naturaliste et la conception idéaliste
-du monde; et si je ne souscris pas à ce spiritualisme
 enfantin et gouvernemental que Cousin, dans sa
 deuxième manière, avait imposé un moment à l''Université, je n'accepte pas davantage comme une sorte
 d'évangile définitif ce matérialisme superficiel qui pré-
@@ -2024,7 +2019,6 @@ sens vrai, plein et loyal : fraternité, — et le combat est
 partout; égalité, — et toutes les disproportions vont
 s'amplifiant; liberté, — et les faibles sont livrés à tous
 les jeux de la force; propriété, c'est-à-dire rapport étroit
-et personnel de l'homme et de la chose, de l'homme et
 d'une portion de la nature transformée par lui, utilisée par lui, — et voilà que la propriété devient de
 plus en plus une fiction monstrueuse qui livre à quelques hommes des forces naturelles dont ils ne savent
 même pas la loi, et des forces humaines dont ils ne
@@ -2408,7 +2402,6 @@ au collet de l'assassin, en admettant qu'il ait un collet,
 ce qui était le cas. Et il est à peu près impossible de
 sauter au collet de quelqu'un sans faire à son égard
 quelque personnalité. Nous avons fait la personnalité
-de M. le général Mercier, la personnalité de M. le géné-
 ral de Boisdeffre, et celle de M. du Paty de Clam, et
 celle de M. Deniel. Avons-nous assez fait de personnalités? En tout cas n'avons-nous pas fait la personnalité
 de M. Alfred Dreyfus, un capitaine jadis ignoré. La personnalité de l'attaque suppose la personnalité de la dé-
@@ -2443,7 +2436,6 @@ de personnalités. Tout le monde alors trouvait que j'avais
 — Mais cela ne prouve pas non plus que j'aie eu tort
 d'avoir continué. Tout le monde en ce temps-là trouvait
 que j'avais raison. Je n'étais pas devenu alors un pur
-anarchiste, ni un métaphysicien, ni un esthète. Non
 seulement on m'approuvait hautement et vivement,
 mais on m'eût encouragé si j'avais eu besoin d'un
 encouragement. Je n'en demandai aucun. J'avais raison
@@ -2599,7 +2591,6 @@ De tout cœur,
 Lettre du citoyen Delesalle
 Lille, le 15 juillet 1899,
 Cabinet des adjoints
-Mon cher Jaurès,
 
 Dans le passage de votre article de ce matin relatif à la
 conférence de Pressensé à Lille, vous signalez la présence
@@ -2758,8 +2749,6 @@ Les explications qu'elle contient sont, je crois, nécessaires.
 
 vous,
 
-Mon cher Guesde,
-
 Éloigné de Paris, je n'ai pu assister à la rédaction du manifeste au bas duquel figure mon nom en ma qualité de
 membre du Conseil national du parti ouvrier.
 
@@ -2799,8 +2788,6 @@ c'est aussi leur impression que je vous communique.
 Recevez, mon cher Guesde, l'assurance de mon dévouement,
 
 Député de l'Aude
-Les démissions
-Mon cher Landrin,
 
 Je vous prie de transmettre au Comité révolutionnaire
 central ma démission de membre du Parti socialiste révolutionnaire.
@@ -2814,8 +2801,6 @@ regret que je me sépare d'amis auxquels me liaient plus de
 ! dix années de communs combats pour le socialisme.
 
 Recevez, mon cher Landrin, l'assurance de ma meilleure
-
-Mon cher Landrin,
 
 Le manifeste qui a mis la division dans le Parti socialiste
 porte ma signature comme membre de la commission administrative du Parti socialiste révolutionnaire.
@@ -2936,7 +2921,6 @@ sente visé par le manifeste.
 Coutant prouve ainsi qu'il connaît mal le sens et la
 lettre du document qui porte son nom. Qu'il le relise et il
 verra qu'en le signant il a voulu « en finir avec une politique prétendue socialiste, faite de compromissions et de
-déviations que DEPUIS TROP LONGTEMPS On s'eflorçait de
 substituer à la politique de classe et par suite révolutionnaire du parti socialiste... »
 
 Cette politique de compromissions et de déviations remonte à plusieurs années. L'arrivée d'un socialiste au pouvoir n'a fait qu'en révéler la contradiction avec celle de
@@ -3188,7 +3172,6 @@ abandonnée depuis bien longtemps déjà par tous les signataires de ce manifest
 Cordiale poignée de mains, ‘
 
 Déclaration du citoyen Pastre et de son comité
-Le Vigan, 18 juillet, 5 h. 35, soir,
 
 Le comité électoral socialiste, après avoir entendu les
 
@@ -3260,7 +3243,6 @@ me concerne, voilà qui est fait.
 
 Le citoyen Carnaud nous adresse la lettre suivante, en
 réponse à l'article du citoyen Rouanet paru hier matin :
-Mon cher Rouanet, L
 
 Je ne saurais me plaindre des quelques lignes paternelles que vous
 consacrez à ma jeunesse, dans la Petite République du 20 courant,
@@ -3307,7 +3289,6 @@ caractère et pour votre talent.
 
 Lettre du citoyen Légitimus
 Paris, ce 18 juillet 1899,
-Mon cher Gérault,
 
 Je n'ai pas besoin de vous dire que, uni de cœur et de
 pensée avec tous les vrais et sincères militants du Parti
@@ -3321,7 +3302,6 @@ Membre du Conseil national du Parti
 du conseil général de la Guadeloupe
 
 Lettre du citoyen Brunellière
-Mon cher Jaurès,
 
 J'ai été péniblement affecté jeudi soir quand j'ai lu dans
 les journaux de Nantes le manifeste à la France ouvrière
@@ -3384,7 +3364,6 @@ notre cause.
 Je vous serre, cher citoyen Jaurès, confraternellement la
 
 Lettre du citoyen Raymond Lavigne
-Mon cher Jaurès,
 
 Dés que, hier soir, je lus dans la Petite République la lettre de mon
 ami Calixte Camelle à vous adressée, je télégraphiai au journal pour
@@ -3582,7 +3561,6 @@ M. MEsurREUR. — Monsieur Cadenat, voulez-vous me permettre un mot ?.. Lorsque 
 du commerce, j'ai fait appliquer la loi. /Très bien! très
 bien! à gauche)
 
-M. CADENAT.— Eh bien, monsieur Mesureur, il y a un autre
 de nos collègues qui fut aussi ministre du commerce et savezvous ce qu'il me disait hier? « Moi-même j'ai voulu faire appliquer la loi; j'ai même fait dresser des procès-verbaux
 contre les industriels qui ne s'y conformaient pas, mais —
 ajouta-t-il — savez-vous ce qui est arrivé? C'est que les pré-
@@ -3756,8 +3734,6 @@ enfants et de ces jeunes filles et d'améliorer ainsi le projet
 de loi que vous présente votre commission. {Très bien!
 très bien! à l'extrême gauche et sur divers bancs à gauche)
 
-M. LE PRÉSIDENT. — L'amendement de M. Cadenat s'applique au $ 2 de l'article.
-
 M. Vaillant a déposé un amendement qui vise le $ 1°.
 
 « $ 1°. — Les enfants ne peuvent être employés par les
@@ -3805,16 +3781,11 @@ M. ÉnouarD VAILLANT. — L'amendement que j'ai déposé
 hier comprend dans son $ 1” la disposition que je viens
 de lire.
 
-M. LE PRÉSIDENT DE LA COMMISSION. — Elle a trait à l'article 2.
-
-M. ÉnouarD VAILLANT. — La disjonction étant votée, je
 devais évidemment chercher, par un amendement, à réduire
 au minimum les effets nuisibles de cette disjonction.
 
-M. LE PRÉSIDENT DE LA COMMISSION. — J'en appelle à vous-
 même, monsieur Vaillant. Il faut respecter la décision de la
 M. Wazrer. — Respectez aussi le droit de l'orateur,
-M. ÉpouarD VAILLANT. — Je respecte la décision de la
 Vous voulez maintenant porter la durée de la journée de
 travail de l'enfant de dix à onze heures. Pour que ce travail
 ne soit pas nuisible à sa santé, pour qu'il n'ait pas un effet
@@ -3886,18 +3857,14 @@ la commission du travail, et que vous les éviterez en décidant que l'âge d'ad
 Je dépose entre les mains de M. le président une demande
 de scrutin. /Très bien! très bien! à l'extrême gauche)
 
-M. LE RAPPORTEUR. — La commission, d'accord avec le de
 Gouvernement, repousse l'amendement.
 
 M. LE PRÉSIDENT. — Je mets aux voix le premier paragraphe de l'amendement de M. Vaillant et ses collègues.
 
 Il y a une demande de scrutin, signée de MM. Villejean,
 
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre des votants.1/7 71.1. 4 CRC
-Pour Ladophons ART CU NRRE LE !
 La Chambre des députés n'a pas adopté.
-Ê Majorité absolue:.,....: 2.1.7, .0 L'OPSESE
 Pour ladophon rer
 La Chambre des députés n'a pas adopté.
 Ont voté contre les citoyens Colliard, Jourde, Labussière et Pierre
@@ -3975,13 +3942,9 @@ M. LE PRÉSIDENT. — Je mets aux voix le second paragraphe de l'amendement de M
 
 Il y a une demande de scrutin signée de MM. Walter,
 
-M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre des votants. .".,.11 0101. AN ONENNNNSES
-Majorité absolue: 2,2 140.0 CES
 
 Pour adoption: eee MO OUEIERE 97
-
-Contre: Deere NE EU PROS
 
 La Chambre des députés n'a pas adopté.
 
@@ -3996,7 +3959,6 @@ Tous les autres citoyens ont voté pour.
 
 M. Énouarp VAILLANT. — Je défendrai en même temps
 
-M. LE PRÉSIDENT. — Je donne lecture des K 3 et
 3.— Les jeunes ouvriers et ouvrières, jusqu'à l'âge de
 dix-huit ans, ne peuvent être employés à un travail effectif
 de plus de quaire heures par jour coupées par un ou plusieurs repos dont la durée totale ne pourra être inférieure
@@ -4009,8 +3971,6 @@ une heure et demie et pendant lesquels tout travail, de
 quelque nature qu'il soit, sera interdit. » Le travail hebdomadaire cessera le samedi à midi. »
 
 Sur divers bancs. — A demain!
-
-M. LE PRÉSIDENT. — On demande le renvoi à demain.
 
 Vous allez décider, messieurs.
 
@@ -4173,7 +4133,6 @@ dans telle ou telle industrie serait certes un progrès, mais ce
 ne serait qu'une expérience. Or, l'expérience est faite maintenant : la journée de huit heures est bonne, nécessaire,
 tant au point de vue national qu'au point de vue des ouvriers,
 tant au point de vue de la production nationale qu'au point
-de vue de la défense de la santé, de la moralité et de l'existence de l'ouvrier.
 
 Dans ces conditions, nous vous demandons de décider
 que vous n'allongerez pas la durée de la journée de travail
@@ -4204,10 +4163,8 @@ M. LE RAPPORTEUR, — La commission etle Gouvernement
 les repoussent.
 M. LE PRÉSIDENT. — Il y a une demandede scrutin, signée
 de MM. Walter, Vaillant, Bourrat, Poulain, Lamendin,
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre! des votants 41. 04 cute EONENTS F
 Majorité absolue. le. CREUSER 44
-Pour ladoption (97 #90 2100 TUE
 La Chambre des députés n'a pas adopté.
 Pour ladophon rip
 
@@ -4240,12 +4197,8 @@ Je consulte la Chambre sur le renvoi de la discussion
 
 (La Chambre, consultée, décide que la discussion continue.) i
 
-M. LE PRÉSIDENT. — La parole est à M. Groussier.
-
-M. ArTaur GRoussIER. — Messieurs, je ne veux appuyer
 notre amendement que de quelques mots seulement. Il se
 
-différencie moins du texte de la commission qu'il ne le h
 semble au premier abord, car la commission elle-même
 indique que la durée de la journée de travail sera de dix
 heures dans un délai de six années. Mon premier para- é
@@ -4275,7 +4228,6 @@ que la modification de la loi de 1892 ne puisse pas être une
 aggravation de travail pour la catégorie des enfants. Aussi
 j'ose espérer que la Chambre voudra bien prendre notre
 amendement en considération. /Applaudissements à l'extrème gauche et à gauche)
-M. LE PRÉSIDENT. — La parole est à M. le rapporteur.
 M. LE RAPPORTEUR. — Le bénéfice de la loi que nous
 demandons à la Chambre de voter est tout entier dans
 des nine Mi LE UT
@@ -4285,8 +4237,6 @@ La proposition de notre collègue M. Groussier va à l'encontre de cetintérêt 
 rend impossible l'unification que nous cherchons à réaliser.
 Dans ces conditions la commission ne peut que repousser
 l'amendement. /Très bien ! très bien!)
-
-M. Le PRÉSIDENT. — La parole est à M. Dejeante.
 
 M. DeseantTe. — Messieurs, la raison pour laquelle nous
 faisons une opposition au projet de loi qui vous est soumis,
@@ -4326,18 +4276,11 @@ M. LE PRÉSIDENT. — Je mets aux voix l'amendement de
 M. Groussier et ses collègues.
 M. CuaRLes Ferry, président de la commission. — La com- À
 mission, d'accord avec le Gouvernement, repousse l'amendement.
-M. LE PRÉSIDENT. — Il y a une demande de scrutin, signée
 de MM. Groussier, Walter, Vaillant, Renou, Poulain, Paschal Grousset, Lamendin, Laloge, Fournière, Florent,
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-Pour ladopaon 2 NE RICE Re
-Contre RL NS RAR CE
 La Chambre des députés n'a pas adopté.
 Nombre des votants," IE CENTRE ASS
-Majorité absolue “ia 04h L'ONU À
-CONTRE ER NT ere dE Leu
 La Chambre des députés n'a pas adopté. d
 Tous les citoyens ont voté pour.
-Le Gérant : CnarLes PÉGuy
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie G.-A. RicHarD & C!*, 9, rue du Pont. — 1950 14
 

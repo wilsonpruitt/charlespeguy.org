@@ -9,28 +9,11 @@ wordCount: 15444
 ocrSource: "Moved 2026-05-25 from s08-c15--untitled.fr.md (mis-slugged by migration parser as 'untitled'; the OCR content is Marie Garnier's French translation of Shakespeare's Sonnets, which is the labeled piece of this cahier)."
 translationNotes: "OCR garble remains throughout. The untitled sister file is now reduced to a stub since its content was the labeled piece all along."
 ---
-
-AE | ARS aa RE Dir nd ne VAT USE RADÉERE PAST HSE
-FEMME FE DA ire sa pe à Re Ab ES Ce ae HR PSS LV
-PRES AS Eat à pts F PA LES RES 1} NER ES /
-SRE PAS ts Dr: T TASER Ÿ SC STEROS. LE Û Lis Pr rer es T7
-# “ROSE IAE HR TS SRE AE Rte JE: ti ARR “er
-SORA CES QUE GE Xe { sd À DATES
-MP nie, RP VERS PL “47 NÉS Dee
-PAR F4 - LES x ne Q LA ee SR %
-Br r GET TES 3e; ee er PAS ee AS EE GÉRNR NEDRLS ESS A
-js ie Are Aie HP RS een PAR AAA ER EeR TES
-Ma Lie tee EST 2 ENS
-158 Dre iGEs CS CAES ne SRE a SEA
-
-Le Otis ae On SOS
 | Pour savoir ce que sont les Cahiers de la Quinzaine, F5 SEA
 il suffit d'envoyer un mandat de trois francs cinquante TES
 à M. André Bourgeois, administrateur des cahiers, À
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième KZ E
 arrondissement. On'recevra en spécimens six cahiers …_.
-de la deuxième, de la troisième, de la quatrième, de la .
-cinquième ou de la sixième série. pe ne
 Pour savoir ce qui a paru dans les cinq premières rs
 séries des cahiers, 1900-1904, envoyer un mandat de #4
 - cinq francs à M. André Bourgeois, méme adresse; on DER
@@ -44,27 +27,13 @@ Bourgeois, même adresse, le prix de l'abonnement; on AR.
 recevra les cahiers parus, et de quinzaine en quinzaine, : 124
 . à leur date, les cahiers à paraître de cette huitième ets
 Voir à l'intérieur en fin de ce cahier les conditions HE
-et le prix de l'abonnement. Mn. .
 Nous mettons le présent cahier dans le commerce; :
 quatorzième cahier de la huitième série ; un cahier jaune
 de 108 pages; in-18 grand jésus; nous le vendons 3 5% |
 
 les sonnets de Shakespeare
-| ESSARPD'UNE INTERPRÉTATION
-|
-|
-| GAHIERS DE LA QUINZAINE
 ( paraissant seize fois par an
 ._ 8, rue de la Sorbonne, au rez-de-chaussée
-
-x Dégu NE
-ae DES à FAT
-
-PEU) de LA LA pt
-{SU OR AS AE UE FO NPA RE Jupe La pr NAN PUS AE ANA
-Ru 44 L H RUE ST HAS di fl SUN 14)
-| PR EUE MAR RUE 1104 an NET ANT EE TRE : 4 4 tt AE
-pute jte ne Lt Lo AA MAMIE EEE La NE Ait
 
 ÿ Nous avons publié dans nos éditions antérieures et 2
 É dans nos cinq premières séries, 1900-1904, un si. 4
@@ -111,41 +80,13 @@ dans notre premier catalogue analytique sommaire, con-
 | rieures et de nos sept premières séries, même premier
 cahier de la huitième série.
 
-AE NNUTE GAIN DAT LH PER) taff TA tj
-
-Voucr Mnt hu Te RE Le
-| qe une 5 DM AA dc TNA A ae SAUT | pu hi.
-|A pi
-| L w AN
 Le de Shakespeare
 | des sonnets ‘ts
-| y 7 L 4 É L 11
-ii ns + NE
 
-‘in L, HE ; Fun x
-PEAR PNEU PR NE PER Mu û Lies Ac 5
-# SIA ARENA Qu PERTE 40 RTE El 1e) 14 VET NE
-
-No D'UNE INTERPRÉTATION 1 ii
-(UE EN VERS FRANÇAIS k Fit
-
-ë 1e ra PATERR PRET ER Eh jai th NS LUE TAN AA GARE LA
-M tar me NA A AUX LÉ NE ES ONE PT h PA RO te :
-‘MAIRE Put ARGENT RER {168 QE the 4 A ME UNE à RS FA
-Re KL FR Mt n) A fl BAPE 4) Le pPTS vi pe pl 7} ip
-
-DAQA& AE DR 0 CHAR ANNE MARTEL qe ARS CE Ah FO NE AA re AR A Us (AE ANR
-
-6 à l'interprète de Wordsworth, k LAS
-Re: de la Sorbonne JA ‘VE
 4 qui ma montré l'exemple
-;A { et m'a donné l'audace E A AVES
 NE Charles-Marie Garnier 1! At
-ni | à TA ue
 
-LA t ‘272 gi pen
 DUR à la librairie des cahiers 1 HE
-| i0f
 | Revue de Métaphysique et de Morale, mai 1903 : à 20
 (0 “4 Le Nirvana de Lafcadio Hearn (traduction); ï
 M L'enseignement aux Iles Hawaï; Û D
@@ -157,9 +98,6 @@ MR Les « Sonnets élisabéthains » de Sidney Lee; put
 Autour du Monde, Félix Alcan, 1904 : .! 0 ES
 ‘0 Les Américains aux Philippines, pages 172-205. PU \:
 
-COS A AGE LR % Loi tr CHATS TA RAR UE
-
-DU MÈME AUTEUR ‘ri
 aux Cahiers de la Quinzaine ARTE
 à Le présent petit index donne automati- LA EN
 quement pour tout volume et pour tout 1711 1RNe
@@ -172,15 +110,12 @@ du cahier lui-même, dans la secs ainsi {#8
 déterminée, en chiffres arabes, de sorte Der Fo
 que V-17 par exemple doit évidemment se * n SCAN re 4
 à lire dix-septième cahier de la cinquième (TES
-b) la date du bon à tirer, ou, à son dé- FX AE
 faut, la date du fini d'imprimer, ou, à son 3 HET
 défaut, la date du cahier même; 1 Hi
-ë c) le prix actuel; é N a NO:
 | d) quand il y a lieu, c'est-à-dire pour nos ER LL
 éditions antérieures et pour nos cinq pre TRER
 mières séries, la page du catalogue ana- te Mess 1
 lytique sommaire où ce cahier se trouve : mo \
-catalogué. t Que
 Charles-Marie Garnier, — les sonnets de Shakespeare,
 — essai d'une interprétation en vers français, — premier 1 14
 
@@ -193,13 +128,7 @@ de cette méthode est de simplifier les citations et réfé- Ac
 FT _ rences. Une personne dès lors qui veut citer cetteinterRe . D à He: j
 __ prétation n'a plus qu'à indiquer le nom, le titre et la 0
 14 _ page. Elle n'a point à indiquer le cahier, qui résulte
-# nr automatiquement du numéro de la page. # 1e
-ne pe , : MAD
-ji en ne FA F 4 HSE da
-DUR ESET LA cé LS AAA eg À DR a jt rs PRES EEE
 
-ee A A EN ar LL à A gg TN NE GEAR ESS LC LEA A A A ER
-|
 | Il a été tiré du présent cahier quinze exemplaires
 sur whatman ainsi distribués : "
 premier exemplaire de souche, exemplaire du gérant;
@@ -208,7 +137,6 @@ troisième exemplaire de souche, exemplaire de l'imprimeur ;
 dix exemplaires d'abonnement, numérotés de 1 à 10 |
 et deux exemplaires d'auteur numérotés a, b exem-#
 Tous nos exemplaires sur whatman sont numérotés
-| s . . ; . L
 à la presse et imprimés au nom du souscripteur ; nos
 | tirages d'exemplaires sur whatman sont rigoureuse-
 | ment limités au nombre d'abonnements à chaque in-
@@ -220,70 +148,30 @@ sur whatman à cette huitième série est de cent francs
 en caractères fin dix-huitième siècle (Didot) de la fon-
 . . . . ,
 derie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième
-LA (où
 
-Dur D OCR OA) Ne im VE RAT fois j
 75 4
-#. 1 400 met
-| jL4 KT 20
 
-|
-|
-
-| |
-| À
-
-| COMEDIES,
-| : ÿ
-
-LEE l ‘ LE e D NT ne ar
-ni « / Las "ALES
-> « * se ; F
-Ua PRE ARR Mn ht, 2 hr mR res DURE ESS On ES QE:
-rar RES 0 NE ME PI TOR Rte D "ER
-
-SA ARE np ie DARAENS EMEA AEE Ur ji AV EE pie NAN a LA 47
-R ni j HUE Fi Wie Le Al DANNEN ho ANT ; k LAN “HS it
 d Portrait de Shakespeare gravé
 1 par Martin Droeshout, figurant en à ‘4
-04 tête du folio de 1623, la seule ti Pia
 PT À image du poète pour laquelle nous
-‘4 1 à ; k ayons la garantie d'un témoignage qi
 D contemporain. (1) Fac simile du
-fi ( 3 frontispice. À JE ERE
-N (@) Nous devons ce cliché à la il ul
 N:: ‘ ; courtoisie et à l'extrême obligeance sn pote
-ê de M. Sidney Lee, auteur de la plus : NME
-14 récente Vie de Shakespeare, et de fi fa 1
 ‘1 MM. Smith Elder et Compagnie,
 1 F LA ses éditeurs, 15, Waterloo Place, 11 à
 ‘1 Londres. Le portrait donné dans AE |
 À hi le premier cahier de ces sonnets Dpt, ;
 14 était celui de Cornelius Jansen,
 \ rt 1 { dont l'original figure dans la galerie fau f
-di 1 | . du duc de Somerset. ‘ LR to \
 
-# . 11 L' @PERES
-si 7: x TA ne A
-bé De { de AI |
-on + WC ui Y # ENS Le ‘EF
-Le. ANR no QE (à D LSONUE ir À
-
-FRET À PE DER EME AN etat PSN in, DR AR EN PORTE PA NET MU Ni A EP PCA
-A AV D AP A a a + Lis EL Ale) Le ES NAN PE à UN 1 FA PR AIES RARE
-LR nl Cette
 #4 ous êtes à mon cœur comme les mets au corps : {
 | Ou l'averse d'avril à la terre embaumée; ir
 fl Pour vous goûter en paix, je bande mon effort (a
-il me,
 | $ Comme un avare en guerre avec sa fauve armée. 4 j
 
 L Tantôt j'ai la fierté des calmes jouissances, ï "à 5
-| . . ss hi
 F / Tantôt je crains le rapt d'un siècle sans honneur; AU
 
 à . Je vous aime en secret, et parfois ma souffrance Lt
-| 3 , i A:
 | Veut que le monde entier contemple mon bonheur. & É
 h Enivré de ces yeux profonds où je me noie, TA YA
 ne: Mourant du fort désir de vos regards très doux, we
@@ -307,13 +195,10 @@ Cest que l'amour et vous, vous êtes mes deux muses; E
 À ; ‘C'est que, mon doux ami, je m'inspire de vous; 5 |
 2 HA: Je rhabille des mots que jamais le Temps n'use, 4
 
-a %k Et ce que j'ai cousu toujours je le recoüds. ! L à 1
 À Jeune et vieux, à chaque aube, émerge le soleil : — #ÿ
 C4 En chaque vers l'Amour rechante un chant pareil. 4 F
 
-tt AR ne AA AA SE A RANGS
 1,
-|
 | EC miroir te dira que ta beauté s'effrite,
 Et ton cadran qu'il passe et fuit le temps vital :
 Jette à ces feuillets blancs ce que ton cœur médite ;
@@ -329,7 +214,6 @@ En promenant en toi de lumineux flambeaux. si
 Relus, ces souvenirs enrichiront ton âme : i
 | Elle en distillera le meilleur des dictames. A
 
-#4 C OMME à mon Apollon je te fis ma prière x
 : Et reçus en retour un secours si puissant ‘à
 Wu, Que ma plume entraîna mainte plume étrangère ;
 #1 À répandre à tes pieds ses vers et son encens. ÈS
@@ -344,8 +228,6 @@ Ka Ta beauté n'embellit que l'art de leurs écrits : #
 “ L'âme des miens, c'est toi, qui jusqu'à la science Hi :
 Je Exaltes et grandis ma grossière ignorance. ‘a
 
-Ver nr : és F F, +. DE MT 5 RE PUR
-
 | Tant que seul j'invoquais l'appui de tes regards,
 Mon vers seul se parait des charmes de ta grâce;
 Mais la grâce a faibli de mes nombres mignards :
@@ -356,12 +238,10 @@ L Pourtant, ce que ton barde invente en ton honneur ,
 C'est à toi qu'il le prend : il ne peut que le rendre. ui
 La vertu qu'il te prête, il l'emprunte d'abord
 . Aux actes de ta vie; et la beauté qu'il donne '
-Il la vole à ta joue; et tu recélais l'or ;
 ‘ Qu'il a pillé pour te forger une couronne.
 ‘1 Point de reconnaissance ! Il prend ce que tu sèmes
 l, Et tu soldes sa dette en te payant toi-même.
 
-LA GENE A us les soni ets de al S peare À PAR Fe
 .: Oh! lorsque je vous chante, Ami, quelle détresse à ‘a
 8 De savoir qu'un esprit et plus grand et meilleur Pat n
 4000 Dépense en votre honneur tout l'or de sa richesse ! À
@@ -377,38 +257,29 @@ RS Lui, garde son haut bord et l'orgueil de son front. 474
 . Eu S'il entre sauf au port, si je cède à l'orage, | 10
 73 Le grand mal c'est qu'Amour a causé le naufrage ! TER
 
-D EME ju EN june us nt ALU ON AT AA
-À Re FE AE ESS AI D'UN E EN yat AT ON RAR FA ju gi ÿ
 D: Ou, vivant, j'écrirai l'épitaphe à ta gloire, | à
-{ Ou tu me survivras, en la terre aboli; “Me
 ‘ La mort ne pourra même entamer ta mémoire, D:
 |: Quand tout de moi sera retombé dans l'oubli. k 4
-| * Do
-| ù * 4
 4 Dans la mort ton nom puise une vie immortelle; Fa
 | Mais, en mourant, je meurs à l'univers total : 1 ‘4
 C'est au fossé commun que la terre me scelle; 200
 C'est en l'œil des humains qu'est ton lit sépulcral. IE J
-Ton mausolée, Ami, sera mon "ne poème V Li ta Va
 Que, clairs, reliront des yeux incréés encor, ae Du
 Et mille voix célébreront l'être que j'aime 10
 ‘2 Quand tout ce qui respire aujourd'hui sera mort. * AO
 je Tu renaîtras où souffle un souffle qui renomme, de
 (1 x — Mon vers a ce pouvoir — : sur la lèvre des hommes! 4 h
 
-L'EST TERRE EME PURE NAN PAREE Role AU je Née RAS Ur EMEA / L
 1! | - les sonnets de Shakespeare 00 |
 . 6e Il est vrai que jamais tu n'épousas ma Muse
 Re: Et que tu peux sans crime abaisser tes regards
 IR Sur l'épître d'honneur dont les poètes, usent sVa
 !/:1 100 Pour grandir leur héros et rehausser leur art. ; at
-441 Grand tu es en beauté, grand tu es en science; ! PA
 4 Tu sens que ta grandeur dépasse mon talent, ÿ +
 FA He) Qu'il te faut demander, en parfaite innocence, - Era
 14 Aux pinceaux plus récents un portrait plus parlant.
 AA Soit, fais-le, mon ami; mais quand leur rhétorique ‘De
 À À T'aura chanté de ses accents exagérés, à +8 191
-sp Ne
 F9 a Ta grandeur vraie aura pour écho sympathique d ‘1
 RE Les mots simples et vrais d'un ami qui dit vrai. fl Mers
 nue Leur épais coloris convient aux chaïrs pâlies . RES
@@ -429,7 +300,6 @@ Qui façonne un berceau souvent creuse une tombe. De
 | Vos deux amis et tous leurs vers élogieux ÿ RU À ! di L
 { N'auront jamais le feu d'un seul de vos clairs yeux! ne 4
 
-j _ les sonnets de Shakespeare AR AU EM
 Quels vers sont les plus forts ? Quel éloge surpasse
 En richesse le fait que vous seul êtes Vous?
 | Dans quel trésor muré les images s'entassent
@@ -439,15 +309,12 @@ Qui ne prête un rayon de gloire à son héros;
 Mais si votre poète a pour art et pour rite ]
 : De peindre au naturel, il reste sans rivaux. 1
 fl Qu'il copie humblement la ligne lumineuse .
-|
 | à Du burin de la vie, avec autant de feu; |
 | Et ce reflet sincère en ondes glorieuses
 Baiïignera son génie et son œuvre de dieu !
 \ : Vous laissez profaner votre beauté d'archange : È
 L'amour de la louange avilit la louange. |
-| 122 F +
 
-f & jus ‘ jus Aj TAN ner | Ru AUS LA WF #e RNA à UR Du A AE EL M ne 4h
 | Et chacun vous célèbre en louangeux accords, na.
 En couplets de joyaux achevés à la lime, RU
 En rythmes burinés avec un stylet d'or : ; JS
@@ -462,9 +329,6 @@ Grain d'amour pur qui brille en moi non dans leurs vers, » ur 1
 k Car si mon verbe est froid mon cœur a de la flamme ! 2
 4 Respecte donc, en eux, le souffle vain des mots; ST
 L En moi, l'amour muet qui dit ce que tu vaux. : 4 il
-
-RAR URI IE dv) DT RMS TON PERS EURE ASIE EMTES ue à
-y Les sonnets de Si akespeare AO MINES
 
 ' Est-ce le mât royal de son large poème ‘4
 s Qui, fier voilier cinglant après vos purs joyaux,
@@ -481,9 +345,6 @@ U Affable et familier, le dupe chaque nuit, ‘4
 he C'est qu'en tel de ses vers votre face se dresse "TR
 106 Me laissant sans modèle et tout à ma faiblesse. À
 
-RAR CPL Le 1 SA A NS ELA EL A A DYLAN NE ae ie UE Pas CARTE".
-ANNE Et FU VTT fi AÉPSENNEUX Ne HARÉSPAL NE ie 4128
-
 D * pœu ! tu es d'un prix trop haut pour ma misère; \ ‘CES
 1] Ÿ: \ Tu as en ta valeur une trop juste foi : } 10
 , Ce prix même est la charte, Ami, qui te libère TRUITE
@@ -498,11 +359,9 @@ Ou mal tu l'as choisi l'objet de ta faveur; 140
 \ Ton bienfait éclairé remonte à son auteur. Tea
 ki Quand je te possédais, j'étais le roi d'un rêve : ri VE
 "1 Qui, maintenant, dans le néant du vrai s'achève. \\ 1
-Y Les, FA
 
 os les sonnets de Shakespeare Fra |
 | Quand tu croiras venu le moment du mépris, * À
-# 4
 h Jetant à ton dédain mon mérite en pâture, 4
 j J'enrèôlerai pour toi mon amour aguerri,
 ) Afin de me prouver la vertu du parjure. À
@@ -516,10 +375,7 @@ De ces vices cachés dont je subis l'assaut : à ; ;
 # Et qui font mon amour doublement triomphante. |
 : L'amour t'a fait mon maître : un signe de ton doigt, k.
 À Et je prends tous les torts pour exalter ton droit. ‘4
-> 144 LR
 
-Fo 44 in à Ke # À ESSAI D U 7, USSR TNT ÈA | k % ÿ se (TR LE
-de ne
 li Dis que tu m'as quitté pour tel de mes forfaits, HA
 | Et, pour toi, je me mets à noircir cette offense : 410
 Montre mon pas boiteux et je boite à jamais, ; à de
@@ -551,8 +407,6 @@ j D'abord le plus amer de tous mes châtiments. 3
 ‘à Et le flot douloureux qui monte dans mon cœur, à
 RT Toi perdu, n'est pas même un semblant de douleur ! Î
 
-ga LAN) Î A eut AL TOM RAR LE ui 74 y
-el Wu 4 D'UNE ML RE je 2 RME EE ET AEON, TE SO
 LA l'éutil F'NTFARI
 FA Les uns mettent leur gloire en leur haute naissance, 4
 , D'autres en leur argent, la force de leur corps, SAME
@@ -568,7 +422,6 @@ us précieux que l'or, plus beau que le satin, TR
 U m'a rendu plus fier que faucons et cavales, LE
 ; J'ai par lui savouré tous triomphes humains : : 1
 à Mon unique misère est que tu peux te plaire NF
-N: À te reprendre, à me laisser à ma misère ! d \ 0
 
 d | D tous tes efforts pour te ravir à moi : %
 \ Tu m'appartiens, Ami, pour le bail de la vie.
@@ -585,8 +438,6 @@ nl . Heureux de ton amour et jusque dans la mort!
 à ; " Mais il n'est front si pur qui ne craigne une tache : x 4
 Tu peux m'être infidèle, et sans que je le sache. |
 
-è à ARC ART ATUNAA À et (il
-| 10e) 1 FN
 Il me faut vivre en te croyant toujours fidèle, ÿ a
 Comme un mari trompé; dans les yeux de amour ? to
 Changé d'hier, je lis l'amour habituelle : \p
@@ -616,7 +467,6 @@ NS Mais dès que l'a touchée un vil chancre infestant, nd
 À tÿ Au plus vil des roseaux elle cède l'empire. NB
 FN Le plus doux miel toujours devient le plus acide; *.
 ‘ F4 Pourri, le lis bien plus que la ronce, est fétide. 4 x
-\YrUMeS , . ne Net fil pe
 
 l Ton doux philtre ennoblit jusqu'à cette impudeur : NAT
 | Qui, pareille au cancer des roses consumées, ie Ne
@@ -624,20 +474,17 @@ Infeste la beauté de tes gloires en fleur! KT
 Ah ! de quel nard suave est ta honte embaumée ! JS
 Ces lèvres, qui nous font le récit de tes jours, q NN
 Voudraient en mots lascifs commenter ton histoire; En:
-y ne Hi
 Mais la haine te touche et rebondit amour ! di ll
 ji Ton nom seul sanctifie un cri blasphématoire ! (à fé
 5 Oh ! quel palais n'ont pas ces vices respectés, {110000
 À Qui font de ton grand cœur leur demeure choisie, ANS
 Où leur laideur se tisse un voile de beauté, Ô WAR
 _ * Où leur poison se change en divine ambroisie! ‘IN
-# 4 È f À VA
 | Redoute, Aimé, ce privilège trop subtil : op
 ji Mal manié, l'acier s'émousse et perd son fil. A
 
 8 4 les sonnets de Shakespeare hé
 
-#
 À « Son crime est la jeunesse et le sang qui se joue. »
 18h « Sa grâce est la jeunesse et les jeux éperdus. » ;
 ‘58 Et sa grâce et son crime, on les aime, on les loue, ‘ |
@@ -648,7 +495,6 @@ It “0 Le plus vil des joyaux devient bijou sans prix, À
 FA L'erreur sertie en vous en vérité se prône, 4
 al aÿe Et s'impose en justice aux plus justes esprits. a |
 à l: S'ils pouvaient en agneaux transmuer leur visage, °
-ÿ : si la NS
 4 Combien d'agneaux ne trahiraient les sombres loups ? +
 pr Si tu voulais user de ton suzerainage, L
 re Que d'éblouis tu traînerais à tes genoux! L Je |
@@ -671,7 +517,6 @@ fi Ou s'il chante, ce sont des chansons qui gémissent : nn:
 Ni Sentant passer l'hiver, les feuilles en pâlissent. JA
 
 ; MCE les sonnets de Shakespeare TA
-#1 Fa F
 | VER Loin de vous, quand les fleurs du printemps se déclosent,
 0 ÿ Quand Avril, émaillé de somptueux atours,
 554 Met âme de jeunesse au cœur ému des choses, Don
@@ -680,7 +525,6 @@ p ni Et danse aux bras rieurs d'un Saturne moins lourd, Ne
 # Ni gazouillis d'oiseaux, ni parfums floréals +1
 173 Ne poussent mes doigts morts à cueillir les corolles, a.
 ve N'appellent à ma lèvre un couplet estival! ‘4
-ue' Je
 
 108 1
 : 2 Je ne sais plus louer le vermillon des roses, RE
@@ -689,13 +533,9 @@ ue' Je
 A Tous ne sont à mes yeux que fantômes pâlis. k
 FA Je joue avec les fleurs, ombres et souvenances, : d'
 ER Mais c'est toujours l'hiver, à cher, en votre absence. ël 4
-A1 dl F son :
-#24 # . “ ÿ AU x l
 
-| ESSAI D'UNE INTERPRÉTATION LANTA TRUE TOUTE
 ji Je gronde, en mon regret, la violette osée : PRO
 « © suave friponne, où pris-lu ces parfums 4 nu
-L g Le jé
 Sinon dans les soupirs de mon Amour lésée? il A: ù
 Et la pourpre fierté de ce fard diaprun à h
 S'est aux veines que j'aime insolemment puisée ! » M 1
@@ -709,10 +549,8 @@ Une autre, ayant déjà pillé ta pure haleine, 11
 A. Un chancre justicier à mort ronge son cœur. ( (A
 ‘il J'en vois mille et toujours je reconnais en elles ‘4
 Fi Et coupables parfums et couleurs criminelles. non È
-‘Nos TAN
 
 S M: peux-tu laisser dans un si long oubli 4
-#41 L à d
 D: Ce qui donne à tes vers toute leur énergie?
 
 « | Épuiser tes transports en des chants avilis ?
@@ -729,23 +567,17 @@ ai Et livre à l'univers qui rit le Temps livide! 4
 + Sème plus de lauriers qu'il n'épand de fléaux : 5
 ue: Sur eux s''émoussera le tranchant de sa faulx! RENE,
 
-11108 { NL d 3 Ven AA | PAR FU AN à ht À Cats ARTS an EN j TA
-| x ‘ 1
 Tu négligeas le vrai qu'empourpre la beauté : À hS ne
-| 1ù ARR
 Du vrai comme du beau mon amour est la châsse; ù ai Hi
 Avec eux il t''enferme, et c'est ta dignité, ‘is
-je I
 Peut-être réponds-tu : « Quel besoin de peinture Au jun:
 _ À le vrai, qui s'exprime en ses seules couleurs ? lt
 Et le beau, dont le vrai peint toute la nature ? 4 “
 Au parfait, le respect peut seul garder sa fleur. » UE
 — S'il peut se passer de louange, est-ce une excuse AN 11
 x A ton silence? Non, chanté par tes accords, ! te 1 {
-LA ar
 Il survivrait à des tombeaux d'or pur, à Muse, ‘ox
 } Glorieux en des jours qui sont à naître encor! ‘1112
-| y TNA
 ñ Viens faire ton office, et laisse-moi t'apprendre 4 \
 | ï A le dresser en pied dessus sa propre cendre. PEL ‘1
 
@@ -755,7 +587,6 @@ ee Qui publie en tous lieux son cœur et ses discours 4
 de Trafique en amitié comme un autre en finance.
 M. Neuve était notre amour et comme en son printemps |
 1e Quand je la saluais en des vers qui fleuronnent; ARE.
-“A Sur le seuil de l'Eté Philomèie et ses chants à
 " A S'élancent, pour se taire aux jours mûrs qui rayonnent. ‘4
 “10 L'Eté garde toujours même suavité ; A
 “ Qu'aux nuits où languissait sa musique plaintive; ù.
@@ -765,12 +596,10 @@ M. Neuve était notre amour et comme en son printemps |
 Un: Comme le rossignol qui craint par ses concerts He
 1 De lasser un ami, moi je suspends mes vers. nn
 
-de MAN EE à mA Re PAPE et HAE AT PE Le AS ARS »! AVPNEEPE D EUABAN RUN PRIMES
 M Hélas ! quels pauvres fruits produit ma triste Muse ! 1
 ù Elle eut, pour étaler l'orgueil de ses couleurs, ; 4 19
 Un modèle parfait; et lui, tout nu, sans ruse, | ‘ri
 De mes éloges peints surpasse la splendeur ! 1
-Oh! ne me blâäme point si je ne puis écrire! di:
 Regarde en ton miroir : il en émerge un front ki. it
 À Majestueux et qui, glaçant mon vain délire, KE Li
 1h Emousse les pensers de mes vers inféconds. ‘54 ù
@@ -781,7 +610,6 @@ Est de dire en chantant ta grâce et tes talents! ‘00
 L C'est un rien, c'est un rien qui dans mes vers s'enchâsse, 4
 pi: Au prix du vrai vivant que tu vois en ta glace. Re
 
-n 7 ; Na vi Mr AN De A4 VEN mi À } Ÿ
 4 de. P° moi, mon bel Ami, tu ne saurais vieillir : il
 k La beauté qu'en tes yeux mes yeux avaient surprise È
 # P fé _ Autrefois, reste entière; et je vis assaillir
@@ -789,7 +617,6 @@ k La beauté qu'en tes yeux mes yeux avaient surprise È
 14 Ont mué; Juin brûlant trois fois a fondu l'âme EN
 10 Et les parfums d'Avril, sans que ton front béni, De
 LA Vert encore, ait perdu sa fraîcheur de dictame. nt.
-bas L k
 PR Comme l'angle mouvant et sombre d'un cadran, ; 4
 ‘ 4 La beauté se déplace, insensible et furtive, ; cs
 14 4 Et ce teint, qui pour moi garde sa fleur d'antan, . "
@@ -797,12 +624,10 @@ PR Comme l'angle mouvant et sombre d'un cadran, ; 4
 1 f Je tremble et je l''évoque, à siècle à naître encor : 4 ‘4
 : SENS L'Été de la Beauté, quand tu vins, était mort! RU.
 
-# A MW
 N'allez pas regarder comme une idolâtrie NN (tt
 Mon amour, ni l'aimé comme idole d'autel, “jo ni
 Parce que tous mes chants, ma voix jamais tarie {Sri
 Monte au même être, unique, immuable, éternel. À ‘4
-| % Lai
 Il est bon aujourd'hui comme hier il était bon : k A
 Et mes sonnets voués à la seule constance { { AN
 Rendent le fixe éclat de ses divers rayons. at
@@ -812,11 +637,8 @@ Que varie et module à jamais mon poème, — j pi
 x Triple sujet qui m'ouvre horizons merveilleux. HR
 à « Beauté, vertu, bonté » fils d'or que je festonne, ; an
 î Jamais sur un seul chef n'ont tressé leur couronne ! y
-| : s À 44641]
-| F0
 
 | les sonnets de Shakespeare
-# D ||
 1 Dedans les chroniqueurs des âges en-allés !
 
 Al Luisent les médaillons de très gentes figures : 4
@@ -835,12 +657,10 @@ hs Je vois qu'ils voulaient peindre un portrait idéal !
 no Et nous, humbles témoins que le siècle interroge, WE:
 ‘4 Pour voir sommes tout yeux, mais sans voix pour l'éloge. 360
 
-DAT ; di E* QU MP SE CA \ RL ue ANRT NY PUR FHQEUR Le Ne bi fs ri 4 sRAALU
 Ni l'effroi de mon cœur, ni l'âme prophétique N ‘
 Du monde méditant l'avenir en chemin } (1 4
 Ne sauraient limiter mon bail d'amour unique, hi
 Gage fatal promis aux ordres du Destin ! CH: Re
-ne!
 Vois : la Lune éclipsée a retrouvé la vie, 1
 Et l'augure en riant brûle ses noirs papiers; pu:
 L'incrédule à la foi royale nous convie; A.
@@ -850,14 +670,9 @@ Mon amour refleurit et la Mort se soumet : 4
 Elle traîne à son char un muet troupeau d'hommes, UE L
 Mais respecte l'auteur de ces humbles sonnets. 108
 ‘4 Le bronze écussonné des tombes écroulées ot
-| = L : 700
 R Passe, et toi, dans ces vers, gardes ton mausolée ! Dr
-| 145 \ EE
 
-nr _ les sonnets de Shakespeare Me di: je
-fr De
 be. Tout émoi du cerveau que l'encre peut trahir
-# x
 #3 T'a montré mon esprit, son vrai fil et sa trame. : 1
 À Quel mot neuf reste encore et quel nouveau soupir F.
 # Pour révéler ton cœur ou le fond de mon âme ? 1
@@ -872,9 +687,6 @@ Il prend même le Temps pour esclave et pour page. |
 Pour lui, dans les vaincus de l'âge ou de la mort 1
 V Vibre le premier rais de l'amour toujours fort, ‘+0
 
-LATE Es dpt 4x DEL S FE ST AR PET RTS PRAATA Det MA ZEA LA
-
-sure : LE
 ( UE mon cœur fut perfide, oh! ne le dis jamais : 51008
 L'absence peut pâlir mais non glacer la flamme. 4 ni
 Je ne puis renoncer à l'être que j'aimais; S À Ÿ
@@ -891,14 +703,11 @@ Point n'ai-je absurdement obscurei mon soleil, {500
 h Et ce vaste univers est un rien à mes yeux : 1e
 À Toi seule y vit, ma Rose, et c'est tout sous les cieux! 11
 
-si Lo Er ps FRERES da HN M DRANE si SU D Le :
 4) _ les sonnets de Shakespeare d
-fi PM AU SEOTR NE ART A AE OR EE tee SEEN RS h
 ne Hélas! il est trop vrai, je dus courre en tous lieux, 4
 4 Vendre l'âme au rabais et fouiller ma pensée 4
 tt Au sang, et, vil bouffon, pitre facétieux, F
 Navrer d'amours nouveaux l'ancienne amour blessée! 4
-|
 j C'est trop vrai, j'ai tourné loin de la vérité . ‘à
 D Mes yeux indifférents; mais aux cieux j'en appelle, #
 à L'orage m'a rendu comme un deuxième été : 3
@@ -910,8 +719,6 @@ Li Tout est fini. Reçois un hommage immortel : 4
 À Tout grands et tout aimants ouvre-moi tes deux bras 4
 a, Et sur ton cœur me presse, à mon dieu d'ici-bas! , N:
 
-OT ME TN RSS AT D: UNE \ NTERS RÈ pi \e du A 4 TRE ÿ
-ne
 Ù Oh! pour l'amour de moi, provoque la Fortune , il
 Qui seule m'imposa ce coupable trafic, : ‘+4
 Sans me laisser pour vivre, en sa basse rancune, D:
@@ -922,10 +729,8 @@ Qui chez l'un teint les mains et chez l'autre teint l'âme : 1298
 Au nom de mon salut, donne-moi ta pitié! ; 6.50
 Alors je renaîtrai. Malade débonnaire, À
 Je prendrai de l'aissel pour purger mon poison ; 0
-je
 s) Nulle amère boisson ne sera trop amère, ? de Le
 Et nul fouet trop cuisant pour cette guérison. QE
-N aie à ÿ de a HR
 pe] Pitié donc, cher Ami, car cette pitié même \ NO
 i Est assez pour sauver celui qui toujours l'aime. (00
 
@@ -945,10 +750,6 @@ ur Écoute, Ami, comment j'excuse ce mépris : OR
 Ent Tu plonges en mon sein des racines si fortes LUE À "
 LA Que, hors toi, la nature entière est une morte! ie j ‘#4
 
-LL AU WT AD ji Ve SAT D” UNE INTE RPRÉ' re n de) RAA La Re QE VAE
-ne LR RE SA? “A Un nn qu année hr man ie à RES AO ME ME Eu pe
-ARUAT 44 à 4 f G PRIT 7 X va} pa à ‘il
-RAA ces UNS
 nil Mes yeux, quand je m'éloigne, en mon esprit habitent, DL.
 Et le sens qui me guide, aux trois quarts déréglé, TU Ni #1 fe
 De sa tâche diverse à grand peine s'acquitte : RER
@@ -979,17 +780,13 @@ Mon @il sait ce qui plaît à son palais d'amant s 4
 Ne \ Et prépare à son goût la coupe enchanteresse ! te
 S'il y trouve un poison, mes yeux amourachés Û 1
 _ Sont les premiers à boire, — et moindre est mon péché. Fi (J
-# ok EN,
 1 152 0
-
-SRE A) Bet L D'UNE INTERPRÉTATION AE
 
 Quand ils te murmuraient que mon amour grandie DELL
 Ne croîtrait jamais plus, ils te mentaient, mes vers. DA
 Pouvait-elle juger, ma pensée enhardie, :3 1
 Qu''à mon flambeau luirait plus tard un feu plus clair ? \ 11608
 Je redoutais le Temps dont les remous se glissent Ÿ Et k
-# qe . ue
 Entre nos plus chers vœux, changent l'édit des rois, AN v
 : Souillent la beauté pure, émoussent la malice, 4
 Entraînent les plus forts en leurs torrents sournois. AU ©
@@ -1002,7 +799,6 @@ Je ne pouvais, Ami, — car l'amour c'est l'aurore — FU ‘oi
 ë Donner pleine croissance à ce qui croît encore! A1 4 {
 53 1
 
-nn, : Dr PEU È F à son nets de SIN HAE AVENIR
 ‘4 Non ! il n'est point d'obstacle à l'union des âmes |
 “15 Et des sincérités ! L'amour n'est pas l'amour :
 É ie S'il penche à la nuit sombre où penche l'autre flamme, à
@@ -1018,7 +814,6 @@ ne. Il s'avance inchangé jusqu'au bord du chaos! AE
 mer rl Ici-bas, si ma foi devient une hérésie, Ji À
 74 Jamais on n'eut d'amour! ni moi de poésie! } 1
 
-Leu a NU san UNE | NTERPRÉTATION 2 PAT ITNTOS
 Formulez vos griefs : c'est vrai, je fus avare \: 110
 En payant de retour vos bienfaits opulents ; 1 {11
 Je désertai l'amour où toutes les amarres TES
@@ -1034,7 +829,6 @@ Dans l'éveil du courroux ne tirez pas, pourtant : 4
 k Que prouvait mon appel ? — Il voulait, sans offense, ne
 Éprouver votre amour, sa force et sa constance! ee
 
-1 NEAR OR y Le LANG MAN en AN FAN LD ES A A pe EE
 Fe nue les sonnets de Sha tespeure "IR |
 Li: L'homme, pour relever son appétit baissant, L:
 é À 4 Excite son palais de condiments acides; 4
@@ -1051,12 +845,10 @@ ei De maux inexistants fit réelles souffrances ; 1
 : 34 Et de là j'ai tiré la leçon qui m'absout : Rs
 #0 Remèdes sont poisons quand on souffre de vous. h).
 
-| Na 118) 4
 Je me suis abreuvé des larmes de sirène sd 1:
 Que distillaient les flancs d'alambies infernaux ! ST
 f La haine armant l'amour, l'amour armant la haine, À Fe
 J'ai perdu, croyant vaincre en ces sanglants assauts ! | pi
-KL. he je sf
 Mon cœur, en qui sourdait félicité bénite, AT
 Misérable, péchait lors même contre vous! DNS
 | Oh! comme ils ont, mes yeux, bondi dans leur orbite « A
@@ -1074,14 +866,12 @@ fi L'incisive douleur qui m'entra jusqu'à l'âme ï ù
 ve A dû sous mon péché courber mon front poudreux, ER
 Point n'ayant nerfs d'airain martelés à la flamme. à
 NA Dans votre vie, il a passé le noir enfer é #4
-et j LE
 Que j'ai connu, s'il est vrai qu'en ma vilenie n |
 Vous ayez pu souffrir ce que moi j'ai souffert Mer |
 _ Sans peser votre crime ou voir ma tyrannie! f 20
 Oh! si la nuit de notre angoisse avait voulu : M
 Nous redire combien le vrai chagrin torture, ki
 Nous nous serions alors l'un vers l'autre tendu ‘ ne |
-| . :
 R Le baume humble et cordial qui ferme les blessures ! ‘2 |
 ___. Nos deux crimes pareils ont müri des moissons mu.
 Où nous puisons tous deux une juste rançon. +'\
@@ -1094,7 +884,6 @@ i Un plaisir juste et non par soi, mais par l'envie! 108
 ñ Les êtres faux, au regard louche, aux yeux hostiles ? k h
 1 Et jugeraient-ils noir ce que j'estime blanc, +1
 Ë De ma vertu fragile espions plus fragiles ? f nl:
-| Re
 } Je suis ce que je suis! — En soupesant mes fers, \ +
 4 Ils ne font que compter les anneaux de leurs chaînes;
 | C'est moi qui marche droit, eux qui voient de travers:
@@ -1126,8 +915,6 @@ ve Je m'en suis séparé : j'ai préféré l'inscrire 4%
 
 Qu'un lâche oubli pouvait envahir ma mémoire. ei
 
-cu der pà PAPER ER RO PC 1 AA EP a CEE LA CA BL Ar Ana
-A L AN ent
 Jamais tu ne pourras te vanter que je change! LA
 Da pyramide, à Temps, que d'un nouvel effort 4
 Toujours tu rebâtis, n'a pour moi rien d'étrange : 4 Ne
@@ -1151,7 +938,6 @@ x Le serf du Temps, de ses mépris, de ses faveurs, :
 æ Non! je lui construisis un plus haut piédestal! D
 Ne. Il est hors de l'atteinte et des pompes rieuses D |
 1 Et des serviles coups de ce dédain brutal 4
-L. i à Que donne le respect de la mode enjôleuse. 1
 [ ne ( Point il ne craint la politique au front pâli, n
 F 10 Hérétique qui broche un canevas d'une heure; |
 ‘à 4 Il se dresse, tout seul, politique accompli, »$ 4
@@ -1176,7 +962,6 @@ Bonheur piteux, qui se consume, et par les yeux!
 | Arrière, délateur! Plus une âme sincère no
 Ée Est en butte à tes coups, plus elle se libère! ‘100
 
-|
 ri DOLESCENT aimé, qui tiens en ton pouvoir à
 AA L'Heure et le sablier du Temps, fragile et noir;
 -F Ton déclin même est une aurore, et, fleur suave ho
@@ -1191,17 +976,13 @@ HA Trésor qu'elle conserve, hélas, non pour toujours : ..
 n Il peut tarder, mais il viendra le jour peu tendre mn
 Où, pour avoir quitus, il lui faudra te rendre! 4
 
-| ji D PAR NE NE GANT ACTES
-
 1 1
-| "à n ji
 
 É. brune, aux yeux de tous, jadis, passait pour laide. "1e
 _ A4 Belle, on lui refusait le titre de beauté; (UT
 _ Mais la brune à présent à la blonde succède : ‘Si
 
 Le Beau s'abâtardit de cheveux empruntés! u "M
-| MOEL
 Depuis que chaque femme, en grimant la nature, 1
  Embellit la laideur du masque faux de l'art, ‘al sil
 Sans honneur et sans nom le Beau se voit exclure "100
@@ -1228,7 +1009,6 @@ fl Qui baisent le fuseau rondelet de tes doigts, 1
 
 : 1 Et mes lèvres que fuit une moisson perdue 3 |
 pe Rougissent de l'orgueil de ces lames de bois. à
-je
 
 Pour qu'on les baïse ainsi, qu'une métamorphose |
 
@@ -1240,8 +1020,6 @@ s Verse à ces impudents le lait dont-tu me sèvres, G
 
 Fa Réserve-leur tes doigts, mais livre-moi tes lèvres! Hi,
 
-| ; io
-1 f | ie qui se dépense en un désert de honte — HU
 Voilà la passion : avant d'agir, elle est * 4
 Désir honni, sanglant, parjure et qui vous dompte ner
 Sous le cruel excès d'un flux traître et mauvais; ge.
@@ -1255,8 +1033,6 @@ ke 1 Félicité qui passe et, passée, un enfer! L 4
 1 Personne ne sait fuir — quand tous savent ce drame— K$
 ) Le ciel qui nous conduit au tourment de ces flammes! 210
 
-# |
-| D |
 Î JL: soleil luit plus vif que l'œil de ma maîtresse; ï
 Et sa lèvre est d'un rouge humble au prix du corail; 4
 l Si le blanc c'est la neige, alors, je le confesse, |
@@ -1273,13 +1049,11 @@ Que la musique encore a des sons plus divins; |
 Et pourtant, par le ciel, mon amante est plus rare |
 à Que les tristes objets qu'à tort on lui compare ! \
 
-ta] ; si
 4 Belle ou non, tu régis mon empire en tyran, ù, x
 Tout comme une beauté fière, arrogante et dure; Ne.
 } Tu sais que pour mon pauvre cœur idolâtrant (eh
 | Il n'est gemme ici-bas et plus chère et plus pure. ‘à }
 Tout franc, — il en est qui refusent à tes traits DT
-et LUE
 Ÿ Le don de torturer l'Amour, pouvoir suprême ; ; 1 si
 ! Proclamer leur erreur jamais je n'oserais, “08
 Mais je jure en secret que c'est là l'erreur même ! ER 4
@@ -1291,8 +1065,6 @@ Noire en rien ne te vois sauf peut-être en ta vie, N.
 ; Et c'est de là, je crains, que sort la calomnie, ne.
 
 148 les sonnets de Shakespeare F5
-| “ 4 RE EP CT RE LTD EEE De Sie AQU OU Fe
-| EXXXII | 1
 #0 J'aime tes yeux et tes chers yeux, comme en pitié: 4
 D: Des tourments que m''inflige une àme dédaigneuse, "4
 ‘0 Jetant sur ma douleur leur sanglante amitié, É
@@ -1308,19 +1080,14 @@ E De pleurer, elle aussi, mon amour au cercueil ! 4
 si Oh, lors ! je jurerai que noire est la Beauté Ê:
 “1 Et que, sans ta couleur, on n'est qu'indignité ! 4
 
-PO mssar D'UNE INTERPRÉTATION
-:: MÉARMeRT EU LOT H # vé # SE LNP TEE er ? L +1 ON
-# à
 Que maudit soit le cœur qui fait gémir mon cœur 110
 | Saignant pour moi, pour mon Ami, double carnage! 4 s
 N'est-ce assez que je sois en butte à tes fureurs, 4
 Sans que mon doux aimé souffre ton esclavage ? RU
 De moi-même, ton œil cruel m'a détourné; Nh:
-| 4 ; dd
 ë Plus dure encor, tu m'as pris mon autre moi-même ! LA
 ; De moi; de lui, de toi je suis abandonné; 5
 4 Par nous trois mis en croix, tourment trois fois extrême! ‘1
-| , LV
 Emprisonne mon cœur aux grilles de ton sein; k ‘1
 Prends ce gage appauvri contre l'Ami rebelle; EU
 De celle qui le garde il sera le gardien, 1
@@ -1328,15 +1095,11 @@ De celle qui le garde il sera le gardien, 1
 ; Eh si! tu pourras l'être ! Etant captif en toi, \ M
 1 De force l'appartient tout ce qui vit en moi! LEE
 
-|
-NP ES DR NET A AE Lau AS dE er SO ASp er ft | CAN PSENES ?
-Re. INSI j'ai confessé qu'il est en ta puissance ‘à
 he À \ Et que je suis un gage au gré de ton désir. "4
 hi. Moi, je veux me livrer et lui, ma jouissance, :4
 4 Mon autre moi, tu le rendras à mes soupirs. i
 11 1
 D. Vous ne voulez, ni toi ni lui, de sa franchise, k
-| ce ! # » ) <
 0 Il pensait me servir, non perdre par traîtrise 1108
 ‘8 Sa vie en souscrivant ce billet désastreux ! 120
 Ne 4 Car tu veux exercer, implacable usurière, 1
@@ -1344,18 +1107,13 @@ Ne 4 Car tu veux exercer, implacable usurière, 1
 a Et poursuivre l'Ami qui sombre en la misère À
 ‘4 Pour moi qui l'ai perdu par un indigne abus. [40
 A Je l'ai perdu, sans me reprendre, ample faillite : “4
-"à Il a payé ma dette, et je ne suis pas quitte! it
 
-eur is | ESSAI D'UNE INTERPRÉTATION ji Li.
 Femme riche en succès comme une autre en désirs, 1
-| 7 Een.
 En désirs drus et qui débordent en fontaine, YU
 Je suis de trop, hélas! j'encours ton déplaisir "4 !
 En jetant mon pétale à ta coupe trop pleine. vi A
-| 8 FA 190
 | Daigneras-tu, femme au cœur vaste et généreux, :10
 Me laisser me cacher en ton désir immense ? 1 ;
-| t $ 11
 Quand, aux autres désirs, il s'ouvre, gracieux, i 1
 | Faut-il que, seul, le mien souffre son arrogance ? sa ‘1
 L'Océan reçoit bien en ses eaux l'eau du ciel; \ M.
@@ -1365,8 +1123,6 @@ Qu'encor il s'enrichisse, encor se dulcifie! ‘R
 Laisse tes suppliants t'aimer, vivre et jouir, nl
 Tous — dont je suis — fondus en un même désir! Ant
 
-|
-NE Ne PV MNTes isonnets 'de\Shakespeure) 50e |
 Ur S'il rage de me voir pénétrer ta langueur, 3
 14 Jure à ton cœur que Will fut son désir sincère; À '
 À Il sait que le Désir a sa place en un cœur : 4
@@ -1402,7 +1158,6 @@ Et vouloir mettre un masque beau sur face immonde ? in
 pe Dans le marais du faux ils se sont enfoncés ! : 1
 
 |.
-a 0e POS En tr à MM EURE NE TRAIN FN Lis Qc: LE LOT NOTE nd \ |
 ‘4 les sonnets de Shakespeare CU
 71 Elle est, me jure-t-elle, être de vérité. 4
 14 Je suis sûr qu'elle ment; mais je crois sa parole
@@ -1419,19 +1174,14 @@ Ne Ah! c'est que l'art d'amour west que long artifice! L
 Ée Mentons donc avec elle, et, tous deux, flattons-nous 9
 h Au mensonger accord de mensonges si doux. \
 
-| ESSAI D'UNE INTERPRÉTATION MAUR à
-il ki %
 | Oh! ne m'appelle pas pour excuser les affres \
 Que tes actes méchants infligent à mon cœur! WA
 . Que tes mots acérés, non tes yeux, me balafrent : +: T0
 Navre-moi d'un fer sûr, mais sans art d'escrimeur! "Lt
 | Dis tout franc que ton cœur est autre part, mais pense si
 ne pas devant moi détourner tes regards : 21
-\ A ne pas d t dét t gard à A
 | Pourquoi blesser par ruse, alors que ta puissance : % à
-| ñ ‘PS
 | Peut d'un souflle raser mes débiles remparts ? 30
-| Tant
 Et pourtant je t'absous : tu sais trop, ma maîtresse, V
 Que mes seuls ennemis ont été tes doux yeux; 4
 Tu détournes de moi leur brûlante caresse, ji
@@ -1439,9 +1189,7 @@ Et tu portes plus loin leur ravage et leurs feux. ‘08
 ) Ne les détourne point; je succombe à leur guerre : 110
 D'un coup, viens achever ma vie et ma misère! 2
 | 179 1
-FR un
 
-|
 ANT les sonnets de Shakespeare |
 180 Sois sage aussi, cruelle; et, ma langue liée, 4
 LA Ne va pas l'aceabler sous un trop lourd dédain ! 4
@@ -1458,7 +1206,6 @@ Al Et, fou, je noircirais ton misérable cœur; "4
 ‘5 Pour sauver ma raison et ta gloire adultère, + 110
 M Garde le regard droit, — si torse est l'âme altière! ‘4
 
-ne SA A ES Per A AN TN GG A, 0 ie Ag CA A LR PE LE LE
 F Sur l'honneur, ce ne sont point mes yeux qui t''adorent, ca
 4 Eux qui notent milliers de souillures en toi; È Ÿ M
 | C'est mon cœur qui chérit ce que tant ils abhorrent, ! 4
@@ -1474,8 +1221,6 @@ Mon cœur de s'affranchir du désir souverain |
 ; Un miel pourtant se cache au fond de mon calice : A
 ; Qui cause mon péché cause aussi mon supplice! 14
 
-SE as RUE M NAS RE OM PAR RES A ATOME
-“4 Atte ARE pile ; 1 3 , 7 K VE a Rue di RENE ANT 0 ' di RS % bts He que ÿ
 :N les sonnets de Shakespeare
 10 4
 118 L'amour est mon péché, ta vertu c'est la haine, À
@@ -1492,8 +1237,6 @@ C1 Que ton œil prend de provoquer tant d'amitiés ! 4
 34 Grandie, elle pourra te valoir la pitié! | ‘1
 b), h Si tu veux posséder ce que ton cœur refuse de.
 er Crains que ton propre exemple un jour soit mon excuse! A
-
-MR NAN" ais sut En ai ARR pi Fe plait ta NES MEANS ARTS
 
 Voit-elle un volatile emplumé s'échapper, vu
 Déposant son bambin, l'active ménagère \ 4 f
@@ -1538,11 +1281,9 @@ k Et qui d'elle apprend salut adouci. +4
 . Un mot clair l'achève — ainsi jour exquis {te
 Achève la nuit, infernal génie 40
 | Aux enfers sombrant du haut du pourpris. +0 P
-| \ va
 À Le haineux « Je hais » tombe en sons plus doux, ‘0
 FA Se fond et me sauve en ces mots « .… pas vous ! » ne
 
-|
 | 4
 4 : pige âme, centre obscur de mon limon pécheur, .
 k À Que harasse un assaut de puissances rebelles, H
@@ -1564,7 +1305,6 @@ j Pour tout ce qui nourrit le foyer de son mal; 1e
 Qui flatte les-accès d'un appétit brutal. ll
 | Au mépris affiché pour sa docte ordonnance, CLR
 À Ma raison, — médecin de mon amour trop fort — 3,45
-F M''abandonne, et je trouve, en ma désespérance, 4 ï
 1 Que, rebelle à tous soins, le désir c'est la mort ! , 108
 1 A raison sans vertu malade sans remède ; ne
 | Et ma raison plus que jamais s'échauffe et bout : A
@@ -1577,7 +1317,6 @@ Et tu n'es que nuit noire et ténébreux enfer! 5
 4 Hélas, quels yeux Amour a donc mis en ma tête, h:
 5 Sans harmonie avec le vrai qu'ils devraient voir ! ,
 + Ou s'ils voient juste, il sombre alors en la tempête, à
-#] È
 $ Mon jugement qui juge faux leur vrai miroir! + NET
 4 4
 ‘à S'il est beau, cet objet dont mes yeux faux raffolent, À
@@ -1591,7 +1330,6 @@ s L'œil de l'Amour, noyé de longs guets et de pleurs ? k 4
 2: ù Ah! le perfide Amour qui m'aveugle de larmes Le:
 ue Pour que jamais mon œil ne voie et ne s'alarme ! ‘a
 
-| EE | ù | 1 bé
 Comment peux-tu nier que je taime, cruelle, Ki
 Quand je me joins à toi contre moi conspirant, ‘Am
 Quand ton àpre pensée à ce point m'ensorcelle $ F4
@@ -1600,20 +1338,14 @@ Aux pieds de tes martyrs, dis-moi si je me couche, d Li J
 Dis-moi si tes haineux je les appelle amis! LINE
 } Quand ton front s'assombrit, dis-moi si de ma bouche- is
 J Ne jaillit contre moi mon courroux qui gémit? 30e
-| D,
 h Quelle vertu me reste, en mon cœur estimée, ÿ 4 #18
 Fière assez pour garder sous ton joug ses dédains ? co
 Ma meilleure âme adore, à tes pieds abimée, Aie.
 Suspendue à l'arc noir de tes sourcils divins ! £ bi
 ! Haïis-moi donc, mon Amour, car tu m'es révélée; (3e
-| 2 : s : A A =)
 à Tu chéris qui sait voir : mon âme est aveuglée. V1
-de à Ds
-
-|
 
 “tie les sonnets de Shakespeare 140 |
-# f 1
 
 | 0
 FE Oh ! quel Pouvoir te vaut cette insigne puissance ‘4
@@ -1636,8 +1368,6 @@ ne! * Oh! j'aime en toi ce que tous les autres abhorrent:
 118 Si ton indignité plante l'amour en moi, “4
 1 f Plus digne je grandis d'être adoré de toi. ‘1
 
-D 0 sen w'v NE INTERPRÉTATION FE
-Ar in ‘ La, Ti t pa % im Ÿ
 L'Amour, trop jeune enfant, n'a point de conscience, 0
 | Pourtant la conscience est fille de l'Amour : D
 
@@ -1659,13 +1389,10 @@ Fière, en l'âpre fierté d'être ton serf indigne, 454
 Avec toi d'être droite, avec toi de fléchir! RSS
 1 Toujours j'appelle « Amour », à conscience en lutte, Ni
 } La femme à qui je dois ma grandeur et ma chute, D
-| } à D.
 
-hi ji es ' Mdr Le a tr Had jé H Fan SO DD MO es
 240 En t'aimant tu sais bien que je suis un parjure,
 LS. Mais toi, tu l'es deux fois qui te donnes à moi, à
 à À Qui peux trahir ton lit et, dernière souillure, h
-#4 :
 Mais pourquoi t'accuser de ta double traîtrise, 4
 Mu Quand vingt fois je fus traître? Est-ce que tous mes vœux 4
 Re Ne sont pas des serments hurlant ma convoitise ? , F
@@ -1678,16 +1405,6 @@ Erer de:
 s "3 Et j'ai juré de ta beauté, dernier blasphème 2
 ù. ; Contre la vérité, -contre celle que j'aime! é 7
 
-FA ee A M nt MENEM RE T2 27 OT ANA fat nee LUN. MES TR ASE
-FA ne < 4 ‘Dal
-| 4 \ À A
-| INR
-
-VON E, HUE PANT LUE ME AE PL LE SIC) een nt f
-ni HUE
-# “ n { ; a (Lu 4
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, à
 __ rez-de-chaussée, Paris, cinquième arrondissement. We
 Nos Cahiers sont édités par des souscriptions men- #
 suelles régulières et par des souscriptions extraordi- L
@@ -1714,11 +1431,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant (il
 À naturellement aux premières inscriptions; c'est ce numéro d'inscription qui devient automatiquement le ;
 4 numéro du tirage réservé à chacun des souscripteurs ;
 À l'édition sur whatman est strictement limitée au L
-
-Pt 0 tn V'OET RUE M LA auf ï ti
-Hoi TA T ER A YEN
-
-ss: 7 ne E
 
 Pour tout changement d'adresse envoyer soixante ! AN
 centimes, six timbres de dix centimes. ; Da

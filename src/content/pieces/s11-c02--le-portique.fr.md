@@ -7,10 +7,6 @@ author: gabriel-trarieux
 isAvertissement: false
 wordCount: 21988
 ---
-| il |
-il]
-| |!
-sr CAHIERS DE LA QUINZAINE
 : su périodique paraissant tous les deux dimanches
 ndons 8, rue de la Sorbonne, au rez-de-chaussée
 
@@ -29,8 +25,6 @@ X-8. — MaAxIME VUILLAUME. — mes cahiers rouges.
 X-9. — Roman RoLLAND. — Jean-Christophe à
 X-10. — Romain RoLzLanp. — Jean-Christophe à
 X-11. — MAXIME VUILLAUME. — mes cahiers rouges.
-X-12. — DANIEL HaLévy. — le travail du ZaraRM te dede o vus Ve en UUR Sen OUT ee USA ER AIN
-X-13. — CHARLES PÉGUY. — à nos amis, à nos
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série :
 dinaire ....... | Autres pays de l'Union postale universelle........ vingt-cinq francs
@@ -43,34 +37,9 @@ de 72 pages; in-18 grand jésus; nous le vendons à
 ; périodique paraissant tous les deux dimanches
 : 8, rue de la Sorbonne, au rez-de-chaussée
 
-Le RIM Pre LS Pas | COTES NUE CRT PE EIRE 314
-MATRA NL a 1 ee 22 7NT de PO, DANS PT LEA PR AN
-EU à AE se pa tli ts LEP ARE RENTE ES j STE CE » UE Pt , WA L'R Lai ed VAR RENTE LÉ: a MP ER. *
-| T'ES E CR A ns SAR. (He SRE FANRE NE NA FRA OL VER
-:n°4 CES ALES RES TES one ARR
-AR, ds 1: AA pri sp Laer Et AY Sp
-
-& a à TRS me Ke RE: PR AT er « | 7 EU NE Es L
-5 M Pur TT 0 F5 MS ans AE On
-RER LE TR Das DU EP TR NS. en a IEEE
-À ST PET RUN ER HER ns + ex #2 RER : Pass LES ER
-* M ile LEE Ft À ‘ RE de
-= A NE du 0 0 A Te re ee SP PTS
-t FE je ME Le ENAET one PA ERTN 1APERS no 30 Ed
-
-RARE He PUS a Sn PSP LES sé cer a.
-AE Le RE ES LR ARTE re ROSE ER EEE dde
-; à / air? Le “ter PS
-> PAR ‘ £ RASE MAR Se:
-ae x AE ; où L L L RS
-“2 RUE Léa à 2: 6 CPP ART: Le VAN AA TETE # Pare: 1
-| OT OPNESMRR SERA F4 \ DV RTES LA à #4 4 Tee 4 4 F'EXPECS
-Le + Fabre, der An 4 lee F  MODEMEN EE 735% a! OT COR
-
 Nous avons publié dans nos éditions antérieures et à
 dans nos cinq premières séries, 1900-1904, un Si 4
 ; grand nombre de documents, de textes formant dos- r
-ee siers, de renseignements et de commentaires; — un 4 ÿ
 si grand nombre de cahiers de lettres, — nouvelles, "æ
 romans, drames, dialogues, poèmes et contes; — un ï
 si grand nombre de cahiers d'histoire et de philo- .
@@ -88,9 +57,7 @@ Ce catalogue a été justement établi pour donner, .
 ÿ autant qu'il se pouvait, une image en bref, un raccourci,
 3 2
 
-F3 Fr du SATA RE LARMES RAS a CE SU AUS
  * uneid se, ab 7 égée, mais complète, de nos éditions anté-
-NA Le a 4 ; ar FER VA pe # VTT
 % . rieures et de nos cinq premières séries ; tout y estclassé Le
 _ dans l'ordre: il suffit de le lire pour trouver, à leur go
 place, les références demandées. ; eu ER
@@ -104,10 +71,7 @@ _  s'abonnaït rétrospectivement à la sixième série le rece- is
 __  vait, par le fait même de son abonnement,en tête dela
 “ série; nous l'envoyons contre un mandat de cinq francs PS
 LA à toute personne qui nous en fait la demande. F0 RÈSRREN
-EE La nr
-tr 6 CeRe à © 14: de FUREUR
 
-FE D 'Asge ais FR CAS + LE SN À
 .
 aux Cahiers de la Quinzaine d
 
@@ -124,7 +88,6 @@ déterminée, en chiffres arabes, de sorte
 que V-17 par exemple doit évidemment se
 lire dix-septième cahier de la cinquième
 
-b) la date du bon à tirer, ou, à son dé-
 faut, la date du fini d'imprimer, ou, à son
 défaut, la date du cahier même;
 
@@ -140,73 +103,21 @@ d) quand il y a lieu, c'est-à-dire pour nos £
 
 . — — les Vaincus, — Savonarole, — cinq actes (VII-14,
 
-| $
-
-iTO he er RS ut à FE de ER TUE 5. PACS  —
-+ ANR DT ERNEST" on 2 5-3 if RS PR ÉCRAN) :
-ne : ic “PS1
-> d “ Fe f %
-nn Li REP RAUNT ré. FORM le EST RR ES Le RTL Ga t'UCES s' :
-
-| DU MÈME AUTEUR
 en vente à la librairie des cahiers
-Les Vaincus (Trilogie) :
-PRES im pan Ne ou Sie ciere SNSNRILNOV DIU)
-DANOnar ble. LT ane des de = ON ONE
 Sur la foi des Étoiles ................... un volume
 | La Guerre au Village.......:............ un volume
-MAP DGILE actus e nice he ee ne 260 UN OLIEUE
 Elie Greuze (Histoire d'un jeune homme) un volume
 La Lanterne de Diogène (Notes sur le
 Les Petites Provinciales (Sites et portraits) un volume
 La Chanson du Prodigue................ un volume
-Ma CoupDe de Thulé, 52.280. Te vole
 Art et Croyance (Notes d'Esthétique).
 L'Agonie Française (Roman).
-| L
-
-RD t LPS TT ES Mere CNRS OP CET RE fr SN PES 2
-Que DENT AE EL A TR Dre ND à sde de VS DRE
-SR Ro AUS doi de SSP à RS UN es :
-ENT ue 7 CRAN 600 ee # 3 Le Eu SENTE 2 y
-W: +40 RL PEN 2 OPA SE nue À pt RAR es ne. LES
-TETE è = di RCE FEMME TIUNSS 3
-| LÉ 4 ° Ne ny
-po) ne RTE GARE ee Es Mer: AN SERRE ER ES Re TM
-1 PRES. des LA SA: d'A e LES ee “dE + Tarte ES s*
-DORE E ne
 
 : le portique
-| : G portique. — 1.
-
-{ AIR en hi RE FC ER FN. ME “2e ; L 4 PAT To . x
-EUR. Part? st AE: 1e RES SAC NN EN et. :
-118  L'ÉRar PMAt TT 7 TPE er EME HNSREe he RCE UE Fr PA LA
-248 À fe 2UDE . à, TE ER M De he EE ORNE
-AE. à Ein HS : CA 2 rh DES 7 1 À
-AT ne. LTD 1! Lies ; . « — RTE BAD
-| ATEN o 1 #3 FAQ ÿe
-Tr D :« PPS Cr ‘sage. Ne” Enr ON
-are Er FRERES OR ere Sp RE SAR % de LAN: RCE
 
 qui a'écrit la Vie Secrète,
 ce livre où j'ai mis un peu de la mienne,
 en toute amitié.
-
-Re vE LT EE ES Ses A SAS BU: tte E A TES CN né
-HS Pi PE me Ver {x Fe CE Ne D ea Le: < fer FA LE HR À
-PS Ets 4 < * ” OR ET Fin NES Pa
-#3 Ps: K À £ ; de 4. SO Ce
-
-l er. ER 09 EN ras DANS NEA D ‘
-à F2 ANS a AT Le Pt Le. Ent Ale KI MT n +
-7 x NE Pr, (LS de je Lier 72 ME CARRE 2e 0
-> La" Le) 4 ; J Re DRE 2.
-# | LDC
-‘re TER , . EX NP. Te ER NE Pt ET LE ne: 47720
-D gén ae MS | AA S VERS OR RTE
-
-| Le Portique
 
 ; L suflit d'un seul cœur brûlant d'un feu mystique,
 Î Abrité, dit Platon, derrière un petit mur,
@@ -224,39 +135,6 @@ Où survit invaincu tout l'orgueil d'une race.
 Ce livre est le jardin à la blanche terrasse
 Où je devise avec les Vivants et les Morts.
 
-| *
-
-, v'EF TN EE UE Re ne > SPAS EC Dep L ; rs
-res MEN Er A SP en De RAT TTC Se Een CARO à
-LR Nr PRET RS RÉTR Fo SM ROSE ee Eee ce 2
-Tr. 2° TC TR Pitt Me TA AE es 0) TER ES EMI EN: -
-LINE ARR MR le TOR ER INDE FRA RS
-ARE LES RON : à A Se Le LÉ OP SO TRES ee
-EVE 5 AFS His AU ET he TARA 4 - De
-ee LR N poul Fi ou RE
-AT fs (ha 7 TS ER SRNES 21 À ç + « ne
-je A RE
-1 ere se HE ta : \ + ie: UE ee T'ES Eh,
-ie: 2 RE DO PUR RES et er See a 4 PTS nirtie VDS TERRE er
-« YAR Luis DUC LE Fibre Du PRE re 10 + A PU EE
-LOS PT RE Dir MERE ae ETS Or site cu DU 2
-
-| if
-|
-
-|
-
-RAT EAU ET Ée "of. {94 ds Miele ES ENT PET re, Fe N'YA
-5 2 NS EURET A à ke rs Er Guise De |
-- L T7 GLEN ERRONRES Vers nee
-we , VA ‘ La re CEE L Sté
-OT. 2 k LR LE k tn: Len L'ACLAES
-LOTS ÿ L me‘ NUAGE
-DR : MR ns 2 Len É LM le RAD:
-un | + UE Far A
-
-Le Village
-|
 ILLAGE blanc, que baise l'aube printanière,
 \ Sur qui les soirs pieux jettent un clair manteau
 D''étoiles, doux village assis sur le coteau
@@ -264,7 +142,6 @@ Que parent la pivoine et la rose trémière;
 | Village féodal, couronné d'un château
 Aveugle, dévoré par la ronce et le lierre,
 Agonisant poudreux que blesse la lumière,
-|
 | Comme un hibou crucifié sur un poteau;
 } Village dont le mail abrita mon enfance,
 £ Entre tous les hameaux bénis du sol de France
@@ -272,7 +149,6 @@ Je l'aime : ton air pur, mes aïeux l'ont goûté.
 ÿ C'étaient de simples hobereaux, sans renommée,
 É Gens braves; sous les Rois, ils servaient aux armées,
 | Et plantèrent aussi l'arbre de Liberté.
-| :
 
 le portique
 A un Ancétre
@@ -308,8 +184,6 @@ _ Sans te faire souffrir, sans L'aflliger d'un doute.
 Et ton front s'inclina lumineux, dans le soir.
 
 le portique \ +
-DTA UNE, PAROI ENT INT eg ee Ar
-Le Logis
 Logis de granit brut, et d'ardoise, et de lierre,
 ' Dont le seuil par le pas des aïeux fut creusé,
 Logis que le soleil et la pluie ont baisé,
@@ -324,8 +198,6 @@ Qui se fût dissipée on ne sait où sans eux, |
 Logis dont la charpente est de chêne noueux,
 Propice tour à tour à nos deuils, à nos fêtes,
 Humble comme un vieillard, sacré comme un prophète!
-
-| LA TERRE ET LES MORTS
 
 Je n'ai pas négligé vos humbles dieux agrestes,
 * Horizons nus, sol gris par le chaume attristé,
@@ -351,7 +223,6 @@ Je te dois mes plus purs trésors : le goût du songe,
 f Le silence, et l'amour de ceux qui nefsont plus.
 
 le portique ;
-. La Pierre Levée
 Avant Rome et la Gaule historique, des races
 Douteuses et sans nom, qui connaissaient le feu,
 Domptaient l'auroch, taillaient le silex, et, par jeu,
@@ -366,7 +237,6 @@ Et que dressèrent leurs bras forts, c'étaient des tombes.
 Là, dormit notre ancêtre obscur, le chasseur blond,
 Et son ombre, vers les forêts, par ce trou rond,
 Sans doute, s'évadait parfois, quand le soir tombe,
-|
 
 Des bagues, des colliers d'étain, des poteries,
 Et la double framée, arme du chef Gaulois,
@@ -384,7 +254,6 @@ Püt les étreindre encore, après qu'on l'inhuma.
 4 Emporter avec lui ce qu'au monde il aima.
 
 le portique 2 Û
-L''Amphithéâtre
 Près de l'humble cité qu'entourent des jardins,
 Après des mois obscurs de fouilles souterraines,
 On a presque exhumé la gigantesque arène :
@@ -400,7 +269,6 @@ D'une amoureuse illustre ou d'un mime défunt ;
 Ft l'on pleura de voir disparaître Antigone F
 Sur la pente où ces lys exhalent leur parfum. |
 
-| AR DT PR pe PR D ne OP EL cie Re SJ EREEUNT 2
 Le petit port de pêche abrite des colères
 De la houle marine et du fleuve profond
 Les bateaux blancs et noirs des pilotes qui vont
@@ -416,7 +284,6 @@ Nous, poètes, dont l'œuvre est de guider la flotte
 Des âmes, à travers les écueils du passé,
 Vers le plein ciel du large où souflle un vent glacé! y
 
-« Ld pr ait Le 1 .
 : le portique |
 Les Grottes de Méchez
 : Le fleuve jaune coule au ras des grottes blanches
@@ -434,8 +301,6 @@ Prie en latin ou bien en français, à sa guise.
 L'ouvrier seul, dans notre monde finissant,
 Sait aujourd'hui, pour une idée, offrir son sang.
 
-| : LA TERRE ET LES MORTS
-|
 L'Abbaye de Landévennec
 L'abbaye est croulante au bord du golfe bleu.
 Mais une main pieuse, avec des feuilles vives,
@@ -450,10 +315,8 @@ Dans cette anse bretonne, où les flots qui sourient
 f La Mort même, la Mort perd son masque d'effroi;
 Ë Car le gai cimetière inclinant ses verdures,
 Ses emblèmes, ses buis, jusque dans la mer pure,
-f Joint le 1ys à la tombe, et la rose à la croix...
 
 : le portique
-Les Bernardines
 ï J'ai vu sortir du cloître gris les Nonnes blanches
 Quatre par quatre; elles chantaieut; l'antique chant
 Montait suave dans la pourpre du couchant;
@@ -468,7 +331,6 @@ Puis, en procession pâle, les Bernardines
 S'en allèrent, psalmodiant leur chant divin...
 Le chant se tut. Les monts pâlirent. La nuit vint...
 
-La Grande Chartreuse
 Vers quoi vins-tu ? Pourquoi délaissas-tu le monde”?
 Ces mots sont inscrits là, sur le couloir de ronde
 De la Chartreuse vide où rien ne retentit.
@@ -482,8 +344,6 @@ La grandeur de ces mots, sur quoi l'Ordre se fonde.
 È Je ne maudis pas ceux, Cloître, qui l'ont bâti,
 É Nous leur devons beaucoup: le fleuve aux eaux profondes
 j Est loin du glacier vierge et morne: il en sortit!
-
-|
 
 le portique +
 : Port-Royal, pur vallon, où l'enfant Jean Racine
@@ -532,7 +392,6 @@ Et nargue, fête heureuse ondulant sous les arbres,
 Le Passé, Faune triste en sa gaine de marbre,
 Des grelots de son rêve, où tinte l'infini!
 
-Le Régiment
 Le Régiment, avec ses clairons, ses fanfares,
 Ses appels brefs par trente bouches de métal,
 Communique à la foule un délire brutal
@@ -547,21 +406,6 @@ Ce n'est pas sans remords que nos cœurs sont transis,
 ; Et que nous regardons, race où l'on ne naît guère,
 è L'Astre de notre Forcé, éblouissant naguère,
 F Décliner lentement, dans la brume obseurci!
-|
-
-SAR UE : DES ERA ES RE SOS DE LR D} ms ASC Sri :
-* RTE FA LEA er à in 2h ne OP LS M ANR TOUR _ ra |
-RU ER RE" 2 42 ARTE ST ARNO VU sit eut |
-LR ARS Are: D ri eme et CRENL D LT ET PT OR Se Rss. |
-AR. ae 5 LEARN AR Mie RES CIRE FRET SEE La à
-LEE L' 7 - RNTE EN SSRSIEER EG sE. Pre ct ein LES KART
-| AU ù à , 4 V Elite 2 AE 1
-ARE". La Diet 0 UE ti oeS Par {
-Le MUR CENTRE 4 ELA 5 ME" él Er ME EN EN Fig CR 1 .
-
-TT ee ÉTAT de Re |
-Max ROBE L'EST ne ETS ET RÉ SP RER
-D'ARTS a PEN RAT tn rat UT SNS : 11:£ 6 È CES
 
 N° n'irons plus au Bois, les roses sont coupées
 Sur la pelouse rase à l'ombre du couvent
@@ -593,8 +437,6 @@ Butinant toutes fleurs, sans songer au miel roux.
 Le soir vient, le four meurt aux vitres taciturnes,
 Nous sommes sans couronne en la chambre nocturne...
 Dieu ait pitié de nous ! Dieu ait pitié de nous! |
-
-| ga
 
 Jeunes Filles, à vous toutes les Marguerites,
 O vous les Cendrillons, à vous les Béatrix,
@@ -672,9 +514,6 @@ L'ombre en robe fanée et la morne figure
 
 De mon Premier Amour, qui ne souriait plus...
 
-|
-|
-
 D'après la Vita Nuova
 Lorsque j'ai rencontré pour la première fois
 La Dame dont les yeux sont toute ma lumière,
@@ -690,7 +529,6 @@ Pour les rives d'exil, et, aux routes de France,
 4 J'ai connu l'amertume et le pain du banni...
 | O Florence, j'ai fui ton beau fleuve et tes portes,
 : Et mon corps est errant comme les ombres mortes.
-| 45 portique. — 3.
 
 le portique
 ; Jadis, j'appareillai sur la mer en délire
@@ -708,7 +546,6 @@ La Princesse captive et son île, des fables!
 Mais ce resplendissant mensonge, auquel jai cru,
 Jette encore en mon cœur des lueurs ineffables.
 
-| LA FEMME ET L'AMOUR L
 L'Amour et la Mort
 L'Amour est ceint de myrte, et la Mort de cyprès.
 L'Amour folâtre rit à l''Aurore indulgente,
@@ -758,8 +595,6 @@ Va lui dire, Passant, que je ne suis pas triste.
 | 49
 
 le portique :
-SE PR SR PE PA RM CE nie le in Nu Len p)
-|
 Encore un jour, un pauvre jour, et c'est fini! |
 Le temps, pour l'astre bref, de terminer sa course, |
 Nos lèvres, qui buvaient à la divine source, k
@@ -774,25 +609,20 @@ Ni vos yeux d'or dont l'aube éclaira mon chemin...
 Ah! faut-il que l'instinct le plus puissant nous leurre,
 Et qu'on quitte en pleurant la Volupté qui pleure, 3
 Sans lui baiser la bouche et lui prendre la main?
-|
 
-| Séparation : PER
 re Je me rappellerai toujours, femme au cœur tendre, D jé =
 4 * Ce banc dans le chemin solitaire, à Neuilly. (S'ÉSnSe TEE
 È Le bois désert était par l'automne endeuilli, + 72 0e
 On voyait par instant une feuille descendre RE. 0
 4 D'un arbre vers le sol, et nous pouvions entendre EC a: RS
 ._  L'aboi des chiens hurlant au loin dans les taillis. 'ÉL US "EA
-Nr O comme, en ce soir là, mon cœur a défailli x'é FU =
 _  D'incertitude, et comme il fut près de se rendre! 151 Ge AC
 __ Mais la vie entre nous creusait ses noirs abimes, à DE:
 __ Plus profonds que la mer, et des ombres sublimes Ex ie ee
 #3 Nous appelaient dans l'air nocturne, avec des cris. 1 SEE .
 2 ee Je ne sais plus les mots qu'alors vous entendites. Cu NAT
 É: 5 Je sais que, nous étant levés, vous vous perdites, A. je à
-> 2 | 11 SAME CRRRES
 _ Chère Épaye, en l'océan triste de Paris! DR:
-| l'eseé MCE AE, à.
 
 le portique
 
@@ -811,7 +641,6 @@ La mort n'est pas toujours la suprême détresse;
 J'adore une Vivante, et n'ai plus sa caresse...
 L'Erèbe n'est pas mieux défendu que son seuil! :
 
-La Chute
 Vous avez traversé le ciel clair de ma vie
 Comme une étoile d'or les soirs calmes d'été,
 En laissant dans l'air tiède un sanglot de clarté,
@@ -827,7 +656,6 @@ Vous tombâtes dans un lieu perdu, faible Archange... s
 Là, depuis lors, s'élève un monolithe étrange,
 Un fragment d'astre mort, la carcasse d'un dieu!
 
-OPINION LT Ra ES Ta 7 le port qu e. x + LU
 J'ai dit mon grand amour, comme on chante un cantique,
 7 re _ Sur le désert des eaux, sous le désert des cieux, PS |
 Voyageur prisonnier d'un songe, insoucieux Fe
@@ -849,7 +677,6 @@ Parmi les malheureux c'est peu d'être un vainqueur;
 Avoir eu ton sourire est une autre victoire!
 Cerzx-là peuvent descendre seuls dans la nuit noire,
 Sans cortèges sacrés, sans palmes et sans chœurs,
-4 Que la Femme a trahis, en un soir de rancœur, à
 Le Ceux-là peuvent périr tout entiers, sans mémoire. : :
 
 . Tu m'as aimé, je vis, plein d'espoir et d'orgueil,
@@ -861,9 +688,7 @@ Puisque l'Amour fécond m'a béni sur le seuil...
 ; Et même dans la Mort je rirai d'allégresse!
 
 le portique
-UE D A EE A AU 2 2e ED D RS ne craie,
 
-Le Sacrifice |
 Tu es, à mon Amour, pareil aux dieux sauvages
 À qui plaisaient l'odeur du sang et du carnage, |
 La colombe égorgée et le meurtre sans fin, :
@@ -879,7 +704,6 @@ Mais parfois, dans la Nuit expiatrice, en rêve,
 Je suis environné d'ombres qui se soulèvent...
 O mon Amour, tu as exigé bien des morts!
 
-Le Cheveu Blanc
 Le léger cheveu blanc que sur ta chère tête
 Tu surpris ce matin, penchée à ton miroir,
 Va, ne l'arrache point ! Je taime assez pour voir
@@ -894,10 +718,6 @@ A leur guise ! Ils n'auront rien connu de l'amour!
 | Qui voit une âme vivre, il la trouve infinie.
 Je n'aurais pas goûté sans loi, ma sœur bénie,
 La douceur de vieillir sans crainte, au fil des jours.
-
-ent, o gets ù < ni Ts
-
-| + FPE RES Le Lis des Dunes 2
 
 _ Les peintres primitifs encadraient les visages LAS
 
@@ -917,7 +737,6 @@ _ Elta vie est pareille aux purs sables dormants PARU :
  Oùse déplie, emblème exact des cœurs aimants FES F
 1e UE Qui ne fleurissent qu'une fois, le lis des dunes, ne. LEE
 
-La May Flower
 Tes aïeux ont quitté l'énergique Angleterre,
 Puritains dédaigneux du siècle, pour fonder
 Sur un continent vierge et libre, un peuple austère;
@@ -926,30 +745,12 @@ Je les vois, au lointain des vagues, regarder
 De leurs yeux gris faits pour l'étude et le mystère
 L'azur vide, anxieux qu'y surgisse la terre
 Où leur songe édénique enfin doit aborder.
-|
 ; Ces conquérants naïfs, ces fuyards chimériques,
 Leur œuvre, hélas! nous la voyons : C'est l'Amérique,
-Enfer de l'or et de la force, à Fleur de Mai!
 Parfois pourtant, dans cette race, aux yeux des femmes,
 Quelque chose subsiste encore de leurs âmes.
 ; Je crois qu'en toi d'abord c'est elles que j'aimai.
 
-at, art RAN L 4 FAT RAM TRE TE Te TE ts
-EM TD)E Le u Li: MEET AE de FA EUR ÉHDa Pres ‘à
-Co Pur x, ex PAU VESTE NE ETES se AS “ nie Fa VEN PRES “EsrR sY, à
-| ESS FANS CARAREN IE UNS DDR UE FFSA
-‘43 = te ; : RSR PURE dei dr PET meet PAR
-Bee 2 3 : Ne LISTES ae *
-_ = AE PE : , Re be hé ns Még4 TES TERRES 4
-| pdd TUE be Ti At à PORN PES
-
-rt ORNE Her PAR PERD PEU L'AFORFAIMRR ES
-TE œ PTE. HQE che MALE LS De au La ER SE PAT TA #4
-y 15200 Rés RES ct Et D PEINE RE le Cr 15 2 le us TR a
-‘+ ce RTS APE O NE St ur LS US Éf Ut “à
-CEA SR NE East | $ Ron 6 : x TR re TRES
-ol ni re
-FC Fra ” An ST 7) PRES 1 SL Di ad et À « Athènes !
 s 7e heureuse, soupir des artistes, Athènes,
 Où, sous un casque d'or, fulgurait la Raison,
 Où les dieux, qui protégeaient l'homme en sa maison,
@@ -969,7 +770,6 @@ le portique
 ; Enfant qui veux servir l'Art sublime, sois chaste!
 Que ton lit soit de sangle, et ta porte d'airain,
 Garde sobre ta vie et ton rêve serein,
-|
 Redoute la tendresse et méprise le faste. |
 La coupe du plaisir est pour l'âäme néfaste,
 Et c'est l'âme, plus tard, qui dans l'œuvre s'empreint;
@@ -982,7 +782,6 @@ Qu'importe ? Ris tout haut, si ta chair est blessée!
 Car la brève beauté des Vivantes, les dieux £
 La rendront immortelle, Enfant, dans tes pensées.
 
-| L'ART ET LA BEAUTÉ
 .
 Nos drames sont pareils aux fantômes d''Homère
 A qui manquent la force et la chaleur du sang, :
@@ -998,8 +797,6 @@ Dont le Galiléen vint briser les idoles,
 La douant, pour un soir, du geste et de la voix 2...
 Je vous offre, endormie en ces pages de livre,
 Madame, l'ombre en deuil qui sans vous ne peut vivre.
-| 65 portique, — 4.
-|
 
 le portique L
 ‘ Ton âme est sans vigueur, terne, désabusée,
@@ -1017,7 +814,6 @@ Et quand tu rentreras, sous la pluie et le vent,
 Dans la ville de boue où rampent les vivants,
 Ton cœur sera tout parfumé de leur silence.
 
-| L'ART ET LA BEAUTÉ
 L'Une est tombée au seuil de la route funèbre
 A genoux, mais le buste en révolte, et dressant
 Sous les sombres cheveux dans la nuit frémissants
@@ -1032,10 +828,8 @@ E Lève un bras de lumière et l'entraîne du geste !
 Et dans mon cœur aussi, plus d'un soir, je vous vois,
 Toi qui souris et Loi qui pleures et l'ignores,
 } Faces de deuil et de clarté, Douleur et Foi!
-|
 
 le portique
-|
 ” Jour après jour, pendant l'hiver, pendant l'été,
 Laissant fuir les saisons en ronde monotone,
 D'un geste d'amoureux qui délire et tâätonne
@@ -1051,14 +845,12 @@ I n'a plus qu'à graver un nom, mais, auprès d'elle,
 Lui, morne, et le cœur lourd d'un obstiné sanglot,
 Pleure sur l'œuvre faite et sur son rêve éclos..
 
-| L'ART ET LA BEAUTÉ
 La Musique « La Musique et la Mer sont deux infinis tristes
 Où retentit l'obscure voix des éléments;
 Le sanglot minéral qui vibre aux instruments
 S'appareille au frisson des ondes d'améthyste;
 Sur le chaos premier des Forces égoïstes
 Se lamente le désespoir d'un dieu dément;
-La Musique et la Mer exaltent le tourment
 Des cœurs trop grands pour l'Univers, des cœurs d'artistes.
 Musique, des joyaux scintillent sous tes vagues!
 | Ma Fantaisie, enfant aux doigts chargés de bagues,
@@ -1082,7 +874,6 @@ Regarde s'agrandir ton ombre, aux sables vagues,
 Et marche au bord des mers, en épiant aux vagues
 Les lumières des jours mouvants, — et prie, et pleure.
 
-| L / L'ART ET LA BEAUTÉ
 L'heure des Lampes
 C'est l'heure étrange et bleue où les lampes s'allument.
 Aux fenêtres, où agonise le jour gris,
@@ -1116,7 +907,6 @@ Je veux que votre ronde insolente flamboie,
 Et redise, à tous ceux dont le temps fait sa proie,
 La Vie, et son étrange et forte volupté!
 
-! Le Chardon Bleu
 Ma vie est un désert étincelant et plat
 4 Que charme le sanglot de la houle marine
 | Où, chaque soir, ouvrant ses veines purpurines,
@@ -1162,38 +952,6 @@ Alors, sans la baiser au front, car elle est morte,
 
 Rentre seul, à pas lents, et verrouille ta porte...
 
-Set Ave FAMUE HS ACTE vas LT AS PRET RS RAD UN.
-#2 DR à " ur 3 4 107110 LYS CRE
-4 ch | ÊÉCAE tt « L De Herr: +108 LAS
-ie = » ET: Dre ri den ei PES
-ET : +. ARE Fabre "Her Lx
-Re | x 7 MR ris LE LUE SRSENSSS JE LL
-FR UC. D" parer js NEA CPR TA « PTS ° 1 LINEAR
-
-À DONS EC RSGT GE RAR ENG s'Re te Er De Me act ae Sn |
-TS RE 2 PARA LH RE Ce Née MENT NN PAU OT RATER - 5 ere MERE
-SR ST RRNE PRE et Es pa PE PTE ANR OP MN RRESE a SR RE
-NT ER ARRETE ON RCE DEEE us à RL ge ef PRES
-ee Se ELLE be EU RE ENS SRE TE EE CR
-> ne RP = : L DianE PES "1
-, Le 3 Ses D EM r ie PNR ge ere A LE EE Re
-M NT LE Gris EE de ; FRS *
-
-PT RE ne PE des SITE PL EN SR NT RS AT 0 OT Dee ct v ENS. "2e ENFANTS
-RE PE LE TS Poe Pr en LMD AS PART SRE TNT ESSOR
-eo, L : - db CSSS
-AH < 5e Ra 2 Que ne ÿ ANNE: DS 208 MON ce
-CE PP Dan ONE" SE 4 ss à de.
-
-ÊTES. LEP ROSES ie - 12" PAP NS LA CRE A tn as RAT PE PORT RARES
-UC M RU Etes 20e NPD ce Lee e E HET MR r 2 M OUR NN TRS ÿ AN
-| 3:25) LUEUR 2 FALS * à FAURE $2 45 AU PSENENRESS
-
-> MED TEANC res FLE 3 > © AVPORRERRSS
-| .: |: ENRNESSS al ; D
-Te ' À oh JS rt “& LL NE
-“CT ENERONS ce FN DE ÉD ds ns ALT A
-
 'EMPEREUR est assis sous sa tente, et médite.
 15 La charge de l'empire est lourde, et dans sa main
 Vacille, chancelant fardeau, l'orbe romain
@@ -1209,9 +967,6 @@ Et, prenant dans le coin de sa tente un rouleau À
 Frustement relié d'écorce de bouleau,
 Marc Aurèle poursuit la page commencée.
 
-ne
-
-M CU Se ni Ce PS RS
 _ Tu fus chasseur, tu fis l'amour, tu fis la guerre. CAES
 _ Tu fus maître des champs, des villes et des bois; ñ 1e
 _  Tusus forcer le cerf et la femme aux abois; {348
@@ -1288,7 +1043,6 @@ _ Le corps toujours d'aplomb, l'esprit toujours en fête... ere
 EE Bel orgueil, qu'il justifiait par son repas. œ €
 Ÿ Ensuite, il menuisait, charpentait avec rage, EM
 LA Ou s'allait promener dans l'île, sous l'orage, 4 |
-g+ re Et, si Gothon passait, ne la dédaignait pas. LE |
 
 Pauvre géant, frappé des dieux par félonie,
 Qui peinas enchaîné trente ans dans un caveau,
@@ -1298,7 +1052,6 @@ Tu vécus seulement des fètes du génie,
 Indifférent à l'aube ainsi qu'au renouveau,
 Et tu disais : « Je sens que je deviens cerveau! »
 A l'heure où commença ta superbe agonie.., è
-|
 Comme en sa pyramide un Pharaon d'Égypte,
 ; Tu dors le grand sommeil dans une auguste crypte
 Qui des siècles futurs peut dédaigner l'affront, à
@@ -1322,7 +1075,6 @@ Sage ironique, orgueil du Collège de France,
 Tu conduisis ton siècle à la désespérance
 En souriant, au son voilé des cloches d'Ys...
 
-| LES HÉROS
 Près des mers où le pin, le troëne et l'érable
 Jettent leur ombre, à Jeune Sage Occidental
 En qui, lente, rôdait la Mort inexorable,
@@ -1331,7 +1083,6 @@ En regardant les flots déferler sur le sable
 Tu songeais au ressac du gouffre sidéral, <
 . Et cherchais à saisir le rythme insaisissable
 .
-À Qui se joue et se meut de l'Homme au minéral.
 1 Tel tu vécus, bercé par ta sublime fièvre;
 Un peu de miel attique avait doré ta lèvre,
 Ton doute fut le jumeau triste de la foi.
@@ -1340,7 +1091,6 @@ Tintaient, dans ton asile clair parmi les roches,
 Tu fermas tes yeux purs, sans plainte et sans effroi.
 
 le portique F ù |
-L.-N. Rossel
 ; Héros pensif, debout avec ta claire épée,
 Tes yeux fixes, ton menton net, ton front puissant,
 Solitaire dans la foule obscure, trempée
@@ -1386,22 +1136,6 @@ Mais, ainsi que l'espoir antique le rêva,
 Inlassable, peut-être ébauches-tu, Carrière,
 Au fond de l'ombre encore un geste de lumière?
 
-7 ne: ; IP ui D ES 2 0 cette BR SR UE LEE LE é
-FRERE RIRE PETER M Ou 0 ME ni
-| LE eh 7 NE deetif MER Te PURES DRAP ET EN Pr Te 7 SE CHOPERRES SI PE
-CT Le, RE ER Re ne D EN AE AIT CARE a ea
-Er 1 pee ve Wr AA de 302 COR MP AT PS EX RIRE 425 A8
-3. DS f he - 1e + ot RER TE NE
-fe re Dr Pet "et Le SO ee “1 PS . *
-
-. AS, r 227 #1 Rs dt; ES doser x À ET A TE * à Fer 8 FES
-en ee à Rétos CRT MR" LE FAR ASSrE ME CREUSE. ©
-CCR es TA ou 2," 1x) 6 À COR Tr ES SES
-
-(Lime PR DORE Le FERRL mt à ORNE Ê re
-Re \ ? CDR: VÉURE vs RARE et
-os. F3 CRE ” r TT À di de" fe MALTE A GE se
-
 E Soir tombe sur ton jardin clair, à Jeunesse!
 É; J'embrasse d'un regard mon étroit Univers,
 Et l'Automne me tend sa robe de faunesse
@@ -1419,7 +1153,6 @@ Je ne peux pas croire à la mort, par ce beau soir...
 | 95
 
 le portique |
-|
 Je suis couché, les muscles las, maussade et frêle,
 Sous mes draps pâles, sans vigueur et sans désir.
 Ma tête est comme une nef d'ombre, où ce soupir
@@ -1435,7 +1168,6 @@ Dehors, c'est le printemps, sans doute, où chaque front
 Rayonne.. Ah! cueille vite, à peuple qui les cueilles,
 Toutes les roses de l'Éden : l'automne est prompt!
 
-Le Médecin
 Bon Médecin, qui vas palpant les chairs gâtées,
 Les cœurs usés, les fronts pâles, les corps aigris,
 Toi qui te meus parmi les râles et les cris
@@ -1451,10 +1183,6 @@ Le miel et les parfums suaves, l'art sacré,
 Je ne sais trop quelle est la folie, à mon gré,
 De ton flegme, à Savant, ou de mes pleurs d'artiste...
 
-su ei OPEN ET Sr ED DOTE) PET ET ï Ne h
-MP RTE Are ou se ME SOIN TUE RE
-Der 0,2 à À Pres x de En Û
-: Tr La Douleur ee se É
 _ La Douleur, c'est comme une bête haletante F2
 ; ua Dont un rude aïguillon pique les naseaux fous, De E
 TRES Et qui trébuche et qui se blesse dans les trous RT
@@ -1470,8 +1198,6 @@ ie Et la douleur, c'est un Prophète élu de Dieu, r M)
 RACE Qui fut aimé par les deux Sœurs de Béthanie, cit
 _ Et dont un doute décolore l'agonie. PE FE
 
-D = do ji Tu CON ATSE SELS : he Le AC RRU
-
 SR Re Tristesses, sous l'azur, du marin solitaire, SES ER
 F4 Sourire de l'infirme au printemps clair et vain, (SES Per
 ue Chanson, dans les vieux cœurs, de leur passé divin, 5 ete
@@ -1480,14 +1206,10 @@ UE Franches gaîtés, sur les gazons, du prolétaire, TES ne
 Où la douleur entre toujours comme un levain, +4 ts s
 __ Bonheurs saignants et lumineux comme le vin Ù Mr LE
 20 “4h De vendanges qui sort du pressoir salutaire! Eur mA ne:
-_1% Je vous connais, et me résigne, peu à peu, MU Ce d F ii É
 F A subir, sans en être dupe, l'amer jeu LE LUTTER
 DU: Du Destin, Janus au front double sous ses voiles, ki LE #
-ve y L ea FAN He
 ! a Par qui la pàle Automne est du Printemps suivie, ‘+ Lie.
 A) Par qui l'ombre des nuits fait l'éclat des étoiles, ns ET
-4 Et lombre de la Mort la splendeur de la Vie! ÉRR * ss “.
-En Le en PARA EME SE
 
 le portique
 ; Deviendrai-je cette ombre horrible de moi-même |
@@ -1520,7 +1242,6 @@ Tu connus le sanglot de l'être qui se donne,
 Et l'amour, dans ta chair, a fait céder la mort. £
 
 le portique
-Le Pithécanthrope
 
 Lorsque le globe vierge encore était sans maître, |
 Dans l'Inde, au pied des monts Siwalick, par hasard,
@@ -1562,8 +1283,6 @@ Ta sœur, la libertine et blonde pécheresse,
 
 Épuise sans péril le trésor des caresses.
 
-: Tous A Metchnikof ©!
-LOS Phag'ocytose La
 LL Dans la Nature, où les vieux Poètes, naguère, +
 LA F0 _ Chantaient la Cérès blonde au lait rajeunissant, =
 Le Savant voit la nécropole où l'innocent ' L S
@@ -1577,7 +1296,6 @@ FO Vous avez poursuivi ces luttes minuscules, ai
 ait Metchnikoff, où frémit l'antique jeu du sort; SRE £
 Re Et vous dites à l'Homme : « Éduque ces cohortes! 2
 : | « Si tu sais vaincre l'une, et fais l'autre assez forte, f 4 4
-re « Tu seras maître de la Vie et de la Mort, » sé
 
 Lorsque l'Homme aura fait, selon sa fantaisie,
 De la vie une fête et du travail un jeu,
@@ -1596,13 +1314,11 @@ Douleurs, chiennes de l'ombre aux lèvres violettes!
 | 105
 
 ' le portique
-Le Surhomme
 Si tu dois naître un jour, si tu n'es pas chimère, À
 Surhomme vers qui tend notre espèce, enfanté
 Par les pleurs et le sang de l'humble humanité
 Qui ne sait pas encor de quel songe elle est mère,
 Pourras-tu, sans frémir, toiser la route amère
-Qui va de ta splendeur à notre infirmité,
 Captif entre la double et morne éternité
 D'aïeux vils et de fils déchus, Maître éphémère ?
 Si, jeune, beau, riant, insulte à la Nature,
@@ -1611,46 +1327,6 @@ Tu n'es qu'un monstre auquel se refuse mon vœu;
 Mais si la pitié tendre habite encor ton âme,
 O Fils le plus divin de l'homme et de la femme,
 Tu ne seras jamais que l'ébauche d'un dieu...
-
-DRMEEU NE MR .: RS 7 Miel mette EE TES FAT ECO DES
-RS: LT ARUIREES A, Cobra EE NE ere FEES SEA 2 Des i
-DEC verra ù : er Alt LE SPAS LIENS. : ES. 21.01
-PE: Rorvess NE PS MARIA SE Vs re Es mere LPS FENTE
-| 5 + MURS Aa DES GLS TA CT ses FCSPRGIEER “te OA 3
-es Lie a 1 - Le CT ACER TRE À LATE
-os AP NE NS AI CRE PS RENNES 2 RTE
-Lt E FE fe MR ET ue
-j ; 5 rot NE F F3 TE rt à c ed NF,
-lors: - ; s : Ê Dr QE Pad 4 CE Fe
-DE COR PAL RD: WE ", LAN NOR 7 Rire be Dr ALES REA 20 \ #4 PER M.
-CR Rd DR Ce ET RER Pre PE AE PE = à RO
-| AR TERRES RE [A RC A CNE ER (ÉEARE
-
-| | il |
-
-NUE rs PERS ee tree de CM) RES
-# FE ARCS ; à x | 58 Hal
-Mae s je.
-#4 î Ÿ
-
-ne ë RE AE, FAC 25 Es rie RITO LT VAPSTR 2248 Te di. à
-| à ELA
-ps É LE: RER
-ou, D-172 +) Per re: 32 DRE E PRE : TRSS Le Re sel CA
-: DATA Un Fr LEE) LATE ns Faux Fr EP T re D RC #21
-DCR Pie RTE 7, Des SRE 7 NET LT rs 1: P
-LE GE ce Re 7: Pere Ne ER EPS Le Sc S 4
-FR LT ETES Te ns x. ÉMIS (ER LE FR AE NS, Cas pi Te CE CAE
-
-pa ES VTT US RM SRE de FEU 0 OR LNPUS CROSS ET EE UE
-TQ-T'8 AL Re en em I TE Lee Et 2 CO TR ECS ONE PRIT CRIER SI
-es + RD ete LL de met HSE hù à DEEE FANS. SN Tres
-SNS . + RE RE OR SE de + SR LR rs: je î
-# \ xt n Le ne -
-
-| Océanides
-
-#
 
 1% gravi l'âpre Olympe où le soleil flamboie
 
@@ -1689,12 +1365,7 @@ Et, dans l'immensité glaciale et pâlie,
 Voici qu'ayant vaineu l'univers frémissant
 La Nuit farouche prend son essor, et délie
 Sa chevelure sombre où reluit le croissant...
-|
-|
-|
 
-| TRE ET MR AUS AU TU 2 De Ann
-Le Crucifix me à
 4 Le Crucifix de bois érige son symbole PT jun
 À Sur la colline heureuse où le pampre fleurit; ,
 + Près du front mutilé que l'épine meurtrit, à 4
@@ -1704,10 +1375,8 @@ Dieu farouche tordu sous le ciel attendri, de “
 Le Jeune Homme charmant, habité par l'esprit, RS Fr
 « Dont une pécheresse adora la Parole. de
 È Ce gibet, dans ce printemps clair, semble vétuste! #74 AE
-# ST SU
 Le supplice barbare où succombe ce Juste 4
 N'excite plus la crainte, à peine le courroux; ù ve #4
-de Ces
 La Nature, qu'il veut opprimer, l'ensoleille ; SA
 È Au creux de son épaule, une danse d'abeilles ve 2%
 Voltige dans l'air tiède, en quête du miel roux... ne
@@ -1729,9 +1398,6 @@ L'épi jaillit du sol, il est mûr, le voilà.
 Le poing d'un Mort tendant du blé vers la lumière, |
 Qui sait si le secret du Monde n'est point là ?
 
-L'Étoile
-
-|
 Ce soir naquit un dieu, parmi les fils de Sem.
 Et mon âme t'appelle, à toi qui l'eus guidée
 Vers l'étable où dormit l'enfant de Myriem..
@@ -1756,7 +1422,6 @@ d Pareil à ceux qui, en Juin, zèbrent l'éther.
 1 Tu gis peut-être, caillou noir, dans un désert...
 
 le portique D
-L'Aviateur
 : J'ai vu l'Aviateur sur les Champs-Elysées. |
 Dans le ciel vif de Mars, où flambaient à l'ouest |
 Sous l'Arc Impérial des lueurs embrasées, :
@@ -1772,9 +1437,6 @@ Tous les fronts rayonnaient d'un insolite émoi.
 « L'homme a conquis le ciel, me disais-je à part moi, ;
 « Quel gouffre encor lui reste à connaître? Son âme ! »
 
-|
-
-; Le Miroir
 Pensée, es-tu la loi du monde, qui balance
 Les pôlés sur leur axe, et, dans l'éther du ciel, ”
 Les astres ? As-tu créé l'Ordre universel,
@@ -1814,22 +1476,15 @@ SE Ai-je donc tant de fois vécu, Métempsychoses ? * ge
 Verrai-je refleurir des iilas et des roses SP
 Plus beaux, en des jardins fraîchement reverdis ? Le Fe 4
 
-V4 Ou bien, de monde en monde, enfers ou paradis, Re ÿ he É
-
 +8 M'en irai-je, phalène aux ailes jamais closes ? | à
-1170 Ji se peut! Par instants, ma mémoire profonde BARS S A
 , Évoque des aspects évanouis du monde : 14? FE
 Mon œil d'enfant n'est pas le seul qui la peupla, AR te, se
 . Et, quand mon front est lourd d'extase inassouvie, RE. dre
 4 Je sens bien que la voûte étroite de la vie PER
 Offusque le splendide Archange qui dort là... LÉ LEUR
-> |
 
 le portique |
-|
-Le Double Masque .
 J'ai vu naître et j'ai vu mourir : c'est aussi beau !
-|
 C'est la même blessure affreuse et qui délivre.
 Le même chant sacré, la même terreur ivre
 S'exhalent de la crèche et montent du tombeau.
@@ -1843,24 +1498,6 @@ Vient d'ailleurs, rentre ailleurs, gouffre où s'en vont nos pas.
 La Naissance et la Mort sont un masque identique.
 Nous sommes les héros obscurs d'un drame antique;
 Nos visages réels, nous ne les voyons pas...
-
-mn LE
-ERA AC TR ET PRE RER Put 1 nes + ECM
-PRE PR re - a, RTL À WE Cr Le y PAS nl AE EN SA. en Dh eV AL EL VOPTATR
-NN LA. + da à. é Lan 4 2 FRA sl LT
-| 30 i 6 ; 0e ARE
-M ie L'RUUORSEEEE
-NUE age | RAR SE bar EN ET PQ E EC CAPES
-PATES Ke deux AA il #5. DO Re. « 3 $ BC
-
-LA Y ut SNA TUS 2 MAT ne *. RE Ve ee ve 2 EP: x He
-de Us DA NP RSI" NT REA EE 2 ER sn Er LP RAR
-RD Fe ne 4 ER SERRES PRE ET Reg Ge
-Lx RER v ; ‘ : SE ee ES et
-ei PES E sr L2e: TIRER
-5e. à it 1 et SR
-Le Ù k ESA IR ee
-PPS Vos | A Re NE MEL AS DES
 
 4 Il a été tiré de ce cahier douze exemplaires sur
 : whatman ainsi distribués :
@@ -1879,17 +1516,11 @@ $ en caractères fin dix-huitième siècle (Didot) de la fon-
 ! derie Mayeur (Allainguillaume, J. Saling et compagnie
 à successeurs), 21,rue du Montparnasse, à Paris, sixième
 
-AA Kate Pa é. RL RETEE MS PCM NE R RCE ee QUES ©
-“ex de A CRITE HÉMARIF ET Us MMA ML :
-CE j CP Aire e nt PU ELU, S Ve) 4 Pre — 2
-
-= CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 Fa rez-de-chaussée, Paris, cinquième arrondissement.
 À Nos Cahiers sont édités par des souscriptions men- 4
 Le suelles régulières et par des souscriptions extraordi- ;
 LE : naires; la souscription ne confère aucune autorité sur no
 1 la rédaction ni sur l'administration; ces fonctions ns
-| demeurent libres. : %
 Nos Cahiers paraissent par séries; une série paraît pe
 “a dans le temps d'une année scolaire, d'une année QE
 3 ouvrière, du premier septembre de chaque année au A
@@ -1916,10 +1547,6 @@ ra naturellement aux premières inscriptions; c'est ce nu- a
 _ mméro d'inscription qui devient automatiquement le 42
 Ë numéro du tirage réservé à chacun des souscripteurs ; f
 a l'édition sur whatman est strictement limitée au :
-
-+ LOS RE PNR LES App Si V Et ee + ” PETMSRREEENS
-pérs M re s b î ‘ ce En,”
-rt: L TRES AFTER
 
 ee ; Pour tout changement d'adresse envoyer soixante i
 -__ centimes, six timbres de dix centimes. à

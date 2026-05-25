@@ -8,15 +8,10 @@ isAvertissement: false
 wordCount: 6024
 ocrSource: "Existing s12-c10-ocr.txt vision OCR (charlespeguy.com), pp.149-174, 2026-05-25"
 ---
-
-[p. 149]
-CAHIERS DE LA QUINZAINE
-
 *Œuvres choisies de Charles Péguy* 1900-1910. — Sous ce titre vient de paraître chez Bernard Grasset, éditeur, en vente à la *librairie des cahiers,* un très fort volume de viii+416 pages très denses, in-16 jésus, marqué trois francs cinquante.
 
 J'étais bien incapable d'établir ce livre moi-même. L'ami et le confident de vingt ans, *amicus et frater et consilium et auctor et salutis custos ac rerum temporalium,* Pesloüan seul était capable d'établir ce livre. Il y pensait depuis plusieurs années. Je ne me rendais que peu à peu. A quel point il a aujourd'hui réussi, c'est-à-dire quel volume il a obtenu, c'est-à-dire quelle *construction* il a obtenue, c'est-à-dire à quel point il a été *heureux,* (et c'est tout dans les entreprises), à quel point il a réussi, sans rien sacrifier de l'*ordre* organique, de l'organisation interne, de l'organisation première, à trouver, à créer, en même temps, à instituer ensemble un ordre de composition, je dirai presque une ordonnance, à quel point il a pu faire un livre *ordonné,* presque plus que *composé,* j'en ai été
 
-[p. 150]
 saisi moi-même et quiconque ouvrira le livre en sera saisi.
 
 Et quiconque l'aura lu en demeurera saisi.
@@ -25,23 +20,17 @@ Il a su, il a admirablement évité le grand danger de ces sortes d'entreprises,
 
 Aussi le simple énoncé de ces cinq actes, de ces cinq parties permettra-t-il de voir d'un regard ce qu'est le livre. Première partie, *portraits d'hommes*. Deuxième partie, *philosophie et méthode.* Troisième partie, *la chronique et l'histoire.* Quatrième partie, *les tragiques.* Cinquième partie, *la mort, la misère, le mystère de la charité de Jeanne d'Arc.* Telle est cette ordonnance classique même et ordonnamcement. C'est dans le tragique, dans le comique, et comme dans le classique et comme dans le français et comme dans le tragique et comme dans le comique, on voit tout de suite où l'on est, où l'on va, de quoi on parle.
 
-[p. 151]
-ŒUVRES CHOISIES DE CHARLES PÉGUY
-
 On voit ce que ça veut dire et notamment, (si j'ai le droit de le dire), qu'il s'agit bien ici d'un livre et que ce n'est pas seulement un volume.
 
 Nous avons été impitoyables, et l'on m'a rendu généralement cette justice que j'ai été plus impitoyable que les autres. Nous avons coupé tout ce qui ne tenait pas. Nulles tendresses particulières, les plus légitimes, les plus authentiques, n'ont été respectées. N'ont été sauvées, je puis me vanter qu'il n'y a pas dans tout le volume un seul plan incliné ; ni une seule dégradation. Je me vante qu'il n'y a pas dans tout le volume un *morceau* qui ne commence et qui ne finisse en falaise.
 
 Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie* : en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essen-
 
-[p. 152]
 tiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, (à isoler), (à trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
 
 C'est dans le même esprit que je me suis permis d'écrire, pour ces membres anciens, des titres nouveaux. C'est que mes titres nouveaux sont eux-mêmes en réalité les titres anciens mêmes, les titres anciens propres, retrouvés, les titres que ces membres eussent portés si dans les anciens cahiers nous avions fait des sommaires où ces membres eussent été représentés. Ce sont les titres mêmes que ces chapitres, que ces membres porteront ou eux-mêmes ou dans des sommaires si je suis conduit quelque jour à écrire des sommaires pour des réimpressions plus complètes.
 
 Pesloüan a merveilleusement discerné dans des textes, sous des textes qui couraient, où étaient, où couraient réellement les membres, quels étaient, qui étaient les membres réels, anatomiques, physiolo-
-
-[p. 153]
 
 giques. Et ainsi nous avons peut-être découpé. (Peut-
 être désossé). Nous n'avons jamais disloqué.
@@ -50,42 +39,18 @@ Cela étant, voici, sous le titre, par parties et par
 chapitres, par les cinq parties et par les quarante-trois
 chapitres, le livre que nous avons obtenu :
 
-
-TABLE DES MATIÈRES
-
 Œuvres choisies de Charles Péguy.
 *Il a été tiré de ce volume.*
 1900-1910.
 portrait, par Pierre Laurens.
 
-I. — portraits d'hommes ;
-
-  1. — Zola 1902 ;
-
-  2. — Jaurès 1903 ;
-
-  3. — Jaurès 1905 ;
-
-  4. — Clemenceau 1904 ;
-
-  5. — Renan 1906 ;
-
-  6. — Renan et l'Église 1906 ;
-
   7. — Deux fragments du projet d'un grand portrait
-       de Bernard-Lazare......................  A.
-                                                 B.
-
-[p. 154]
 
   8. — Un trait de M. Alfred Dreyfus ; quelques traits
        de notre maître M. Gabriel Monod ;
 
-  9. — Péguy 1910 ;
-
 II. — philosophie et méthode ;
 
-  10. — Sur la guerre. — Qu'il y a une première et
         une deuxième loyauté de la guerre ;
 
   11. — Sur l'art. — De l'initiation à la connaissance
@@ -100,27 +65,19 @@ II. — philosophie et méthode ;
         sation morte ; et sur ce point le témoignage
         personnel de Duclaux ;
 
-  13. — De l'autorité de commandement et qu'il y a
         un langage politique parlementaire propre d'où
         viennent, pour ainsi dire, tous nos malentendus ;
-
-  14. — De la séparation de la métaphysique et de
-        l'État ;
 
   15. — Que nous aurons un jour, comme les Madé-
         casses, une métaphysique d'État ;
 
   16. — Et subsidiairement que cette métaphysique
         d'État sera fondée sans aucun doute sur quelque
-        métaphore d'État ;
-
-[p. 155]
 
   17. — Que les métaphysiques inavouées, notamment
         celles que nous font les savants modernes, sont
         des métaphysiques tout de même ;
 
-  18. — Qu'il y a un point de discernement d'où le
         philosophe remonte et d'où tous les autres
         ensemble, notamment l'historien, descendent ;
 
@@ -143,14 +100,11 @@ II. — philosophie et méthode ;
         tout à ne point saisir ni une œuvre ni aucune
         autre réalité dans son texte ; qu'il faudrait la
         nommer proprement la méthode de la grande
-        ceinture ;
 
   23. — Qu'il y a une Sorbonne qui fait trop parler
         d'elle, pour une honnête Sorbonne ; et qu'une fois
         de plus, cette fois sous le nom de sociologie, la
         Sorbonne est tombée dans la scholastique ;
-
-[p. 156]
 
 III. — la chronique et l'histoire ;
 
@@ -165,16 +119,12 @@ III. — la chronique et l'histoire ;
         jamais plus ;
 
   26. — O drapeaux du passé, si beaux dans les
-        histoires ;
 
   27. — Que le monde moderne avilit ; qu'il avilit
         même la mort ; notamment comment il enterra
-        Berthelot ;
 
   28. — Qu'il y a une politique juive, mais aussi qu'il
         y a une mystique d'Israël ;
-
-  29. — Qu'il y a eu un héroïsme républicain ;
 
   30. — O soldats de l'an deux ! ô guerres ! épopées !
 
@@ -186,9 +136,6 @@ III. — la chronique et l'histoire ;
         lières de ce peuple de Paris ;
 
   33. — Mais que Hugo aussi était dans tout ce
-        peuple ;
-
-[p. 157]
 
   34. — D'un saisissement que nous eûmes dans le
         même temps ;
@@ -198,7 +145,6 @@ III. — la chronique et l'histoire ;
         et notre frère Ernest Psichari, sous-lieutenant
         d'artillerie coloniale hors cadre, à Moudjéria,
         Mauritanie, par Saint-Louis, Afrique Occidentale
-        Française ;
 
 IV. — les tragiques ;
 
@@ -209,28 +155,13 @@ IV. — les tragiques ;
   37. — Qu'il y a dans le tragique une représentation
         des caractères ;
 
-  38. — Les suppliants parallèles ;
-
   39. — Des vers et du rite de l'intercession dans
-        Polyeucte ;
 
   40. — De la triple promotion des tragédies
-        cornéliennes ;
 
-V. — la mort. — la misère. — le mystère de la
      charité de Jeanne d'Arc ;
 
   41. — De la mort, premiers propos ;
-
-  42. — De la misère ;
-
-[p. 158]
-
-  43. — Le mystère de la charité de Jeanne d'Arc. —
-        Une prière ;
-
-Bibliographie.
-
 
 *Amicus et auctor,* dans le plein sens latin de ce mot.
 *Hujus libri auctor et permultorum aliorum.* —
@@ -253,11 +184,8 @@ En parlant d'un écrit ou d'une œuvre d'art, « auteur ».
 parlant d'un acte, « conseiller, instigateur, garant ».
 *Auctor legis, pacis, belli.* La même diversité de sens
 se retrouve dans *auctoritas,* qui marque la qualité
-d'être *auctor*... — Grec αὐξάνω, αὔξω. » Il est si vrai que
 
   (1) Quel mot admirable.
-
-[p. 159]
 
 dans ce livre, (je ne parle plus seulement du Bréal et
 Bailly, je parle du Pesloüan et Péguy), il est si vrai que
@@ -274,13 +202,11 @@ de cette période décennale. De même que la cinquième
 partie, et ainsi tout le livre, s'achève en cette prière du
 *Mystère de la Charité.*
 
-
 Combien n'avons-nous pas été particulièrement
 heureux, et pour ainsi dire préliminairement, d'avoir
 pu mettre en tête de ce livre une reproduction du
 profond et grave portrait que Pierre Laurens peignit de
 moi quand j'avais trente-cinq ans. C'est avant le
-*Péguy 1910* un *Péguy 1905* ou *1907,* infiniment
 plus creusé, où le peintre a su mettre tout ce que nous
 autres nous ne parvenons pas à écrire. Quelle profonde
 joie, et sérieuse, que d'avoir pu mettre, en tête d'un
@@ -289,8 +215,6 @@ par un ami, une reproduction d'un portrait peint par
 un ami, pour aller à tant d'amis connus et inconnus, à
 qui je dois tant. Quel accord intérieur. Et doublant la
 première quelle entente secrète, quelle joie de repro-
-
-[p. 160]
 
 duire ici, de présenter un portrait portant cette signa-
 ture, (non seulement une signature amie), une signature
@@ -324,8 +248,6 @@ porains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui à qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
-[p. 161]
-
 gnements d'expérience, de carrière ; d'amitié ; un cœur
 si jeune, le plus jeune cœur que je connaisse actuel-
 lement. Je dirai quelque jour, j'essaierai de donner
@@ -358,8 +280,6 @@ autres arts plastiques.* Sous réserve des lignes de
 discernement qui courent tout au travers, ou plutôt tout
 au long de ces arts mêmes, de ces arts parents. Plus
 
-[p. 162]
-
 qu'apparentés, plus que conjoints, sortis, poussés des
 mêmes souches. Et quand ce ne serait que la recon-
 naissance, que l'immédiate, que la reconnaissance
@@ -370,8 +290,6 @@ regarder en littéraires les œuvres du dessin nous n'y
 voyons que des sornettes.
 
 Et vous au moins, quand on parle de Ingres, on sait
-ce qu'on dit.
-
 
 Au moment où je parle pour la première fois dans
 les cahiers de ce livre, je dois, je veux remercier mes
@@ -390,8 +308,6 @@ fabrique et vend le volume. L'établissement du texte,
 et qu'il se fît sans moi, me remplissait d'un émerveille-
 ment continuel, d'un émerveillement et d'une joie
 d'enfant. Qu'un livre de moi se fît, (et se fît aussi bien),
-
-[p. 163]
 
 sans que j'eusse à le faire, (qu'il se fît beaucoup mieux
 que je ne l'eusse fait), je n'en revenais pas. Dans cette
@@ -426,8 +342,6 @@ qu'il son office et parce qu'il se vouait (ferme) dans son
 office, *ex officio,* je ne surprenais à faire en retour ou en
 arrière, sur moi-même, et sur quelques autres, je me
 
-[p. 164]
-
 surprenais à me dire, à me redire, de même beau
 métier je l'exerce, que de même office je l'exerce depuis
 déjà douze et treize ans ; que je l'accomplis ; que ce
@@ -460,8 +374,6 @@ porains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui n'a qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
-[p. 165]
-
 forte raison celui qui n'a qu'à en avoir fait). Celui qui
 n'a qu'à apporter sa copie ne soupçonne pas ce qui
 reste à faire, ce qu'on fait pour lui. Je viens de m'en
@@ -491,17 +403,12 @@ toute sécurité, sur les *tables d'absence.*
 Dans ce monde moderne où tout est pour le parasite,
 où tout est contre le producteur.
 
-
 Dans le même ordre d'idée je veux remercier
-
-[p. 166]
 
 mon vieux compatriote M. Rigolet, 68, rue Royale,
 Orléans, imprimeur de M. Grasset, pour la célérité
 avec laquelle, sans rien sacrifier du travail, il a réussi
 à établir en quelques semaines un volume typographi-
-quement considérable.
-
 
 Comme les découvertes vont par paquets et comme
 il paraît que les joies, quand il y en a, et que les bonnes
@@ -528,8 +435,6 @@ blée d'une autre, conjointe d'une autre. Je n'ai pas
 besoin de dire que j'ai prié notre M. André Bourgeois
 de verser directement ces 1.500 francs dans la caisse
 
-[p. 167]
-
 des cahiers. Cela aussi m'était nouveau. Depuis le
 temps, depuis bientôt quinze ans que je fais aux cahiers
 cet odieux métier de solliciteur, depuis quinze ans, il
@@ -551,7 +456,6 @@ rant, de droit commun, au prix du marché, sur le
 marché des valeurs, et de devenir ainsi, de me faire le
 co-souscripteur de mes souscripteurs.
 
-
 Pendant que j'y étais et sous ce prétexte que les
 joies et que les découvertes et que les nouveautés et
 que les bonnes nouvelles vont par trois je voulais me
@@ -560,8 +464,6 @@ temps), une joie troisième ensemble, si je sais compter,
 une grande et merveilleuse nouveauté, une grande troi-
 sième découverte : (l'homme est insatiable) : celle
 d'envoyer enfin ce volume à toutes les personnes à qui
-
-[p. 168]
 
 j'avais si bonne envie de l'envoyer ; en envoi d'auteur ;
 à tant d'amis avérés à qui je dois tant. Je commençais
@@ -595,8 +497,6 @@ affaire d'amitié, mais le conseil, qui est chose infini-
 ment plus grave, n'est pas tellement une affaire
 d'amitié. Ces décemvirs sont des hommes avérés,
 
-[p. 169]
-
 éprouvés, durcis, dressés par la dure vie de Paris, par
 une vie dont nos amis de province, heureusement pour
 eux, n'ont absolument aucune idée. Il ne faut point,
@@ -623,13 +523,9 @@ eux l'espace d'un dîner ou d'un déjeuner, oubliant cette
 astreinte perpétuelle de la vie, où nous sommes
 condamnés à la vivre, et où nous devons vivre, participer
 quelques heures à une innocente et toujours jeune
-amitié provinciale.
-
 
 Les autres sont innocents et purs. Mais les décemvirs
 sont purs et avertis. Cette fois-ci encore ils avaient
-
-[p. 170]
 
 raison. Si je voulais envoyer des exemplaires en envoi
 d'auteur à toutes les personnes qui ont rendu aux
@@ -643,12 +539,10 @@ qui ne nous aient rendu personnellement et solidaire-
 ment aux cahiers et à moi, (c'est tout un, c'est tout le
 même), des services capitaux.
 
-
 (Non seulement à la gloire de l'amitié, mais à la
 gloire de cette sorte de bonté générale qu'il y a dans
 le monde et qui contraste si heureusement avec l'ai-
 greur, avec l'âcreté haineuse du Parti Intellectuel).
-
 
 Il faut penser que sans ces décemvirs ni les cahiers
 ni assurément moi nous ne marcherions pas trois
@@ -661,18 +555,14 @@ plaire de ma main et que nul n'en tiendrait un seul
 exemplaire qui ne vînt de la main pour ainsi dire si je
 puis dire mercantile de M. Bourgeois, nul pas même
 
-[p. 171]
-
 celui qui avait établi et littéralement fait le livre, pas
 même celui qui pourtant, dans le besoin, pour gagner
 quarante-huit heures, en avait rapporté cinq cents
 exemplaires d'Orléans à Paris par la force de son
 moteur. Et par la vitesse des batteries à cheval.
 
-
 Ces cinq cents premiers exemplaires et les dix pre-
 miers exemplaires sur Hollande.
-
 
 Il fallait d'autant plus se rendre à la sentence décem-
 virale que la vente de ce volume au bureau des cahiers,
@@ -687,11 +577,8 @@ aux *Cahiers de la Quinzaine.* Or de ces souscriptions
 permanentes aux *Cahiers* nous avons besoin aujour-
 d'hui autant et peut-être plus que jamais.
 
-
 Enfin je veux remercier notre collaborateur M. Paul
 Milliet de m'avoir permis à la fin d'un cahier qui était
-
-[p. 172]
 
 sien et qui lui revenait tout entier de publier une aussi
 longue annonce d'un livre qui par ailleurs a forcément
@@ -700,9 +587,6 @@ Car on a beau conjoindre les deux travaux, il y a une
 limite à la résistance des yeux et un honnête homme
 ne peut guère lire plus d'une *feuille* d'épreuves par
 jour.
-
-                                    CHARLES PÉGUY
-
 
 *Mardi 20 juin 1911.* — Je présente ce livre comme
 un monument à l'amitié. *Amicitiae et fidei sacrum.* Je
@@ -719,8 +603,6 @@ nom d'ami à ce jeune éditeur qui s'est jeté dans cette
 bataille avec toute la fougue d'une ardente et d'une
 conquérante audace. Les premières fois que je parlais
 de M. Grasset j'avais coutume de dire : *Il a une grande*
-
-[p. 173]
 
 *vertu.* — Ici un temps, parce que je suis un homme de
 théâtre, M. le Grix lui-même ne l'ignore point. — Les
@@ -743,8 +625,6 @@ sur Paris une épidémie de citations qui tombent de
 travers. Je lui disais : *Laissez parler un vieux comme
 moi.* Il clignait de l'œil et me répondait : *Un vieux
 comme vous, il ne faut pas s'y fier.* Il avait peut-être
-raison.
-
 
 *Amicitiae et fidei sacrum* tout dans ce livre est un
 hommage de l'amitié à l'amitié. Tout le livre, et le
@@ -753,8 +633,6 @@ tout le tissu du livre est pur et sûr et ami. Tout le livre
 est comme un raccourci, fait un ramassement de tout
 ce qu'il y a d'ami dans notre histoire et dans notre
 œuvre. Cette *Bibliographie* qui vient en fin du volume,
-
-[p. 174]
 
 comme un long regard de perspective, d'arrière en
 avant, sur toute mon œuvre, cette *bibliographie* si

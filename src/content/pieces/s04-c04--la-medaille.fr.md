@@ -18,19 +18,8 @@ Pour savoir ce que sont les Cahiers de la Quinzane,
 ” il suffit d'envoyer un mandat de trois francs cù quar . Le
 : à M. André Bourgeois, administrateur des core "a
 Fi 8, rue de la Sorbonne, Paris. On recevra en spécü ens Fa |
-Dr six cahiers de la deuxième et de la troisième SÉTLE Rte LPS
 
 Æ Nous mettons ce cahier dans le commerce; nous le |
-
-ANA vendons un franc A Sn cu |
-
-a Ar t jt Ye nie “4 Le édite Re VENT ER PAC ONTE
-{ NE RES j , fh vi
-je CARO RL e ES ÿ Ÿ sf f RL.
-
-SU SP SE RNE TES Li 4 RUE ae
-
-| AIQNTESS
 
 Les Cahiers ont publié du même auteur : \
 
@@ -46,15 +35,6 @@ Jean Coste, ou l'Instiiuteur de village, nouvelle édi- |
 tion, Société d'éditions littéraires et artistiques, —
 librairie Ollendorff, — un beau volume de 314 pages,
 couverture reliée toile illustrée de H. Goussé,
-
-|
-|
-|
-
-ra Re SUR Re t À sh
-
-1 4 à gd 0 Ÿ ed CN ARVAE Ce _
-F : MO ina on.
 
 Je relisais dernièrement la savoureuse préface que
 Daudet a écrite pour Vie d'enfant, ce beau et simple
@@ -94,7 +74,6 @@ sonore et chère langue de la Terre d'Oc.
 J'avais alors de huit à dix ans, je crois. Aniane, ce s
 vieux bourg du Bas-Languedoc, fondé par saint Benoît
 au temps de l'antique empereur « à la barbe florie »,
-Aniane, ce bourg où je suis né et où j'ai encore tant de
 grandes affections, Aniane avait, à cet âge de ma libre |
 et choyée enfance, M. Lassalle pour instituteur. |
 
@@ -367,8 +346,6 @@ l'intervalle de deux leçons, il continuait à fredonner!
 Nous n'en revenions pas et la classe fut moins silen-
 
 | 13
-|
-|
 
 cieuse que de coutume. Nous aussi, nous avions des
 envies folles de crier, de nous poursuivre comme les 1
@@ -437,8 +414,6 @@ plus moyen de tricher. Que je sois présent ou absent, à
 Aniane, à Montpellier, au Sénégal ou aux pôles, ceux
 qui transgressent mes ordres, qui font fi de mes con-
 
-|
-
 seils et patoisent constamment seront bel et bien pincés. Une trouvaille, n'est-ce pas ? un trait de génie,
 
 Les yeux grands ouverts, nous comprenons de moins
@@ -464,8 +439,6 @@ per. Son moyen est infaillible. Et si simple qu'il a dû
 se révéler à lui, comme une illumination soudaine,
 durant une des insomnies causées par sa haine du
 patois ! Oui, un trait de génie !
-
-Le voici :
 
 A certains jours, la médaille serait confiée par lui, en
 cachette, à un élève sérieux qui la remettrait au premier camarade qu'il entendrait parler patois. Celui-ci
@@ -564,8 +537,6 @@ presque plus, se cloîtraient la plupart du temps dans
 Au bout d'un mois, cela devint intolérable. Ne plus
 avoir la liberté de communiquer entre nous, dans notre
 cher patois, c'était trop vraiment !
-
-On rusa.
 
 Bientôt on se réunit par groupe de quatre ou cinq et,
 après s'être juré solennellement qu'aucun n'avait la
@@ -746,7 +717,6 @@ Puis, c'est le tour d'un autre gamin, fils du chiffonnier, gros joufflu un peu n
 y en ait au moins trois de francisés.
 
 — M'sieur, — bafouille-t-il, — je ramassais de la fri- :
-goule au truc de « la Bade » et j'ai dit qu'il y avait de
 l'aïguage sur les bertas, parce que je ne savais pas
 comme dire.
 
@@ -758,7 +728,6 @@ usuels, tu dois les connaître. Cinq cents fois à copier
 chacun d'eux pour les graver dans ta dure caboche.
 
 Parfois M. Lassalle déclare que le mot pouvait être
-ignoré et qu'il n'y a pas à sévir. Par exemple, un
 élève, allant chez un jardinier et interrogé insidieusement par le porteur de la médaille, lui a répondu: 4
 
 — Ze baïs cercer de l'orte pour ma mère. x
@@ -843,7 +812,6 @@ pour mieux surprendre la conversation des camarades
 passant sans défiance. Ce soir-là, chaque coin, chaque
 borne pouvait cacher l'ennemi.
 
-Par crainte, on ne quittait pas la maison ou l'on se
 promenait bouche close, épiant les ténèbres et le
 
 En été, lorsqu'on était assis à causer avec les parents
@@ -901,12 +869,9 @@ par son glissement de main en main, par ses frottements de poche en poche.
 
 Mes plus belles journées, je les passais en dehors
 d'Aniane, à quatre kilomètres de l'école, dans un
-hameau, Le Mas de Daumas, où habitait un frère de ma
 mère et où j'allais souvent demeurer une semaine
 entière. Là, débarrassé de mon souci obsédant, ivre de
 liberté, j'errais le long du ru, bordé de prairies et de
-
-|
 
 vignes, qui coule, au bas du mas, dans une étroite
 vallée entre deux collines boisées et pierreuses. Je m'enfonçais tantôt dans les touffes de roseaux, tantôt dans
@@ -1037,7 +1002,6 @@ les boutiques de marchands de bric-à-brac. De rage, on
 s'obstina à jeter les médailles sur les toits, au fond des
 égouts, dans les gouffres de l'Hérault ; et le lendemain,
 
-|
 malgré les verbes: étre négligent, tromper la confiance |
 de son maître, que nous récoltions, nous soutenions mordicus que nous les avions égarées en jouant. Mais va- |
 te-faire-fiche, il y avait souvent parmi les jeunes des
@@ -1113,13 +1077,6 @@ belle, entre soi, on parla avec délice cette chère langue
 d'oc proscrite, car on n'aime que davantage les êtres et
 les choses pour lesquels on a souffert.
 
-EPP OURS ee Li D AR MEET T0 PRET EN NT EE EAN TEEN A Tong je
-| 2 DE ?
-# * 0 +48 ; +
-LUS : PER ne RAT LS Tue HE
-po ve 2 SR NE SUR TER ES
-De s AM STAR dl HT
-
 Ce mercredi-là, comme à l'accoutumée d'ailleurs,
 M. Bastoul, l'instituteur de Sallèles, ouvrit sa porte
 sur le jour qui, encore indécis, tremblait autour des
@@ -1143,7 +1100,6 @@ rougeâtre du terrain ferrugineux, teinte qui, sans doute,
 a valu, à tout le haut pays environnant, son nom significatif : las Rufas. À voir les collines voisines, les gué-
 rets, toute la campagne couleur de pourpre s'illuminer
 
-|
 maintenant, on dirait d'un champ de bataille dont la
 terre est détrempée et rougie par le sang, mais dont on
 a enlevé les morts et les blessés pendant la nuit.
@@ -1321,9 +1277,6 @@ primaire ! D'avance, M. Bastoul en est tout remué.. Pas
 d'autre indication. La foudre tombant à son côté lui
 
 | aurait produit moins d'effet. L'esprit à la torture, il se
-| répète :
-
-— Que me veut-on?.… Que se passe-t-il ?..
 
 En vain les abeilles, ses abeilles tant aimées vont et
 
@@ -1585,7 +1538,6 @@ dirigé par lui, beaucoup plus qu'il ne gagne comme
 instituteur. Il aime donc sa profession et il lui en coù-
 tera fort, quand sonnera l'heure de la retraite, — qu'il
 reculera d'ailleurs autant que possible, — d'abandonner
-à un successeur la maison d'école et le jardin où se
 seront écoulées plus de trente années si douces de sa
 vie. Oui, mais quel homme, pour dévoué qu'il soit, n'a
 pas de faiblesses, n'encourt jamais de reproches ?
@@ -1693,8 +1645,6 @@ de ces courses éperdues que pour chercher sous l'écriture quelconque de la lé
 Il en fut de même tout le long de la nuit. L'idée que,
 dans quelques heures, il comparaïîtrait devant l'inspecteur d'académie, juge souverain et implacable, qu'à ;
 
-|: 0e ri
-
 son âge il allait recevoir une réprimande, être tancé
 vertement, « savonné » dur, enfiévrait le pauvre
 M. Bastoul. Chez les humbles, grande est la crainte
@@ -1764,8 +1714,6 @@ aux voyageurs, qui parlent haut et gesticulent à l'avenant; à Paulhan, où il 
 Béziers ; dans le nouveau wagon, où il se case difficilement, M. Bastoul reste silencieux, la mine tirée, de
 plus en plus malheureux, à mesure que l'heure fatale
 approche... Et chimères de papillonner, et appréhensions de croître. Oh! sa pauvre tête !.…
-
-#4
 
 Au sortir de la gare de Montpellier, ni les belles
 avenues et places qu'il traverse, ni le superbe théâtre
@@ -1857,21 +1805,10 @@ pouvez me rendre, quand vous serez rentré à Sallèles,
 j'espère, mon cher monsieur Bastoul, que vous me ferez
 le plaisir de déjeuner avec moi...
 
-| IV
-|
-| \
-
-TS Pan it des VB Le
-Qt ATX Ÿ sv US NE A TO
-
 Fini d'imprimer deux mille exemplaires de ce
 quatrième cahier le jeudi 20 novembre 1902
 à l''Imprimerie de Suresnes
 9, rue du Pont
-|
-
-Re … … es Re LUI IT ETES PAG ere d
-ni ' AFTER 5 p NN TRANS
 
 Un certain nombre de nos abonnés nous ont demandé
 comment ils pouvaient se procurer notre édition du
@@ -1890,10 +1827,6 @@ Les collections incomplètes — douzième, treizième, quatorzième, quinzième
 série — se vendent seize francs. Ces prix pourront
 augmenter à mesure que les collections deviendront
 plus rares. Ils ne peuvent en aucun cas diminuer.
-
-en EN OP aber DE DNA NEC AE ratée Re an FAST AT } ;
-| HONRSRRAR Duo. |
-L a ne Jr xt ec | 2 a: Û
 
 Dans son numéro daté du dimanche 19 octobre 1902,
 la Raison, journal international hebdomadaire de philosophie, de sociologie, de littérature, publiait l'article
@@ -2205,7 +2138,6 @@ heureux que cette revue revint ainsi à son ancienne
 forme, qu'au lieu de nous donner une politique elle
 recommençât à nous apporter du travail et des renseignements. P
 
-| 4 ke MES
 Dans ce premier numéro de l'enquête, le Mouvement
 publie les réponses de MM.
 Émile Vandervelde, membre de la Chambre des
@@ -2241,7 +2173,6 @@ inutile ; à quelques exceptions près, nos abonnés savent
 lire ; nous n'avons pas coutume ici de souligner tous les
 mots de nos textes; nous écrivons le plus attentivement que nous pouvons; nos abonnés nous lisent le
 plus attentivement qu'ils peuvent.
-Mon cher Péguy,
 Je viens de lire dans votre dernier cahier, l'article que
 vous avez consacré aux « Journaux pour tous » et j'en ai
 été très peiné. Le fait même que je ne partage pas votre
@@ -2251,7 +2182,6 @@ vous vous soyez laissé emporter par la passion jusqu'à
 l'injure, à propos d'une affaire d'ordre presque purement
 Ce que je vous reproche c'est d'avoir abandonné, dans un :
 
-Fr à De jet ot cie [ETS fu MENT A He " « f R.
 débat qui vous touche de fort près par vos affections, cette k
 méthode seientifique des exposés impartiaux et documen- l
 taires qui est la force et la raison d'être de votre œuvre,
@@ -2345,7 +2275,6 @@ intellectuelle et sociale.
 Je désire vivement que vous insériez cette lettre, que je
 erois nécessaire, dans votre prochain Cahier. Je vous
 connais assez pour être sûr que vous le ferez de grand
-4 A vous. se
 Il va de soi que je n'accepte pas une syllabe de cette
 M. Terquem est le seul de nos 1.395 abonnés fermes
 qui n'ait pas su lire le commentaire que j'ai ajouté à la
@@ -2392,7 +2321,6 @@ M. Terquem veut rester bien avec M. Colomb : libre
 soit conclu sur mon dos; les cahiers sont trop misé- %
 rables pour payer les rançons, pour faire les frais de 4
 Quand je reçus la lettre de M. Terquem je lui promis, »
-|
 
 sans la lire, que les cahiers la publieraient le plus tôt
 que nous pourrions; je croyais qu'il était mon ami; je ;
@@ -2426,18 +2354,14 @@ quinzaines je nommais faussaire M. le général Mercier
 parce qu'il avait commis une forfaiture et des faux. Ce
 n'était pas une injure; c'était une qualification. Pour-
 
-|
-
 quatrième cahier de la quatrième série
 quoi je devais traiter sévèrement M. le général Mercier
 et pourquoi je dois traiter complaisamment M. le Prési- |
 dent: c'est ce que je suis trop bête pour comprendre.
-Je me suis opposé tant que j'ai pu à l'amnistie de M. le
 général Mercier. Pourquoi veut-on que moi-même je
 fasse une amnistie à M. le Président du Comité ?
 Je n'ai rien de personnel contre M. le Président. Que
 M. le Président répare, et nous le laisserons tranquille. |
-|
 Cette lettre de M. Terquem est tout à fait étrangère |
 au débat. Elle ne produit aucun fait, elle n'avance que
 les impressions personnelles de M. Terquem, qui m'importent peu. Au fond elle ne signifie rien que ceci : que
@@ -2474,7 +2398,6 @@ pour la bonne administration du débat, et je classe le
 questionnaire lui-même, afin de le distinguer parmi les
 nombreux questionnaires qu'il faut que je dresse. |
 
-A. — M. Terquem connaît-il la question? S'il ne la
 connaît pas toute, qu'est-ce qu'il en connaît ?
 
 B.— À quelle date, comment, de qui et pourquoi
@@ -2511,7 +2434,6 @@ I. — S'il n'assistait pas aux séances, pourquoi ? ' 4
 J. — Que furent les séances où il assista; étaient-elles
 sérieuses; y travaillait-on, sérieusement?
 
-K. — Ou au contraire le temps se passait-il en fumis- É
 teries, jeux et plaisanteries; est-il ou n'est-il pas vrai :
 que les plaisanteries de M. Colomb consistaient presque À
 toutes aux obscénites les plus grossières?
@@ -2525,7 +2447,6 @@ M.— M. Terquem connaissait-il le registre où étaient
 consignés les comptes rendus des séances et les délibé- j
 rations ? — J'offre de publier ces comptes rendus dans
 
-| MOEE TA ; ; ;
 les cahiers aux frais de M. Terquem. 1! peut ainsi laver
 la mémoire de M. Colomb.
 N. — Quand M. Terquem avait à travailler aux Journaux pour tous, à qui s'adressait-il; à Boivin ou à
@@ -2595,7 +2516,6 @@ ne me plains pas; mais qu'il m'est désagréable enfin
 d'être brutalisé de préférence par des gens qui doivent
 de l'argent aux cahiers?
 
-D. — M. Terquem enfin m'a-t-il ou ne m'a-t-il pas |
 demandé d'encarter ou de publier dans les cahiers ses
 listes de volumes et tout le bulletin numéro 2 de l'Œuvre
 du Livre pour tous, — demande qui tombe aujourd'hui
@@ -2621,7 +2541,6 @@ l'on parle de services, M. Terquem pense-t-il que ce
 ; soient les hommes qui rendent service aux œuvres, ou
 au contraire les œuvres instituées qui rendent service à
 aux hommes, en leur permettant d'utiliser au mieux |
-|
 
 Je n'établis pas seulement des questionnaires ; j'apporte moi-même les premiers éléments de réponses.
 
@@ -2826,8 +2745,6 @@ Par le statut si large de cetteinstitution, une quantité
 innombrable de journalistes passaient, républicains K
 modérés, même républicains conservateurs, tradi- l
 
-| AE
-
 ; radicaux, républicains de gouvernement, républicains
 
 | chistes, républicains hors classe et hors parti, tout le
@@ -2908,8 +2825,6 @@ un journal je ne dirai pas de foi, mais de religiâtrerie
 M. Colomb a délibérément assumé la charge régulière
 et la responsabilité de représenter la science. Quelle
 figure a-t-elle par ses mains ?
-
-Il y a un conflit de la science et de la foi; quoi que
 
 : l'on pense de ce conflit, qu'il soit ou ne soit pas irré-
 ductible quand on descend au fond de la science et
@@ -3003,10 +2918,6 @@ Au dernier moment, on m'apporte les neuf numéros
 du Soleil où M. Colomb a collaboré cette année. Je
 supplie qu'on les achète. On ne s'ennuiera pas. Il ya |
 un pape en couleurs près de qui le sous-lieutenant
-
-|
-
-ÿ ne
 
 4 Nous avons reçu trois désabonnements parce que
 4 … M. Simiand m'a flétri. Comme par hasard, deux de ces
@@ -3103,7 +3014,6 @@ F quelque sorte publiques comme celle de Téry. Mais je vois
 | aujourd'hui qu'un grave conflit s'est élevé entre toi et
 F. Simiand. Ce conflit, tu en accentues toi-même la gravité |
 en soulignant ce nom de Simiand. )
-. Où M. Weulersse, professeur d'histoire, a-t-il vu qu'un
 grave conflit s'est élevé entre M. Simiand et moi. Un
 ù coup de couteau n'est pas un conflit. Quand dans le
 é vingt-et-unième cahier de la troisième série j'ai poussé
@@ -3227,7 +3137,6 @@ pas. J'avais autre chose à faire, que de me méfier. J'eus
 1 la faiblesse de montrer une extrême complaisance. On
 fl M. Simiand m'écrivait le 15 juillet la lettre suivante :
 % SOCIÈTE NOUVELLE Paris, le 15 juillet 1902
-Mon cher Péguy,
 Je crois qu'un quart d'heure de conservation suflira à
 nous mettre d'accord sur la difficulté qui a frappé ton :
 attention. Peux-tu repasser à la librairie jeudi à la même
@@ -3236,7 +3145,6 @@ L la même heure, à quelques minutes près. (1)
 dt (1) Notre scrupuleux correcteur, M. Mahlmann, exige que je mette
 à: ici que, s'il y a des fautes grossières dans les lettres que nous .
 % citons ou que nous publions, c'est qu'elles étaient dans la copie.
-Le et
 
 quatrième cahier de la quatrième série M
 Pourquoi M. Simiand n'envoyait des billets doux le À |
@@ -3271,7 +3179,6 @@ qui ne s'étaient pas abonnés, par entente, s'est-il abonné à
 depuis ; un seul de ceux qui s'étaient désabonnés, par +
 entente, s'est-il réabonné depuis; uu seul des calomnia- D
 
-ST CR NUE RE 2 Le ee AT Pre Ce a Me te MTL DAT
 ré teurs s'est-il reposé de calomnier; la Société Nouvelle /
 S a-t-elle cessé un seul instant d'être l'asile des calomnia-
 à Ê teurs et le réduit d'hostiiités; la lettre de Weulersse
@@ -3293,15 +3200,9 @@ qu'après. Je n'oublie pas que mon premier devoir est
 : mier devoir est de publier des contributions, des docu-
 | ments, des renseignements et des œuvres. Je n'y manquerai pas. Ces polémiques ingrates ne viendront
 jamais qu'en supplément. C'est tout ce qu'elles valent.
-ù 6734 Le gérant : CHARLES PÉGUY
 Fr Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-A RE LEP NE er ÉCART TER SNED SMS IEP
-| À ts
-me L: LITE RECETTES
 4 20
-
-DR > | H vies Ge ist RE ET RER UE PE NUE É
 
 Un certain nombre de nos abonnés nous ont demandé < Rs
 
@@ -3319,9 +3220,7 @@ qui réussiront en feuilleton bref ou en variétés à suivre.
 _ Je suis heureux de noter le Progrès du Loiret, d'Or |
 
 __  léans, parmi les journaux qui ont reproduit le Jean de,
-Coste en feuilleton. 7 De
 
-A SAN do ce |
 < Gollège de France. — Premiér semestre 1902-1903. |
  — MM. les lecteurs et professeurs ouvriront leurs ours ve |
 le premier décembre 1902. ECTS NES |
@@ -3330,10 +3229,7 @@ Philosophie grecque et latine. — M. Bergson étudie a 2 |
 a l'Histoire de l'idée de temps; TER |
 ES le samedi à trois heures trois quarts il expliquere re : |
 second livre de la Physique d'Aristote. a |
-: è z re De: de.
 
-$ e CASE DE à 5 Ris ART r "he 1 RE
 1 20
-> ee ' "12
 
 AP Cahiers de la quinzaine . |

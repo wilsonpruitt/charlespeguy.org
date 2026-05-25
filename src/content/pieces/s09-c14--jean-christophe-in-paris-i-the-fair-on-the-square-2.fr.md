@@ -32,12 +32,10 @@ l'énoncé même le plus succinct ; pour savoir ce qui a
          rez-de-chaussée,  Paris,   cinquième arrondisse
                          retour  le  catalogue analytique
                                  établi pour  donner,
-   Ce catalogue a été
                           image en bref, un raccourci,
 autant qu'il pouvait, une
 
                            complète,  de nos   édition» anté
-une
 rieures et de nos
                                              tout   est classé
                                 lire         trouver, à leur
@@ -45,7 +43,6 @@ dans   l'ordre; il suffit de le      pour
 place, les références
 
                          grand jésus, forme un        cahier
-    Ce catalogue, in-18
 
  très épais de XIl-^40 ^ pages tr ^denses. marqué   cinq
             cahier comptait comme premier   cahier de la
@@ -75,7 +72,6 @@ remarquera que
                          Cahiers de la Quinzaine :
     Du même   auteur aux
                          Jean-Christophe à Paris.
- Romain ROLLAND. —
          La Foire sur la Place ;
 —
                                     neuvième série, un
@@ -89,7 +85,6 @@ remarquera que nous avons aussi patiné à
                                                la suite.
 
 où fermentait
-                l’ai
 sur cette société
 la compagne de I
 devenir son égal
@@ -103,14 +98,12 @@ cas dans    la Fri
 serait plus just
 sur les meilleurs
 pour les époque
-qu'un, un autre    I
 
                            forte «imposait    à  Christophe, *
    Une impression plus
 mesure qu il voyait plus clair dans la cuve aux
                                                   de U femme
     fermentait rart parisien : la suprématie
-ou
 sur cette société cosmopolite. Elle y tenait une place
 
 absurde, démesurée. Il ne lui suffisait
@@ -118,7 +111,6 @@ absurde, démesurée. Il ne lui suffisait
                              Il    lui suffisait même    pas de
 la compagne    de Thomme.       ne
  devenir son égale. Il fallait que son plaisir füt
-                                                        la pre-
  mière loi pour elle et pour ‘homme.
                                              El l’homme sy
  prêtait. Quand un peuple vieillit, il abdique sa volonté,
@@ -137,7 +129,6 @@ a   foi. toutes ses
   en bas. Celui-là était le maître de la pensée parisienne,
  le roi de la République.
 
-    Christophe observait
  dans les salons,
                              curieusement les
                     où la presentatson
@@ -188,7 +179,6 @@ jeni polis et reluisants, on elles        ne manquaient
                                le reflet de  leur visage,
 intéressait plus       qui          fût  et que quoi  que ce fût.
        observaient   à table   une   hygiène sévère : buvant
-Elles
 de l’eau, et se privant
                           de tous les mets, qui eussent pu
         atteinte à  leur  idéal  de blancheur enfarinée.
@@ -230,11 +220,9 @@ certaines d'entre                  " artiste eut retrouvé en
                     <u   ,, ancien type romain, le» femmes
                            1
 
-                Jean-Christophe
 du temps de Néron
                                                         1
                                    Hadrien.  On voyait aussi
-      "SUres a la 1 aima, d expression
 menton, fortement attaché dans le            non sans
 bestiale. D antres avaient les
                                    : on les devinait
@@ -266,7 +254,6 @@ disaient nationalistes. Ils disposaient d’ailleurs de leurs
   à la boutonnière,
 
    -   Comment! Il est donc en liberté?
-    Dans
            un coin du
 
  dejouer. Des poétesses, essoufflées, misse
@@ -275,23 +262,18 @@ disaient nationalistes. Ils disposaient d’ailleurs de leurs
                LA   foire sur la PLACE
 preGorme   «     ™  ton apocalyptique des vers
               et de Auguste
-                                                   de
 
             solennellement   déclamer  du    Jean Marcau,
  avec
                        Christophe      était  malade-   Mais
  étaient si Mies que               en
     Romaines   étaient charmées, et riaient de bon cœur,
-les
                      dents magnifiques. On jouait
                                                         aussi
-   rIbsen. Épilogue de la lutte d’un
                                      grand homme contre
-de
                    Société, aboutissant à   les divertir!
 les Soutiens de la
  Ensuite, ils se croyaient toustenus, naturellement, à
-                                                  Les
 deviser sur l'art. C’était une chose écœurante.
                                    parler d’Ibsen, de
 Wagner, de Tolstoy, par flirt. par politesse, par ennui,
@@ -305,7 +287,6 @@ s'acharnait à lui parler musique, art, haute poésie.
 Comme disait Berlioz, ces gens-là emploient
 arec le plus grand sang-froid ; on dirait qu’ils partent
 vin. femmes, ou autres cochonneries
-                                         ». Un médecin
 aliéniste reconnaissait dans ‘héroïne d Ibsen
                                                une de ses
 clientes, mais beaucoup plus bête. Un ingénieur assu-
@@ -350,19 +331,16 @@ du jour : car il en fallait toujours une pour la mode.
                                        Nietzsche, ou Gorki,
 que ce fût Gricg, ou Wagner, ou
       d’Annunzio.  Cela ne durait  pas  longtemps, et l’idole
- ou
  était sûre de passer, un matin, à la boite aux ordures.
     Pour le moment, l’idole était Beethoven. Beethoven   -
  qui l’eût dit ? — était un homme à la mode. Du moins,
  parmi les   gens du  monde et les littérateurs    car   »
-                                                       les
 
  siciens s’étalent sur-le-champ détachés de lui,suivant.“
 système de    bascule, qui est une des lois du
 tique en France. Pour savoir ce qu d pense, un Fransal
 
 .
-                  , ce que
     besoin de savoir
                                  P        son   voisin, afin de
                                                            ainsi
@@ -397,7 +375,6 @@ romance. Les dames s’apitoyaient sur lui: elle* lais-
  plus disposé à s’offrir qu'il
                                n’y avait aucun risque
 Beethoven les prit
-                                                         que
                      au mot : le vieux bonhomme n’avait
 plu* besoin de rien.
                       — Cest pourquoi le» virtuoses, les
@@ -413,11 +390,9 @@ glli     étaient destinés. De
        e montrer leur générosité.
                                       -  et parfois «Mai de
 
-                 Jean-Christophe
 découvrir les symphonies
                              de Beethoven. D..
 comédiens, de mondains,         demi-mondai^X'
-                             de
 tigiens chargés par la République
                                      de présider
 nées de larl, faisaient savoir                     aux
@@ -447,7 +422,6 @@ pas à sa place; et. comme il était assez
                                               intelligent pour
 avoir le sens de l’harmonie du milieu, où sa présence dé
 tonnait, il était aussi choqué de ses façons d’être que ses
-                    Il  s’en  voulait,  et  il  leur en  voulait.
   Quand il se retrouvait seul enfin dans la rue, au
              nuit, il  était  si écrasé  d’ennui qui n'avait
 milieu de la
@@ -468,11 +442,9 @@ se coucher par terre,   en  pleine
                                       deux    à une voilure.
                                    de fuir plus vite; et
 ^eRmporUiU gémissait dénervement Chez Im.
-                                                              Il sy
 
                encore,dans son lit.au milieu
           Et puis,
-                                                             la re-
 raDDelant une parole burlesque. Il se surprenait a
                       les           Le  lendemain,    et plusieurs
 dire, en mimant            gestes.
@@ -487,7 +459,6 @@ il  voir  ces gens
                                         s'intéresser à ce qui ne
  l’intéressait pas? — Est-ce qu’il était bien vrai que cela
      l'intéressât pas   ? Il y a un an, il n’eût jamais pu sup
- ne
   porter cette société. Maintenant, elle l'amusait au
   tout en l'irritant. Etait-ce un peu de l’indifférence pari
   sienne qui s’insinuait en lui ? Il se demandait parfois avec
@@ -554,8 +525,6 @@ Dans le salon de l'hôtel aristocratique, décoré de tapisseries un peu pâles,
 
 — Vous le voulez ?… Tant pis pour vous !… Eh bien, savez-vous ce que vous faites avec votre piano ?… Vous flirtez.
 
-— Par exemple !
-
 — Parfaitement. Vous lui dites : « Cher piano, cher piano, dis-moi de gentils mots, encore, caresse-moi, donne-moi un petit baiser ! »
 
 — Mais voulez-vous vous taire ! dit Colette, moitié riante, moitié fâchée. Vous n'avez pas la moindre idée du respect.
@@ -573,8 +542,6 @@ Dans le salon de l'hôtel aristocratique, décoré de tapisseries un peu pâles,
 — Est-ce que ce n'est pas vrai ?… Pourquoi haussez-vous les épaules ? Pourquoi faites-vous la grimace ?
 
 — Parce que cela me dégoûte.
-
-— De mieux en mieux !
 
 — Cela me dégoûte d'entendre parler de la musique, comme d'un libertinage… Oh ! ce n'est pas votre faute. C'est la faute de votre monde. Toute cette folle société qui vous entoure regarde l'art comme une sorte de débauche permise… Allons, assez là-dessus ! Jouez-moi votre sonate.
 
@@ -616,11 +583,7 @@ Elle eut un petit sourire ironique :
 
 — On ne peut pas vous en dire autant, répondit-elle.
 
-Il rit franchement.
-
 — Je crois que vous n'avez pas dit un mot, reprit-elle.
-
-— Pas un.
 
 — Il y avait pourtant là des gens intéressants.
 
@@ -661,8 +624,6 @@ Elle le regarda, de l'air penaud d'une petite fille qu'on gronde, et dit :
 — Ne soyez pas si dur !
 
 — Je ne dis pas de mal des bonnes femmes, répliqua gaiement Christophe. Une bonne femme, c'est le paradis sur terre. Seulement, le paradis sur terre…
-
-— Oui, personne ne l'a jamais vu.
 
 — Je ne suis pas si pessimiste. Je dis : Moi, je ne l'ai jamais vu ; mais il se peut bien qu'il existe. Je suis même décidé à le trouver, s'il existe. Seulement, ce n'est pas facile. Une bonne femme et un homme de génie, c'est aussi rare l'un que l'autre.
 
@@ -982,8 +943,6 @@ officiers dilettantes, des juges dilettantes, des révolutionnaires dilettantes,
 
 Pour couronner l'œuvre, une élite intellectuelle s'amusait à fonder en raison et en droit ce suicide d'un peuple, au nom des droits sacrés de la personne humaine au bonheur. Un humanitarisme morbide rongeait la distinction du bien et du mal, et s'apitoyait devant la personne « irresponsable et sacrée » des criminels, avec un sentimentalisme de vieillard : — capitulant devant le crime et lui livrant la société.
 
-Christophe pensait :
-
 — La France est soûle de liberté. Après avoir bien déliré, elle tombera ivre-morte. Et quand elle se réveillera, elle sera au violon.
 
                                 189
@@ -1181,11 +1140,7 @@ L'impresario échangea un coup d'œil avec Sylvain Kohn, narquois, et il reprit 
 
 — Comment !… Une si belle voix !
 
-— Elle n'en a aucune.
-
 — Et puis, une si belle personne !
-
-— Je m'en fous.
 
 — Cela ne lui permet pas, fit Sylvain Kohn, en riant.
 
@@ -1829,8 +1784,6 @@ Alors, ils s'écartèrent l'un de l'autre, avec un peu de gêne.
 
 Christophe demanda à madame Roussin :
 
-— Qui est-ce ?
-
 — Comment ! fit-elle, vous ne le connaissez pas ? C'est un petit poète, qui écrit gentiment. Un de vos admirateurs. Il est bon musicien, et joue bien du piano. Il ne fait pas bon vous discuter devant lui : il est amoureux de vous. L'autre jour, il a failli avoir une altercation, à votre sujet, avec Lucien Lévy-Cœur.
 
 — Ah ! le brave garçon ! dit Christophe.
@@ -1872,8 +1825,6 @@ L'écho de ce nom tinta aux oreilles de Christophe comme une musique connue. Une
                                 278
 
 Christophe rentrait chez lui. Il marchait dans les rues de Paris, au milieu de la foule. Il ne voyait, il n'entendait rien, il avait les sens fermés à tout ce qui l'entourait. Il était comme un lac, séparé du reste du monde par un cirque de montagnes. Nul souffle, nul bruit, nul trouble. La paix. Il se répétait :
-
-— J'ai un ami.
 
                                 279
 

@@ -7,18 +7,10 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 22743
 ---
-|: 420 CAHIER DE LA HUITIÈME SÉRIE
 _ de la situation faite
 . dans le monde moderne
 F4 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-TR RS EC UD pere PA nt pat PSN MA En NE EE  e
-OR LR ne ET re Le RP ET NET EC PRE COTE PE F4 TUE
-DR RE ne ie PARETEN PRE SR SERRES FR
-| SPEARS , ; HR
-
-hi: Ms de AS
 
 « Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
@@ -78,17 +70,7 @@ __ tique sommaire dans l'index total de nos éditions anté- He.
 _ rieures et de nos sept premières séries, même premier $ na.
 cahier de la huitième série. # a
 
-|! TNT ' À L ou INR ne
-
-jé 0 EN PQ à LEE Ness ie MM IL TS Rainer
-nr DA p ARE EL cu dc EE EE SEE ES 0 Ed QE Le
-|! AE | ÿ et)
-| ANR ! CHERE
-fu té Le Là L : à A
-Mes A
-
 FL dans le monde moderne LE
-#% be
 À Renan n'ignorait pas tout cela. J'entends qu'il n'igno- fi ë fs
 L. rait pas ce que c'est que l'appareil scientifique des \2732
 É: sanctions modernes. Il avait connu sans doute ces À PS
@@ -215,9 +197,7 @@ C'est en somme aujourd'hui, et d'un mot, c'est pro- 4
 prement la politique de Néarque. Tel est en effet le FA
 retentissement de ces grandes œuvres du génie fran- Ke]
 ï çais, à toutes distances, à des distances infinies, que |
-mu l'on n'a rien de mieux à faire, et de plus évocateur, et se
 
-PE PE A et io
 ù de plus juste, que de reprendre, aujourd'hui comme
 ÿ hier comme demain comme toujours, que de simpled , ment reprendre un nom propre de l'un de ces personj nages éternels. Et même et autant de l'un des moindres
 74 personnages, de l'un des personnages mineurs. î
@@ -316,7 +296,6 @@ a Je dis payé, parce que tout cela est enroulé dans des :14
 à qu'il est vénal, mais dont il faut écrire qu'il est la 4
 # vénalité même, la perpétuelle et totale vente, en gros à
 et au détail. î
-#4 Il y a aussi ce que je me suis permis de nommer la À
 ne politique de Polyeucte. J'entends par là que loin de :
 de reprocher à l'Église d'avoir maltraité ce Renan, et tant 1ÿ
 ne d'autres, un catholique véritablement croyant, et géné- ÿ
@@ -324,7 +303,6 @@ ne d'autres, un catholique véritablement croyant, et géné- ÿ
 fl reprocher à l'Église d'avoir eu pour ce même Renan, 1]
 # plus que pour tant d'autres, de lui avoir montré, mani- »
 ‘4 festé je ne dirai pas trop de ménagements, — on n'en a ‘2
-La jamais assez, — ni trop de respect, — on n'en a. ci
 s jamais assez, quand on est un gouvernement, — mais pl
 1 une trop grande estime, au sens, étymologique, où ù d
 ÿ estime implique mesure, je veux dire une estime de Hi
@@ -350,7 +328,6 @@ Et ce n'est peut-être pas la première, mais assuré- $
 l'Église moderne a dans ces débats une situation beaucoup plus moderne que chrétienne, quelquefois toute
 moderne, et nullement chrétienne, et que là est tout le
 | secret de sa faiblesse présente.
-|
 | Je maintiens qu'allant plus loin, au moins dans le
 | sens du social, un véritable catholique, véritablement :
 croyant, généralement un véritable chrétien, — car il y à
@@ -413,11 +390,9 @@ D - si étrangers à tout cela. :UR
 k ancien que lui, aussi afliné, hommes terre-à-terre AE
 4 surtout, et vraiment incapables de toute métaphysique, “1 “
 ; pour un homme demeuré aussi profondément religieux À 0
-‘| et métaphysicien. Non, il ne pensait point à eux. Il “4 é
 À n'écrivait point pour eux. Au fond ils n'étaient point, ils A ke
 ne devaient jamais être de sa famille mentale et senti-.
 4 mentale. Ils étaient étrangers, comme trop grossiers et 2100
-L insurnaturels, à sa vie mentale et sentimentale, à sa % Re
 E vie nouvelle, continuation, beaucoup plus que ne le me
 È pouvaient croire ces partisans grossiers, de son ancienne ae
 4 et de sa première vie, beaucoup trop grossiers pour lui, 2
@@ -488,7 +463,6 @@ exception, il court tout au-dessous de l'œuvre comme li
 1 d'émergence. Et il se trouve, comme par hasard, que ce 6 4
 : sont ces points d'apparition comme involontaire qui se Re
 1 reconnaissent aussitôt comme des points essentiels, capi- } 4
-| 19 à
 
 ‘à ù | taux, comme étant, eux seuls, ces points de discernement. He k
 où un lecteur averti attend une œuvre et un homme. os
@@ -520,7 +494,6 @@ a Et, d'ailleurs, comme on reconnaît aisément que ces
 ue Le style même : il y a dans toute l'œuvre de Renan À
 À hf des ‘phrases, des mots, des formes de phrases, des 5
 
-ei ll fl ji Sa AE NÉS a al déc PROS
 dE. expressions qui courent en-dessous et qui parfois 78 ;
 h  affleurent, qui sont du langage catholique même et 1208
 | À généralement chrétien, qui ne peuvent s'adresser qu'à 4 4
@@ -539,7 +512,6 @@ E. ralement, impensables. Etant du style de la vie inté- A
 4 rieure, et même, techniquement, et particulièrement, du t a 4
 4 style de la vie spirituelle. : Fi
 A ce style, à des emplois qu'il fait de ce style, à l'idée HAT
-4 même, ou à l'instinct qu'il a eu généralement d'en faire Fe
 à emploi, à la lente ascension, et au brusque surgis- Li
 # sement de certains mots, on sent que ces modernes 1
 # sont pour lui des partisans, grossiers, lui qui n'était ne
@@ -678,7 +650,6 @@ F moderne et de la Science: infaillible et définitivement 10
 | de droit de toute la Vie intérieure. Il sera reçu encore b
 
 is à dans le monde des Principautés, mais au titre étranger, ; FE
-ne 4 au titre de représentant du peuple et de délégué de la "4
 js ‘11 République aux armées. Il sera leur grand représentant, L. 4
 _ leur grande autorité, celui sous lequel ils se couvriront ‘4 VA
 : F4 contre les Puissances redoutables. Il est le patron du F
@@ -694,7 +665,6 @@ ie les défroqués subsidiaires atteindre chez eux et parmi 4
 La à eux à de telles fortunes qu'ils ne croient rien pouvoir 7
 :1 imaginer de mieux, de plus flatteur, de plus populaire, eu
 1 pour l'ancêtre, le grand homme, que de se le repré- 11%
-{ 4 senter, de le représenter et de le fêter et de l'inaugurer ‘4 } j;
 M comme le défroqué en chef. Tel fut exactement le sens 4
 a 13 et la valeur de l'inauguration du monument de Renan - 4
 é F à Tréguier. Et cette inauguration n'était elle-même que ki 7
@@ -718,7 +688,6 @@ L: de sa personne avant le triomphe et avant la fête. 1 Hi
 4 attribuer des propos et des sens que vivant il n'eût sans EN
 4 On pouvait lui dire, et lui faire dire, ce que l'on vou- 4 À
 4 lait. On était sûr, au moins, qu'il ne répondrait pas, 4)
-4 ni ne protesterait. : 11
 ‘4 Cette idée, particulièrement, était celle de ces imita- ‘14
 1 teurs eux-mêmes, qui souvent, — et très souvent en M:
 1 toute conscience, en toute sincérité, — s'autorisaient de sue
@@ -749,7 +718,6 @@ _ mesure que l'on vieillit, et que le monde vieillit, on Re
 "4 14 découvre toujours que l'événement est plus fort que … M
 1 vous, devient toujours plus fort que ce que l'on imagi- <a
 ÿ HE: nait, se redouble, se bat lui-même, se multiplie. Se ‘4
-Da dépasse. Les hommes du temps de Renan, et de la “4
 _ formation de Renan, quand ils se mettaient dehors, ne Dr
 108 prétendaient point en même temps être dedans. . . 4 (4
 1 ni Or comme ils ont noté, ce qui n'était pas difficile à ‘410
@@ -810,7 +778,6 @@ unes deses œuvres ces certaines formes ecclésiastiques, En 0
 _ taire, d'une sagesse filleule de celle du vieil Ulysse, cet 14 é
 ne. autre navigateur, ce Grec Breton mâtiné de Normand, D
 
-‘ai A Charles Pépay UN OUR 4 Nr h
 18 Rs que c'était en somme pour sauvegarder ses plus simples  « 15 intérêts. Ils savent leurs dates. Ils savent leurs filia- “4
 ft PL: tions. Ils n'oublient point que si Renan est leur initia- 4
 ni A teur, cela veut dire par définition qu'il avait commencé
@@ -834,22 +801,18 @@ ri aussitôt que nous eûmes acquis l'assurance que quelques tu
 104 sots les avaient définitivement tirées d'affaire, il n'est ÿ)
 1 pas étonnant que notre maître, en des temps moins î
 ‘A conservé certaines formes qui plaisaient aux anciennes :
-ÿ clientèles, en un temps où il était indispensable à sa À
-à gloire, à sa puissance, à sa réussite, à sa sécurité 4
 + même, au moins à sa sécurité sociale et professorale, |
 ‘4 que ces anciennes clientèles, — cléricales et sans doute
 bi réactionnaires, mais il faut bien vivre, — le cou- ñ
 10 vrissent au moins de leur indifférence et presque d'un 4
 | f reste de fidélité. en
 
-à ie ii PR EUUR ji Fr $ NE gk: FD PRE AU di à PE A : | oi
 É à Ils parlaient ainsi, méconnaissant leur maître. Ils "4
 ‘4 peuvent croire qu'ils font la même chose que Renan, 20
 ‘À mais nous avons, nous aussi, une assurance; nous ne
 D avons l'assurance, nous, que Renan ne faisait pas la 48
 4] même chose qu'eux, ou du moins qu'il ne faisait pas ; “À
 À seulement la même chose qu'eux. Hi.
-#0
 
 À Je ne nie pas cette explication par l'intérêt. Je crois 10
 À qu'elle est vraie en elle-même. En outre elle est vraie, 7
@@ -1034,32 +997,22 @@ sances extérieures. Symétriquement cette nouvelle malé- hs
 .  réprouve, contre le père, et avec une autorité d'autant 4
 + plus poignante et d'autant plus monstrueuse que c'est 14
 
-LyeNT el AAA (a Al M à Eu id Hi ee ; A4 NE 8e EAU
-EEE Gharles-Pégay SUR
 40 celui-là est son propre père et ten
-| ii PRE Pr UE enversement du respect F4 40
-di) la fait un monstrue Ê KEANE
 RAS cela : à des puissances 11,70
 Pate : traire, à des p: AU EN
 M: intérieures, aux pu TU ui lui sont com-
 > YU cisément aux pul: nas MS 1 profonde ‘4
-1 à Oil pan ou ce DS intérieures 14
 ù Fi communauté, puisqu'il ni génération, et cesont elles … Ra
-15 TS À ie de la ? En
 110 Na ie i, par une trahison monstrueuse, |
 11 qu'il retourne contre lui, par un lonté,sansinten
 HA: ise volon! ni
 À ne sans effort pourtant, sans mauvais sq suffit qu'il
 ii tion, sans volonté peut-être Ho di des puissances À
-#10 5 esta À
 1 min agisse par une simple mani Hipas tion 4
 du s IAE Et c'est ce qui fait cette ac ; : 4
-Ut " : trueuse si redoutable, qu'on se de.
-fe 4 ce Û ne qu'elle na pas beso 1
 1 ‘à qu'elle n'est point ni aître pour triom- A.
 11e : lue. Qu'elle n'a qu'à par 4
 1 d'être voulue. là, de l'ancien au moderne, un Ÿ
-MU pher. Il Via vr s où che- 4
 LUM : ement du sen }
 ne retournement, tout un xhperS est plus le sang des .
 4 .  minent les responsabilités. Ce 7 es, qui retombe sur %
@@ -1072,10 +1025,8 @@ di dénonce sa source, qui) trahit je réprouvé dans ses |
 1 contraire qui remonte et bg fi ji À cette MO ation ne
 à NA de l'auteur cette contre-malé N ie contre-indication {
 ( D DR Un Vanne Quand un fils parle mal
-SI formelle du moderne à l'ancien. AR D
 D: à ère, je suis blessé dans mes sentim +4
 118 de ses père et mère, j AU
-rai on s 43
 
 les plus profonds, j'ai l'impression d'une impudeur, 33
 peut-être la plus grave de toutes, et d'une indécence ;
@@ -1164,7 +1115,6 @@ _ point d'aboutissement d'un cheminement continu dont le L. a
 - pas un seul instant perdre de vue les explications, les U à F4
 kb. lectures, les interprétations, fussent-elles grossières, ‘ Eee
 _ qui nous assaillent montant de toutes parts de ces M
-ne LR
 * Nous ne devons pas perdre de vue l'explication par jé Ra:
 _ l'intérêt. D'une part c'est une explication qui est vraie De:
 - en elle-même. D'autre part, et ceci est presque plus ° {70
@@ -1232,9 +1182,6 @@ j Ces mansuétudes mutuelles de l'Église et de Renan, ces
 4 son commencement à lui, ou pour parler exactement , ,
 1 depuis son commencement, depuis son ancien, depuis
 - son premier commencement en ses ancêtres et depuis
-| “à
-
-RU ‘Charles Pég ON
 
 à é 14 ? son propre deuxième commencement en luimême avaît | ‘4
 1 : 1 reçu, avait conçu cette habitude indélébile de parler, de 4
@@ -1442,14 +1389,12 @@ k hommes de ce temps et de cette génération, les intellec- 18 1
 4 lectuels, après et pendant les exemples retentissants de Ke ke
 k Lamartine et de Hugo, de tant d'autres, étaient ambi- fn
 1 tieux, convoiteux non pas tant peut-être de la puissance £ 138
-e et de la domination que de la gloire politique, — ou 14
 ÿ _ plutôt il était d'autant plus volontiers un homme de {Kai
 À parti que c'est le bon moyen pour devenir ce qu'il ne ë Fo
 | demandait qu'à être : un chef de parti : voilà ce qu'il ne Fo ‘2
 À faut jamais oublier quand on aborde l'Avenir de la URU
 B Science : que ce livre est un livre de parti, un livre Le.
 4 d'homme de parti, et, sourdement, un livre d'homme de 48
-| : É LE
 
 il parti qui ne demandaït lui-même qu'à se faire des par- 1
 
@@ -1463,7 +1408,6 @@ parti. Enrôler des jeunes gens, la plus vieille et la plus KI
 chère ambition, la plus secrète convoitise ecclésiastique. à
 
 Il y a beaucoup plus de ressemblance, beaucoup plus 44
-de voisinage qu'on ne le croit, ou, pour tout dire, il y a L:
 k une toute proche, une étroite parenté entre l'ambition 1
 intellectuelle et l'ambition politique, entre les partis k
 
@@ -1528,7 +1472,6 @@ PS et que nous voyons tous les jours autour de nous davan- ;
 à tage tant d'intellectuels, — tant d'universitaires, notam2 ment, — aussi aisément, aussi continûment devenir des
 4 politiciens, notamment se porter candidats aux élecke tions parlementaires, et quelquefois y réussir, — je ne
 
-MON Ghares Pégw UOOOUR
 +4 parle pas des élections municipales, — ce qui ne leur je fs.
 fe 113 arriverait jamais, et dont ils ne courraient aucun Eure
 _ risque, s'ils étaient proprement, purement des intellec- ‘4
@@ -1553,7 +1496,6 @@ _ coule, politiciens d'avant toujours et non pas même 4
 he, trée en soi-même et dans leur véritable nature, par une 1
 jt retrouvaille de soi qu'ils se rendaient de leurs prétendus 1
 à é pays de travail intellectuel à leurs véritables patries 0
-se de la politique et de ses agitations. {EE
 hi De cette connexité de la domination intellectuelle et 4
 10 de la domination politique, parlementaire gouverne- ?
 “4 h mentale, venue de leur profonde unité, manifestation
@@ -1570,7 +1512,6 @@ les pactes, les plus solennels, qu'aussitôt que le parti 4
 L' intellectuel serait parvenu au gouvernement de la Répur- 4 ‘4
 À blique, à la domination de l'État, son premier soin 12
 serait d'assurer la neutralité, philosophique, religieuse, Be
-| métaphysique, du gouvernement et de la domination de FAR
 | l'État de cette République. Il ne devait plus y avoir ni ‘4
 | philosophie d'État, ni religion d'État, ni métaphysique “ à
 d'État. De même qu'après le triomphe du dreyfusisme il ne. 1
@@ -1591,7 +1532,6 @@ amis, politiques ou amicaux, ce que n'eût point fait un ner
 président du conseil. ‘is
 à Ce que ni Briand ni Clemenceau n'eussent fait jamais, 4
 
-Fe \ Charles Péguy MA
 û : c'est précisément cela que M. Viviani a commencé par É
 wi, faire, s'est empressé de faire pour son commencement 171
 f de ministère, pour son installation, et aussi pour sa }
@@ -1622,7 +1562,6 @@ Chambre, aux applaudissements d'une immense majo-
 | applaudissements ratifiés et silence souligné par un affi-
 | chage voté lui-même à une énorme majorité, pour la
 première fois un membre du Gouvernement est monté
-à la tribune et a déclaré, officiellement et en titre, a
 
 k : proclamé, solennellement, non seulement que le parti £
 ‘] intellectuel se proposait d'asseoir sur le monde une 4
@@ -1707,8 +1646,6 @@ on « Maintenant, l'œuvre commence aujourd'hui; car que à ie
 | foi, à qui nous avons fait le ciel vide, qui reste humilié ‘
 
 Ë tous les jours par le contraste qui fait de lui à la fois +0
-
-L un misérable et un souverain? » 50
 
 4 Je ne le lui fais pas dire. Et enfin plus loin : Ô 4
 
@@ -1799,7 +1736,6 @@ et autres princes de la nuit. C'est alors que Hugo 9
 faisait rimer ombre avec sombre, et ensuite ombres k
 avec sombres, et quelquefois, plus heureusement, avec k
 
-io ne 1 : Charles Péguy NN “à
 40 décombres, car il n'était pas comme nos jeunes hommes, 1 j
 ‘5 que je ne veux point appeler des jeunes gens, pour
 dus ne point me faire assassiner, et il respectait la règle
@@ -1835,7 +1771,6 @@ A un révolutionnaire pour faire cela. Et c'est le contraire, |
 à Al c'est le geste de l'éteigneur qui a été hautement revendi51 _ qué parle poète comme un geste qu'il a proclamé magni- l
 Fo 45 fique. Il y a là un événement d'une portée incalculable. \
 
-ne. AU PARTI INTELLECTUEL dé D: %
 : Nous lui avons dit qu'il n'y avait, derrière les nuages 7 %
 . ‘ que poursuit son regard douloureux, que des chimères À & 4
 # célestes, et d'un geste magnifique, nous avons éteint,
@@ -1868,7 +1803,6 @@ le ministre. On doit aussi l'en remercier. Avec Lui
 U où nous allons, car lui-même il ne parle qu'au “ré
 passé, mais où nous sommes allés, où nous sommes F&
 
-1 : Charles Péguy | MON PNSENERES
 1324 Fi Cela n'a pas suffi. Tous ensemble, par nos pères, par Ë
 11 nos aînés, par nous-mêmes, nous nous sommes attachés à
 a dans le passé à une œuvre d'anticléricalisme, à une É
@@ -1901,7 +1835,6 @@ Rs. (Applaudissements à l'extrême gauche et à gauche)
 quand il cherche la justice ici-bas?
 
 ‘4 À M. Lasies. — Très bien! très bien!
-04 _ M. le ministre du travail. — — — ARépondez à
 
 1 ceux qui disent que la hardiesse dans les réformes
 
@@ -1991,7 +1924,6 @@ vf & l'Acropole, a prononcé des paroles excellentes. Parlant
 11% ; personnel, et aussi parlant sur des résolutions de poli- |
 je pe tique prochaine, pour des décisions de gouvernement |
 VS immédiat, il a sensiblement réussi à dégager le gouver- |
-‘4 É nement du discours de la veille. À
 ‘52 Il a recloué au mur la vieille déclaration des Droits pi)
 à 1 de l'Homme et du Citoyen, que le précédent orateur, à
 ‘10 dans son mouvement, procédant comme un simple |
@@ -2040,7 +1972,6 @@ a . opération métaphysique, religieuse, variable elle-même
 (a et différente, différente de soi-même, c'est en réalité en À
 x faire déjà plusieurs, selon qui est ce Dieu, unique. Et il ;
 
-Ni y a autant d'opérations différentes qu'il y a de ces 1
 ïh Dieux, uniques. Réciproquement croire qu'il n'y a pas À
 4 $ un Dieu, mais plusieurs, c'est encore faire une opération é
 4 métaphysique, religieuse, différente de la première, bien È
@@ -2063,7 +1994,6 @@ un Dieu ni plusieurs, c'est faire en face, en contraire, en
 1 Pour parler le langage de l'école, faut-il donc rappeler 4
 | que l'athéisme est une philosophie, une métaphysique, 1
 qu'il peut être une religion, une superstition même, et f
-; qu'il peut devenir ce qu'il y a de plus misérable au
 
 (P monde, un système, ou plutôt, et pour parler exacte- !
 
@@ -2096,7 +2026,6 @@ a une valeur absolue, essentielle, totale, métaphysique, 2
 
 ! religieuse, parfaitement annulante, c'est faire encore \ à
 | une autre, encore une multitude d'autres opérations EN
-| métaphysiques, religieuses. #10
 ; Infiniment plus inintelligibles, plus inconcevables, * ë
 4 plus impossibles encore à se représenter même. Hypo- 4
 4 thèses infirmes, comme toutes les autres, parce qu'elles 4
@@ -2124,7 +2053,6 @@ a si ques-unes de ces humanités, faut-il redemander à un '
 141 Pour moi je lui en redemanderais bien deux ou trois,
 "10 pour commencer, parce que c'est bien agréable à lire 4
 Da. en épreuves, beaucoup plus que le meilleur des discours L
-# | k parlementaires. N.
 10 On peut penser personnellement, comme je le pense, 1
 14 que cette métaphysique du parti intellectuel moderne 18
 ï est une des plus grossières que l'humanité aura jamais à
@@ -2174,7 +2102,6 @@ moderne a infiniment le droit d'avoir une métaphy- = 74008
 qui est le débat, c'est de savoir si l'État, moderne, a le
 ; droit et si c'est son métier, son devoir, sa fonction, son + 3
 
-| EEE Charles Péguy 7
 Phil office d'adopter cette métaphysique, de se l'assimiler, 4
 HA - de l'imposer au monde en mettant à son service tous 4
 ) | les énormes moyens de la gouvernementale force. \
@@ -2209,7 +2136,6 @@ ne sont pas des peuples, allant également contre :
 | 68
 
 fi *  kantiens; sans compter la philosophie que l'on voit pe
-| venir. 2h
 Dans le langage de l'école allant également contre 1
 tous les théistes et contre tous les déistes, dont les D
 sortes sont innombrables, contre tous les monothéismes, , F
@@ -2242,9 +2168,7 @@ $ sique et cette religion. Il ne s'agit pas de le savoir ici. MES
 
 ne impossibilité, de droit et de fait, à cet égard, etence 4
 1100 sens, — quand même alors l'État n'aurait absolument
-‘314 aucun droit ni de se l'assimiler, ni de se l'incorporer, He
 Ar ni de nous l'imposer par les moyens qui lui sont 4
-CE propres. \
 710 Ni d'en faire une partie intégrante et constitutive de ;
 _ l'État, ni de s'en faire le ministre exécutif et le bras ÿ
 ‘14 Quand,donc aurons-nous enfin la séparation de la h
@@ -2270,7 +2194,6 @@ f t sociétés modernes, et dont il s'acquitie si mal, et s'en +
 f qe et aux conditions de son métier.
 \ Ho Quand donc notre État, qui a déjà tant de métiers, qui Al
 
-| LAN ASE AU PARTI INTELLECTUEL +48
 114 fabrique des allumettes et qui fabrique des lois, qui ‘5
 ‘44 fabrique du transport par chemins de fer.et des règle- $ Le
 D. ments d'administration publique, non sans peine et FE
@@ -2278,14 +2201,12 @@ __ souvent sans quelque embarras, qui s'aperçoivent, æ.
 8 laissera-t-il en paix définitivement les consciences et ; ; 3
 ‘ A comprendra-t-il que ce n'est pas son affaire que de nous & ; y
 \ fabriquer de la métaphysique. "0
-# ‘ 51
 à Quand donc l'État, fabricant d'allumettes et de contra3 ventions, comprendra-t-il que ce n'est point son affaire
 que de se faire philosophe et métaphysicien. CR
 4 Il y en a déjà bien assez, qui sommes métaphy- Se
 i Nous avons le désétablissement des Eglises. Quand PAU.
 < aurons-nous le désétablissement de la métaphysique. ‘54
 À Quel onze ou douze décembre, puisqu'on nous parle Ç ; us
-À - toujours de ce onze décembre, le onze ou douze dé- RE Gi
 cembre de quelle année du temps nous apportera le "ei
 ‘4 désétablissement de la métaphysique. 5 FN
 he. Quand un ministre à la tribune enfin comprendra-t-il re
@@ -2293,15 +2214,11 @@ que ce n'est pas son affaire, comme ministre, de nous x L
 1 faire un enseignement ni une imposition de métaphy- BRAUN
 hi HAue; et quil a tant d'autres choses, utiles, à nous FE '#
 ‘à dire et à faire. 7
-r{ en >) Carr De
 ; Nous n'avons plus de catéchisme d'Etat. Il n'y a pas PAU
 N! très longtemps et nous devons nous en féliciter sans de:
 ‘à aucunes réserves. Faudra-t-il, Pulligny, que ce Monde 50
 Êe. sans Dieu qu'ensemble nous éditâmes d'un bon accord, ie \S
 
-DEA LRO EN NE AU AGAIN NE cn er Rent
-
-DU chats Pégay NON
 vous traducteur parce que telles étaient sensiblement ji à
 _ vos opinions, moi éditeur comme l'essai le plus inté- AANE %
 _!  ressant dû dans ce genre à l'initiativeprivée,faudrat-il

@@ -65,7 +65,6 @@ comme il convient à un convalescent. Pour quelles raisons vouliez-vous échappe
 je savais que ma mort causerait une épouvantable souffrance à quelques-uns, une grande souffrance à plusieurs, (34
 une souflrance à beaucoup. '
 — Bien. Nous sommes ainsi reconduits de la consi- 1Ë
-du mal.
 — J'aurais eu de la peine réciproquement si je m'étais
 représenté que la mort consistait sans doute à quitter l
 les survivants. Mais je n'arrivais pas à me donner cette
@@ -266,7 +265,6 @@ susceptible d'en être tiré; mais elle mourra, et, croyezle, elle mourra, comme
 de Théman, « avant d'avoir atteint la sagesse ».
 
 — Je reconnais, docteur, et je ressens cette sérénité.
-Mais Renan.
 
 — Il ne s'agit pas de Renan, mon ami. Voyez sa pré-
 .… Je me résigne d'avance à ce que l'on m'attribue
@@ -419,7 +417,6 @@ morts collectives ? Il vaut mieux faire ce que l'on fait.
 — Pas encore, citoyen, je veux dire tout ce que je
 veux dire à ce M. Théophraste. Et que ne dirai-je pas
 à son ami M. Théoctiste. Écoutez un peu, docteur, ce
-qu'il me dit
 « En somme, la fin de l'humanité, c'est de produire
 
 des grands hommes ; le grand œuvre s'accomplira par la
@@ -661,7 +658,6 @@ maintenues par la tenue de la forme. Alors on demanderait au moins quelques déf
 
 merveilleux, réconcilient avec ces excès de définition
 
-hdd DA on ne anne ve j' ÉEAS LAS a Etat réa pee Ld
 que présentent certains dialogues platoniciens, moins
 souples et moins merveilleux. Ils réconcilieraient
 presque avec les manies scolastiques. Ils réconcilient
@@ -1031,7 +1027,6 @@ laquelle il avait fondé tout le règlement de sa vie. »
 Cela semblerait donner quelque apparence à vos
 généralités. Mais nous distinguerons.
 
-Plus loin
 « Voilà comme il a passé cinq ans de sa vie, depuis
 rectifie que : il fallait dire seulement quatre ans de sa
 vie, depuis trente et un ans jusqu'à trente-cinq — travaillant sans cesse pour Dieu, pour le prochaïn, et
@@ -1052,7 +1047,6 @@ qu'il ne pouvait les satisfaire, quoiqu'il en eût un grand
 désir. \ » Ce renouvellement de ses maux commença par
 un mal de dents qui lui ôta absolument le sommeil. »
 
-Plus loin
 « Cependant ses infirmités continuant toujours, sans
 lui donner un seul moment de relâche, le réduisirent,
 comme j'ai dit, à ne pouvoir plus travailler, et à ne )
@@ -1113,7 +1107,6 @@ la violence ou la surprise qui dussent produire cet effet.
 C'est en cette manière qu'il travaillait sans cesse à la
 — Je passe pour aujourd'hui le témoignage que madame Perier nous a donné de la pauvreté, de la pureté,
 de la charité, le service du roi, la simplicité.
-Je continue
 « Je tâche tant que je puis d'abréger; sans cela j'au-
 rais bien des particularités à dire sur chacune des
 choses que j'ai remarquées : mais comme je ne veux

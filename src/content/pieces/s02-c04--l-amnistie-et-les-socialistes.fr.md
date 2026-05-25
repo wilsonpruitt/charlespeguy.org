@@ -36,7 +36,6 @@ au secours des éléments bourgeois libéraux, pour
 donner à l'Affaire son plein développement et la
 pousser jusqu'à ses conséquences dernières.
 
-Or il n'y a eu que le côté purement individuel de
 l'Affaire qui ait reçu sa solution : le côté social en
 vient d'être obscurci à jamais par l'amnistie. Les
 bourgeois libéraux ont le droit de se déclarer contents, puisque, par l'effet de la grâce présidentielle,
@@ -228,7 +227,6 @@ A Jaurès, auteur des Preuves, nous proposerons,
 dans le même cahier, une sérieuse contribution à la
 continuation de ces Preuves.
 
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
 L'{PRIMERIE DE SuResNes (G. Ricæarp, administrateur), 9, rue du Pont.—3817
 
@@ -243,7 +241,6 @@ la Librairie Giard et Brière
 
 Dans la Bibliothèque du « Mouvement Socialiste »
 Émize VANDERVELDE. Les Villes Tentaculaires ........ 15 centimes
-JEAN JauREs......... Bernstein et l'Évolution de la
 
 la Librairie 6. Jacques
 Émire VaxperveLDe. Socialisme et Collectivisme.... 20 centimes
@@ -255,17 +252,10 @@ suivi des divers rapports présentés au Congrès...
 
 Publié en commun avec le « Théâtre Civique »
 
-JEAN JAURÈS..... ... L'Art et le Socialisme........ 10 centimes
 N=B°=ÆEnoutre,les Conférences suivantes du Groupe ont paru
 A. MirrerAnD : L'Evolution Socialiste, dans la Revue Socialiste
 
-de juillet 1895.
-
-EmiLe VANDERVELDE : Le Cinquantenaire du Manifeste du Parti
-
 Communiste, dans {a Revue Socialiste de mars 1898.
-
-FRANCIS DE PREssExSÉ : L'Angleterre et le Transvaal, dans Le
 
 Mougement Socialiste du 15 janvier et du 1” février 1900.
 
@@ -276,7 +266,5 @@ Mouvement Socialiste, à la librairie Bellais, 17, rue Cujas, Paris.
 JEAN JAURES......... l'Unité Socialiste.............. 5 centimes
 
 Lire 18 premier et le quinze de chaque mois
-Le Mouvement Socialiste
 BELGIQUE : Bruxelles, 14, rue du Béguinage
 HUBERT LAGARDELLE | Société Nouvelle de Librairie et d'Édition
-TEL On Londnes  TERSONS | Italie: A. SCHIAVI (Rome)

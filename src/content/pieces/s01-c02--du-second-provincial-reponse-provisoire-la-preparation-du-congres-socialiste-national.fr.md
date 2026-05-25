@@ -10,7 +10,6 @@ wordCount: 40150
 ---
 ## Du second Provincial. Réponse provisoire. La préparation du congrès socialiste national
 
-SOCIÉTÉ NOUVELLE DE LIBRAIRIE ET D'ÉDITION, 17, rue Cujas
 La guerre= Les alliances - La paix
 
 La loi scolaire; le budget de F”
@@ -29,7 +28,6 @@ sion universitaire'; ; question d'Alsace-Lorraine; la
 
 La question religieuse; Léon France et l'Allemagne
 
-Les libertés du pérsonnel en- Ba France et la Russie; la
 seignant; interpellation Thierry | double alliance »; le Tsar
 
 seignement clérical; réponse à La France en Orient; les mas
@@ -42,8 +40,6 @@ ment bourgeois ; La guerre hispano*américaine;
 
 La question sociale dans l'en- mers
 seignement. L'affaire de Fashoda.
-
-Mon cher Péguy,
 
 Je regrette de ne pouvoir m'abonner à tes Cahiers
 de la quinzaine. Moins heureux encore que l'Agrégé
@@ -109,7 +105,6 @@ creuser cette idée? IL importe beaucoup de conquérir les bourgeois au socialis
 plus en plus; il importe surtout dele faire connaître
 à des millions d'ouvriers et de paysans.
 
-Mon cher ami, E
 La seule réponse définitive et valable que je puisse
 faire à ta critique sévère sera la teneur même de ces ÿ
 cahiers. Il est donc indispensable que je te les envoie et
@@ -334,8 +329,6 @@ Mettrons-nous en brochures de propagande le discours
 de Vaillant ? Irons-nous vanter au peuple, qui est en
 général simple et droit, la dictature impersonnelle du
 
-cahier dû 20 janvier 1900 x NE EUE
-
 bombes ; il y a pourtant de la poudre dans les cartouches
 derrière les balles ainsi que dans les bombes; et cest
 
@@ -550,7 +543,6 @@ Eugène Tomas, conseiller général de la Seine;
 Edouard VAILLANT, député de la Seine; WazTER, député de la Seine.
 Les secrétaires et les élus
 BERTHAUT, conseiller municipal de Paris; DEJEANTE, député de la Seine; FAILLET, conseiller municipal de Paris; Arthur GROUSSIER,
-député de la Seine; MarcHAND et PASQUET,
 secrétaires de l'Alliance.
 
 Sous ce titre: la lutte de classe, le même jour, Jaurès
@@ -748,7 +740,6 @@ groupes et les rivalités des hommes.
 La Petite République du dimanche 16 reproduisait la
 lettre suivante, du citoyen Carnaud, député
 Paris, le 14 juillet 1899,
-Mon cher Jaurès,
 
 Ci-joint la copie d'une lettre à Guesde dont vous ferez ce
 qu'il vous plaira. Que vous la publiiez ou non, j'ai voulu
@@ -758,7 +749,6 @@ que je trouve injuste envers vous et vos amis.
 Recevez l'expression de mes sentiments affectueux.
 
 Au ciloyen secrétaire, pour l'intérieur, du Parti ‘
-Mon cher Guesde,
 
 Retenu chez moi par la maladie, je n'ai pu, à mon grand
 regret, me trouver mardi soir au Conseil national, où, si
@@ -800,7 +790,6 @@ affectueux et dévoués.
 
 Le même jour Jaurès continuait sa réponse
 
-Ce qu'il y a de plus fâcheux dans le manifeste de
 Vaillant et de Guesde, ce n'est pas la passion injuste et
 violente dont il témoigne : ce sont les formes ambiguës
 dont il s'enveloppe.
@@ -1339,7 +1328,6 @@ République de transition et d'évolution sociale qui aurait
 ouvrier belge n'aurait pu sans doute ni en assumer seul
 la direction ni en abandonner le gouvernement exclusif
 
-hi PRÉPARATION DU CONGRÈS
 à la seule bourgeoisie libérale, toujours prête aux
 rechutes de réaction.
 
@@ -1374,8 +1362,6 @@ de roses rouges, avec un singulier mélange d'inquiétude
 et de sympathie.
 
 Tant de forces réactionnaires et révolutionnaires
-
-Les x
 
 étaient accumulées dans ces journées de crise qu'un
 incident de hasard aurait déchaîné des mouvements
@@ -1415,7 +1401,6 @@ que oui. Mais c'est là une question de fait ; ce n'est plus
 l'opposition de principe élevée, dans le manifeste, par
 Guesde et Vaillant.
 
-Or, et ce sera là ma conclusion obstinée, ni Guesde, ni
 Vaillant, ni moi-même, ni telle ou telle organisation ne
 peut se prononcer souverainement soit sur la question
 de principe, soit sur la question de fait. Seul, le parti,
@@ -1488,7 +1473,6 @@ bourgeois dreyfusards; jamais ils n'ont cessé de témoigner leur enthousiasme p
 qui livre la force armée de la nation entre les mains des
 
 (1) La Petite République du même jour publiait la rectification suivante
-Un mot personnel
 
 Jaurès me communique la lettre de Paul Lafargue que le journal
 publie. Elle contient un détail épisodique dont mon respecté ami
@@ -1597,7 +1581,6 @@ ne nous suffit pas, et nous voulons « fouiller les poches ».
 Lafargue est-il bien sûr d'ailleurs que les diverses fractions bourgeoises auraient ainsi laissé tomber sans que
 nous nous en mêlions toutes les vérités utiles?
 Cavaignac connaissait depuis le 14 août le faux Henri:
-il n'en disait rien. Il n'en a parlé que lorsque j'ai eu dé- î
 montré le faux. Il n'a avoué la vérité que quand il a vu
 qu'elle allait éclater par d'autres. Et qui ne voit que
 toute l'enquête de la chambre criminelle, qui a mis à nu
@@ -2210,8 +2193,6 @@ le monde entier. Vous voudrez y réfléchir.
 Comme conclusion je propose que la discussion soit renvoyée après le budget, et je dépose une demande de scrutin.
 {Très bien ! très bien ! à droite et sur divers bancs à l'extrême
 
-M. LE PRÉSIDENT. — La parole est à M. le ministre du commerce et de l'industrie.
-
 M. MILLERAND, ministre du commerce, de l'industrie, des
 postes et des télégraphes. — Messieurs, j'ai l'honneur de me
 joindre à M. le président de la commission du travail pour
@@ -2222,7 +2203,6 @@ sera, vous allez vous en rendre compte, très rapide. /Interruplions sur divers 
 
 M. Massaguau. — C'est l'étouffement de la discussion.
 
-M. LE MINISTRE DU COMMERCE ET DE L'INDUSTRIE. — Non, ce
 n'est pas l'étouffement de la discussion, monsieur Massabuau, attendu que vous aurez toute liberté de prendre
 la parole.
 
@@ -2253,12 +2233,9 @@ Mais il y a dans les résolutions de la commission un
 second point qui n'est pas d'une moindre importance. La
 Chambre a voté en 1891 le principe de la journée de dix
 
-M. LE MINISTRE. — De dix heures.
-
 M. Massaguau. — Nous ne faisons pas faillite à nos principes, nous. /Exclamations à gauche) Nous sommes pour la
 journée de huit heures ; je l'ai toujours déclaré.
 
-M. LE MINISTRE. — Je constate en ce moment un fait, c'est
 qu'en 1891 la Chambre a voté la journée de dix heures; que,
 cette proposition ayant été repoussée par le Sénat, voici
 septans que les rapporteurs successifs de la Chambre demandent l'inscription du principe de la journée de dix heures
@@ -2275,10 +2252,6 @@ M. CuexeL. — C'est évident.
 M. LE MINISTRE... qu'industriels et ouvriers demandent
 que la question soit réglée. Il n'est pas possible que la
 Chambre prenne la responsabilité d'un nouvel ajournement.
-
-M. ÉpouarD VAILLANT. — Je demande la parole contre la
-
-M. LE PRÉSIDENT. — La parole est à M. Vaillant.
 
 M. ÉnouarD VarzLanr. — Messieurs, il n'est pas possible
 que vous prononciez la clôture. M. Lemire s'est trompé en
@@ -2345,7 +2318,6 @@ Le scrutin est ouvert.
 (Les votes sont recueillis. — MM. les secrétaires en font
 le dépouillement.)
 
-M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre des votants... 04). 00 RME MIRE
 
 La Chambre des députés n'a pas adopté.
@@ -2555,7 +2527,6 @@ Par la réforme que nous proposons, deux équipes très distinctes, séparées p
 En adoptant notre amendement, que fera-t-on? On proté-
 gera davantage l'enfant et on arrivera à l'unification des
 heures du travail par la réduction coordonnée pour tous de
-la journée et de la semaine de travail.
 
 Mais ce n'est pas ce que proposent le Gouvernement et la
 commission; c'est le contraire. On nous propose de renoncer
@@ -2685,7 +2656,6 @@ n'a pas été appliquée, — vous le savez trop, — c'est à cause
 justement de cette résistance, que nous voyons apparaître
 précisément par le projet gouvernemental et par le projet
 
-os TRAVAIL DES ENFANTS
 de la commission, c'est parce que les patrons tout puissants
 n'ont pas voulu qu'elle soit appliquée et que comme aujourd'hui le Gouvernement leur a obéi.
 
@@ -2765,7 +2735,6 @@ on vient de le dire, ont résisté à la loi sur les accidents et
 sont devenus ainsi des instruments des résistances patronales, sans se rendre compte qu'eux-mêmes combattaient
 les intérêts de la classe ouvrière par leurs protestations.
 
-Il en est de même en ce qui touche la réduction de la
 durée de la journée de travail. Il y a encore des membres
 de la classe ouvrière qui n'ont pas une notion très exacte de
 leurs intérêts de classe. Mais ce n'est pas parce que quelques
@@ -2822,19 +2791,15 @@ comme je vous le demande; si vous votiez le passage à la
 discussion des articles, si vous marchiez avec le Gouvernement, vous agiriez contre la classe ouvrière, contre le progrès social et républicain, et vous vous rendriez coupable
 d'un véritable crime. J'espère que vous ne voudrez pas le
 commettre. fApplaudissements à l'extrème gauche et sur .
-M. CuArLes FERRY, président de la commission. — Nous
 demandons l'urgence et le passage à la discussion des ar-
 ticles. /Très bien! très bien!) 4
 Sur divers bancs. — A demain!
-M. LE PRÉSIDENT. — La parole est à M. Laniel.
 
 M. Henri LANIEL. — Je demande le renvoi à demain.
 
-M. LE PRÉSIDENT DE LA COMMISSION. — Je prie mon collègue
 et ami M. Laniel de reporter ses explications sur lartiele
 où nous pourrons traiter la question de la journée de dix
 
-M. HENRI LANIEL. — Je n'ai pas l'intention de m'opposer
 l'urgence et au passage à la discussion des articles: j'accepte
 volontiers la proposition de M. le président de la commission.
 
@@ -2844,9 +2809,7 @@ Il y a une demande de scrutin signée de MM. de l'Estourbeillon, Fouquet, Gayrau
 Roy de Loulay, de Pomereu, Lemire, Savary de Beauregard,
 Derrien, Le Gonidec de Traissan, Jules Baron, DelpechCantaloup, etc.
 
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre; des votants: UT" NM UNIS
-Métioniésabsotte PSE LEONE Ta Ge
 
 La Chambre des députés a adopté.
 La Chambre des députés a adopté.
@@ -2857,9 +2820,7 @@ Ont voté contre les citoyens Albert-Poulain, Allard, Bénézech,
 N'ont pas pris part au vote les citoyens Pastre et Rouanet,
 M. £e PRÉSIDENT. — Je consulte la Chambre sur la question de savoir si elle entend passer à la discussion des articles.
 Il y a une demande de scrutin signée de MM. Groussier,
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre des votants. 10027100 CRETE
-Pour L'adoption MEME CRT
 La Chambre des députés a adopté.
 Nombre/des votants #2 "IN ION CN A UENRATe
 Pour l'adoption ere
@@ -2867,7 +2828,6 @@ La Chambre des députés a adopté.
 Les citoyens ont voté comme sur la proposition précédente, sauf
 que le citoyen Pastre a voté contre, et que les citoyens Antide Boyer,
 Grousset, Labussière, Narbonne et Viviani n'ont pas pris part au
-M. LE PRÉSIDENT, — La parole est à M. le rapporteur.
 M. FERNAND Dugier, rapporteur. — Je viens prier la
 Chambre de faire encore un très léger effort. Je voudrais
 lui demander de voter l'article 1" nouveau de la proposition
@@ -3203,10 +3163,7 @@ Que se passe-t-il dans la réalité? Est-il vrai de dire qu'aujourd'hui les enfa
 M. ÉpouarD VAILLANT. — Parce que vous ne faites pas
 appliquer la loi.
 
-M. LE MINISTRE. — Je vais vous répondre. Je ne vous ai
 pas interrompu, monsieur Vaillant; je vous demande la
-
-M. ÉnouarD VAILLANT. — Je demande la parole.
 
 M. LE MINISTRE. — Est-il vrai que les enfants ne travaillent
 que dix heures? Ce n'est pas exact, et la loi qui vous est
@@ -3236,7 +3193,6 @@ hilarité : la Chambre est en train d'examiner un texte, nous
 en discuterons les diverses parties l'une après l'autre, et
 lorsque nous arriverons à la question du délai, j'aurai
 l'honneur d'expliquer à la Chambre, comme je l'ai dit, dès
-la première heure, à M. le rapporteur de la commission du
 travail, pour quelles raisons je trouve que le délai de la
 commission est trop étendu et pourquoi je me rallie, quant
 à moi, — et je l'ai fait dès le début, — à l'amendement de
@@ -3257,17 +3213,12 @@ inspecteurs du travail : Dans les établissements soumis aux
 lois sur le travail, il y a 433,637 enfants pour lesquels le
 projet que vous allez voter réalisera la durée effective du
 
-M, LE MINISTRE. — Je vous en prie ; j'ai indiqué...
-
 Un membre à l'extrême gauche. Nous voilà bien loin du
 programme de Saint-Mandé !
 
-M. LE MINISTRE. — Non, monsieur ! Je ne suis loin de rien
 de ce que j'ai fait.
 
 M. Lasres. — Il le retrouvera plus tard !
-
-M. LE MINISTRE. — Je vous remercie. /On rit)
 
 Le projet de la commission réalise dans le délai que j'ai
 indiqué la journée de dix heures, non seulement pour les
@@ -3296,8 +3247,6 @@ journée de dix heures non pas seulement aux enfants, mais
 à tout le personnel? C'est absolument impossible ! /Très
 bien! très bien! à gauche. — Interruptions à l'extrême
 gauche et à droite)
-
-M. LAURENT BOUGÈRE. — C'est de l'opportunisme !
 
 réalité. Quel est son devoir ? C'est d'user de ses droits, d'é-
 mettre des votes.
@@ -3390,9 +3339,6 @@ de 1892. Faisons notre devoir, messieurs, le reste n'a pas
 d'importance! /Vifs applaudissements à gauche et sur divers
 bancs à l'extrême gauche et au centre)
 
-M. LE PRÉSIDENT. — La parole est à M. Vaillant.
-
-M. ÉpouarD VaizLanr. — M. le ministre du commerce
 nous dit qu'il se contente d'inscrire dans la loi ce qui est
 déjà une réalité. Mais, quand nous lui demandons de tenir
 sa parole et d'appliquer la loi du 2 novembre 1892, c'est pré-
@@ -3561,7 +3507,6 @@ demande de repousser par voie de scrutin la disjonction
 qui est, je le répète, de la part de la commission, une pro- à
 position tellement grave, tellement fâcheuse et détestable, 1
 queje ne puis pas croire que vous puissiez la vôter./Applaudissements sur divers bancs à l'extrême gauche. — Mouve- À
-ie à TRAVAIL DES ENFANTS
 s'opposent à l'adoption de la proposition de résolution de
 
 M. DeyEANTE et divers membres à l'extrême gauche. —
@@ -3573,8 +3518,6 @@ La Chambre, approuvant le Gouvernement d'avoir formellement exprimé son intenti
 gralement la loi du 2 novembre 1892...
 
 Il y a une demande de scrutin, signée de MM. Vaillant,
-
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
 
 La Chambre des députés a adopté.
 
@@ -3610,22 +3553,17 @@ M. LE PRÉSIDENT. — Je consulte la Chambre sur le paragraphe suivant, sur lequ
 
 « … invite M. le ministre du commerce à différer l'application stricte de l'article 3 jusqu'au 31 mars prochain... »
 
-M. LE MINISTRE DU COMMERCE. — Le Gouvernement, d'accord avec la commission, demande à la Chambre de
 repousser ce paragraphe.
 
-M. LE PRÉSIDENT. — Il y a une demande de scrutin, signée
 de MM. Villejean, Merlou, Tourgnol, Lafferre, Bachimont,
 
-M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
 Nombre des votants 0.221.050 ASTON
-Pour l'adOplHonsr ANR CO MER ES
 
 La Chambre des députés n'a pas adopté.
 
 La Chambre des députés n'a pas adopté.
 e Tous les citoyens ont voté contre.
 
-M. LE PRÉSIDENT. — Je consulte maintenant la Chambre
 sur la dernière partie de la proposition de résolution
 « … et décide de mettre à son ordre du jour l'examen des
 propositions qui lui seront soumises par sa commission du
@@ -3635,11 +3573,7 @@ M. CrarLes Ferry, président de la commission du travail.
 — La commission, d'accord avec le Gouvernement, repousse
 cette dernière partie.
 
-M. LE PRÉSIDENT. — Il y a une demande de scrutin signée
 de MM. Allard, Breton, Bénézech, Lassalle, Dejeante, Walter, Chauvière, Boyer, Dufour, Florent, Lamendin, Pajot,
-
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-Marie absolue: ts. 04e LLele le
 
 La Chambre des députés n'a pas adopté.
 
@@ -3688,8 +3622,6 @@ Il y a une demande de scrutin signée de MM. de l'Estourbeillon, Savary de Beaur
 de Lanjuinais, Jules Brice, Colle, Julien Dumas, Magne,
 Derrien, d'Aulan, de La Ferronnays, etc.
 
-M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-
 La Chambre des députés a adopté.
 
 La Chambre des députés a adopté.
@@ -3703,7 +3635,6 @@ proposé par la commission
 Article premier. — L'article 3 de la loi du 2 novembre
 sur le travail des enfants, des filles mineures et des
 Jemmes dans les établissements industriels, est modifié ainsi
-qu'il sui
 « Article 3. » — Les jeunes ouvriers et ouvrières jusqu'à l'âge de dix-huit ans et les femmes ne peuvent étre
 employés à un travail effectif de plus de onze heures par
 Jour, coupées par un ou plusieurs repos, dont la durée
@@ -3718,12 +3649,8 @@ Dans chaque établissement, sauf dans les usines
 Jeu continu, les mines, minières et carrières, et les industries qui seront déterminées par un règlement d''administration publique, les repos auront lieu aux mêmes
 heures pour toutes les personnes protégées par la pré-
 
-M. LE PRÉSIDENT. — La parole est à M. Lemire.
-
 M. LEMIRE. — Je me réserve de m'expliquer sur mon
 amendement, monsieur le président.
-
-M. LE PRÉSIDENT. — La parole est à M. Cadenat.
 
 M. CADENAT, — Messieurs, j'avais demandé la parole pour
 la discussion générale de la loi, mais il suflira que je développe mes observations à propos de l'article 3.
@@ -3756,7 +3683,6 @@ réponds très volontiers et très cordialement à son
 appel, en m'excusant seulement auprès de vous de mon
 état de santé, qui me fera vous demander votre indulgence et m'empêchera probablement de parler aussi
 complètement que je désirerais.
-Le Péril
 Si nous remontons aux origines de ce comité d'action
 pour les réformes républicaines, nous pouvons résumer
 notre raison de vivre en deux mots : nous sommes nés,
@@ -3820,8 +3746,6 @@ ont résolument engagé leur responsabilité, résolument
 lutté pour la défense de la République. Peu importent
 les divisions ou les critiques particulières, il faut reconnaître que le gouvernement a rendu service à la République et nous serions ingrats de ne pas lui témoigner
 ici notre reconnaissance. (Applaudissements)
-
-Les élections sénatoriales
 
 Mais là n'est pas l'objet de notre réunion, pour deux
 raisons. D'abord, nous ne sommes pas un parti de portefeuilles; nous estimons que le pouvoir n'est intéressant, qu'on n'est digne de l'occuper, que si l'on peut
@@ -4004,8 +3928,6 @@ l'absolution et l'opinion d'un électeur. (Rires et applaudissements)
 Je vous demande pardon de cette digression, mais il
 est intéressant de savoir qu'un adversaire n'a pas
 triompher d'un événement auquel il est tout à fait
-
-Le cléricalisme
 
 J'en reviens à ce que je disais. Lors des élections, il
 nous sera facile de dissiper le malentendu et de retrouver dans la coalition que nous avons en face de nous
@@ -4270,7 +4192,6 @@ réunir, et ce quenous devons demander aux candidats
 de défendre avec nous.
 
 N'ayons aucune crainte. On nous parlait hier, à la
-Chambre, de Rabelais et de La Fontaine. Il y a, dans
 notre pays, beaucoup de fils de Rabelais et de La
 Fontaine, qui n'ont pas perdu le vieux bon sens fran-
 çais et qui sont parfaitement capables de montrer
@@ -4338,7 +4259,6 @@ congrégations, commandées par des chefs étrangers,
 animées d'un esprit antnational.
 
 Sur ce point encore, M. Léon Bourgeois est très net :.
-et il ne se contente pas de flétrir le cléricalisme au
 masque tricolore; il ne se contente pas de dénoncer
 l'éternelle manœuvre de l'Église contre la France ellemême et son libre génie. Il indique très nettement qu'il”
 faut voter, sans délai, une loi sur les associations qui
@@ -4421,7 +4341,6 @@ socialisme est entré si profondément dans la Répu-
 
 blique même bourgeoise qu'on ne l'en arrachera plus.
 
-Le Gérant : CHARLES PÉGuy
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie GA. Ricanp & CW, 9, rue du Pont. —I6
 

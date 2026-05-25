@@ -10,30 +10,8 @@ wordCount: 23843
 périodique paraissant tous les deux dimanches
 . 8, rue de la Sorbonne, au rez-de-chaussée
 
-ee PR er 4e: EC QT De Rue QU AUS SENS LEE AUS OUT, SL AT PR ARE 3 CN SMS ER EL RSRTR
-HAUTE a nt RE “ ete None RME EM [qe RU PAR EL
-AA AS es ete Re Et RATES
-D AG RE EL EN DCS LEE A CEA Ne pr MARNE SNA NP MAN OPEMRMES, SET Lcd EU à
-RL Je à PS ee es NS RAR nie nel SHC L'ANINS À
-A AE LA LADA EU lan RE A TRIAL ES Rec o
-UNE + AA LPS OS ps ont LCA VE EE EE PRES ne ATEN
-ss ne ï QU NN er ee a Late) LORS
-
-el ER RAR ET MAT TAC AU TMS PARUS LORS AN rar Et 25e
-
-NA  : D re on Are
-Re eine À Lune “4 RS ANR dpt Le NO 0 à
-ss it ANS 1 CNE Ne EE en an
-ALT CE A NC Orne EN io STD RU MANU) :
-
-UNE A NAN SANTE AN DA See RAR EE ai ie fé
-on de Se : At A noie LU :
-
-A pc da Dar A SN NE SA
-
 SRÈTÉENSS « J'aimerais à me plonger dans la vie com- LEE
 RS mune et à me laisser aller au grand flot dela Ste
-EU ; vie. Si je ne le fais pas, ne m'en demandez ee
 af É pas la cause. Pourquoi Joseph, revoyant en AUS
 . TNT Egypte les frères qui l'avaient vendu, laissa-t-il re
 È us échapper des larmes de joie? Pourquoi, malgré RER
@@ -41,17 +19,6 @@ TASSE) l'horreur qu'il inspire, ce chaos de coutumes Re de
 2 5 que nous trainons après nous de lOrient Le
 SLT nous relie-t-il encore comme si nous étions NÉS NSSE
 de rs Fer frères, ce que nous sommes bien moins sou Fo
-AS Es RES vent que nous ne paraissons? » é Sr Se
-
-rie AS pe Ce Re nn APR EN Ve
-
-RAR PE RENE NA ANR ne AUS dk Ar LÉ
-
-Mer EAN ECIE à PA 7 Fe MM Le NT
-
-TE NE Font ER ne TE à CURE ON 0) A TUE
-
-Re AN dent A bi du) PCs A oc ERA net SA
 
 Conseiller Référendaire à la Censure des Comptes
 du Cabinet du Ministre des Contributions, de la Paix
@@ -70,7 +37,6 @@ ancien camarade d'école des Sciences politiques, libéral,
 | révolté et libertaire, qui maintenant révoquait des allu-
 | mettiers et brisait les syndicats d'employés du Trésor.
 | Nous avions vécu ensemble de si belles années de
-| travail.
 Ï m'intimidait un peu. Je l'admirais. Il était si fin, si
 
 ae curieux, si subtil, si mobile. Et au moment oùallaitse
@@ -133,9 +99,7 @@ Censure des comptes.
 Sittenheim. Ce fut à la Mairie du Septième une éton-
 : nante pompe civile en musique. La mariée avait pour
 . témoins un ancien Président du Conseil et un Général
-| & 4 7
 
-| PS RUES
 3 André Spire vu :
 ; à plumes blanches. Et les revues illustrées repro- E
 duisirent en première page la robe de point d'Angleterre que portait la jolie Madame Sitenème-Martin.
@@ -206,7 +170,6 @@ l'avaient enserré dans des émotions, dans des impul-
 
 Gadya, Chad Gadya! La vieille mélopée réveillait en
 
-| André Spire : TES
 * Jui d'innombrables associations. Qu'elle était adorable “4
 l'antique succession des fêtes : Pâques et Pentecôte, 7
 Nouvel An et Tabernacles! Un désir le saisit de s'enve- cn
@@ -238,10 +201,7 @@ mystère de la vie. La science, quel secours lui a-t-elle #
 apporté? Elle classifie tout et n'explique rien. Les À
 
 ; choses sont. Expliquer les choses, c'est énoncer A en 4
-fonction de B et B en fonction de A. Qui expliquera it
 l'explication? Peut-être seulement par l'extase arrive-t- a
-
-on à comprendre ce qu'il y a derrière les phénomènes, à
 
 ee Mais non, il ne peut croire; son intelligence est sans
 ; remords; car, même ainsi atteinte, l'Essence doit être
@@ -329,8 +289,6 @@ bibliographiques, au milieu de cette vie infernale où je
 
 | n'ai le temps ni de digérer mes repas, ni d'être juste.
 
-|
-
 | J'avais par hasard un peu de loisir, et nous convinmes
 À que lorsque je saurais quelque chose sur Zangwill je
 1 viendrais. en parler à mon ami. $
@@ -357,7 +315,6 @@ bras une énorme chemise de maroquin pleine de dos: ee .
 demander la signature à une heure. Ça n'en finissait nn"
 
 : plus. Et comment ça va-t-il? Qu'as-tu fait depuis que je E
-ne l'ai vu, une éternité. : Tr
 
 L'attaché classait des papiers sur un petit bureau
 
@@ -377,9 +334,6 @@ n'est-ce pas que j'expédie ça! — Faites entrer. ai
 fut sorti, de causer ici un peu sérieusement avec toi. 1e
 
 Donne-moi rendez-vous chez toi un soir, un après-midi.
-Que diable, tu as le droit de te reposer quelques mi-
-
-Le téléphone retentit.
 
 — Tu vois, me dit-il; et feuilletant son agenda : pas
 mercredi. Ni jeudi. Vendredi soir bal au ministère;
@@ -397,8 +351,6 @@ Je n'ai jamais reçu de lettre.
 Et c'est moi qui suis obligé de lui écrire, pour lui
 rappeler cette heure de fièvre où il se souvint qu'il
 était Juif.
-
-Le Ghetto :
 
 Il y a toujours eu à Paris un certain nombre de Juifs |
 pauvres, des ouvriers et des artisans juifs. Ils habitent
@@ -471,7 +423,6 @@ corrompus, et s'écrit en caractères hébraïques. Le
 
 | 17
 
-Ho Æ PR ee re Aie on Ten k
 _ delsohn l'abandonnaït et recommandait aux Juifs d'Alle- 5
 | magne de se servir de l'allemand littéraire. Cependant
 comme il est la langue d'un prolétariat de huit ou dix 120
@@ -543,8 +494,6 @@ Li que parler des Juifs c'était provoquer l'antisémitisme.
 Ée pas un artiste. Ce qu'il veut c'est la vie, la réalité; il
 
 à 3% veut peindre ; il lui faut le bien et le mal, l'obscurité et
-
-3 la lumière, le comique et le tragique, le sublime et le
 
 * ' sordide. Il n'y a pas eu de littérature juive en France,
 
@@ -619,8 +568,6 @@ leur chère ruelle... plongent leurs mains dégantées
 dans les tonneaux où des concombres confits nagent
 dans leur saumure, ou goûtent, à même les barils
 amoncelés, les olives grasses et juteuses,.… sans plus de
-| (1) Ch. of the Gh., go. L
-| (2) The King of Schnorrers, 331. +
 | 21
 
 fausse honte que les écolières... Car c'est la nuit des d:
@@ -631,12 +578,10 @@ Olov Hasholom (1) avec leurs vieilles camarades...
 Scène sans pareille dans l'histoire cette fantasmagorie
 de chenilles et de papillons se rencontrant, comme au
 bon vieux temps, sur le lieu même de leur ponte. Con- è
-traste de richesse et de pauvreté si brutal qu'on n'en > Vi
 peut rencontrer de pareil que sur les champs d'or où
 dans les pays neufs, et jeté tout naturellement au milieu
 d'une civilisation sans couleur par un peuple doué d'un 7
 don indestructible pour le pittoresque. » (2) : |
-#4
 (1) Cest-àa-dire : des temps où, quand on parlait d'un mort, on re
 disait Olos Hasholom (paix soit sur lui); du bon vieux temps. Re
 
@@ -750,7 +695,6 @@ qui la plus humble vie laisse le souci de la plus haute
 
 Il raconte la vie de ces rêveurs du ghetto, fourreurs,
 fruitiers, employés, colporteurs, revendeurs, dans la
-| 25 Zangoill. — 2
 
 : chambre desquels il y a toujours un livre; savetiers
 j qui, battant la semelle, lissant des coutures avec un fer
@@ -1039,11 +983,9 @@ Raphaël. Est-il sage d'épouser le sombre esprit du
 É ghetto qui doute de soi? » et elle disparaît dans la
 à foule des passants. Mais, avant qu'elle ait réussi à s'emk barquer pour l'Amérique, Raphaël la retrouve. Ensemble,
 | _ is tenteront d'améliorer le sort de leurs misérables
-| frères juifs. :
 .
 .
 
-L'Humour Juif Ÿ
 Zangwill n'a pas regardé seulement la face grave du :
 ghetto. Son talent est complet, et ses dons sont mul- L
 tiples. Il sait rire. |
@@ -1088,7 +1030,6 @@ x tables. (3) Ils ont empêché le Peuple Juif de se « frapper »
 mie un peu terre à terre, et qui a toujours exaspéré les
 : mystiques, qu'Israël a duré au milieu de l'écroulement :
 5 (2) Voir le portrait de Reb Shemuel, dans Zangwill, CA. of the à
-F Gh, 63 et suiv. et 170 et suiv.
 FANS G) Moïse Schuhl, Sentences du Talmud et du Midrasch, Paris,
 
 des nations. Enseignant moins une religion qu'une
@@ -1178,7 +1119,6 @@ le Juif est moqueur, comme le Français. Comme le
 Français poli et plein de soi, il aime à se railler soimême par politesse et par orgueil. Il parle de ses qua-
 ; lités à voix basse et à voix haute de ses travers. (1)
 (n Sentences du Talmud, op. cit. |
->
 
 C'est comme s'il disait à son corps : tu n'es pas très
 joli, tu es grêle et gauche; à ses bras : vous êtes
@@ -1221,7 +1161,6 @@ l'âme désintéressée sans doute, non mercantile et
 brave, de la bourgeoisie qui les entoure, que sont fabriquées un certain nombre de blagues sur la forme de
 notre nez ou la roublardise de notre esprit. Aussi dans
 cette masse énorme, où il y a de tout, de l'excellent et
-du pire, de la quintessence de sensibilité et de la polis- .
 sonnerie, est-il parfois malaisé de distinguer de l''admiration agaçante de soi-même les traits de la satire la
 plus malveillante.
 
@@ -1267,8 +1206,6 @@ F — Patience, dit l'un. — C'est vrai, dit l'autre. Sait-on
 | l'enfantement. Dans la rue, devant la porte du petit
 à hôtel, les deux amis se rencontrent. — Monte, dit le
 premier, moi je ne pourrais voir Ça; tu me raconteras
-
-|
 
 comment ça s'est passé. Et il fait les cent pas sur le à E:
 trottoir. Enfin son ami redescend : Comment va l'en "8
@@ -1334,7 +1271,6 @@ l'esprit de repartie sur la place du marché. L'un d'eux,
 vous montez dessus à quatre heures du matin vous
 serez à six heures et demie à Strasbourg. — Qu'est-ce
 que vous voulez que je fasse à Strasbourg à six heures
-et demie ? (1)
 
 On le voit, n'est-ce pas, le petit œil châtain, qui
 regarde sans cesse en tous sens, entre les paupières
@@ -1391,8 +1327,6 @@ On dit au talmudiste : Vous devez la dime dès que
 ; les fruits sont rentrés dans la maison. — Mais la de-
 | vrai-je, répond-il, si je les mange dans la cour? — Non,
 | si la cour est ouverte, et que les voisins puissent vous
-| (1) Ch. ofthe Gh., 54.
-(2) Par exemple, The King of Schnorrers, 303 à 311 et Ch. of the
 
 à voir les manger. — Et si la cour est ouverte dans une Eu.
 partie et couverte dans une autre? — La partie cou- +5 :
@@ -1603,10 +1537,6 @@ vous aime.
 | Le poète s'élança et baisa l'ourlet du veston de Wolf.
 — Oh! vous êtes un grand homme, dit-il! puis il sortit
 3 fermant la porte doucement.
-
-#4 ac: tr à
-
-Les Pogromes
 
 L'impossibilité d'être satisfaits, voilà la caractéristique de la plupart des héros de Zangwill. Des natures
 si fines que le monde, dont la main est parfois un peu
@@ -1875,9 +1805,6 @@ glisse entre nous.
 Sans se troubler attire la face de Dayid vers ses lèvres.
 Embrassez-moi, David.
 
-|
-
-| ISRAËL ZANGWILL
 Je sentirais le sang sur vos lèvres.
 Mon amour l'effacera.
 Amour, amour chrétien. Pour cela, j'ai quitté les miens,
@@ -1902,7 +1829,6 @@ Comme David ressemble peu à cette raisonnable Chimène. Aimait-elle son père c
 qui calcule, qui analyse tout ce que l'opinion exige
 qu'elle fasse pour venger son père tué par son amant.
 Crains-tu si peu le blâme et si peu les faux bruits ?.…
-Il y va de ma gloire, il faut que je me venge.
 
 David et Vera ne s'occupent pas de ce que pensent FER à
 d'eux quelques gens bien élevés. Leurs sentiments SE
@@ -1968,7 +1894,6 @@ L: jection, sont tentés de prendre pour des nouveautés ce
 
 a n'a pas plus imité Ibsen qu'il n'a singé Shakespeare.
 
-L'Ito
 Une œuvre d'art, des mots, des sons, enseigner les
 hommes, émouvoir les hommes, chose vaine! Quelques
 êtres d'élite sont atteints dans la profondeur de leur
@@ -1987,7 +1912,6 @@ lettres ne suffit pas à l'écrivain juif. Cette action qui
 s'exerce sans danger dans le cabinet de travail donne
 une gloire impure. Comme ses héros, Zangwill a toujours eu la nostalgie de l'action vraie. Il ne se contente pas de pousser des troupes en avant, il veut
 
-| ISRAËL ZANGWILL
 marcher devant elles, pour les conduire vers ce but terrestre : une réalité idéalisée. Depuis cinq ans, Zangwill ;
 est devenu une sorte de leader juif, le Juge moderne
 que désirait Israël.
@@ -2115,8 +2039,6 @@ Dans la plupart des cas, cette émigration juive est
 une émigration d'expulsion. En route, les émigrants
 sont soumis à des vexations et à de mauvais traitements de la part d'employés inférieurs, d'agents d'émi-
 
-| : ISRAËL ZANGWILL
-
 gration clandestine, des marins et des bas-officiers.
 Les Compagnies de navigation ne veulent pas tenir
 compte de leurs habitudes religieuses qui leur commandent une nourriture spéciale. Au port d'arrivée, la
@@ -2151,8 +2073,6 @@ pas indispensable; elle n'est qu'un moyen pour une fin
 (1) Cette année même a été tenu à New-York un congrès où
 5.000 fermiers juifs étaient représentés.
 
-|
-
 qui est l'autonomie. Cette autonomie est absolument M.
 nécessaire. À quoi bon se donner le mal de peupler un 8 ‘+ |
 pays neuf, si les colons n'ont pas le contrôle de leur
@@ -2185,7 +2105,6 @@ quand ils pourraient émigrer en terre juive prouvera #2
 leur patriotisme. D'autre part leur situation mondaine
 est bien plus compromise par l'existence d'abattoirs et # à
 
-| RU ISRAËL ZANGWILL A
 de cloaques, comme le Territoire russe et la Mellah
 marocaine, que par un État juif prospère. S'imaginent_ ils que leurs amis chrétiens reviennent avec beaucoup
 de respect pour les Juifs, du Maroc où le proverbe dit ;
@@ -2205,7 +2124,6 @@ n'a que douze millions de blancs à répartir dans son
 É ques milliers d'hectares non encore en valeur pour en
 à finir avec cette irritante question juive qui intéresse
 Ë une population aussi importante que celle de la Suède, :
-L _ de la Norvège, de la Grèce et du Danemark réunis. Si
 # les puissances refusent, il est encore possible d'aboutir
 + par un chemin indirect : l'autonomie peut être facii lement atteinte, comme elle l'a été par les citoyens de
 4 la Rhodésia, comme elle l'est par ceux des Territoires
@@ -2276,7 +2194,6 @@ juifs, pouvant en cas de danger se grouper pour la
 (x) Voir le compte rendu de lentrevue entre Ahmed Riza et le
 | Grand Rabbin de Turquie dans 1! Corriere Israelitico de Trieste,
 | numéro du 30 avril 1909.
-| 73 Zangwill. — 5
 
 Self defence, et disposant d'une certaine puissance électorale, auront une vie respectée. -
 
@@ -2337,7 +2254,6 @@ qui passe ses jours à faire des bandages pour les blessures
 | l'Opéra, sont acceptables, en somme, dans les languissantes
 î heures de la paix. Mais quand nous sommes sur le pied de
 (1) Discours du 7 décembre 1907.
-| :
 
 guerre, quand l'agonie de notre peuple crie à nos oreilles,
 depuis les abattoirs russes jusqu'aux Mellahs du Maroe, et
@@ -2378,8 +2294,6 @@ de temps, Seigneur? Pour combien de temps? L'heure est \
 venue d'entendre la réponse, que le ciel, depuis des siècles, |
 nous envoie au milieu du tonnerre et des éclairs : Pour VA
 combien de temps encore? Pour combien de temps? ?
-
-|
 
 1 L'action n'a donc pas appauvri le talent de Zangwill.
 | Le plein jour ne l'aveugle pas, comme certains hommes
@@ -2423,8 +2337,6 @@ Israël indigne de ses propres souffrances. » (1)
 
 Dernière scène de l'acte II
 jetant ses bras comme un enfant autour du cou de son oncle (2)
-Je suis si heureux.
-Elle m'aime, Vera m'aime.
 As-tu perdu l'esprit ?
 Votre surprise ne m'étonne pas. Est-ce que vous croyez
 par hasard que je nai pas été surpris, moi ? C'est comme
@@ -2451,7 +2363,6 @@ les rêves et les sacrifices, les traditions et les superstitions,
 les jeûnes et les fêtes, les choses nobles et les choses
 sordides, tout cela doit aller au Creuset.
 
-| MENDEL
 Le Juif a passé mille fois par l'épreuve du feu, il s'y est
 seulement trempé et recuit.
 Feux de haine, non feux d'amour. C'est cela qui fond tout.
@@ -2472,7 +2383,6 @@ devinmes pas des Hollandais. La Turquie nous reçut quand
 
 { Vers quoi, vers Kishineff ? comme si sa vision se dressait devant
 lui. Vers cette face de boucher dirigeant le massacre ; vers
-j ces?
 | - Chut ! calme-toi.
 | 81
 
@@ -2488,7 +2398,6 @@ comme partout. Tu es infidèle à ta race.
 C'est à l'Amérique que je réserve ma foi. J'ai foi que
 l'Amérique nous gardera sa foi.
 Va-t-en, et épouse ta Chrétienne ; et sois heureux!
-Vous me renvoyez ?
 Voudrais-tu rester ici et briser le cœur de ma mère. Tu
 sais bien qu'elle prendrait le deuil à cause de toi comme si
 tu étais son propre fils. Va, tu as rejeté le Dieu de nos
@@ -2498,7 +2407,6 @@ plus vaste. Il faut que je m'en aille.
 Pars donc. Je lui cacherai la vérité. Il faut qu'elle ne
 soupçonne rien. Sans cela elle te pleurerait comme si tu
 
-| LE CREUSET
 | .
 FRAU QUIXANO, du dehors, dans la cuisine
 Un joyeux Pourim ! La porte de la cuisine s'ouvre, Frau Quixano se
@@ -2517,8 +2425,6 @@ Hi! Hi! Hi! Elle se plaque sur le visage un faux nez grotesque qu'elle
 tire de sa poche.
 (1) En yiddish dans le texte.
 
-DAVID, riant et pleurant à la fois D
-
 Et toi aussi. Elle applique de force un autre faux nez sur la face de
 Mendel, et rit de l'effet avec une joie puérile. Puis elle se met à danser au
 son de la musique. Kathleen se faufle en scène et danse joyeusement à côté
@@ -2533,28 +2439,13 @@ joue encore, et Mendel qui a arraché son faux nez se tient à côté de lui tou
 
 () En yiddish dans le texte.
 
-#4
-
 The Premier and the Painter /en collaboration avec Louis
 | Children of the Ghetto, 1892.
 | Blind Children {Poèmes), 1903.
-| . Ghetto Comedies, 1907.
-| Théâtre
 f Six Persons. — Children of the Ghetto {en anglais et en
-| The Melting Pot /Drame).
 VS A part les pièces de théâtre, dont la plupart ne se trouvent pas
 | en librairie, et The Melting Pot, édité à New-York, chez Macmillan, les œuvres d'Israël Zangwill sont éditées à Londres, chez
 3,51
 
-PAL on ji 4) NA Pile AA nn MU
-ASIA NE PAM NAN Pate L et) DA ITR I M
-D ue ou uns EU À
-TETE MIS REEEESS AU LEA CP EAN A LA AA ga tt Aa ta ARE EL 1
-AT AU nu MAS HD ET es FAN EE PATES RAA PEL
-
-Sa Zano villa SNS ha OUEST
-M PeiGhetto nu iso CAT SA nn ART G
 HÉiLes Enfants du Ghetto:...:11:.11.1 1m ;
-Et omourt Juif. 40 UE AAA
 IV Les) Pogromes: (ul ne ere res
-| Un texte de Zangwill. — Le Creuset.................. 79

@@ -18,7 +18,6 @@ mes paroles, et je vous serai fort obligé de faire la cor- ne.
 rection nécessaire dans votre prochain cahier
 Vous verrez que, dans la bourgeoisie française, il ÿ a cette L #4 er
 double caractéristique : esprit critique et désir de servir la MS €:
-J'ai dit: os
 Vous trouverez chez les intellectuels de la bourgeoisie à pv
 ar Ps qui ont pris la défense d'une certaine
 de servir la cause d'un déshérité. Fr) crue et désie
@@ -87,7 +86,6 @@ Et dire que j'ai
 Fine J'ai commencé cette lettre avec le parti
 Pris de t'écrire une laconique demi: !
 l RapuaëËL Marmer
-LL È Mon cher Charles,
 he. Je vais mieux. — Dans un de tes cahierstuas pourtant
 parlé des égards que l'on doit aux malades: sans vouloir
 Ph insister, un mot de réponse m'aurait fait plaisir dansme
@@ -141,7 +139,6 @@ que la Compagnie de Saint-Gobain. Cola ne ionnaires tels à de"
 au plus s'il connaît et eaux véritables socialistes : en qd ai n°
 et pratique le socialisme Ju : C'est tout M NE
 mor g fe, dois encore, ajouter que c'est an Jane Le œ
-du pays, conseiller qe a e. Le citoyen Huttean pe na
 . D ent D ue Hé par les défénsens ve 27e le docteur
 .| mier a odérés conservateurs clérieur doux PR" de vagues répn- De
 à avaient poissé pag és, trabissant leurs ctionnaires. Dès le pre4 Ylonnaires. masséez appoint formidable à collègues républicains, é
@@ -153,11 +150,9 @@ IndisCipliné et peu disciplinab]
 aimant la phrase et les
 nades à Olivet (2) plus prome-
 à plus que les conférences, à moins
-ce ne soient celles de Bouchor, où l'on chante P ie
 ER c'est par là qu'il faut les attaquer.
 Ë municipalité n'a pas changé
 Res. é. Portalis est ire
-Pierre Le Fegvre
 à Le citoyen Camarade, le
 de uns qu'ils ont rédigée en commun pour nous po rues
 fe onner acte et constatation de ce que, parmi les citoyens que nous
@@ -190,7 +185,6 @@ h organisé par le Groupe des Li!
 avons nommés, dansant Se De nous avons relaté à la page
 pr huitième. Le citoyen Camarade ne nous est pas des plus
 ï ï Monchercamarade nous est particulière- ".
-ce Lo Enn le citoyen Montrèschercamarade ne
 i la rectification comme l
 dieux. Nous les prions de considérer
 S'ils nous poursuivaient devant les tribunaux bourgeois pour nous
@@ -228,7 +222,6 @@ lundi 9 au samedi 21, C'est ce de AR allaient du
 n'est pas ce que tu as dit. Mon camar. A dire. Ce : !
 professeur de mathémati
 me l'a fait remarqué D pis dans les classes delettres,
-On arrivée ici. ji
 Plains les personnes exactes qui auront eu “a di
 c'est que j'avais fait de moi-même la ro
 plutôt qu'ayant commis l'erreur inverse de la tienne “
@@ -238,7 +231,6 @@ e samedi 21 juillet 1896. Or il suffit de consulter le calen-
 pi drier perpétuel de l'almanach Hachette pour s'aperce
 voir qu'en 1896 le 2r juillet tombait un mardi et que le
 à samedi était le 25. Lequel des deux doit-on lire ? À la
-ns même page, la ligne au-dessus, il y a un s à l'envers,
 a ; Cela fait mauvais effet, On sent venir la négligence, et
 l'indifférence à la suite. Si c'est que tu es fatigué, soigneL É toi, comme on dit. Sinon tâche d'avoir quelqu'un qui (
 t'enseigne l'almanach.
@@ -251,11 +243,9 @@ x ln service de renseignements, quelque abonné passant sur
 Le: ça se saura: Ça se sait toujours. Aussitôt que les cloches
 ke à ‘5 de Saint-Germain l'Auxerrois auront ainsi recommencé
 d à sonner, préviens-nous, et nous verrons Ce que nous a
-sl É Ton ami René LARDEN
 ‘ D Mon cher Péguy, ne penses-tu pas que les à se
 unicipales, surtout les élections parisiennes, SOR® PRE
 me UE de matière à ton histoire projetée
-COMMUNICATIONS ta
 n'est pas une raison pour que tuajournes les docum ps É Î
 les renseignements et les commentaires que tu nous d0Ï8
 sur ces élections jusqu'aux temps improbables où tu
@@ -375,7 +365,6 @@ d Opposer à‘ l'ennemi, Sur tous les points où il montre des
 hi troupes, le minimum de forces nécessaires pour le contenir
 . . l'immobiliser et l'user, en le tenant à tout instant sous.lR
 F. ; menace d'une crise décisive — c'est le combat de Prépara.
-Et tion.
 . Réserver une Partie des forces Pour produire un effort
 violent et concentré sur le point décisif — est l'acte prin-
 cipal de la lutte, l'attaque décisive,
@@ -403,7 +392,6 @@ in ca me se dérouleront comme dans le com- #
 bat offensif ; ear si la défensive est destinée à attirer l'ennetpi
 sur un terrain où l'on eroit pouvoir lutter dans de bonnes
 conditions, elle doit, comme le combat offensif, avoir pour
-but de battre l'adversaire et, il y a lieu de le répéter, de c
 briser par la force sa volonté. ne
 Nous briserons ainsi par la force la volonté antisémi- A
 tique. Mais des'imaginer que je vais recommencer comme
@@ -439,7 +427,6 @@ aux jours. Les bourgeois et les socialistes ré
 mentaires ne s'aviseront plus que le ë Rae
 accueillis dans leurs boutiques y font en
 ; AD page et
-É D à l'exercice de la marchandise. Au cas où les
 Fe andes antisémitiques recommenceraient, je ferai tout
 Se que je pourrai pour aller vous voir. Nous ne pouvons
 pas faire défaut à Zola, ni au colonel Picquart. Eux,
@@ -487,10 +474,8 @@ maîtres et des de len peu nous tenons à être des
 sônt trop nue times comme Duclaux j
 Pôur demander autre es culté il y a à connaître, À
 n'ont pas encore na e redire, à ceux qui -
-€ le bonheur de savoir, ce qu'i Den » Ce qu'ils ont pé- A
 
 en chaut: mais ils prétendent vire à doter, pe eue
-Le Porsssue v'msroms
 D 7° is vos cahiers avec beaucoup d'intérêt quand js
 Communiquent ou discutent les discours des chefs
 Le E. parti ou des groupes socialistes, ou quand ils publient
@@ -505,7 +490,6 @@ plus ou moins jaloux les uns des autres et plus oumoins
 “. intrigants? mais intrigants égoïstes cherchant avant
 tout à faire leur beurre au nom et à l'abri du proléta- Li
 x PU riat? — Qu'on les dénonce alors à la vindicte publique
-DU 73 à Cet instituteur continue: , nn
 Mais ilest aussi très possible de se tromper de bonne foi 1 k
 Av BL surles moyens que les socialistes doivent. employer pour
 PAR | arriverà transformer la société actuelle le plus promptement
@@ -515,13 +499,11 @@ ki tes les bonnes volontés, cultiver toutes les ‘aspirations, is
 si tellectuellés ou non, vers un avenir meilleur. Est-ce que le
 socialisme va tolérer chez lui des subtilités de casuistes +
 ï : Ÿ min! sur des mots et sur at
-sion A Don, besoin de définie à. Ho
  fomire pour A à ge développer? lui qui est
 tant de formules pour vi ice, de l'amour et du tra: ne:
 Ÿ la synthèse de Eu mme étant la meilleure L&
 
 ail — du travail honoré, désiré 00 où modif En
-ii à ine, un bonheur, une joie, Cor. v f : PEN
 conception humaine, urd'hui pour beaucoup, NS
 il était jadis et est encore aujo: poi j ..
 i jstianisme, telque l'a conçu l'aristotre
@@ -554,14 +536,12 @@ du collectivisme que ne le préparerait, tas soci Se va : à
 
 rand, ni Jaurès, ni pose n Lafarge, ni France, ni Mie.
 sur le socialisme et les nove Jene connais pas lenps idées
-FE ? Je pense
 droit, simple et franc comme la vé que tout ce qui m'est pas
 n'est pas socialiste, Je réprouve Fe la justice, la”liberté,
 je réprouve tont: le fatras de nos 1 Scolastique, ainsi que
 même qui les font et les étudient à ii Han où ceux
 ne sont d'ailleurs faites qu'au profit de ; ous ni
 collectivisme supprimant toute Dropeléé is
-qu'à les annuler et Jes contestations ce an pr
 lisme simplifiera tout. Fer Le sie
 Je crois que vous faites Vos cahiers pour intéresser
 É ; ses sociales la quantité des intellectuels uen
@@ -613,11 +593,9 @@ us de préjugés superstitieux, rie É à
 la collectivité, s'effraient même one
 Ils sont tous plus à plai
 ont cherché ou rêvé une st , surtout ceux qui x
-pérée là où il ne peut encore y avoir qu' e ou qui l'ont es- £ ue
 et ingrate. Et c'est encore une rai qu'une mission ardue 4 Là
 contre le découragement et . raison pour les protéger
 tomber si on les abandonne dans Reea où ils peuvent NES is
-de po ut tue Las eur isolement au milieu L APCE
 thiques. sont pas toujours sympa- N à
 Je vous donnerai
 ne erai plus loin l'adr.
@@ -633,7 +611,6 @@ cultivateurs, qui aiment
 vent de Jeur mi mais qui
 souvent par ignorance et dont les RE ne Œui'pèchent
 €R Contradiction avec les princi jee Penéralement
-k d Principes de justice .et de libe
 républicaine, Ainsi, dans la Commune de Plouéd
 Premier tour, et les £ Œui restaient de la nie Les ss
 À Passé au second tour avec 320 voix en moyenne dus
@@ -663,7 +640,6 @@ f. G) Nous n'entendons pas dense te à vingt-quatre ‘
 CN 7 tuteur moyen. Le eg dans le commerce de la Lbtak
 >. 0 ans, et j'ai été passer quai e circulaire ministérielle m'a rappelé
 ) 9 rieà Paris. Puis, en 188, un mmerce de la librairie a des grâces.
-FES 1 t-il deux 1}
 tion et à la visitation des foules. Ou bien ÿ
 a) un panoram ; rres colo- NE
 qu'il nous rappelle toutes les atrocités des gue ñ
@@ -684,7 +660,6 @@ du Panorama Marchand, où l'on voit revivre de si saisis- + ang
 sante façon les épisodes de la mission Congo-Ni à Le ?
 se 4 l'arës, c'est par la merveilleuse reconstitution de De
 son féerique décor qu'elle triomphe. : N à
-us la ri PASS LUS nv anch
 annonce : que: à l'Exposition, cette
 Panorama dans lequel 1 ÿ i
 nes de la vie africaine e peintre Castellani a reproduit des
@@ -692,12 +667,10 @@ visiteurs désireux de ira toujours au Trocadéro scè- D
 rendre com de nombreux PE l
 te comment les officiers colo- Fe i
 
-ahier du 20 Mai 1900
 nisent et civilisent. C'est Fu
 rendue avec une vie, un De scène de mœurs, une Jecon de ch,
 ris, une a dle choses
 de la réalité, Vigueur donnant l'impression
-à Sur ce ji
 Fes deuxième et dernier panorama Marchand, dif.
 ." ©à Premier, s'exercerait l'inventive écon
 nos camarades, 1 in Omie de » les administrateurs économes,
@@ -779,7 +752,6 @@ leur entourage habituel toujours diminué.
 ln: M. Gohier dit qu'il est fatigué. Qu'il se repose, Il a .
 combattu assez animeusement depuis le commencement
 pour avoir et droit à quelque repos et besoin de quelque
-S Ton Jean Ten ue
 ‘1, A Par télégramme réponse à Marc Meunier.
 À dre DIT é tout
 
@@ -809,7 +781,6 @@ anti ce que font les philanthr jours enthou4 à à dans la Petite République, s
 as ans une conférence au Grou: pe ne nommer, parce it
 sur lé Socialisme et les = Ke étudiants collecti- \|
 ntellectuels, je m'étais
-me le RER ENT
 Permis de ne pas prendr k
 de la bourgeoisie libérale « On Cette dernière marotte
 y a des socialistes qui voient que t, écrit Jaurès, qu'il
@@ -843,7 +814,6 @@ sur les questions sociales et rétorquant leurs arguments: À
 Var. A on dirait qu'ils se croient d'une autre espèce, æquis
 Ÿ 7. 3 pensent que les ouvriers sont des brates àfacæhumane,
 privés « du bien de l'intelligence », selon le mot de Dent
-fl me parla aussi de la méfiance, mêlée de RE î
 avaient pour Vaillant, Guesde et les militants MAarxs"
 L Un mme mener que le cation de Lanrgue ste
 elle était si éveillée que, pour ne pas les En re
@@ -880,7 +850,6 @@ atroce ef stnpide, Une mauvaise ph: vers une explication nn, "7
 des générations humaines “prie durant des siècles, Fe
 oufrances et de désolation. » dans un
 à @). Nous avons re
-un h ; duit
 pi à page 17. La cifation 4e, dut Cetis allocution au si
 Depuis un siècle, les sci
 pie fentes Fr AT le développement n'a
@@ -889,7 +858,6 @@ laient Socrate et Platon, aux débuts ps nage que formuindividuelle et de la dé
 core, et ce sont les intellectuels, He de Rennes
 k es qui sont les soutiens de l'oppression ea.
 philosophe de cabinet qui n'est
-ne s'est j i ns Jrene de la lutte de classes et qui
 e jamais préoccupé de rechercher les moteurs réels
 des sociétés humaines ; on s'explique donc pourquoi il at.
 x tribue à des doctrines théologiques les souffrances et les
@@ -923,7 +891,6 @@ ouvrières et d'autres ŒUVrEs #; radis, mais de bons re- Fa
 ils ne devaient pas Re
 cinq pour cent au leu de é
 are du cinq pour cent aus sa = à
-ice, de l'Art et de la Scien
 présentent avec leur orviétan et: leur onguent chlorofor
 L'ouvrier mal nourri, que dix et onze heures d'atelier
 épuisent, ne peut avoir qu'une très petite somme Su i
@@ -944,7 +911,6 @@ Le Correspondant et le Socialiste contre l'Université populaire
 M. H. Delorme signe, dans le
 une fielleuse chronique su 1 vspoRdant du 10 mars,
 que sur la Coopération des idées
-°A de ne pas m'insulter personTT —— .
 (D £a Coopération des idées, journal
 tion sociales, Palais du Pen de Thés Populaire d'éducation et d'aclaires, Bourses du Travel . tre Populaire, Universités Popu- J
 Secours Mutuels, donnait pré Nr ns Syndicats, Sociét és de !
@@ -1069,7 +1035,6 @@ avec un froncement des narines méprisantes.
 soutiennent les grèves, Las Fe vie calme, tran- Es
 deux cents qui vivent PAU dans les locaux généreusement En
 quille, un peu égoïste M ie de Paris. re
-suis à leur dispo PE à ia gélateurs de la lutte de # ‘à
 induit à recueillir l'avis en la matière des docteurs du Li
 socialisme, autrement dit des chefs d'écoles socialistes. ä ga
 L'opinion de M. Jaurès nous était connue. Le leader des An
@@ -1121,7 +1086,6 @@ donc obliger, si l'on veut être logique, à légaliser l'action
 j. conduit de l'un à l'autre. » Ainsi prédit M. Jaurès.
 ‘32 En somme, il se félicite du projet de loi et le salue comme
 L 4 une première étape dans la voie socialiste.
-Ré A. Que pense à ce sujet M. Jules Guesde, le collaborateur de
 A Karl Marx dans l'élaboration du programme Re
 le chef incontesté du « parti ouvrier français » pat
 Re ie; qui, fondé-par ui A £a rien ases
@@ -1131,7 +1095,6 @@ M. Jules Gues AA te Er de uffre depuis
 modeste appartement au cinquième étage. Il ‘ pce
 deux mois d'une cruelle maladie Ep se AS Ut
 free Tes + elfe, ses disciples vont tenir an
-ous , ; écrire SOUS 88
 gnie au « maître », faire sa 10 À homme au1 dictée, prendre ses ordres pour l'action, Û
 
 toritaire est chéri de son parti. Ce Los + HT ae
@@ -1162,7 +1125,6 @@ syndicat, absorbé par ses soucis commerci A" à”
 abandonnerait la défense des intérêt erciaux, ER
 répond : tout syndicat qui aband 18 corporatifs et il
 rie andonne les intérêts géné- SE &ù
-() Ainsi a composé
 me permets de coni spirituel typo,
 qui devait d effet qu'ils ont prêté : pro- j
 pod Roi res Benjamin La mise celui !
@@ -1198,7 +1160,6 @@ LT" vois pas.
 ‘4 semble les démolir une à une de son geste menaçant
 Ah! oui, c'est un acheminement au syndicat
 toire, dites-vous. Elle est bien bonne! Le se î. ë nu,
-‘té oration. Je vien
 Li gatoire doit produire l'unité de la corp
 
 de vous démontrer que le projet Li Sentone à L M1
@@ -1238,7 +1199,6 @@ cès, le patron se payera sur ses bie il perd son pro.
 meubles, tandis qu'à l S biens, meublesetim.
 ses membres devant la justice, pe peut soutenir
 Le risque rien. Ce, personnellement ilne
-On parlede syndi SLQue
 e B, M. Waldeck-Rousseau sauvegarde suriont Les
 droits des non syndiqués dans son projet, puisqu'il
 lique les ri 1 » Puisqu'il ap4 phqu sé rigueurs des articles 414 et 415 du Code pénal
@@ -1295,10 +1255,8 @@ flamme. Ce sont des fondateurs ses comme le papillon à la
 populaires! et des professeurs d'universités
 Nous en faisons la rainone nn | Populaires nous étonne un peu.
 de souverain mépris : + %. Jules Guesde nous répond d'un ton
-— Les universités i
 tance que. l'œuvre Fe me ont autant d'impor- !
 reilles inventj Igneux. C'est av l
-SAtions qu'on amuse le peuple. Ex Ki
 
 — Pourtant n'est-il é La
 ne faut-il pas fo: A d'instruire le peuple et
@@ -1356,7 +1314,6 @@ au pe le Temps est une réponse suffisante à votre ï. JT y
 article de ce matin pour que je me borne à vous en e où
 demander l'insertion. a à"
 Salutations. Juzes Guespe ‘4 Ni
-da le directeur du journal /e Temps, De:
 dant, je ne nat ten nie foi de votre correspon- f:
 taire les paroles éR ue cs bénéfice d'inven-
 notamment en ce du conter 1 Temps de ce soir, hL
@@ -1364,8 +1321,6 @@ e les éléments de division LA !
 
 il uvri re que Contient le projet de loi VW :.
 Millerand, les universités populair 1 -Waldeck.
-il che JULES GuEspe
-#1 LeT i i
 k F pe du vendredi 13 avril, dans ses Nouvelles du
 our, enregistrait la rectification de Guesde
 i A propos de l'interview que nous avons publiée, hier,
@@ -1377,7 +1332,6 @@ Sans mettre en doute la bonne foi de votre collaborateur, je ne
 prête le Temps de ce soir, inexactes (1) notamment en ce qui con-
 ë cerne les éléments de division ouvrière que contient le projet de loi
 ê Waldeck-Millerand, les universités populaires et la « boutade » de
-à la fin.
 “ Nous maintenons l'exactitude des paroles que nous avons
 9 % prétées à M. Jules Guesde, notamment en ce qui concerne
 les universités populaires et la « boutade » de la fin.
@@ -1388,7 +1342,6 @@ de ses paroles.
 ï era que larectification insérée à la Petite Républig
 fil ne comporte pas ce
 
-Mon ami,
 T'ayant communiqué la conférence du citoyen Lafar- ù
 gue, je suis heureux de pouvoir te communiquer la du
 conférence donnée par le citoyen Émile Vandervelde, sel

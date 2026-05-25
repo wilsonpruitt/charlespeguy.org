@@ -7,9 +7,6 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 26532
 ---
-| DIXIÈME CAHIER DE LA QUATRIÈME SÉRIE
-É NU ROMAIN ROLLAND | li
-mm, | CAHIERS DE LA QUINZAINE
 “À / paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
@@ -18,34 +15,7 @@ il suffit d'envoyer un mandat de trois francs cinquante
 | à M. André Bourgeois, administrateur des cahiers,
 8) rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième et de la quatrième
 Nous mettons ce cahier dans le commerce; nous le
-|
-
-ne
-
-mi Par 7 NOR Un trene 4 Ÿ ru = A
-; £ ” « dei Gé TE et RE ETS NT R ET Le ge RNE DD,
-Ne RTE. HU ES PR R CESR lee fie at) BTS
-: VE CRT RER Ris Ma reRt y? QE ie Pre Pr DRE UERELRE TA
-LS RSR NUE LH Tnt NE CU IRON
-SEP "est A AR ENTT Mu 22 OCR ne SAUTER
-sa tai, ES UE TT SOON VER | re Lo hs Te —
-
-pre RU li TES EP PA SN Er Se
-
-|, PR LÉ SE CIRE FER TRRS
-
-2 + yes à 2). -# où An en À ue, SET db) LE “Jon RTS
-
-M « LE | RE RAR À CAS ARE pee ne
-
-| 11 CH RRTCRE à LR NS TPREN
-ATEN MORE D ; n£ Pas + SERRES
-
-LÉ PRE RER" eo ce = LAS AE TU ERSS
-
-FÉCROAES re > PE NP TR AO ce AE LORS
 
 L'air est lourd autour de nous. La vieille Europe
 s'engourdit dans une atmosphère pesante et viciée. Un
@@ -68,7 +38,6 @@ donner la main à leurs frères dans le malheur, qui
 . Les ignorent, et qu'ils ignorent. Ils ne doivent compter
 _ que sur eux-mêmes ; et il y a des moments où les plus |
 . forts fléchissent sous leur peine. Ils appellent un secours,
-un ami.
 . C'est pour leur venir en aide, que j'entreprends de
 _ grouper autour d'eux les Amis héroïques, les grandes
 è âmes qui souffrirent pour le bien. Ces Vies des Hommes
@@ -77,7 +46,6 @@ _ elles sont dédiées aux malheureux. Et qui ne l'est,
 . au fond? À ceux qui souffrent, offrons le baume de
 la souffrance sacrée. Nous ne sommes pas seuls dans
 
-Romain Rolland
 le combat. La nuit du monde est éclairée de lumières
 divines. Même aujourd'hui, près de nous, nous venons
 de voir briller deux des plus pures flammes, la flamme
@@ -95,7 +63,6 @@ furent grands par le cœur. Comme l'a dit un des plus
 grands d'entre eux, celui dont nous racontons ici méme
 la vie : « Je ne reconnais pas d'autre signe de supé-
 riorité que la bonté. » Où le caractère n'est pas grand, :
-il n'y a pas de grand homme, il n'y « a même pas de :
 grand artiste, ni de grand homme d'action ; il n'y a que
 des idoles creuses pour la vile multitude : le temps les
 détruit ensemble. Peu nous importe le succès. Il s'agit
@@ -144,20 +111,6 @@ vainqueur répondait à un ami qui invoquait Dieu :
 Inspirons-nous de sa fière parole. Ranimons à son
 exemple la foi de l'homme dans la vie et dans l'homme.
 
-ee DE mn RUE NP PE RE CU DE:
-RS A: td “ re A . RTE ee De S
-> CN Se ANR MR. *
-D Les
-
-# AEREN STONES
-
-ei ve ŒS = SES E LS D
-
-| L'ORLRMd RNEN PORTES PA doter te 26 ALES CCS CELUI RTON PS 0
-M ORTTS De Re Pie D
-
-54 À re. Vie PAU
-
 Ilétait petit et trapu, de forte encolure, de charpente
 athlétique. Une large figure, de couleur rouge brique,
 sauf vers la fin de sa vie, où le teint devint maladifet
@@ -186,7 +139,6 @@ veston et d'un pantalon en poil de chèvre, crut rencontrer Robinson
 (3) « Ses beaux yeux parlants », dit le docteur W.-C. Mueller,
 « tantôt gracieux et tendres, tantôt égarés, menaçants et terribles ».
 
-Romain Rolland RARE.
 broyer des noix. Une fossette profonde au menton, du 4
 côté droit, donnait une étrange dissymétrie à la face. 4
 « Il avait un bon sourire, dit Moscheles, et dans la 1
@@ -227,7 +179,6 @@ commencement, la vie se révéla à lui, comme un com-
 . bat triste et brutal. Son père voulut exploiter ses dispositions musicales et l'exhiber comme un petit prodige.
 À quatre ans, il le clouait pendant des heures devant
 son « clavecin, ou l'enfermait avec un violon, et le tuait
-de travail. Peu s'en fallut qu'il ne le dégoûtât à tout
 jamais de l'art. Il fallut user de violence pour que
 Beethoven appriît la musique. Sa jeunesse fut attristée
 par les préoccupations matérielles, le souci de gagner
@@ -247,7 +198,6 @@ pas proprement allemands.
 {Nohl : Lettres de Beethoven, Il)
 4 13
 
-Romain Rolland
 déjà constamment; et il se joignait à son mal une
 mélancolie, plus cruelle que le mal même. (1) A dix-sept
 ans, il était chef de famille, chargé de l'éducation de
@@ -296,13 +246,10 @@ __ {! éternellement fidèle; jusqu'au dernier instant, il réva
 _.. { de le revoir, sans jamais y parvenir. « Ma patrie, la
 4 belle contrée, où j'ai vu la lumière du jour, toujours
 aussi belle, aussi claire devant mes yeux, que lorsque
-| je la laissai. » (1) ù Z
-#
 tropole musicale de l'Allemagne. (2) La Révolution avait
 (2) Il y avait déjà fait un court voyage, au printemps de 1787.
 ‘ Il y vit alors Mozart, qui semble avoir fait peu attention à lui.
 
-Romain Rolland s
 éclaté ; elle commençait à submerger l'Europe. Beethoven quitta Bonn juste aumoment où la guerre yentrait.
 Sur la route de Vienne, il traversa les armées hessoises
 marchant contre la France. En 1796 et 1797, il mit en
@@ -322,7 +269,6 @@ de Buonaparte par Guérin, cette âpre figure rongée de
 fièvre ambitieuse, est aux autres efligies de Napoléon.
 Beethoven semble plus jeune que son âge, maigre, droit, |
 raidi dans sa haute cravate, le regard défiant et tendu.
-Il sait ce qu'il vaut; il croit en sa force. En 1796, il note
 sur son carnet : « Courage! Malgrétoutesles défaillances
 du corps, mon génie triomphera.… Vingt-cinq ans! les É.
 voici venus! je les ai... Il faut que cette année même, à
@@ -340,7 +286,6 @@ vois un ami dans le besoin : si ma bourse ne me permet
 
 pas de lui venir aussitôt en aide, je n'ai qu'à me mettre
 
-à ma table de travail; et, en peu de temps, je l'ai tiré
 d'affaire... Tu vois comme c'est charmant. » (1) Et un
 
 peu plus loin, il dit : « Mon art doit se consacrer au bien
@@ -376,7 +321,6 @@ de Beethoven, voir : Nohl : Eine stille Liebe zu Beethoven; — C. G.
 1 Bonn les instruments acoustiques que fabriqua pour Beethoven,
 vers 1814, le mécanicien Maelzel.
 
-Romain Rolland
 Beethoven est profondément malheureux. Sache que la
 plus noble partie de moi-même, mon ouïe, a beaucoup
 baissé. Déjà, à l'époque où nous étions ensemble,
@@ -445,7 +389,6 @@ jamais Beethoven sans une passion portée au paroxysme.
 Ces amours semblent avoir toujours été d'une grande
 pureté. Il n'y a aucun rapport entre la passion et le
 
-Romain Rolland
 plaisir. La confusion qu'on établit de notre temps entre 4
 l'une et l'autre ne prouve que l'ignorance où la plupart |
 des hommes sont de la passion, et son extrême rareté. À
@@ -506,9 +449,6 @@ lettre, du 2 mai 1810, à Wegeler : « Si je n'avais pas lu quelque part
 que l'homme ne doit pas se séparer volontairement de la vie, aussi
 | longtemps qu'il peut encore accomplir une bonne action, depuis
 longtemps je ne serais plus, — et sañs doute par mon propfe fait. »
-| 21 ©
-
-Romain Rolland :
 
 ger. Quand, oh! quand, mon Dieu, pourrai-je la rencontrer encore ?.… Jamais? — Non, ce serait trop
 
@@ -570,8 +510,6 @@ volonté napoléonienne, qui ne désarme jamais. ;
 
 | 2,
 
-| BEETHOVEN
-|
 | verture de Coriolan (1807), où soufllent des tempêtes,
 | dans le Quatrième quatuor, op. 18, dont le premier
 | morceau a tant de parenté avec cette ouverture ; dans
@@ -579,7 +517,6 @@ volonté napoléonienne, qui ne désarme jamais. ;
 disait : « Si je l'entendais souvent, je serais toujours
 très vaillant » : (1) dans la partition d'Egmont; et
 jusque dans ses concertos pour piano, dans ce concerto
-en mi bémol, op. 73 (1809), où la virtuosité mème se
 fait héroïque, où passent des armées. — Comment s'en
 étonner ? Si Beethoven ignorait, en écrivant la Marche
 | funèbre sur la mort d'un héros (de la sonate op. 26),
@@ -595,7 +532,6 @@ l'ami et le protecteur de Beethoven, celui à qui sont
 dédiées l'Héroique et l'Ut mineur. Et le 10 mai 1809,
 haïra les conquérants français. Mais il n'en a pas
 | moins senti la fièvre de leur épopée; et qui ne la sent
-| PL LORS
 | (1) Robert de Keude acien ambassadeur d'Allemagne à Rome
 . Bismarck et sa le, 1901, traduction française de E.-B. Lang.
 Robert de Keudell joua cette sonate à Bismarck, sur un mauvais
@@ -603,17 +539,14 @@ piano, le 30 octobre 1870, à Versailles. — Bismarck disait de la der
 nière phrase de l'œuvre Ce sont les luttes et les sanglots de
 toute une vi 11 préférait Beethoven à tout autre musicien, et
 | plus d'une fois, aflirma Beethoven convient le mieux à mes
-| nerfs. »
 | 25
 
-Romain Rolland
 lait pour la France le suffrage universel, et il espérait :
 que Bonaparte l'établirait, et jetterait ainsi les bases
 du bonheur du genre humain. » Romain révolutionpaire, nourri de Plutarque, il rêvait d'une République
 héroïque, fondée par le dieu de la Victoire : le premier
 Consul; et coup sur coup, il forge la Symphonie
 héroïque : Bonaparte (1804), (1) l'Iliade de l'Empire, et
-le finale de la Symphonie en ut mineur (1805-1808),
 l'épopée de la Gloire. Première musique vraiment
 révolutionnaire : l'âme du temps y revit avec l'intensité
 et la pureté qu'ont les grands événements dans les
@@ -653,7 +586,6 @@ la Sonate Appassionata, op. 57 (1804), dont Bismarck
 disait : « Si je l'entendais souvent, je serais toujours :
 très vaillant » : (1) dans la partition d'Egmont; et
 jusque dans ses concertos pour piano, dans ce concerto
-en mi bémol, op. 73 (1809), où la virtuosité même se
 fait héroïque, où passent des armées. — Comment s'en
 étonner ? Si Beethoven ignorait, en écrivant la Marche
 funèbre sur la mort d'un héros (de la sonate op. 26),
@@ -678,7 +610,6 @@ piano, le 30 octobre 1870, à Versailles. — Bismarck disait de la dernière ph
 toute une vie. » — 11 préférait Beethoven à tout autre musicien, et,
 plus d'une fois, affirma : « Beethoven convient le mieux à mes
 
-Romain Rolland
 pas comme lui, ne comprendra qu'à demi cette musique
 d'actions et de triomphes impériaux. = |
 
@@ -739,7 +670,6 @@ veut plaire, et il sait qu'il plaît. Le lion est amoureux :
 faiblesse de vue avait été causée par la petite vérole, et qu'elle l'obligeait, tout jeune, à porter des lunettes. La myopie devait contribuer
 au caractère égaré de ses yeux. —- Voir, sur ce sujet, les articles de
 
-Romain Rolland s
 il rentre ses griffes. Mais on sent sous ses jeux, sous les |
 fantaisies et la tendresse même de la Symphonie en si 3
 bémol, la redoutable force, l'humeur capricieuse, les |
@@ -755,7 +685,6 @@ elle-même il dédie la rêveuse et fantasque sonate, op. 78 |
 (1809). Une lettre, sans date, et adressée à l'Immortelle
 Aimée, exprime, non moins que l'Appassionata, V'intensité de son amour : |
 « Mon ange, mon tout, mon moi, j'ai le cœur
-gonflé du trop que j'ai à te dire. Ah! où je suis, tu k
 es aussi avec moi... Je pleure, quand je pense que tu F
 ne recevras probablement pas avant dimanche les premières nouvelles de moi. — Je t'aime, comme tu .
 m'aimes, mais bien plus fort... Ah! Dieu! — Quelle vie E
@@ -804,7 +733,6 @@ n'est pas là, près de moi! » — Thérèse avait donné son
 
 (1) Nohl : Lettres de Beethoven, XV.
 
-Romain Rolland |
 portrait à Beethoven, avec la dédicace : « Au rare 4
 génie, au grand artiste, à l'homme bon. T. B. ». (1) J
 Dans la dernière année de sa vie, un ami surprit 1
@@ -867,7 +795,6 @@ Michel Ange; il avait sa statuette dans sa chambre. Il aimait Platon,
 et rêvait d'établir sa République dans le monde entier. « Socrate et
 Jésus ont été mes modèles », a-t-il dit quelque part. (Conversations
 
-Romain Rolland
 de Goethe, et pour ne pas le blesser. Il a raconté
 lui-même une promenade qu'ils firent ensemble, où |
 l'orgueilleux républicain qu'il était donna une leçon de
@@ -936,7 +863,6 @@ de Frimmel.)
 : aussi, je l'admire avec effroi ». — Zelter écrit en 1819 à Goethe :
 « On dit qu'il est fou. »
 
-Romain Rolland
 suis le Bacchus qui broie le délicieux nectar pour
 l'humanité. C'est moi qui donne aux hommes la divine
 frénésie de l'esprit. » Je ne sais si, comme l'a écrit
@@ -962,7 +888,6 @@ princes lui rendaient hommage ; et il se laissait fièrement faire la cour par e
 
 Il s'était enflammé pour la guerre d'indépendance. |
 En 1813, il écrivit une symphonie de La Victoire
-de Wellington, et, au commencement de 1814, un
 { (1) C'est, en tout cas, un sujet auquel Beethoven a pensé: car nous 4
 le trouvons dans ses notes, et, particulièrement, dans ses projets E
 d'une Dixrième Symphonie. ;
@@ -1002,7 +927,6 @@ nos collections complètes.
 l'empire de l'esprit est le plus cher de tous : c'est le premier de
 tous les royaumes temporels et spirituels ». /Mir ist das geistige
 
-Romain Rolland -
 Vienne n'avait jamais été sympathique à Beethoven.
 Un génie fier et libre, comme le sien, ne pouvait se
 plaire dans cette ville factice, d'esprit mondain et S
@@ -1028,7 +952,6 @@ signés ont formé la résolution de mettre Ludwig van l
 tantisme allemand effacée; même l'accent national, perdu, italianisé. L'esprit allemand, les manières et les mœurs allemandes,
 expliquées par des manuels de provenance italienne et espagnole.
 Le pays d'une histoire falsifiée, d'une science falsifiée, d'une religion falsifiée.. Un scepticisme frivole, qui devait ruiner et ensevelir
-l'amour de la vérité, et de l'honneur, et de l'indépendance !... » À
 (2) Le roi Jérôme avait offert à Beethoven un traitement de six ;
 cents ducats d'or, sa vie durant, et une indemnité de voyage de
 cent cinquante ducats d'argent, contre l'unique engagement de À
@@ -1074,7 +997,6 @@ comprend pas qu'on se donne la peine d'aller s'y ennuyer. »
 (2) Remarquer que de cette année date, dans sa musique, un
 epont de style, inauguré par la sonate op. 101. GTrA
 
-Romain Rolland
 Dès le duetto du premier acte, il fut évident qu'il
 n'entendait rien de ce qui se passait sur la scène. IL
 retardait considérablement le mouvement; et, tandis
@@ -1130,8 +1052,6 @@ homme... » — Chaque jour, à Vienne, il faisait le tour —
 des remparts. A la campagne, de l'aurore à la nuit, il
 (1) Voir les admirables pages de Wagner sur la surdité de Beetho_ ven. (Beethoven, 1870) PA
 
-ne
-Romain Rolland
 se promenait seul, sans chapeau, sous le soleil, ou la
 pluie. « Tout Puissant! — Dans les bois je suis heureux,
 — heureux dans les bois — où chaque arbre parle par
@@ -1161,7 +1081,6 @@ encore de cruelles souffrances. Il semble qu'une sorte À
 () Beethoven s'était adressé personnellement à Cherubini, qui 4
 était « de ses contemporains celui qu'il estimait le plus ». (Nohl: « Lettres de Beethoven, CCL) Cherubini ne répondit pas. ;
 
-| BEETHOVEN
 de grâce d'État ait pris soin de renouveler sans cesse
 et d'accroître sa misère, pour que son génie ne manquât
 point d'aliments.—Il lui fallut d'abord disputer le petit
@@ -1198,7 +1117,6 @@ pouvais ; je puis paraître devant le Juge Suprême... »(1)
 
 « Gâté, comme tu es, cela ne te ferait pas de mal de
 
-Romain Rolland
 tâcher enfin d'être simple et vrai; mon cœur a trop |
 souffert de ta conduite hypocrite à mon égard, et il 4
 m'est difficile d'oublier. Dieu m'est témoin, je ne rêve
@@ -1261,8 +1179,6 @@ C'était le projet de toute sa vie. Dès 1793, il y pensait,
 (1) Schindler, qui le vit alors, dit qu'il devint, subitement, comme
 un vieillard de soixante-dix ans, brisé, sans force, sans volonté.
 I serait mort, si Charles était mort. — Il mourut peu de mois
-
-Romain Rolland
 
 .
 à Bonn. (1) Toute sa vie, il voulut chanter la Joie, et 4
@@ -1330,7 +1246,6 @@ Lorsque le thème passe ensuite dans les voix, c'est à la
 4 (2) Also ganz so als staenden Worte darunter. (« Tout à fait comme
 s'il y avait des paroles dessous. »)
 
-Romain Rolland |
 basse qu'il se présente d'abord, avec un caractère sé- |
 rieux et un peu oppressé. Mais peu à peu, la Joïe s'em- ;
 pare de l'être. C'est une conquête, une guerre @ontre k
@@ -1387,8 +1302,6 @@ Lichnowski, comte Maurice de Friès, comte M. de Dietrichstein,
 / comte F. de Palfy, comte Czernin, Ignace Edler de Mosel, Charles
 Czerny, abbé Stadler, A. Diabelli, Artaria et C., Steiner et C., |
 
-A ph REP EUR Sri ‘à abs te à É Vds Lo tY LA RE CL
-Romain Rolland s |
 dut mettre fin aux manifestations. La symphonie sou- 3
 leva un enthousiasme frénétique. Beaucoup pleuraient. 111
 Beethoven s'évanouit d'émotion après le concert; on
@@ -1418,7 +1331,6 @@ Leipzig, la recopia tout entière de sa main; et, dans une lettre du F
 symphonie, pour piano à deux mains. On peut dire que la Et
 Neuvième Symphonie décida de la vie de Wagner. Ÿ
 
-| À AMEL OV 7 ox: Hd ME tu édite ET y 4 À
 * a pour l'avenir : la Dixième Symphonie, (1) l'Ouverture
 sur le nom de Bach, la musique pour la Mélusine de
 Grillparzer (2) et le Faust de Goethe, (3) l'oratorio
@@ -1459,7 +1371,6 @@ les hautes régions de ton art... Une symphonie, puis partir, partir,
 partir... L'été, travailler pour le voyage. Parcourir l'Italie, la Sicile
 avec quelque autre artiste. » Id.)
 
-Romain Rolland "
 || Grillparzer lui parle pour la dernière fois, c'est Beetho- à
 ven qui rend de l'énergie au poète accablé : « Ah! dit
 celui-ci, si j'avais la millième païtie de votre force et ;
@@ -1525,14 +1436,11 @@ semblaient être alors pour l'Angleterre.
 
 (1) Le suicide de son neveu.
 
-|
-; Romain Rolland |
 L E d'agonie, le 17 février 1827, après trois opérations, |
 H attendant la quatrième, il écrit avec sérénité : « Je prends
 } patience et je pense : Tout mal amène avec lui quelque
 Î ; Le bien fut la délivrance, « la fin de la comédie »,
 ! ; comme il dit en mourant, — disons : de la tragédie de
-{ sa vie.
 . Il mourut pendant un orage, — une tempête de |
 | neige, — dans un éclat de tonnerre. Une main étrangère
 Î È lui ferma les yeux (1) (26 mars 1827).
@@ -1557,7 +1465,6 @@ H « Dieu soit loué ! », écrit Breuning. « Remercions-le d'avoir mis fin |
 Î chose. » (Lettre à l'Immortelle Aimée) — « Je voudrais vivre mille
 H fois la vie... Je ne suis pas fait pour une vie tranquille. » (A Wegeler,
 
-| BEETHOVEN
 qui sent en elle un Dieu. Il semble que dans sa communion de tous les instants avec la nature, (x) il ait fini
 | par s'en assimiler les énergies profondes. Grillparzer,
 : qui admirait Beethoven avec une sorte de crainte, dit
@@ -1585,19 +1492,16 @@ ss | Toute sa vie est pareille à une journée d'orage. —
 | toujours un espoir. Mais, après 1810, l'équilibre de
 | l'âme se rompt. La lumière devient étrange. Des
 | pensées les plus claires, on voit comme des vapeurs
-|
 | (1) « Beethoven m'enseigna la science de la nature, et me dirigea
 | dans cette étude comme dans celle de la musique. Ce n'étaient pas
 | les lois de la nature, mais sa puissance élémentaire qui l'enchantait.
 
-Romain Rolland à
 d'agonie, le 17 février 1827, après trois opérations, |
 attendant la quatrième, il écrit avec sérénité : « Je prends
 patience et je pense : Tout mal amène avec lui quelque à
 
 Le bien fut la délivrance, « la fin de la comédie », ,
 comme il dit en mourant, — disons : de la tragédie de C2
-sa vie.
 Il mourut pendant un orage, — une tempête de
 neige, — dans un éclat de tonnerre. Une main étrangère
 lui ferma les yeux (1) (26 mars 1825). à
@@ -1621,7 +1525,6 @@ un bonheur de la lutte, (2) l'ivresse d'une conscience |
 (2) « Je suis heureux toutes les fois que je surmonte quelque
 chose. » (Lettre à l'Immortelle Aimée) — « Je voudrais vivre mille ;
 fois la vie. Je ne suis pas fait pour une vie tranquille. » (A Wegeler, 4
-| r
 
 qui sent en elle un Dieu. Il semble que dans sa communion de tous les instants avec la nature, (x) il ait fini
 par s'en assimiler les énergies profondes. Grillparzer, 1
@@ -1657,7 +1560,6 @@ pensées les plus claires, on voit comme des vapeurs
 dans cette étude comme dans celle de la musique. Ce n'étaient pas
 les lois de la nature, mais sa puissance élémentaire qui l'enchantait, »
 
-Romain Rolland
 monter: elles se dissipent; elles se reforment; elles
 obscurcissent le cœur de leur trouble mélancolique et
 capricieux ; souvent l'idée musicale semble disparaître
@@ -1683,12 +1585,6 @@ sa vie, et qui est la devise de toute âme héroïque :
 « La Joie par la Souffrance ».
 (1) « Oh! si belle est la vie; mais la mienne est pour toujours
 empoisonnée. » (vergiftet) (Lettre du 2 mai 1810, à Wegeler)
-
-D Maur Pt gd La RM PAS RAURS KITS
-de day / a AU
-
-| ii MONET PRE EE LE NA PU TPAS SEE ORAN TO
-ei ê N $ LANGUE SES
 
 Pour mes frères Carl et (Johann) (2) Beethoven
 
@@ -1739,7 +1635,6 @@ d'être exposé à ce qu'on remarque mon état.
 De là ces six mois que je viens de passer à
 la campagne. Mon savant médecin m'engagea à
 
-Brul IMPACT UN: PE RE 7
 ménager mon ouie autant que possible; il vint au
 devant de mes intentions propres. Et pourtant,
 maintes fois ressaisi par mon penchant pour la
@@ -1850,7 +1745,6 @@ la sentir dans le Temple de la Nature et des hommes?
 
 Mon cher, mon bon Amenda, mon ami de tout
 cœur, avec une émotion profonde, avec un mélange à
-de douleur et de joie j'ai reçu et lu ta dernière
 lettre. A quoi puis-je comparer ta fidélité, ton
 attachement envers moi! Oh! cela est bien bon,
 que tu me sois toujours resté si ami. Oui, j'ai mis
@@ -1928,7 +1822,6 @@ sent, et mon cœur bat pour toi avec la mêmeten-
 
 dresse. — Ce que je t'ai dit de mon ouïe, je te prie
 
-de le garder comme un grand secret, et de ne le :
 confier à personne, quel qu'il soit. — Écris-moi très
 
 souvent. Tes lettres, même quand elles sont si |
@@ -1949,7 +1842,6 @@ Mon bon cher Wegeler, combien je te remercie |
 
 de ton souvenir ! Je l'ai si peu mérité, si peu cher-
 
-ché à le mériter ; et pourtant tu es si bon, tu ne te
 laisses rebuter par rien, même par mon impardonnable négligence ; tu restes toujours le fidèle, bon,
 loyal ami. — Que je puisse t'oublier, vous oublier,
 vous tous qui m'avez été si chers et si précieux,
@@ -2204,8 +2096,6 @@ Kreuzberg, à Godesberg, à la Pépinière, etc., tes
 
 Je veux maintenant te parler de moi, de nous
 
-| LETTRE A BEETHOVEN
-
 pour te donner un exemple de la manière dont tu
 
 Après mon retour de Vienne, en 1796, cela alla
@@ -2332,7 +2222,6 @@ choses : chacun devait poursuivre le but qu'il s'était
 désigné, et chercher à l'atteindre ; seuls les principes éternellement inébranlables du bien nous ont
 retenus toujours fermement unis ensemble. Malheureusement, je ne puis pas t'écrire aujourd'hui
 autant que je voudrais, parce que je suis alité.…
-J'ai toujours la silhouette de ta Lorchen ; (je te le
 dis) pour que tu voies comme tout ce qu'il y a eu de
 bon et de cher dans ma jeunesse m'est toujours
 .. On dit chez moi : Vulla dies sine linea, et je É
@@ -2350,7 +2239,6 @@ frère, à Gneixendorf, près de Krems, sur le Danube.
 j'ai reçu du roi de France défunt une médaille, avec 24
 l'inscription : Donnée par le Roi à monsieur Bee.
 thoven; elle était accompagnée d'un écrit très
-obligeant du premier gentilhomme du Roi Duc de
 Mon ami bien cher, contente-toi de ceci pour #
 aujourd'hui. Le souvenir du passé me saisit, et ce 3
 n'est pas sans d'abondantes larmes que je t'envoie ë
@@ -2376,7 +2264,6 @@ Maïs je suis trop faible: je ne puis plus rien que
 t'embrasser dans mon cœur, toi et ta Lorchen.
 Avec vraie amitié et attachement à toi et aux tiens,
 Ton vieux fidèle ami,
-Mon cher Moscheles !
 
 .… Le 27 février, j'ai été opéré pour la quatrième
 fois; et maintenant se montrent de nouveau “des
@@ -2389,12 +2276,9 @@ je prie Dieu seulement, qu'il veuille bien décider,
 dans sa divine volonté, qu'aussi longtemps que je
 dois souffrir la mort en vie, je sois à l'abri du #
 
-> #5
 besoin. (1) Cela me donnera la force de supporter
 mon lot, si dur et si terrible qu'il puisse être, avec
 résignation à la volonté du Très-Haut. 1
-
-.. Votre ami, ER
 
 () Beethoven, près de manquer d'argent, s'était adressé à la É
 t Société philharmonique de Londres, et à Moscheles, alors en Angle- #
@@ -2418,8 +2302,6 @@ I. — Pour les lettres de Beethoven
 
 L. V. B. an den Erzherzog Rudolph. 1865, Vienne.
 
-| Leipzig.
-
 La Mara. — Musikerbriefe aus fuenf Jahrhunderten.
 
 D'° CurisTiAN GOTTLIEB KALISCHER. — Neue Beethovenbriefe. 1902, Berlin et Leipzig.
@@ -2439,10 +2321,8 @@ publié des extraits. 2à
 Notizen ueber Ludwig van Beethoven (surtout précieux pour 4
 la première moitié de sa vie). 1838, Coblentz. Traduction a:
 duction française 1865 (épuisé) (pour la seconde moitié de #
-sa vie). ne.
 hause. 1874. (La Schwarzspanierhaus est la maison de É-
 Vienne où Beethoven est mort.)
-ALEXANDER WHEELOCK THAYER (traduit de l'anglais en 4
 allemand, et continué par HERMANN DEITERS). — Ludwig i
 Commencé en 1866; interrompu par la mort de l'auteur, #4
 en 1897, à Trieste, où il était consul des États-Unis ; l'ou- L
@@ -2459,7 +2339,6 @@ collection des Beruehmte Musiker). 1901, Berlin.
 III. — Pour l'œuvre de Beethoven .
 1872-87.
 ALFREDO CoLoMBANI. — Le Nove Sinfonie di Beethoven. :
-IGw4az von SEeyFRIED, — L. V. B. Studien im Generalbass,
 W. pe Lenz. — Beethoven et ses trois styles. (Analyses
 des sonates de piano) (épuisé). 1854.
 
@@ -2486,7 +2365,6 @@ fois de faire d'abord une étude critique minutieuse des manuscrits %
 de Rust, afin d'établir un texte rigoureusement exact. M
 L Il y a aussi quelque intérêt à connaître certaines des compositions religieuses et dramatiques de Cherubini, dont le style a parfois servi de modèle à Beethoven. 0
 
-de BEETHOVEN À
 _ 1802. — Miniature de Beethoven, par CuristiAN HonxeMANN. [Appartient à madame de Breuning, à Vienne; ï
 * reproduit dans Frimmel, page 31] |
 
@@ -2579,23 +2457,17 @@ pour les trois mille exemplaires de cette deuxième
 
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8019
-
-Lin De KR ; FIESTA DRE
 Romain Rolland, — Vies des hommes illustres. . . . 5
 Masque de Beethoven, moulé par Franz Klein en 1812,
 dans les quatre cents premiers exemplaires de
 cette seconde édition, que nous avons réservés
 pour nos collections complètes, avant la page. . 9
-Romain Rolland. — Beethoven. . . .. .. ..... II
 Beethoven. — testament d'Heiligenstadt, pour mes
 frères Carl et (Johann) Beethoven, Heiligenstadt, Ÿ
 Beethoven. — testament d'Heiligenstadt, pour mes 3
 frères Carl et (Johann). A lire et à exécuter après :
 ma mort, Heiligenstadt, le 10 octobre 1802. . .. 62 &
 
-MS LES STE ee RES PRES Qt
-HS Beethopen "NE
 lettre de Wegeler et d'Éléonore (von Breuning) à F1 È DNS
 | lettre de Wegeler, Coblents, 28 décembre 1825. ,.. m
 | lettre d'Éléonore Wegeler, Coblentz, 29 décembre 1825 78
@@ -2609,10 +2481,6 @@ La photographie du masque a été reproduite en outre
 portent reproduite par la photographie la signature dd _
 Beethoven; ces exemplaires, collés sur feutre, se vendent : ne.
 
-MA de CESTS US MR |
-À CA ses ec
-| ges u SR
-
 pe deuxième édition le jeudi 24 septembre 1903
 ë à l'Imprimerie de Suresnes 3
 \ = 9, rue du Pont ee:
@@ -2621,7 +2489,6 @@ pe deuxième édition le jeudi 24 septembre 1903
 suelles régulières et par des souscriptions extraordi- 14
 naires; la souscription ne confère aucune autorité sur.
 la rédaction ni sur l'administration : ces fonctions
-Nous servons : % 4
 des abonnements de souscription à cent francs ; a.
 des abonnements ordinaires à vingt francs ; > 4
 et des abonnements de propagande à douze francs. 4

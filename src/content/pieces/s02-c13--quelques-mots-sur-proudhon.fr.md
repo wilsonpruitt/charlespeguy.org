@@ -46,7 +46,6 @@ Pourquoi dans l'analyse des Contradictions écono- É
 miques avoir supprimé le célèbre chapitre VIII sur la
 Providence? Ce chapitre est cependant essentiel, car ñ
 Proudhon ne cessera pas de développer ses idées sur
-l'opposition du divin et de l'humain, de l'autorité et de ss
 la liberté, du droit de la force et du droit économique; à:
 sans cette dualité il n'y a pas moyen de faire entrer
 l'étude de l'histoire dans des cadres permettant d'uti- Ë
@@ -59,7 +58,6 @@ Pourquoi nous avoir présenté d'une manière si peu
 intelligible et si tronquée la solution du problème de la
 population ? En général, M. Bourgin supprime tout ce que
 Proudhon a écrit sur la chasteté; c'est pour cette raison
-qu'il n'a presque rien dit du Principe de l'Art et qu'il
 n'a point exposé ce que Proudhon pensait du divorce.
 Pourquoi ne pas nous avoir fait connaître la conception
 de la vie que Proudhon a tant de fois développée ? Le
@@ -163,7 +161,6 @@ et nommément de tr létriment du Saint-Siège mil!
 comme on ne cesse d vernement impérial
 théorie à une absurd la pratique à une hypo
 crisie, ce n'est pas p: nu que les croyances
-se démolissent et que e détruisent il a
 La philosophie seule le, agissant lente ji
 ment sur les intellig mpétente. Tout
 rance des opinions et d e la faire au temps (ui
@@ -185,7 +182,6 @@ tête, fier Sicambre ; adt 1e tu as brülé et brûle ce
 que tu as adoré ». Mais pas l'empire des Gaules At:
 qu'il recevrait pour récc de son baptême... il
 stituer le parti de la on. — Œuvres complètes, Hu
-. La vraie, l'unique ques re le parti de la foi et Le ll
 parti du progrès est la q morale, dans laquelle nous (LA
 sommes certains de suecr { nous nous condamnons Ha
 timent du droit et poursuivent l'émancipation de leur
@@ -362,7 +358,6 @@ même entre fiancés, même entre époux, est messéanie,
 de la pratique du devoir social.
 - (1) Madame Ackermann fut, un jour, scandalisée de voir un crucifix suspendu dans la chambre de madame Proudhon.
 
-Mon cher Péguy
 Tu m'as demandé de mettre au point le différend
 qui s'est élevé entre Jean Grave et Urbaiïn Gohier? Je
 crois que cela est nécessaire d'abord parce que Grave
@@ -431,12 +426,9 @@ lui-même, que l'article de Grave aurait été le prétexte
 choisi par Gohier pour lui rendre justice. Au lieu done
 
 d'un article, Grave envoya la lettre suivante
-Mon cher Vaughan,
 
 Dans son article de jeudi, Gohier parle d'industriels de
 l'anarchie. Voudriez-vous lui demander d'éclairer sa lanterne, et de nous dire qui il entend désigner par là?
-
-Bien cordialement
 
 Cette lettre causa la rupture définitive. L'Aurore la
 
@@ -488,7 +480,6 @@ la parole. Au nom de l''Anarchie, c'est Jean Grave.
 , Voilà fixé, pour l'Histoire, un point important.
 Anarchiste respectueux de la voie hiérarchique, Jean
 Grave me pose une question par l'intermédiaire de mon
-De Directeur à Directeur.
 — Qu'est-ce que j'entends par les industriels de l'Anarchie ? k
 ASE — Les mots l'indiquent. J'entends ceux qui font de l'anarchie une industrie, une lucrative industrie, et qui ont quitté
 le petit métier dont ils vivaient très mal, pour vivre très
@@ -798,7 +789,6 @@ en main des preuves irréfutables.
 
 Je ne vois pas davantage que Grave puisse être rendu
 responsable de la mort des guillotinés. Je n'ai pas lu
-tout ce qu'il a écrit; mais dans ce que j'en ai lu, je ne
 merappelle pas avoir trouvé une provocation précise
 de la propagande par le fait, des moyens violemment
 révolutionnaires. Mais Gohier, moins que personne,
@@ -839,13 +829,11 @@ prêts à organiser la lutte. De l'Aurore on envoya vers
 prit des mesures et le complot n'eut même pas un com-
 mencement d'exécution. Mais il subsiste ceci, que, sans
 tergiverser, un certain nombre de camarades se trouvèrent prêts à assumer toutes les responsabilités : Grave
-était là. +
 Grave pouvait répondre lui-même à Gohier; ilnela
 pas voulu. Deux jours avant le grand article de Gohier, M
 Charles Albert, dans les Temps Nouveaux, commençait
 un article de portée générale par une citation deM. Louis
 
-Huy JEAN GRAVE ET URBAIN GOHIER
 Havet à propos de l'affaire Vera Gelo : Il m'est égal
 qu'il paraisse des calomnies dans l'Intransigeant ou
 dans la Libre Parole. Je ne me résigne pas à trouver
@@ -1173,7 +1161,6 @@ pourront inspirer aux artistes des formes nouvelles
 
 de la beauté, s'ils sont autre chose que des magasins
 et des bazars, s'ils répondent à un idéal nouveau, et
-à À SNS SULEE # du dès tait ; OR ARRET Mes dé de ji dre VERITAS
 s'ils le manifestent : la volonté de réaliser la justice
 Mais n'allons pas imaginer que cela sera parce que
 à cela doit être en vertu des lois de la sacro-sainte évoluj tion. Ilest d'autres possibles. Des esclaves ne fonderont

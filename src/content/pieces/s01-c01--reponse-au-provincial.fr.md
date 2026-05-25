@@ -7,7 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3077
 ---
-Mon cher ami,
 Pendant un an, et à titre d'essai, je ferai tout ce que je
 pourrai pour t'envoyer ces cahiers de renseignement.
 Le premier cahier partira le 5 janvier prochain. Je t'enverrai le 20 de chaque mois le cahier de la première quinzaine et le 5 le cahier de la seconde quinzaine du mois pré-

@@ -7,7 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 21242
 ---
-| CHARLES PÉGUY
 note sur M. Bergson
 et la philosophie bergsonieni
 
@@ -15,109 +14,15 @@ périodique paraissant tous les deux dimanches
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ras SR SA
-| À + 4 20
-
-nn, Te fes LT SUR
-
-HP SSSR RSR EN DS DRAM ERA Le ed sac FAR #0
-s mur à ES s HORS Se NA LES MEN EX SA 5
-SSSR < CA RARE RS Pr CEA mi: Ce dE
-| PÉCACNER Û DS rs TE
 Eee” | Il a été tiré de ce cahier vingt exemplaires sur ie RS
 RU Done ment. Les cinq autres exemplaires ont été sou
-ne ke
 LPS scrits par la librairie Camille Bloch, 146,boulevard
-
-| ; ATOS AURA a SAC de PR CA SAS TENS
-| ÈS E LE e RS
-SAT AC EVE LES MR st A EE RE Ré NE tt PE
-Ar AE ONE CHE Pb LE k FEES SRE Ce de res ot: CON
-
-+ 7 AFTER nic* cs k- via Le Re v CAS
-TT LA Li CAN Gr # ASE te
-Lu RC UNE, 2 PRE 2 "A RE dt PE ne LES i
-
-|:
-è ms pat £ 4 NE ee FAR re à #4 en tal nie *é AA 4
-Mes no ESS
-| Re à EU SECTE
-[ Le T0) ad ; SÉAATE fe
-|: ps Mines FPE DE? + CHA ee
-
-f es | PA 2000 Ver GNT Te RE RENTE Ne NE PR) mn « AN se NRE
-à # nee NA Lys 2 + k £, LS Le LEA Er
-tra MC s F y ! ni MA OTE TEE NO ST
-‘ LP les h ‘ L F 1 ED UE ae Nu
-Dee de ; M
-
-3 RC er A EE LT A MER FOR PTE PA à LR TA AL en:
-> » 4 De
-| 0 % se LÉ
-|: RS aid 4 L Ÿ , de " " Ua. ne
-|: Re | + SES ef EP ee VOA ENS UT A * 1, RÉEL
-
-M un sou FC HA LM MM US
-F2 LORS rs e ; < JA R EMPPE SE de
-TOR T de LES
-Pope F. #7 Era SES
-1 LR CRE SENS Lénh dr 0L ROLE EN SSR EERRSS ES
-
-RAS il EME SAT RE
-DEA DES LEA) M Dre ?
-ie Lie (CNRS à \ L FAR CMP 008 >
-ré à AO ESS A NAN et À AREA RCE AREA ET RS PL rés PAR
-
-a je FHEAT Gin PA: 4 M TE DCE
-ME Frues | RU : Were) 4 L ; TOUR
-| 1 N'OSE ; L 144 Fr # ne SCSI
-Er 2: UNE je dé x D
-2 AE PS de LI2 VON re
-|| LANSNSS SPENCER
-ç BA MOVE; , AUDE RER vie TA Ta" PRE
-
-k * EST ss DRASS CARS ET le MAO TR NES LES PAQNE Mb) Se. OMAN. ER 0 ane th
-., MER ARTE Jause PE qe RS AN NE Sr RE ER de
-RC AVE NORRPSPEE k M Ne CAE ræ
-
-LÉ ne Nr: Nr el sé SENS Ne 0
-Re ie LRU TG TONER re MORTE RU ER ET I ESC ie 9 VER
-
-l'AS sh ne EE AAA 1 AISNE
 
  - à la mémoire de notre vieux maître M. Humbert F4
 : ‘4 qui nous enseignait au lycée d'Orléans à
 We. une si bonne philosophie |
-|: 2
-
-D et
-
-URL PARIMNRESS A À 4 + re Pr ENCORE MERE
-a LENS FR » Lg” on l Vas Ne PATES
-74 CONS ES ne S “7 REA CALE Voir RON MEN
-as RS du nr 0 À ! | ae! LE ET : "MA AM FES
-24 LPS rats pl LA |
-ne s Re MOD:
-> TES # 1 à É #4 a
-L LENS È L re L'OET EMOOX ENORRSSE
-
-| LENS : CS
-_L TEEN ner A
-En LE nie Eee er | SARA
-Dos MN AI F5) je iv Las MR RES Dee
-
-1 Le ke 2583 È # EC Fer Lan L Tr CRE ERORE 1 08
-|: MER : MEN R ' PS $ "RITES
-Re, “HET To aux” 4 “ + ro8 CEA Les 1
-LS de SPORE) "x De 3 1e CO RE jp ae me “TA | HAN CS]
-
-Re PP mms Le no nr ARE ROERE
-
-ne MAN AA
-#1 ÿ NCA
 
 |: É: ces débats qui se livrent depuis
-|: : 51710
 |: 2 deux ou trois ans sur et pour et . D
 | 40 contre M. Bergson et la philosophie berg- UE
 Me: sonienne eussent été fort éclairés, (mais A
@@ -127,7 +32,6 @@ Me: sonienne eussent été fort éclairés, (mais A
 “e NC intellectualisme. On a feint de croire que 52
 18 la querelle faite à l'intellectualisme était
 Re. une querelle faite à la raison, à la sagesse, CA
-| _ à la logique. Æt à l'intelligence. “LS
 | La philosophie de M. Bergson est presque 120
 
 | note sur M. Bergson é ‘#
@@ -153,16 +57,9 @@ une physique du transfert, une mécanique, |
 E: une cinématique de la translation. C'est 3
 4 une organique. Et même une réorganique.
 | Et c'est une dynamique. N
-4 Il y a des ordres, il y a des royaumes, Le
-& . il y a des règnes, il y a des disciplines. ES
-Ë. Il y a la foi; il y a l'amour; il y a l'art; “1
-F3 il y a la philosophie; il y a la morale; il 8
-Ki y a la science. Et sans doute il y en aurait se
-| '
 4 d'autres. Et même il faudrait dire qu'il x,
 1 n'y à pas seulement des royaumes : il y a +
 é des provinces. Et qui sont peut-être autant |
-|
 | 4 séparées que des royaumes. Car il ny a eu
 | peut-être rien qui soit aussi contraire aux 4e
 | ‘à arts plastiques que les arts musiciens. Et
@@ -174,14 +71,12 @@ Ki y a la science. Et sans doute il y en aurait se
 f À 4 Le bergsonisme n'est point une géogra- ÊTE
 | à plie, c'est une géologie. ee
 | NS. Il ne s'agit point que la Bretagne soit A
-|: 19 3
 
 * note sur M. Bergson
 Fe la Provence et que la reine Anne soit le F2
 roi René. Il s'agit que la Lorraine soit
 “ bien la Lorraine et que l'Ile-de-France
 soit encore plus l'Ile-de-France et soit bien
-o le cœur et la tête.
 ÿ Le bergsonisme n'est aucunement une
 ( philosophie de métathèse et de métony mie. rs
 Ou pour parler un langage platonicien
@@ -189,7 +84,6 @@ et anteplatonicien, il ne s'agit pas que
 ‘ASS l'un soit l'autre. Il s'agit d'approfondir 1
 È l'un, et d'approfondir l'autre.
 | Ÿ Le bergsonisme ne fait pas des cartes
-| compartimentées. :
 De même que les révolutions de l'anatomie et de la physiologie dans les sciences È
 naturelles n'ont point consisté à opposer 4
 le règne animal au règne végétal ou réci- ER
@@ -205,15 +99,10 @@ proquement mais à poursuivre parallèle- ;
 4 royaumes, dans tous les ordres, dans : À
 |: toutes les disciplines une certaine resitua- Fa
 4 tion de la pensée en face de ces réalites ES
-| à : DA
 le Il ne faut donc pas dire que le bergso- Fe
 0 nisme soit une philosophie pathétique ni F3
 TA une philosophie du pathétique ni qu'elle SR
-| 4 oppose le pathétique ou le pathétisme au à
 
-| . ” . .
-
-Un logique, ou au mathématique, ou au scienRe tifique, ou au rationnel, ou à la sagesse, - di,
 “à ni qu'elle essaie ni qu'elle se propose de É
 
 |: substituer le pathétique à tout cela. C'est &
@@ -222,10 +111,8 @@ Un logique, ou au mathématique, ou au scienRe tifique, ou au rationnel, ou à l
 
 | opère, comme c'est parallèlement à l'inté- à
 Le rieur du logique ou du mathématique. "4
-_ Car il y a un intellectualisme du pathé- Len
 
 Ê note sur M. Bergson : Le
-| | tique comme il y a un intellectualisme du
 logique, ou du mathématique, ou de tous
 K les autres. Et, partout, c'est le même.
 _ Il faut renoncer à cette idée que le
@@ -246,17 +133,12 @@ tique de Sophocle et que pour un demi- Ë
 chœur d'Antigone je donnerais les trois
 Critiques précédées d'un demi-quarteron 4
 22 1
-|
 
-EE de Prolégomènes. Æt par là je ne veux #
 _& pas dire seulement, ce qui est entendu, a
 | que je les donnerais en beauté, sub specie A
 14 pulchri, mais que je ne les donnerais pas * 6
-4 ac realitatis. Æt qu'il y a dans ce pathé- 76
 E tique infiniment plus et autrement que Én à
 4 dans cette critique une connaissance, un #
-É approfondissement de la nature, de la ÿ 1
-h réalité de l'homme et de la fatalité. 734 À
 
 |: 2 IL faut renoncer à cette idée que la É
 Ï 2 passion soit trouble (ou obscure) et que 4
@@ -273,8 +155,6 @@ h réalité de l'homme et de la fatalité. 734 À
 | 8 des passions qui sont plates comme des A
 
 note sur M. Bergson NE: je
-
-: billards et il y a des sagesses et il y a é
 
 4 des raisons qui sont pleines et müres et
 
@@ -306,11 +186,8 @@ tion, de profondeur. Des hiérarchies parallèles,comparables, correspondantes, 
 
 Ici encore les uns et les autres se trom- :|
 pent, ou plutôt les uns et les autres abusent. 1
-> ||
 
-Per El LA PHILOSOPHIE BERGSONIENNE ] EEE
 _ Mais de la même erreur et du même abu- ; En
-Ee sement. Au lieu de convenir qu'il y a des EN
 passions profondes et des passions super- |: 14
 “ Jicielles les romanciers veulent que ce soit ae
 45 La passion, comme telle, qui soit elle-même, 4
@@ -330,9 +207,6 @@ _ traiter et même à parler de critique pour AS
 Le être des clairs et des illuminateurs. Mais ‘rs
 | moi qui n'ai aucun système et qui à cause
 _ de cela ne ferai aucune fortune, ( je dis* Le
-| + pi PMU
-| ae ES HÉRSONTAS
-| | NRA % - LA En
 
 SS note sur M. Bergson
 à même intellectuetle), je suis forcé d'avouer
@@ -362,7 +236,6 @@ pa Les poètes sont infiniment plus raison- FF
 | nables, (on s'y attendait), qui admettent FE
 très bien qu'il ne suffit pas de faire des “à
 
-| à < 26 à 35
 vers pour être des poêtes. Et s'ils ne .:ÉL0eS
 | l'admettaient pas, tout le monde l'admet- de
 % trait bien pour eux. GES
@@ -371,7 +244,6 @@ C'est comme si il suffisait de s'habiller 2-54
 Le: suffit pas de s'habiller en romancier et en RES
 É. pathéticien pour être profond. Et il ne 5%
 % suffit pas de s'habiller en critique pour F2
-Le: être clair. ee eo.
 Re Il faut donc renoncer à attacher des + ER
 ne qualités et des hiérarchies comme des nr .
 4 tuniques toutes faites à certains ordres, “+ 00
@@ -425,7 +297,6 @@ nature de la grâce. Homère, qui est la
 | plus grande clarté, n'est-il pas aussi la
 | plus grande profondeur. Le vieux Priam
 aux pieds d'Achille, qui est si l'on me
-| 29 Bergson. — 2.
 
 | note sur M. Bérgson be ï
 | permet de parler ainsi le maximum du
@@ -454,8 +325,6 @@ is nous avons, aux cahiers même, un critique LE
 1 qui est en même temps romancier. Je ne EU
 À vois pas, quand il est romancier, qu'il se FA A
 > dévête de sa clarté, et, quand il est # Que
-ù critique, qu'il se dévête de sa pro- ue.
-# fondeur). 1 NES
 Comme les romantiques ne pouvaient LCR
 Ë nier que les classiques fassent clairs, ils : 16
 ‘4 ont entrepris de se rattraper sur la pro #2
@@ -470,7 +339,6 @@ _  siques étant évidemment clairs, il fàt LES
 he: entendu automatiquement qu'ils n'étaient D.
 . pas profonds. Comme si les vers de Racine US
 
-De {0 0 no Alan ne
 5e les plus pleins de lumière n'étaient pas PNA
 aussi les plus mystérieux. \ re
 LES Le profond et le mystérieux n'est pas LE
@@ -505,7 +373,6 @@ ensemble et la grâce sont les deux opérations du salut, hermétiquement articu
 l'une sur l'autre. Et en dehors il y a
 l'immense tourbe de ceux qui ne sont pas
 même capables de pécher, et que je nommerai les intellectuels ou les intellectualistes dans l'ordre du péché: de la grâce;
-du salut. ?
 R Je suis convaincu qu'il en est de même
 dans tous les ordres et qu'il y a très peu
 d'êtres qui soient bons pour le bonheur
@@ -518,7 +385,6 @@ a l'immense tourbe des êtres qui ensemble
 pacité, de la même stérilité, de la même
 infécondité, ne sont bons ni pour le bonheur ni pour le malheur. El que je nomFr ÿ merai les intellectuels dans l'ordre du
 Bien peu d'êtres sont visés, pour qui ;
-à sait sa chrétienté. Et au dehors il y a cet È
 À immense royaume de disgrâce, qui consiste
 à ne pas même savoir de quoi on parle. j
 Il en est ainsi de la passion. L'amour |
@@ -533,7 +399,6 @@ ou : Pour l'analyse mathématique tout le
 monde est bon. Il y a des intellectuels |
 partout et il y a des intellectuels de tout. y
 
-__ ET LA PHILOSOPHIE BERGSONIENNE Fe lan
 23 C'est-à-dire : Il y a une immense tourbe TR
 d'hommes qui sentent par sentiments tout à û
 | faits, dans la même proportion qu'il y a De.
@@ -557,7 +422,6 @@ ee universel c'est-à-dire d'une paresse univer- EC ‘3
 # tout fait aura élé l'une des grandes con- 7280
 F. quêtes et l'instauratio magna de la philo- 24
 
-Die FT EN note ou (M. Bergson DA FA PAT OR
 104 sophie bergsonienne. Il est vrai que l'im re 4
 208 mense majorité des hommes pense par 1 A
 En: -7 idées toutes faites. Par idées apprises. ‘à
@@ -597,12 +461,10 @@ F. pentes de conduite, n'est-ce point le tra- 1
 : traver l'homme de descendre certaines RL:
 _ pentes mentales, si seulement on y réus- 22 FRS
 _  sissail, cerlaines pentes de pensée, soyons SR
-_ convaincus qu'il y aurait là, qu'il y avait CRE : 4
 Ë là matière, objet à une très grande ; ‘V4
 À logique, à une très grande morale, à une 71e
 be très grande métaphysique. La liberté, 1700
 _ dont on dit qu'elle est le premier des “HT
-# *E | 3 37 Bergson. — 3 SE ‘AS
 
 ‘350 biens, ne s'obtient généralement que par
 2 ù une opération de désentrave. Pourquoi la a
@@ -621,7 +483,6 @@ Pie envie de dire dans l'habitude du péché
 1 originel. Car le péché était surtout devenu
 L1ÈÈSS une immense habitude. Et l'esclavage est
 ne: l'habitude pour ainsi dire la plus habi- »
-> luée. 22
 # Il faut faire attention d'ailleurs que
 
 | cette expression le tout fait, si elle revient
@@ -651,7 +512,6 @@ TE sonienne que le présent, le passé, le fatur
 CS l'être même. Qu'ils ne sont pas seulement
 RU. chronologiques. Que le futur n'est pas 4
 :14 seulement du passé pour plus tard. Que v4
-| VERRE » , , « 74
 85 le passé n'est pas seulement de l'ancien ”
 ee futur, du fatur de dedans le temps. Mais ee
 ‘3148 que la création, à mesure qu'elle passe,
@@ -663,14 +523,12 @@ D, Qu'elle ne change pas seulement de calen- 4
 ne drier, qu'elle change de nature. Que le “
 5e passage par le présent est le revêtement À
 78 d'un autre être. Que c'est le dévétement
-“as de la liberté et le revêtement de la
 S % mémoire). Mais quand ce même philo
 ss sophe parle de tout fait dans le sens À
 Be: d'idées toutes faites, de pensée toute faite,
 : V8 il prend ce mot dans le sens où on dit un
 5 vêtement tout fait pour un vélement de à
 
-ie de de à cu pe Lo
 confection, au lieu d'un vétement sur à 1:08
 CEE mesure. C'est une distinction de fabrica- IT HER
 + tion, d'opération, de coupe, de technique. RE
@@ -699,7 +557,6 @@ FC | négligence qui consiste à ne pas considérer,
 LT MS à négliger de considérer que du tout neuf : 3
 ‘LS n'est pas forcément du lout nouveau. à
 CR Beaucoup de contre sens viennent de là, 4
-D: et beaucoup de fautes de jugement, x #
 "4 d'erreurs de jugement. On croit généra- = 40
 Fa lement qu'il suffit qu'une idée soit neuve RE
 d pour qu'elle soit nouvelle. On croit qu'il n.
@@ -716,12 +573,10 @@ a "4 théâtre. Il a beau être neuf, il n'est pas ce
 ét nie nouvel arbre dans le monde. Ce n'est pas “5
 130 une question de degrés, c'est une question fe 4
 
-| A Red ON
 _ d'ordre. Homère est nouveau ce matin, et PHARE Ro
 _ rien n'est peut-être aussi vieux que le | FRA
 “a journal d'aujourd'hui. C'est une question LS
 Fe de nature et d'essence. De même que dans ia
-1 la philosophie bergsonienne le futur et à Fer
 la limite le présent ne diffère pas seule- : Ji
 ne ment du passé chronologiquement mais PIONEER
 2 essentiellement et métaphysiquement, de | ARE
@@ -734,7 +589,6 @@ faite comme un arbre de théâtre vient au % de.
 _ monde tout fait et arbre de théâtre. Elle vi Lot
 __ est en carton-pâte, elle est en papier peint. | 48208 |
 _ Elle est totalement étrangère à la germi- 0e
-_ nation, à la fécondité, à la conception. Il * Ke és
 _ y a des hommes qui réinventent, des étres 11H00
 _ qui revivent, des pensées qui reconçoivent V4 He
 _ à nouveau les plus vieilles idées. Et ü y a -; 15
@@ -745,7 +599,6 @@ LIRE dant qu'on les fait, avant qu'on les fasse, PQ +
 5 Ù comme les pardessus tout faits sont tout à!
 Be faits pendant qu'on les fait, comme les Fo
 _ arbres de théâtre sont tout faits et sont Là
-#ù Ë ; s À . ? Es j
 _ arbres de théâtre pendant qu'on les fait. SR
 < F4 : C'est une question de nature ou de factice.
 ES C'est une question de grâce ou de dis- 8
@@ -758,7 +611,6 @@ _ arbres de nature aplatis Sur un portant. e.
 : TRS Ce sont des arbres venus au monde plats. 4
 528 Ainsi une idée toute faite vient au monde "+
 4 ne plate et toute faite. LT
-48 — Est-ce lout, me dit-on. Il s'en faut me
 NES que ce soit tout. Mais je dis que quand FA:
 
 même il ny aurait que cela, et à ne
@@ -783,12 +635,9 @@ des idées toutes faites. Soyons bergso-
 cartésianisme, et en matière de l'histoire
 du bergsonisme.
 
-' LA nt VIN RE RM Sen n ET RM ADP
-L'ENANERSS Qu'est-ce qui a fait la si haute es RUE INSEE
 5 grande et si juste fortune de la philoso__  phie cartésienne. Ceux qui ont lu les
 : etes = œuvres complètes de Descartes ailleurs
 _ que dans les limpidités des manuels savent she
-RS _ que toute la fortune de Descartes et de la va
 : 2 philosophie cartésienne « été faite par : 2%
 ne. _ quatre ou cinq lignes qui sont dans le ri
 1508 Discours de la Méthode. Æf c'est tout. Et
@@ -848,14 +697,12 @@ L: César ou que Napoléon. Mais il serait
 
 i ne fut bon cartésien. Et je dirai : Il est
 
-Fe RE Pau LP Mmnote sur NL Der£SOn NET
 aisé de montrer que Bergson est ünfir HE TES
 RES: ment un meilleur bergsonien que Des- si
 4 cartes ne fut un bon cartésien. Je vois F4
 +40 _ partout dans Bergson le souci de la con- ne
 4 sidération du réel pur. Et dans Descartes À
 18 je vois de bien grands désordres. Re
-Me | Discours de la Méthode et qu'il vaut ce
 ve fa mieux écrire discours de la méthode pour V5
 4 x bien conduire sa raison et pour chercher É
 558 ou pour trouver la vérité dans les sciences. x
@@ -863,9 +710,6 @@ _ Cest un programme, hélas, et c'est pres- £
 M: que un programme électoral. Et il a été a
 ra . presque aussi peu réaliséqu'un programme
 280 électoral. Quand au lieu de relire le pro- À
-# “ait ; à
-TN F. ; gramme, el surtout le titre du programme, A x
-__ et surtout le commencement du titre du E
 és (4 programme on considère les résultats, : 4
 ER qu'est-ce qu'on voit. On voit que Descartes à
 Fa a élé un grand philosophe, un grand 4
@@ -873,7 +717,6 @@ Fa a élé un grand philosophe, un grand 4
 * #40 un grand savant. Mais un grand parmi È
 ME d'autres, à son rang au même rang que 4
 
-te ET LA PHILOSOPHIE BERGSONIENNE
 E” d'autres, de la même sorte et de la même
 nature que d'autres, dans le même ordre
 que les autres, dans le même ordre de
@@ -912,7 +755,6 @@ ae Et même comment il était fatal qu'ellesse
 à % n'était pas ça du tout. Mais l'essentiel, &
 ï $ c'est qu'il y ait une histoire. El surtout #4
 ‘ra peut-être c'est qu'il y ait des histo- S
-La riens. Re
 
 4 Les tables de Bacon sont peut-être faites EI
 À pour le contrôleur. Et pour l'inspecteur
@@ -923,7 +765,6 @@ Je n'en dirai point autant de Descartes.
 le Descartes qui a découvert, le Descartes
 : physicien, physiologiste, psychologue, et
 ; autres, était un philosophe et un géomètre
-| et un mécanicien el un physicien de génie
 qui ne procédail pas directement du
 : discours de la méthode, qui n'était pas
 en liaison directe, en fonction continue et :
@@ -935,9 +776,6 @@ rs et qu'il en pensât lui-même. C'était un
 ê mécanicien à son rang, un physicien à
 À. son rang, parmi les premiers, nullement
 
-nr je Ro Re SORT _ note sur M. Bergson « |
-THÉORIE x PONT DE RON AS Ve RE Ms Tee Le Pas
-É 3e _ un métaphysicien, un géomètre 1 2 LC
 SES et continèment déduit, nullement un
 SR Re métaphy'sicien, un geéometre, un mécani- ENT
 _  cien, un physicien à qui un secret de NE FR
@@ -946,14 +784,11 @@ ne méthode, soudainement surgi dans l'his- EN
 0 bilité promise à l'extérieur. Et je vois
 TO aujourd'hui que dans l'astronomie et la “EU
 ‘1188 mécanique et la physique célestes on  .
-> # + 278
 DEEE revient à l'hypothèse des tourbillons e
 NU cartésiens, et j'en suis fort heureux, car 14
 6 Le AR c'aura été un beau coup de génie, (mais 2
-ne ee _ de la divination du génie), et je serai se
 % S F plus heureux encore quand on y sera Es.
 HSE) revenu pour la physique générale. Mais 2
-‘1 si on y revient, (l'allemand dit : si on y à
 SR reviendra), ce ne sera point parce que 5
 F4 l'idée de tourbillon est claire et distincte, ÿ
 ER ce sera et parce qu'elle sera plus commode
@@ -999,12 +834,9 @@ e et bientôt deux siècles et demi on à fini
 : SITE c'est-à-dire enfin que Newton est métaphy- de À
 et siquement impensable). (Car on voit mal b 54
 4 ae _ comment un éther serait un conducteur Le
-__ parfait de l'attraction et de la gravita- A
 LV tion, comment un éther conduirait instan- 1554
-\ F2 tanément de l'attraction et de la gravi- 104
 De lation à distance, comment un éther ferait Ne
 à des transports. instantanés de forces qui EE,
-Fox seraient celles de l'attraction et de la De
 RER gravitation). On ne reprendra donc point 4
 LS l'hypothèse des tourbillons cartésiens pour 22°
 DR assurer l'ordre ni pour assurer la pensée Ë
@@ -1067,9 +899,7 @@ A: rience remonte, (partant des faits, des ne
 4 dire sur le tranchant du sort. +
 4e La réalité, en chacun de ses points, est %
 “5 comme une ville bloquée. L'armée royale #4
-#4: 56 RE
 
-| DR ST DS ur CRT ESSOR ET
 est partie au secours. Mais l'armée royale
 ne peut parvenir elle-même et il faut
 qu'une sortie de la place méme vienne au -
@@ -1099,17 +929,13 @@ d On me permettra d'ouvrir ici une note ;
 
 ; dans cette Note. Il est impossible de ne
 
-DRAC DR ST Per DO TU PRES
-MA U c t 1 'noté eur NI BARON PET O
 “cR pas considérer, avec un saisissement com + “Voie
 _ bien cette théorie cartésienne est fidèle tes
 ie Rue ment apparentée, combien elle est paral_  lèle à la théorie chrétienne et catholique ir
 “8 _ de la grâce, à ce que nous avons le droit 4
-; T3 de nommer le mécanisme de la grâce. :3* 0)
 CA Comme il faut que l'expérience vienne au TAN
 | Arr devant de la raison, ainsi et par un mou- +155
 _ sement parfaitement comparable et par- Re
-> 84 Ne . = « . 5 7 » P:
 : 200 Jfaitement parallèle il faut que la liberté De
 424 vienne au devant de la grâce. L'homme ‘+4
 NCIS aussi est celte ville assièégée. Le péché De,
@@ -1125,7 +951,6 @@ ts & La grâce aussi est celte armée royale qui
 
 OR dance de l'homme. Car il ne faut pas con- "124
 
-Rd et oi de NE
 5 sidérer seulement la place frontière. I
 Fe faut considérer « Versailles et Saint.
 p. Denis ». Si la place n'est point secourue vo:
@@ -1167,8 +992,6 @@ Re ne sait pas encore les causes les plus ‘
 4 ï particulières et si petites, qu'il est très à
 114 malaisé de le remarquer. Mais l'ordre que 2%
 
-ru j'ai tâché de trouver en général les Pr EME R
-+2 Le LE sr Verte
 Fr cipes ou premières causes de tout ce qui 15
 È est ou qui peut être dans le monde... mi 2:50
 4 .… De tout ce qui est ou qui peut étre, CURE
@@ -1212,9 +1035,6 @@ cipes que j'avais trouvés. Mais il faut aussi
 ë est si ample et si vaste, el que ces prin- 4
 * cipes sont si simples et si généraux, que je 4
 
-RES Ne AGE D Hot PEUR En EE RE ER ONE et (TA £ PRE
-
-ee | ET LA PHILOSOPHIE BERGSONIENNE ,
 #4 ne remarque quasi plus aucun effet particu- ‘0
 4% lier que d'abord je ne connaisse qu'il peut ; si
 14 et que ma plus grande difficulté est d'or- nn
@@ -1230,7 +1050,6 @@ he. derechef quelques expériences qui soient Us
 ñ: que je vois, ce me semble, assez bien de Dr
 4 quel biais on se doit prendre à faire la 1
 
-| È AE
 | plupart de celles qui peuvent servir à cet. nue
 ne effet : mais je vois aussi qu'elles sont A
 4 telles, et en si grand nombre, que ni mes 4 1
@@ -1242,7 +1061,6 @@ _ que j'aurai désormais la commodité d'en à
 
 _ faire plus ou moins, j'avancerai aussi plus “a
 
-Me à ou moins en la connaissance de la nature HAE Res
 5 Ÿ ce que je me promettais de faire connaître “
 2 Fe par le traité que j'avais écrit, et d'y mon a
 360 trer si clairement l'utilité que le publie si
@@ -1281,8 +1099,6 @@ __ l'instant est un point de départ momen- 4 7 È
 ‘4 d'arrét, on redescend au point d'arrivée 2
 3% _ définitif. On part, on descend, on s'arrête, Le Pi
 
-XÉTN on saute, on remonte, on redescend, on 3$ INA
-4 de arrive. On va, on saute, on revient, on. NI
 D reoa. Qu'importe. Parce qu'un voyage est Fa
 _ singulier, parce qu'il est interrompu, parce 4
 : FR qu'il est discontinu et même parce qu'il Fi -
@@ -1343,15 +1159,12 @@ _ l'autre, c'est montrer qu'on ne sait pas E
 DA: C'est témoigner d'un grand manque de 21
 Te culture. C'est montrer qu'on n'est pas de ne
 Pa: ce pays-là. Fe
-D: Si le discours de la Méthode a un sens, è
 | ASE c'est bien qu'il faut aller pas à pas et avec 4
 ‘75 une extrême prudence. Là-dessus il aboutit Pi
 Re « à une marche, à un progrès, à une s 3
 D démarche qui exige que l'on saute entre
 __ le point de suspense et le point d'arrivée.
-D. Si le discours de la Méthode a un sens, !
 40 c'est bien qu'il faut que la démarche de à
-DA ne
 
 Be l'esprit à l'objet soit une déduction, un Es er
 Be dégrès continu. Un aller continu. Là- “ Re.
@@ -1372,11 +1185,9 @@ E pointe de la semelle du pied gauche. Et 55
 - ainsi de suite alternativement. C'était 1
 J l'ancien paille, foin des régimes déchus, à 4
 4 devenu sous la République et depuis le 1048
-É gouvernement de la raison le gauche, LR
 2 droite. Et c'était paille qui était devenu le à ‘5
 “2 pied gauche, et foin qui était devenu le 108
 
-“< cn s ” Pa S E REY ARE RIT é ne ä ps ENS |
 11 pied droit. Mais autrefois on comptait et DRE
 :5#E mesurait par paille, foin et non par
 ‘à Fe gauche, droite. Or Descartes est un homme Fi
@@ -1399,7 +1210,6 @@ nn les astres, une terre. Il croit qu'il a
 “16000 raux et quelques autres telles choses.
 Re Peut-être que s'il n'eût jamais vu les cieux n.
 
-| nmTLA PHINOSOPHIE BERGSONIENNE
 _ ü ne les eût point aussi aisément déduits.
 | Peut-être que s'il n'eût jamais vu les cieux je Ro
 ; il ne les eût point trouvés. Et ainsi de HSE |
@@ -1410,7 +1220,6 @@ aisément une telle connaissance de l'évé- Mas ne
 besoin que l'expérience vint au devant de
 | lui que quand il a voulu descendre aux
 choses qui étaient plus particulières. Il est
-‘permis de se demander si l'expérience Qu ï
 n'est point venue au devant de lui jusqu'au ‘3 58e
 commencement du ciel. Il est presque ‘8 a
 | permis de se demander si l'expérience LAS
@@ -1418,9 +1227,6 @@ n'est point venue au devant de lui jusqu'au g a où
 ; commencement de Dieu. 5e ROSES
 Fe: Nous qui avons ou tout le progrès et les
 4 développements de la physique depuis Te
-
-Mae * + Tr et Le MES pr da cévetgnns Ru" LEE
-De N : + RE TR set re A RAR ET
 
 5580 Descartes et qui les voyons tous les jours, SR
 Xe que pouvons-nous penser d'une telle qua ste]
@@ -1443,8 +1249,6 @@ Ne parce que la méthode de Descartes est 4
 Es tune, mais parce qu'elle est une méthode. 4
 “4 C'est pour cela qu'elle s'est inscrile dans #2
 4 l'histoire éternelle. | À |
-
-#5 “
 
 Ce n'est point parce qu'elle est victo- ‘à
 rieuse, c'est parce qu'elle se bat. Ce n'est +1
@@ -1492,8 +1296,6 @@ e. .… « et de ne suivre pas moins les }
 
 Ÿ plus douteuses lorsqu'il s'y serait une fois » déterminé, voilà qui scandalisera tout :
 
-Pipa re ae SRE re Ses AE tes fes bo ge.
-| ET LA PHILOSOPHIE BERGSONIENNE L +370
 ÈS homme qui n'est pas philosophe et tout Tee
 + homme qui n'a pas de culture. C'est que 508
 És des deux pôles de cette phrase, des deux / 1808
@@ -1529,8 +1331,6 @@ vont justement où ils désirent, ils arrive- |
 ront au moins à Ja fin quelque part où
 vraisemblablement ils seront mieux que
 dans le milieu d'une forêt. » |
-|
-|
 
 Toute la question est précisément de j
 savoir si la pensée aussi n'est pas mieux |
@@ -1566,7 +1366,6 @@ que la plus grande erreur c'est encore
 d'« errer » : voilà sa nature méme et la
 race de son secret. È
 ù Je ne voudrais point le rendre suspect :
-de ce pragmatisme que l'on a si souvent Î
 ; reproché à la philosophie bergsonienne,
 (à turt, selon moi, et un jour je le mon- 5
 trerai), mais enfin il est évident que la 1
@@ -1574,18 +1373,11 @@ philosophie cartésienne est un système de |
 pensée où arriver est d'un prix éminent, il
 et même d'un prix unique. Tout, plutôt !
 que de n'avoir pas de gîte ce soir. 4
-|
 L'espoir d'arriver tard dans un sauvage lieu. |
-|
 Si la méthode de Descartes avait été ;
 bonne, au sens où lui-même l'entendait,
 c'est-à-dire si elle avait eu en elle, si elle
-|
-|
-|
 
-Le de rot ét ie SRE
-SPAS ET LA PHILOSOPHIE BERGSONIENNE ie è
 ‘4 avait conduit automatiquement à une 0
 1 certaine certitude qu'il annonçait et qui ce
 | était à vrai dire une authentique infail- .
@@ -1689,8 +1481,6 @@ débat de philosophie avec la pensée de D.
 voir un des deux adversaires avoir tort
 ou avoir raison. Contre l'autre. Parlez- 4
 
-Re An RTE de I RSR De nu à PE PCR EE
-és ET LA PHILOSOPHIE BERGSONIENNE Fri
 } moi seulement d'une philosophie qui est 3
 É-- plus délibérée, comme celle de Descartes, EN
 
@@ -1709,19 +1499,15 @@ E celle qui couche, et à la fois, sur toutes les ”
 4 Heureux ceux qui sont morts pour quatre coins de terre. ÿ
 
 4 Napoléon n'occupe plus le cimetière 4
-% d'Eylau. Et il ne dresse plus sa tente au Ë ï
 À pied des Pyramides. Mais il y a eu La #0
 
 à campagne d'Égypte, la campagne de ra
 
 Russie, les guerres d'Allemagne, et il y CA
 
-É. a eu la campagne de France, ot
-
 É note sur M. Bergson À ù
 Je ne veux point dans cette simple note F
 entrer dans le fond du débat bergsonien. ;
-| Si je puis le faire un jour je parlerai en é
 chrétien et en catholique. Je parlerai sans
 autorité mais je ne parlerai pas sans
 entente et sans entendement. Que la
@@ -1736,8 +1522,6 @@ de bataille. Acies suas, non alienas, non E
 des temps. De même que Hugo est clas- à
 sique au premier temps et romantique au 1
 deuxième, de même une philosophie peut J 1
-
-| ET LA PHILOSOPHIE BERGSONIENNE |
 
 $ être à plusieurs temps et elle est généra- à
 
@@ -1800,12 +1584,10 @@ de l'idée, et le cartésianisme une philosophie de la substance, et le bergsoni
 une philosophie de la durée, on les prend ‘
 tous les trois dans leur temps de méta- |
 
-:# Fe ae ss LA PHILOSOPHIE BERGSONIENNE ; 20
 4 Le cartésianisme a été une rupture 0
 ; violente. Le bergsonisme a été une rup- RES
 E: ture, une déliaison vive et comme acharnée. 4 F
 | Il y a certainement dans le bergsonisme ;
-1 comme un acharnement qu'il ny a point Se #4
 . dans le cartésianisme. Mais c'est que 0e
 peut-être la rupture, la déliaison qu'il | !
 . . s'agissait d'opérer dans le bergsonisme "4
@@ -1827,7 +1609,6 @@ l'esclavage du désordre. Et il a des con- 2
 
 note sur M. Bergson CNE - |
 qu'il peut y avoir de mauvais, l'habitude |
-est ce qu'il y a de pire. Le cartésianisme
 ne remontait, ne refoulait qu'une habitude, qui était l'habitude du désordre. Le
 bergsonisme a entrepris de refouler toute |
 | l'habitude comme telle, toute l'habitude
@@ -1888,7 +1669,6 @@ encore el en ceci même nous sommes l
 forcés de parler le langage bergsonien et d
 en ceci on n'en parlera jamais d'autre. ,
 Tout est dans l'insertion et l'insertion est :
-extrêmement rare. De Dieu, il ny a eu À
 
 | qu'une incarnation, et des idées même il we
 ‘4 ÿ à bien peu d'incorporations. Quand au 54
@@ -1940,11 +1720,8 @@ veut idéique à la source même de l'être. |
 Le bergsonisme a été un effort aussi
 grand, un effort du même ordre, et je
 
-|
-
 4 dirai un effort dans le même sens. Il n'y
 1 a pas plus de philosophie contre la raison ;
-- qu'il ny a de bataille contre la guerre, |
 d'art contre la beauté, de foi contre Dieu. :
 Le bergsonisme n'a jamais élé ni un
 irrationalisme ni un antirationalisme. Il
@@ -1964,12 +1741,10 @@ que non seulement il a fait rejouer les
 vieilles articulations de la raison mais qu'il |
 en a fait jouer des articulations nouvelles. %
 
-to MSIE DR ee LES SE
 a Les fameuses règles de Bacon n'ont ;
 ë L à introduit dans l'histoire du monde aucune 1
 1 fécondité. Nous ne leur devons rigoureu- û
 x | sement rien. Ni une invention, ni une
-7e découverte, ni un mouvement de la pensée. à
 : Tous ceux qui depuis les premiers balbu- ke.
 “54 tiements de la pensée grecque avaient fait _
 êr une invention, une découverte, un mou- x
@@ -1981,7 +1756,6 @@ ne. qui n'aurail que ce ferme propos, qui ne 1
 l ferait jouer que ce ferme propos, ce tout *
 homme ne ferait pour cela ni une inven- 4
 ; lion, ni une découverte, ni un mouvement ‘
-: de la pensée. Et on n'a jamais vu ane à
 ke invention, une découverte, un mouvement :
 de de pensée sortir de la contemplation des ‘&
 
@@ -1995,7 +1769,6 @@ k mot de soldat. Mais je ne suis qu'un &
 E pauvre moraliste. Quand donc ü y en
 avait un, au 13r°" de l'arme, qui se tra-
 | vaillait trop ostensiblement (à faire un |
-mouvement), (à faire un mot), il y en "4
 ! avait toujours un autre qui disait froide5 ment : Surtout n'oublie pas de respirer.
 1 Tous ceux qui ont fait quelque chose dans
 : le monde sont des types qui n'ont pas
@@ -2024,8 +1797,6 @@ tout, parce que c'est le cartésianisme. À
 Et encore dans ce discours de la méthode \
 iln'y a qu'une partie, sur six, la deuxième, |
 
-|
-
 |: qui soit des règles de la méthode. En tout
 sept pag'es et demie. Et dans cette deuxième
 | partie même il n'y a que le cœur, en tout
@@ -2046,7 +1817,6 @@ la raison souple. C'est un préjugé qui a
 | règne, il est indéracinable dans toutes les
 | disciplines que nous avons échelonnées au
 | commencement de cette note. Cest le
-| 97 Bergson. — 6
 
 note sur M. Bergson RE &
 méme préjugé qui veut qu'une logique ES
@@ -2115,7 +1885,6 @@ sissures et des creux de pourriture, dans 4
 des coins dans les raideurs, des dépôts, .
 lues, et ce que nos Latins nommaient
 situs, une moisissure, une saleté venant
-| D
 
 | de l'immobilité, d'être laissé là. Une saleté
 d pour avoir été laissé là. Et ce sont les
@@ -2137,22 +1906,3 @@ ne pardonnent pas. Ce sont les morales
 . homme n'est pas celui qui entre dans des
 É règles apparentes. C'est celui qui reste à 1
 Ed sa place, travaille, souffre, se tait.
-| É Bergson. — 6.
-
-4.7 STONES . F4 LEP dpi Le SR ee RC CS *
-Fe: FÉES LE OL EMQUTITEE, nite JULIA ENTRE il HOUSE à
-#5 PRE ns. à Fi 4 AHUYT À Aa il 5 mL a" Qu ve Pre
-LE A MR QC MI ee Mir? PTE (HAL EU a: STE
-
-RL PNR SRE RAS TS = EC COS PPS ee ds PARTIE CE LT 2 EEE
-ca g es PARA TE Re et
-
-: PSS enr OR UE RUES Es POUR fee RS La) à
-LE AE LUE DATE he _ ME ORAN ER
-RC à D Se PL Ne NT TN J fe Se NPC ES
-ä ie 1 ÈS A N TE x Le = n < ten Eos. te
-1580 Pts ss Re ce
-
-RS NPA I MES Leu NES MR ARS Lie NAT TER 4
-
-; ETS PS cos né ER ASRUT. CR SNS SES a À " US

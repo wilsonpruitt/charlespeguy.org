@@ -76,7 +76,6 @@ eût pu venir à eux. Il pouvait envoyer des toiles à nos
 salons annuels, largement ouverts aux étrangers. Il ne
 le fit pas. En 1897, M. André Michel terminait un article ss
 
-| BOECKLIN CHEZ LES FRANÇAIS
 par ce vœu: « Nous supplions M. Boecklin d'envoyer au
 Champ-de-Mars, où je suis sûr qu'on serait heureux de
 lui offrir la plus large hospitalité, un choix de ses

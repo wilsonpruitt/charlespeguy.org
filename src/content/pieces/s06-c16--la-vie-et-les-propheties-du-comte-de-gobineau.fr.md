@@ -7,22 +7,10 @@ author: robert-dreyfus
 isAvertissement: false
 wordCount: 82153
 ---
-ROBERT DREYFUS ne.
 la vie et les prophéties
 du comte de Gobineau
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-NAME NUS rit LE ROME QUE 4 no ÿ CRT +
-PE NS “ PT | Men e (LE FAR Ÿ pi ous eu LR QE
-
-EE On js Li nait OMR: re RIT Hot
-
-L VA Un è J GA RON DR LACS Aid MF lp
-
-CA \ ] rs at ga DATES At RU if Ur A De) À
-
-|
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
@@ -57,63 +45,13 @@ reçoit, par le fait méme de son abonnement, en tête de
 la série ; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-FINE ES AER UE AAA Hat RAM DUREE A M ETUI Abri Nos AIG FA VA UE SOUAAIR A
-
-PAAQURE CU AE A NAUTEE AR PLATE et af } PAIX NE nr: Mi \
-"il PATES r. NL AU TA je (AI | { à NTI CEE) TEA (i
-VLORE TES EAU UE ta HUIT she WA (AIN CAC AI
-
-2 ANT ne EM) AA ae TER
-vis SEE W Faut dATUES 1e rs Un 4e Us LRU A D ANT €
-un LCA AARTE AI HT fe AN £n h NE NIirS EU RU] ST TON or ;
-‘ait ELA 4 AE DEEE IQ Pot DU RER En AR EUR x
-de He ju HAT AA y 0 ne AOL A Rae
-JARAE Dur F 4 DAS 14 { AL AA LE M te Wi4 Rat A
-RP AA LA UIESS "e d'A NN ES USE Hye "48 Le « sa ne TA MANU LEA AS AL GA 7 SAT N'ES AE
-à Fo (RU Ur ne sis a Me aix D ARR To er ox
-
-AIR et (oi te ï É k “NC MANS A STENE ER 1 IA è
-
-MR DA MES Fee LKR AE
-
-nr Hour ANS Are SEE (à 3: Pres d de à
-
 la vie et les prophéties
 du comte de Gobineau
 44 0
 
-M jf il
-#3) NME Ho ‘ad ie A “api ÿ js AA He Ra AUTRES
-| bu ns A Un "a GUN A PEU a FA ae Ut je V'AYE
-te Du | ed DR jus AU ne HaR Na or VU LA DA
-pau LA (rt UN A on Dot Ki Va Ne An il de A !
-pat it AE NT GA AVE Nh 1 RUE rh NA fa (AA 4 mas ul HU SARSIO vu) rs À
-FA AU Va ! { nm GE ie e A ut ne
-REA ji è tn W AO) ï NE VA PA El VAL ur ÿ
-: 0e ne no as A Hi 0 ii
-Î k PL RAI ÿ (rs 2 ñ TE Kl da VAN ‘à l far f\ “a NI Rat Vie EU A AD) Ü
-DE en 1: RAI A al REV LIN x ol (par PAT Re nt PAT ÿ AU
-1e FH de no ie US aie
-HAN di AA WA ne dun ie
-État LE) (Ne NT Hi Fr
-
-LME NAN NA To (EN NE a RARE il ESRI ;
-PA (LE AE ONE À Jet ANSE LOL LE
-Vi Dir il A TES at RHONE fe VUE * “ ERA AU LE Le
-NA MANS be + < | | de SN Naf NA
-SOL LE NACRE NAN ANNE ia NEC
-Ni f “ait Mal tu er { PANNES ; y PAU AU "ik CUS à 6! fi
-ARE EU bn te KE APE A RU TCA UNS EN A DAME (MA SEA
-NAN NAN U ne ne ANA) Jo ne AU
-
 Nous adressons nos respectueux remerciements à
 madame la comtesse de la Tour, qui a bien voulu nous
 autoriser à reproduire ce portrait, exposé par elle, —
-sous le pseudonyme de MAHAUT, — au Salon de 1875.
-
-|
-
-ne DCE T er Te NE PT NAT QE 1
 
 Je publie ces causeries telles (ou à peu près) qu'elles
 furent données à l'École des hautes études sociales,
@@ -123,36 +61,12 @@ Mais cette forme didactique a l'avantage d'être commode
 
 et favorable à la clarté.
 
-ji ARE ne) APN a NUIT es Hat Ars US HS LA
-MAQUIS IN NU CARE PEU L'an: ATEN per A 1e pale HAE PTINAG
-0 Hs Gr ES | AN ue MR NE) NE Nr Ut ALU NE SAN AA RME AUX ns | Aie MIE ll
-mit i 114) MUR UNE AAA PARU Y ANRT EL RAA ts AN dE US )
-YANN ATEN NI LA AUX FU ANA ne er à NT NOM
-Re LORIE tr ar 10 Ne ue
-RUE OPEN NIUE 1 Hé DER MNT NÉAEE RE EC (AE AE D ne Ut Fe HAE fe AU he
-MAUR LT ER Re RAT L'aues DU (MONET PA MEN DURE Mae LLT 7) TRES 1
-FE Cr Ron 0 Le no Ki HSE
-ae | RTE Fa 2x RE Let Ni AN AA AU pt PR
-TEE ETES Ne au tte AO AN LUNA PR er }
-
 La conversation du comte de
 Gobineau est vraiment fatigante;
 elle vous force trop à penser.
 
 Un jeune diplomate. — Salons
 de Rome.
-
-As "ni NID NOT AU
-| ANR EE de A a pi TT Fe
-VA SUIS MAR on TELE frire APN MUr Pret fil y. ES Mn s' RU RME 110 NE hot
-MR “AE KA D HR } l | pre HR (st 4)
-1 ni SAS A ‘ AUD NAMUR Anne HU Da ft ANUS ji (y
-ur PL ES a MA dat NN LA MPAAAUr PA NE Q FAUUAT PAS at PA Non
-
-ne LD
-
-PAR tr +, Here Is NA (Nr Pa ET FÉLI PAU Re SEE ut ACT %
-FAC \ ; Sn 1 on Wa NAT IE th RARE De h) nee
 
 La morale aristocratique du comte de Gohbineau
 
@@ -522,7 +436,6 @@ __amie excellente de Gobineau : « Lisez-le le plus pos-
 est pas possible de comprendre la philosophie de
 Gobineau, si on ne le connaît pas lui-même. Et nous
 serons aidés à le connaître par le spectacle de sa
-vie.
 
 Cette vie fut errante, mais elle ne fut pas très
 aventureuse. Et je pourrais en mener d'un trait le
@@ -545,7 +458,6 @@ avec vous l'étude de son premier grand ouvrage, et
 qui demeure vraiment son ouvrage capital : je veux
 dire l'Essai sur l'inégalité des races humaines.
 C'est là que nous suivrons son effort pour constituer
-ce que je nommerai sa HIÉRARCHIE ETHNIQUE, C'est-
 à-dire pour identifier la notion de l'élite avec la
 notion des races supérieures, ou (races de maîtres ».
 
@@ -935,7 +847,6 @@ monstration théorique : il porta ce choix sur la
 famille dont il connaissait le mieux, ou dont il pensait le mieux connaître l'histoire, savoir sur sa |
 propre famille. M. de Gobineau écrivit l'Histoire
 d'Ottar Jarl, pirate norvégien, conquérant du pays
-de Bray, en Normandie, et de sa descendance, —
 ouvrage où il est dit : &« Le livre actuel continue
 l'Essai sur l'inégalité des races et l'Histoire des
 
@@ -950,33 +861,8 @@ C'est en commentant cet ouvrage que, vers la fin
 de ce cours, nous étudierons à loisir l'achèvement
 et le sens final de l'aristocratisme du comte de Gobineau. C'est là que nous rencontrerons l'expression la plus hardie et la plus complète de sa morale, qui est une morale de l'honneur.
 
-(1) Ottar Jarl, IL, 5.
-
-Ka Hit. AO MES LRPTE MA LU 4 ALU re) NN:
-REA FAN TE ë VAR : ae ul NA UT À Rae MOINE RU Fi JE HU CUS \
-M 2 pa MUC 14 \. jVLAAPUNEE AA A Le) EE y MATE Ny RACE PEN AE Vas |
-Fe DA eu AG A RL AN (eau ‘al 1 ne mot k
-LITE AREA PAU AUS ae of PRE \ bee ne NUS At FETES Pape
-| STE FRE EE TN TE AE HU | ielS EN MT
-‘AO PAU l à III A A ENS AL ton
-ne nant NET ïà AIR ANUE EDR dre AA Ki DANIEL ge
-tt L'ENOAEE M, HE IE) hr “ù N (AS RE Mk Rte) ee vs DO AT, \
-44 ti LA NUE LA LAS EU } AU EVA RES Can LACS AAA
-AAA) RS HUE (te NA À ÿ Mie e A ji An LA HS :
-PAR on at et) \ jf (a Me h
-UC ne FE SN
-
-tu (PIS NON AA A LE RE QE SUN RS de URI QUES MMA rh
-DEA d}} fe: DR CAR à eu, N DATA ue RNCS
-
-Era t : EE AAA re NAT “NEA LEA Le
-
-IA RIM NCA vil LÉMARAEN TX AU LE POTERIE ENENES ne LR
-(NOR HA TUE AND (LE NU NOR Bat CARRE AE ROLE pal EE à ALAN À
-
 Années de jeunesse (1816-1855)
 L' « Essai sur l'inégalité »
-MespAMEes ET Messieurs,
 
 Un savant allemand, à qui M. le professeur Kretzer, de Francfort-sur-le-Meiïn, (1) vantait le génie de
 feu le comte de Gobineau, doucha ainsi son interlocuteur :
@@ -990,8 +876,6 @@ génies ignorés. Gobineau, serait-ce un nouveau dieu
 
 Défions-nous. Mais approchons-le.
 
-#
-
 Ce savant allemand était bien osé de mettre en
 doute la divinité du comte de Gobineau. Lorsqu'on
 
@@ -1000,7 +884,6 @@ doute la divinité du comte de Gobineau. Lorsqu'on
 la vie et les prophéties du comte de Gobineau
 priait ce gentilhomme de nommer son plus vieil |
 ancêtre, paisible, il disait :
-— Je descends d'Odin ! : .
 Atténuait-il d'un sourire la témérité d'une telle
 croyance ? C'est possible, il était très spirituel. Maïs
 c'est incertain : en pareille matière, il n'eût pas été |
@@ -1102,8 +985,6 @@ en France avec Louis XVII, et devient capitaine à
 la gardé royale.
 
 C'est le père de notre écrivain. .
-
-|
 
 Joseph-Arthur, comte de Gobineau, vint au monde
 à Ville-d'Avray, le 14 juillet 1816, et grandit dans
@@ -1285,8 +1166,6 @@ jour anniversaire de la Saint-Charles et évocateur
 des chers souvenirs du temps passé, le ministre de
 la République offrit au fils de son camarade le poste
 
-|
-
 de premier secrétaire à la légation de Berne, en
 compensation de son départ du ministère. (x)
 
@@ -1334,8 +1213,6 @@ science de l'auteur :
 races humaines, est-il de vos parents?
 
 — C'est moi, monsieur.
-
-— Vous ? Et si jeune!
 
 Tandis qu'en France M. Drouyn de Lhuys, son
 ministre et chef bienveillant, lui fait part de ses inquiétudes :
@@ -1501,7 +1378,6 @@ une nationalité toute nouvelle et bien malencontreuse dans
 son originalité; il n'appartient plus à ceux qu'il dit encore |
 être ses pères, qu'en ligne très collatérale. Il mourra définiti- |
 vement, et sa civilisation avec lui, le jour où l'élément eth- 1
-|
 
 nique primordial se trouvera tellement subdivisé et noyé
 dans des apports de races étrangères, que la virtualité de
@@ -1584,7 +1460,6 @@ blancs, noirs et jaunes, et de « convenir que la dérivation est sans aucune pr
 la vie et les prophélies du comte de Gobineau
 même de la linguistique. « L'humanité, ajoute Littré,
 ne fut pas plus la même dans les grands compartiments du globe que n'y furent les mêmes l'animalité
-et la végétalité. » Et il dégage du seul progrès de la
 raison et de la bonté parmi les hommes, non de
 l'identité prétendue de leur type originel, cette
 « grande idée d'une humanité mère et protectrice
@@ -1663,8 +1538,6 @@ ton parcellaire ». D'autres la dominent partielle- |
 ment. Enfin, divers groupes humains, sans jamais
 
 la secouer toute, parviennent à mieux s'en affranchir :
-
-Ces derniers,
 
 forment ce qui est civilisable dans notre
 
@@ -1757,7 +1630,6 @@ fort. Cependant, je ne puis les tenir pour victorieuses. Et je crois permis de p
 
 la vie et les prophéties du comte de Gobineau ;
 intellectuelle de M. de Gobineau fut peut-être ici la |
-suivante... L
 Sa sincérité d'historien l'avertit d'abord que la ;
 victoire sur l'exclusivisme ethnique est accessible É |
 * aux seules rages douces pour le progrès humain : il | |
@@ -1800,31 +1672,8 @@ une philosophie du « progrès », s'il s'était senti des
 
 (:) Avant-propos de la deuxième édition de l'Essai (FirminDidot. 1884).
 
-er FL ta to in VEN FTRARUE
-LS Na Du. Hoi pu EE Da AE PARLES
-A TARN As IUT EN A pts De AA) AN ss We Ath i AL! Mae
-RAu Not Ve AAA BEN Er LA RNE MAIN 4 PATATE SANTA qi A ]
-Ant Ua VAR RO E ESS | AE) SAPIN TE FENMIUNES et SA RE MOTTE \
-A 1 Jus ele ji AN e NE PT 1 Res UT AE ALU NRA VIQENE
-FA Aou 14 OA EEE DR IN AE AUVAU NU Art ete JE AU 11e ENT NT ti ul
-
-ATOS ee A A Un
-AN ae RAS ETAT (RE 7 PAR EU
-APE (IEEE t L ñ ya tu u
-PAT) LE de LENS À CPR Re 1
-1h RCA NT ENTIER tire \ à de AO JU
-
-DRE OT UE Ce pre
-Rae RADAR VA UINeR AU A A TEA A ASIE A LA “ou
-Dre MORE re 1 PAT PA TEEAR E AARET SENS ARE ANSTS AUS ARÈNES NE LU
-LORS 4 Hhaur LEE ETA ON AY 1 VUE NA PRO
-1 FO CARRE EE OPA LÉO DE san AVAL Te
-2 R SEE de US LE AOC ANSRSERS
-
 Inefficacité des mœurs, des lois, du climat, des croyances
 Efficacité du « mérite relatif des races »
-
-| MespAMEes £rT MESSIEURS, È
 
 L'Essai sur l'inégalité est dédié à Sa Majesté
 Georges V, roi de Hanovre. (1) Aux débuts de sa
@@ -1890,7 +1739,6 @@ l'histoire lui a livré son secret...
 
 Voici ce secret :
 
-Tout ce qu'il y a de grand, de noble, de fécond sur la
 terre, en fait de créations humaines, la science, l'art, la
 civilisation, ramène l'observateur vers un point unique,
 n'est issu que d'un seul germe, n'a résulté que d'une seule
@@ -1900,7 +1748,6 @@ n'est issu que d'un seul germe, n'a résulté que d'une seule
 la vie et les prophéties du comte de Gobineau
 pensée, n'appartient qu'à une seule famille dont les diffé-
 rentes branches ont régné dans toutes les contrées policées
-de l'Univers. (1)
 
 Cette famille est la race aryenne. Or, de nos
 jours, elle est presque éteinte. Georges V, roi de
@@ -2103,7 +1950,6 @@ de la promulguer directement, mais parce que, pour être
 bonne, il faut qu'elle soit modelée sur ses vues, et telle que,
 bien informé, il l'aurait imaginée lui-même. Si quelque. très
 sage législateur semble, au premier abord, l'unique source
-de la loi, qu'on y regarde de bien près, et l'on se convainera
 aussitôt que, par l'effet de sa sagesse même, le vénérable
 maître se borne à rendre ses oracles sous la dictée de sa
 nation. Judicieux comme Lycurgue, il n'ordonnera rien que
@@ -2341,7 +2187,6 @@ annonce le chemin à parcourir :
 
 J'ai posé d'abord cette vérité,
 
-dit-il,
 que la vie ou la mort des
 sociétés résultait de causes internes. J'ai dit quelles étaient
 ces causes. Je me suis adressé à leur nature intime pour les
@@ -2359,29 +2204,6 @@ ce que j'entends par le mot race, et c'est ce qui fera l'objet
 * du chapitre suivant. (1)
 
 C'est aussi ce qui fera l'objet de notre réunion
-
-| )
-
-Va el 1 A NE ut
-400 o ou UE in ble l f HA dl APS
-nee us tes de FL Ne NN po FA LAON MANQUE
-no NE LEA AE (OU AN FA ns DA Un (ea
-! h. tu ÿ HAN th) ( Pers AM Der HAE VAN ne de ÿ VER
-0 UE AT GUN à RE l'AC MANS NOTA AAA Pi eue pa re LAN APE k
-AT Le RURE 1" Lips \ SE ALOE LU (EN N DIN MONT et j'me OR SE As in
-AT 4 1 qe (un ÿ \ ÿ DE que NU
-Vi Ni UE AA Ha Due ri | M nat
-0 CAN in) La AA NE Lo fr \ pire Ur AAA TEE un h
-HET qe EU k DAT Fou Ale ns D ( HE AAA FARM UNE 1202) }
-Vi) (te) \ DUR à LUT (ea al EAN 4 GIRL PNR PNA pi AR US REA UT LE
-|: } PAS US S li LEARN Ur Rp jo nues ul VIA RUN MANS AU IAS ÿ oi fous AN DREr l
-FRE IP As NS la ADN a) Din AN ul AN Hi HAN LT LR \
-"H FAN A; (A je A nee AR (TS
-
-és RS = ë L à al 1 YEN TASER
-A 0 \ js L 4e AT OI RES MNT enr
-\y FN à È L'NAERPE A LA de dos er K
-\, L'ASIE 4 DT 4 Ÿ rl AVS AIDER AAA ni:
 
 Théorie des races
 Gobinisme et Antisémitisme
@@ -2513,7 +2335,6 @@ par la couleur, à qui M. Reinach voudrait que l'on
 réservât l'appellation de races. Ensuite, il convient que les prétendues races historiques ne sont,
 en réalité, que des types « tertiaires ou quater-
 
-is L
 la vie et les prophéties du comte de Gobineau
 naires ». (1) Enfin, il ramène à n'être que des métis- |
 sages plus où moins compliqués, jamais purs, très |
@@ -2562,8 +2383,6 @@ des races tertiaires. (3)
 
 En effet, à peine a-t-il constaté ou affirmé théoriquement leur existence, il nous montre (et c'est tout
 
-ou
-
 la vie et les prophéties du comte de Gobineau
 son livre) les combinaisons ethniques se multipliant
 avec une rapidité si vertigineuse que, s'il fallait
@@ -2591,11 +2410,7 @@ garantie de la prudence et du sérieux de la théorie
 gobinienne des races, dans cette concordance entre
 le point de départ de cette théorie construite, en
 
-|
-
 1853, par un écrivain à tendances légèrement antisémites, et le point d'arrivée d'un savant juif, en
-
-ce
 
 Cependant, il reste vrai que la théorie gobinienne
 des races, dans la mesure où elle est connue, a été
@@ -2721,7 +2536,6 @@ la pie et les prophéties du comte de Gobineau
 pour nous d'un caractère trop spécial : il me suffira
 d'indiquer qu'aucune des acquisitions réalisées où
 des conjectures ébauchées de son temps, dans le
-domaiïne de la physiologie, de la craniologie et de
 l'ethnologie, n'a échappé à Gobineau ; et je signalerai, après M. Kretzer, (1) l'abondance de sa documentation en fait d'ouvrages étrangers, et surtout
 d'ouvrages allemands. Mais il est temps que |
 j'achève d'édifier devant vous son propre système
@@ -2766,7 +2580,6 @@ sous le nom de race caucasique, sémitique, japhétide.
 J'appelle noirs, les Chamites, et jaunes, le rameau altaïque,
 mongol, finnois, tatare. Tels sont les trois éléments purs
 et primitifs de l'humanité. (3)
-| () Essai, I, 12.
 
 la vie et les prophéties du comie de Gobineau
 Ainsi, l'espèce humaine se partage naturellement
@@ -2842,9 +2655,6 @@ approche des conclusions acceptées par les savants
 contemporains les moins suspects de « gobinisme ».
 En faisons-nous, par exemple, application à la®
 
-|
-|
-
 | raison, ce n'est pas une race. Mais M. de Gobineau
 | n'a pas tort : tant que les juifs n'auront pas réussi à |
 | se fondre avec les masses ambiantes, par des unions
@@ -2867,12 +2677,10 @@ Idessinée toute l'échelle de la hiérarchie ethnique :
 fil ne reste plus qu'à peindre en couleur la multi-
 [tude de ses échelons. Au resle, je ne vous sollicite
 (point de vous rallier à ces théories, mais seuleiment de les comprendre, et de consentir, en consé-
-| III
 
 la vie et les prophéties du comte de Gobineau
 quence, un crédit provisoire aux assertions de
 Quand l'histoire, 1
-dit-il, 4
 
 établit si nettement cet irréconciliable 4
 
@@ -2949,7 +2757,6 @@ j œuvre. Plus loin, nous le rencontrons encore : É
 La hiérarchie des langues correspond rigoureusement à
 
 la hiérarchie des races. (2)
-Désormais, il appartient à M. de Gobineau de |
 sérier les races et de résoudre son problème, — le.
 problème de la dégénération, — en appliquant la
 théorie des mélanges ethniques à la matière de.
@@ -2958,7 +2765,6 @@ humaines. M. de Gobineau se fera donc historien
 de la civilisation.
 Qu'est-ce qu'une « civilisation » ?
 Après une critique spirituelle et sévère des définitions offertes avant lui par M. Guizot eë pan
-| (1) Essai, E, 14.
 
 W. de Humboldt, M. de Gobineau arrête la formule
 
@@ -2970,28 +2776,14 @@ Dans cette acception, M. de Gobineau discerne
 d'elles fut composée de diverses « sociétés », groupant des peuples plus ou moins nombreux. L'auteur de l'Essai se propose de synthétiser les causes
 
 | de leur éclat, invariablement éphémère, et de leur
-|
 | De ce concours de tableaux également émouvants et
 grandioses, je tirerai,
-dit-il, s
 pour établir l'inégalité des races humaines et la prééminence d'une seule sur toutes les autres,
 des preuves incorruptibles comme le diamant, et sur lesquelles la dent vipérine de l'idée démagogique ne pourra
 
 Dans notre prochaine réunion, nous commenterons sa théorie du devenir de la démocratie parmi
 les hommes.
 
-RANCE AREA MT HSM JR AU A CHAQUE LA PMU NEC phee Jatl D4
-enpLe RAA RARE l H (ral Sp) QU AMEN) DRAEN À ds on
-Ant DUCTANE Ti qui HE Je Re A MESURE HART ; NE CALE OA AE)
-LADA | EV ARE QU Ut è ANA &ÿ fl ne) pi AAA AO 1 Aù
-Rata : NATURES ON PANNE
-
-EE EE AE ER de PAS ee
-
-For to: : i LES ve NE ECS
-nya Le : à LA lv 2 1e OS RENNES
-
-|
 Les grandes civilisations humaines. — Théorie
 de la démocratie. — Pessimisme
 
@@ -3119,7 +2911,6 @@ nous sur place les assertions dé Gobineau :
 
 Quels que soient les défauts propres à la descendance de
 
-: l'oncle Tom,
 elle possède un talent certain. Elle est musicienne. Presque tous les nègres ont l'oreille juste. Rien
 n'étonne plus que d'entendre une matrone adipeuse assise
 
@@ -3156,14 +2947,10 @@ civilisée, — je peux dire cette sensibilité méridionale, cuivrée, ardente�
 
 Pour un peu, Nietzsche eût ajouté : cette sensibilité nègre... M. de Gobineau, s'il avait assez vécu
 
-() Temps, 21 septembre 1904.
-
 pour lire le Cas Wagner, n'eût pas manqué d'accepter cette interprétation : le génie de Bizet ennoblissant et stylisant l''ardeur du désir africain, de la
 
 En écrivant sur Carmen ces remarques si particulières, Nietzsche avait-il oublié la lecture que lui
 fit sa sœur de l'Essai sur l'inégalité des races humaines ? (1)
-
-# *
 
 Au moral comme au physique, l'homme jaune
 
@@ -3288,7 +3075,6 @@ une servilité sans égale, c'était aux pieds de la patrie. (1)
 L'aryaniste Gobineau m'apparaît ici, sans conteste, comme un anarchiste et un sans-patrie.
 
 La seconde invention despotique du génie de
-Sem, ce fut la Loi : :
 
 C'est ainsi que les Sémites, unis à la postérité de Cham,
 avaient compris et pratiquaient la science du gouvernement. J'insiste d'autant plus sur cette sévère conception,
@@ -3441,7 +3227,6 @@ choses, c'est-à-dire l'effet inévitable de la situation ethnique, Hi]
 n'en fut pas le moins du monde changé... |
 Malgré l'issue inespérée de la guerre persique, la Grèce ce
 était contrainte par la puissance sémitique de son sang de |
-|
 
 se rallier tôt ou tard aux destinées de l'Asie, elle qui avait
 subi si longtemps l'influence de cette contrée. (1)
@@ -3644,7 +3429,6 @@ noble » (4). La France, « ce pays où les races sont
 plus mélangées que partout ailleurs peut-être », (5)
 a hérité de l'Italie la tâche d'absorber les « hautes
 positions sociales au sein d'une vaste confusion de
-| () Essai, VE, 6.
 1 141
 
 la vie et les prophéties du comte de Gobineau
@@ -3702,7 +3486,6 @@ Ce peuple qui se dit jeune, c'est le vieux peuple d'Europe,
 mieux inspiré. Dans le long et triste voyage qui jette les émigrants à leur nouvelle patrie, l'air de l'Océan nelestransforme
 | pas. Tels ils étaient partis, tels ils arrivent. Le simple transfert
 d'un point à un autre ne régénère pas les races plus qu'à
-#
 R Conclusion : dans les dix grandes civilisations
 | ne, « pas une race mélanienne n'apparaît
 
@@ -3875,7 +3658,6 @@ Les Aryens ne sont plus, qui furent l'aristocratie
 blanche. Toutes les aristocraties périssent. Mais
 leur mort les venge. Car « du même pas que l'humanité se dégrade, elle s'efface » (2) :
 
-On serait tenté,
 écrit M. de Gobineau à la dernière page de l'Æssai,
 
 d'assigner à la domination de l'homme
@@ -3910,38 +3692,6 @@ philosophie de l'Essai se traduit ici en un pessimisme spontané, nécessaire et
 C'est l'épopée de la Décadence.
 
 qe a ne Wait
-rt Nil PAU pat j F4 A IE hs a LA POY
-Han AUS ne LE vi ns a ot ANA
-a A 1 RL Ne NT Fa is ne US ol a ai nue ay
-Un PR ur il ul Vins n né NA d AUS M
-| 11102 AR UN HE FA AU M ot ti fa ja AA to a pu LATE {
-Lan ie “ JA PAT RAM AA l 0? ur 1 th ae 4 M ‘hi AUS St He A RAA) 1
-LEA F6, A4 It ñ (| Just PAU A tra, FEU jo \ RAA PR AU je (a (Es le) il f We qe rh
-sh (in ra as au Fo ne ae ne purs ni on si . Le ji
-Nr A a Fe ne (21 A Va à ny DA ir k SH Ha Hat dpt 10 En) \ nl et IN AA
-\ 10 AE LIANT He AE WA 1 nt ( Hul # ni AREA 2
-A o a (! WIN NUS Vue AE A it 4 NP 11 JE NS hot DIT) h Et VA AE Mn 1 sta vus à Ï
-de ik re LUE on x dl AA “A 1 ;
-JA JANEA HU Lot) ah À Ra dut HN ELA Les iae ty
-MA ie dt pi \k tue
-
-. 25} Eu MM OUR ni a 14 ah OU de RAT PA RAA tel ts ja PAUL ds) %
-
-# PR Cet CPU: Res) con we H * ds
-
-LH ARRINEES , = = Au, ce te
-
-LAN et Ne
-
-# TA PRE D AUS CESR ARTE PES À (. (17 RALCROEES
-
-el cs pote A AAPES OUR “ th A LA RO U 7
-ï “ne aa Fi Go A ue et 4 HN
-RU AE ai 4} Aa DU RQUE Mt DE DNA We R(oAN Ce (PEUT Lis LA dt
-ui SU Go nt Ne OT ARE eus ARS | A TU DATA
-que NUE MR NRA AE RER FE ere (RON AMIE HAE dl (1 TIAES k
-Joue oo Hi ne LAS f
-UT ee (ANA RU RARES IX Ge NT NE Sr
 
 Gobinisme et Nationalisme
 Tableau des valeurs gobiniennes
@@ -4158,8 +3908,6 @@ c'est qu'ils m'auront échappé. Seul, un des plus dis-
 l'Action Française, — M. Jacques Baïnville, — fit,
 l'an dernier, cette confidence :
 
-Je sais,
-
 écrivait-il,
 que Gobineau compte de chauds partisans parmi
 nos amis et parmi nos maîtres. Mais un livre où un Paul
@@ -4184,8 +3932,6 @@ le sélectionisme, laristocratisme de Gobineau, de dangereuses
 nuées. En faisant reconnaître pour un esprit faux et archifaux un
 auteur tout près de passer pour être de nos alliés (peut-être même
 at-on dit un de nos précurseurs), M. Seillière nous a rendu un
-
-ne
 
 la vie et les prophéties du comte de Gobineau .
 serais-je bien tenté d'invoquer l'autorité d'un Gobineau à l'appui de mon parti et de sa doctrine ? »
@@ -4409,8 +4155,6 @@ gobiniennes », telles qu'elles surgissent de l'Essai sur
 l'inégalité. C'est à quoi.je voudrais occuper la fin de
 cette causerie. î
 
-du
-
 Je crois pouvoir concentrer en peu de mots les
 privilèges dont l'assemblage constitue, au sens gobinien, l'être d'élite. Ces privilèges sont : la Beauté: :
 la Force ; la Haute Culture ; l'Énergie ; la Dignité.
@@ -4418,7 +4162,6 @@ la Force ; la Haute Culture ; l'Énergie ; la Dignité.
 La réunion de ces caractères qualifie l'être de
 choix, le noble privilégié.
 
-| La Beauté...
 Cette noble harmonie des traits et des formes est,
 : selon M. de Gobineau,'une réalité absolue, non sou-
 
@@ -4488,12 +4231,9 @@ membres, la limpidité de la carnation. C'est une
 la vie et les prophéties du comte de Gobineau .
 beauté mâle. Elle appelle la force. Elle en est
 
-# %
 ! De fait, M. de Gobineau aime et respecte la
-|
 | Force. Nous savons déjà son mépris du chétif
 : | Romain sémitisé, en présence du Germain superbe
-! et barbare :
 
 Qui décidait la victoire? Le poing du second. Tombant À
 comme une masse de fer sur le crâne du pauvre neveu de
@@ -4559,8 +4299,6 @@ les hommes, embrasse l'univers d'un regard indulgent et compréhensif : seule, e
 rosité tolérante, consciente de sa propre supériorité. (2) L'énergie réfléchie, fille de la raison,
 s'exerce aussi naturellement dans les « arts de la
 paix » que dans les « fatigues d'une existence belliqueuse ». (3) Enfin, ce vif sentiment de dignité per-
-
-(2) Voir Essai, VI, 3.
 
 sonnelle, qui a nom honneur, engendre le « goût
 d'isolement », (1) rehausse le besoin d'indépendance,
@@ -4640,33 +4378,7 @@ s'attacher à découvrir, — ou à créer, — la véritable
 aristocratie contemporaine, caractérisée par son
 aptitude à la noblesse spirituelle.
 
-| (1) Essai, I, 2.
-
-SE ne MAO ET DU EU RE nl PAS AE AP
-on m' une Û F ir a ste on HS ue FU ‘£
-Go Lo (HE à cn EAN HEREN 1e da ou TN EEE ts
-3 AOARIUE Due AE. (os UD ON PAS IURSANE ALU NAT fi Te ANRT ;
-ou (a OA EE HS FRE Me del FE Fa) PRE AAA ÿ
-WA a HORDE JAURE ta dt AA ‘4 nt PA ue FU FAN is
-no £ set NO FARVEU po UE SA HR At EEE
-De fs : LINE He | Atout LAS “00e
-HE 2 (ALAN AE TE po EAN re RTE AC EAU SA IRON for
-MATE | HAN 1e eu A Dane ul AE HAN NA RAA ME Lens Le
-Lara je A HN ENUE SE a Ut HU pe ÿ He ne FIM
-te no Fi La BEL us AS | AUS Fe DR OU 1 20 ra DUR
-An | ee TA AA Ro RAANYE AIRE PAU LA
-ul + REIN ARE N RUN TA G RU 14 Rs. AU AN Su NAME cine nuit Fes PEAR l k
-WA AS LA er que HN aUPA PA MU HE (HE TAN RUE HU ji FNAC dl les NEA
-
-DT 70 Date COPA EE ce) Le NUE DURS ETC NTI
-ra ce br Ev EE Pr
-fEIEERE CS ne"
-HU RE Ne RE al DER ;
-#40" PME É : r à LME pe F4 D Bebe
-
 Gobineau, Renan et Taine e:
-
-#
 
 À Voyages et carrière (1855-1877)
 
@@ -4813,7 +4525,6 @@ rale des langues sémitiques, de Renan.
 “ Les amis d'Ernest Renan se souviennent de la
 É haute estime où il tenait M. de Gobineau. Tous deux
 : se connurent dans la famille Scheffer, un peu avant
-À le mariage de M. Renan, (1) et ne se perdirent
 L jamais de vue dans la vie. M. de Gobineau
 ‘4 (1) Vraisemblablement, fin 1854. En effet, M. de Gobineau partit
 + pour la Perse au début de 1855, et il y passa trois années. D'autre
@@ -5001,7 +4712,6 @@ vie une empreinte exquise. Vieux, il eût souhaité
 retourner en Asie, y mourir. Le 31 janvier 1858, il
 s'éloignait d'elle avec gratitude et mélancolie, persuadé de n'y jamais revenir.
 
-Il y revint pourtant.
 En France, son père venait de mourir. Son oncle
 Thibaut-Joseph, le vieux garçon légitimiste, était |
 mort trois ans plus tôt, le laissant son héritier. ;
@@ -5094,7 +4804,6 @@ méthode, sans cela personne ne prendra la peine d'exami- É
 ner sérieusement des résultats qui ont l'air d'être fondés
 
 . sur une inspiration ! (2) ë
-#
 
 En 1864, à la rentrée définitive de M. de Gobineau en Europe, Mérimée se fit encore son intermé-
 diaire avec les Tuileries, pour le choix d'un nou- :
@@ -5239,7 +4948,6 @@ caractères délicats et élevés, leur inspire, en retour, un iné-
 
 M. Thiers le nomma ministre en Suède.
 
-M. de Gobineau se rendit à Stockholm en 1872, y
 demeura cinq ans, et c'est là qu'il termina sa carrière
 diplomatique. C'est là aussi qu'il paraît s'être senti
 le plus heureux. Il y avait conquis le petit cercle
@@ -5258,7 +4966,6 @@ Gobineau, et nous reviendrons un peu plus tard sur
 ce séjour à Stockholm. Les détails biographiques
 que je vous ai donnés aujourd'hui suflisent à situer
 psychologiquement les livres variés, publiés par lui
-de 1855 à 1877, et parmi lesquels je me propose de
 démêler et de reconstituer la genèse de son individualisme aristocratique.
 Mon dessein n'est pas de dérouler devant vous
 tout le contenu de ces livres, ni de m'astreindre à
@@ -5361,7 +5068,6 @@ elles ont été en usage depuis un temps immémorial, elles
 présentent une série de témoignages non interrompus et
 tout à fait irréfragables.. ; et comme le style d'un monu-
 
-#4 L' (HISTOIRE DES PERSES }
 ; ment grand comme l'ongle est identiquement le même que
 | celui d'un bas-relief de trente pieds de long, on n'a pas
 _ besoin, au point de vue de la critique, de déplorer la perte
@@ -5480,7 +5186,6 @@ certains points. Puis, si leurs récits enjolivent
 la tradition nationale, ils la reflètent. Et, par là,
 leurs erreurs mêmes ont un prix auquel ne sau-
 
-ss L' (HISTOIRE DES PERSES »
 raient prétendre les travaux de nos contemporains.
 
 Quand Mommsen, dans sa magnifique Æistoire,
@@ -5589,7 +5294,6 @@ superposera ainsi le symbole conscient de son
 
 Et ce sera là tout son art :
 
-Il y a des lacunes, il y a des endroits frustes, il y a
 des transpositions évidentes de dates, tel fait étant donné
 pour ancien est relativement moderne et au rebours, et cependant un amas immense, imposant, d'une réalité certaine, subsiste. Je puis douter de tel détail, je ne le saurais
 faire de l'ensemble. Il est incontestable, toutefois, que si je
@@ -5768,7 +5472,6 @@ Les grands accueillent, sollicitent l'ambition légitime d'Alexandre, et tout s'
 
 (2) IL, 6. — (Tradilions sur la mort de Cyrus).
 
-G) M. de Gobineau précise la valeur de ce titre à dater de
 Cyrus, et modifie en un sens féodal, d'une manière assez curieuse,
 la portée qu'on lui attribue d'ordinaire : « Si le roi Cyrus s'est
 enrichi outre mesure, il n'est encore que le premier entre ses
@@ -5827,19 +5530,9 @@ Dans notre prochaine réunion, j'aborderai les
 livres qui nous permettront de démêler peu à peu un
 renouvellement de l'aristocratisme gobinien.
 
-DRE GAL de PR D A SO ES
-Rd he LES CRAN RER
-ae APE EN EREe î ñ tes AE RER \
-225; teint A FONCIERS 1 : ne LEE 3
-ou ve D
-IN LIRE ee LE L PAS RÉ LUE NS Lan CORRE PS TERRA
-He TEE D RS 1 VIDA NTI NN RER tes eee
-
-Le Génie asiatique
 Trois ans en Asie. — Traité des écritures cunéiformes.
 . Les religions et les philosophies dans
 l'Asie centrale.
-Mespames ET Messieurs,
 | Je vous ai dit mon projet de répartir en deux
 _ groupes les livres publiés par M. de Gobineau entre
 | 1855 et 1877. J'étudierai, en premier lieu, ses œuvres
@@ -5887,7 +5580,6 @@ Essai sur l'inégalité des races humaines, œuvre
 É inégale et heurtée s'il en fut, par endroïts géniale,
 par endroits presque enfantine, et qui, dans l'ensemble, si on l'envisage d'après les règles de l'art
 et de la raison élégante, est peut-être une œuvre
-| manquée.
 
 Mais bien plus tard, à l'autre extrémité de sa
 carrière, dans son beau livre de {a Renaissance, il
@@ -6099,7 +5791,6 @@ Voici un tableau de la vie au bazar, qui pourra
 vous donner l'impression de ce nouveau ton, enjoué
 et exact, qui anime Trois ans en Asie :
 
-Je ne crois pas qu'il y ait de lieu au monde où l'on
 s'amuse plus continuellement que dans un bazar de Téhéran,
 d'Ispahan ou de Schyraz. C'est une conversation qui dure
 toute la journée sous ces grandes arcades voûtées, où la
@@ -6204,7 +5895,6 @@ y saisir le détail de ses découvertes. C'est un
 livre de sensations, d'anecdotes, et de réflexions
 cursives. Une œuvre de charme, plutôt que de
 pensée. Or, le charme se sent, et ne se transcrit
-pas.
 
 Passons à ces deux autres livres où la révélation
 du monde asiatique me paraît aussi impalpable et
@@ -6230,7 +5920,6 @@ justice, au nom de l'érudition sans fantaisie, dans
 les termes suivants, qui vous renseigneront, mieux
 que je ne saurais faire, sur l'économie de ce
 M. de Gobineau,
-| écrit M. Oppert,
 déchiffra quatre fois de suite les mêmes
 _ textes cunéiformes, chaque fois d'une facon toute différente,
 1 mais toujours avec un succès égal, et lut le même texte de
@@ -6267,7 +5956,6 @@ la Perse ont appris des indigènes à en juger de même. Per-
 
 sonne, jusque dans ces derniers temps où la science allemande et anglaise est venue émettre une autre hypothèse,
 n'avait soupçonné qu'il en püt être différemment, soit sur
-le rocher de Van, au pied de la forteresse, soit au KendjNamèh d'Hamadan, à Behistun, à Persépolis et à Suse. On ,
 ne s'est jamais imaginé que les caractères creusés sur la
 pierre vive, par une main mystérieuse, pussent avoir servi
 à fixer le souvenir des événements historiques dans des contrées où, depuis les jours d'Assuérus jusqu'à nos temps, les
@@ -6500,7 +6188,6 @@ Babisme et Béhaisme, par M. Hippolyte Dreyfus. — Consulter aussi
 Louis de Ronchaud, £Ztudes d'histoire politique et religieuse (Paris,
 
 le siège du château où ils s'étaient concentrés;
-enfin le drame de la captivité et de la mort du
 Bâb. Mais je m'attacherai plutôt à démêler ici les
 mobiles de la sympathie très marquée que M. de
 Gobineau a témoignée, dans son livre, à la religion
@@ -6722,8 +6409,6 @@ l'idée du progrès collectif, — cette idée si européenne et si neuve, — d
 
 Aucune combinaison d'idées n'était si apte à conquérir l'intérêt d'un Gobineau.
 
-|
-
 A l'instant de sa vie où nous voici parvenus, sa
 préoccupation dominante demeure celle que nous lui
 avons jusqu'ici connue: partout, il s'attache à observer le phénomène spécial du mélange.
@@ -6784,7 +6469,6 @@ prononcé que vivre ou parler supposait la pensée, mais la
 conséquence qu'ils en tirent est celle-ci : que Dieu étant |
 l'existence par excellence, l'existence unique, ilest, en même |
 (1) Cette traduction du Discours sur la Méthode figure au petit
-catalogue de la Collection de M. de Gobineau, sous le n° 2%6
 (Imprimés) : « DESCARTES, Le livre de la Méthode.— Traduction persane. — In-4°, maroquin rouge. »
 
 temps, l'unique pensée et l'unique parole, ce qui ne va pas
@@ -6811,7 +6495,6 @@ n'y appartient pas, ou du moins à ce qui produirait un con-
 
 (2) Chapitre Is. — (Caractère moral et religieux des Asiatiques).
 
-|
 la vie et les prophéties du comte de Gobineau
 traste trop marqué. Ce n'est pas qu'une telle opération soit
 chose facile ni simple. Si l'on parvient assez aisément à reconnaître que le noir et le blanc sont incompatibles et que,
@@ -6854,26 +6537,7 @@ notre réunion prochaine, nous assisterons à son
 effort de création.
 4 (1) Chapitre. Ir, — (Caractère moral et religieux des Asiatiques).
 
-| doi AMEN
-AUX RRANANLLE SA (ASIE, Pet RRAAUEPA AN
-ALT ANANAUE AU MUUENNE HP) ee LA
-| EN AAA ve ARE AN ne nur RAR \
-RU pie LUE Jen HAS ASE DA NES NEO de AA
-AÉnpae NE A ANA EN RQ RU ri NeenNt
-RS AE: FACE ARTE ro FEU ELU PAU Met DEN ie RS AA DES BA MANS 1
-(Hé SRG GNT LMENANE PAT D ENS co AVE SAM Net DS Ne PU SANS Fi) 1e
-RARE pe jo LA Du KA RE Don Ro
-
-DU RE CE Wei A A CEA Ne AA
-
-| NEUVIÈME ‘a
-
-RAA j AA L AT ARR SAP) ù DHEA TPE EN ve
-HAS M At ee ER PAT M NA SRE TAR ne TRES ; V4 FT AMIS
-AT JA Xe OX MNAAN T0 LE IR QE ee TN DRAP ANAL MERS ne PU À,
-
 Souvenirs de voyage. — Nouvelles asiatiques
-Les Pléiades. — La Renaissance
 
 J'étudierai aujourd'hui les livres de littérature
 et d'art publiés par M. de Gobineau entre son
@@ -6970,8 +6634,6 @@ rouge; Akrivie Phrangopoulo ; et la Chasse au
 
 De l'avis unanime des « gobiniens », la plus
 
-|
-
 accomplie de ces trois nouvelles est Akripie
 Je me suis promis de vous la conter.
 
@@ -7025,8 +6687,6 @@ M. Nicolas Phrangopoulo, — dont le nom signifie
 Cette île de l'archipel grec, « dans toute sa grâce
 
 (1) Tout comme M. de Gobineau. à
-
-|
 
 merveilleuse, représentée par ces deux vieux débris
 de la noblesse européenne », et, malgré sa proximité
@@ -7210,8 +6870,6 @@ Quittant Naxie, le navire touche d'abord à Antiparos:
 On résolut d'aller se promener dans l'île et de ne partir
 qu'à la nuit pour Santorin.
 
-|
-
 Chacun était gai et excité. Il est sans doute agréable de
 naviguer avec une jolie femme, mais il l'est plus encore de
 se promener avec elle sur la terre ferme. L'air de la mer, la
@@ -7350,8 +7008,6 @@ j'ai promis de vous montrer, non tous les aspects de
 l'œuvre si riche de M. de Gobineau, mais l'enchaï-
 nement de ses idées et le sens de sa morale. :
 
-ne
-
 Toutefois, il en est une sur laquelle je veux un
 instant vous retenir, car, loin de nous distraire, elle
 
@@ -7479,8 +7135,6 @@ intéressé uniquement par ce qu'il est lui-même ? Cela signifie:
 « Je suis d'un tempérament hardi et généreux, étranger aux
 suggestions ordinaires des naturels communs. Mes goûts |
 
-|
-
 ne sont pas ceux de la mode; je sens par moi-même et
 n'aime ni ne hais d'après les indications de mon journal. |
 L'indépendance de mon esprit, la liberté la plus absolue
@@ -7543,8 +7197,6 @@ quelque situation sociale que le Ciel les ait fait naître,
 seraient les vrais fils survivants des hommes de Rollon et
 
 | voire des Amâles et des Mérowings ?
-
-|
 
 la vie et les prophéties du comte de Gobineau
 
@@ -7652,8 +7304,6 @@ premier jour, — voilà la clef de toutes ses investigations et de tous ses tra
 que je tiens pour incontestable, c'est que l'auteur
 de l'Essai accepte désormais de glorifier, non
 
-( ») Les Pléiades, I, 2.
-
 plus les mérites nécessaires et collectifs de certains
 groupes ethniques privilégiés, — mais les mérites
 spontanés et individuels de certains êtres de choix.
@@ -7681,7 +7331,6 @@ dans ses entreprises. Les dons grossiers lui font
 
 la vie et les prophéties du comte de Gobineau
 défaut, qui permettent de subjuguer l'humanité contemporaine. Ces dons lui fussent-ils accessibles, il
-répugnerait à s'en servir. Car, en lui, il n'ya rien du
 « drôle ». Sa défaite n'est pas sans faire naître en lui
 de la tristesse. Maïs nulle amertume, nulle jalousie,
 nulle colère. Son sort lui plaît. Comment serait-il
@@ -7713,7 +7362,6 @@ de sociétés, sous toutes les conditions d'existence et avec
 toutes les lois religieuses, à la pensée des honnêtes gens, des
 gens de conscience et de puissance, des hommes qui savaient
 penser et exécuter, el qui n'ont jamais manqué, en s'isolant
-de la foule de se qualifier de pléiade.… (1)
 
 Voilà, — songerez-vous peut-être, — une élite
 bien désenchantée et renonçante, étrangement dédaigneuse et un peu morose. Vous serez moins surpris que les « fils de rois » soient si clairsemés en
@@ -7731,8 +7379,6 @@ rament humain participe à l'ordinaire, non pas à
 une seule, mais à plusieurs des catégories gobiniennes : il est si rare qu'aucun de nous soit un pur
 imbécile, une pure brute, un pur drôle, un pur
 Jils de roi!
-
-(1) Les Pléiades, E, 2.
 
 la vie et les prophéties du comte de Gobineau
 Bien des combinaisons sont possibles, et le
@@ -7857,7 +7503,6 @@ de goût et l'un des premiers Français à avoir lu La
 Renaissance, — l'a jugée d'un coloris terne, et voisine de la « composition scolaire ». (2) Pareil est le
 sentiment de M. Ernest Seiïllière : la « fresque » tentée
 par Gobineau, il la tient pour une grisaille…. (3) Et
-« proteste » en faveur de la Renaissance : & Si ce
 livre, dit-il, n'est pas un chef-d'œuvre parfait, c'est du
 de l'année 1878 : « Avec des noms et des personnages historiques,
 M. de Gobineau a composé une série de tableaux qui ont leur
@@ -7873,7 +7518,6 @@ professeur Stephan Székely vient de publier, à Budapest, une traduction de la 
 
 M. Georg Brandès, le célèbre écrivain danois, semble rester un
 
-f dissident : il a publié un article où il critique la Renaissance, au
 point de vue historique. (Der Tag, 5 mars 1904. — Der Dichter und
 
 (2) Journal des Débats, 6 octobre 1899.
@@ -7953,7 +7597,6 @@ larbre à fruit que chacun possède, mais je veux l'arbre et
 je veux les fruits, et voilà pourquoi, ma bien-aimée, je suis
 
 la pie et les prophéties du comte de Gobineau
-Tu es la grâce, tu es le charme, tu es tout...
 Non ! je te le répète, je ne suis pas tout. Je suis la raison
 peut-être, je suis la modération, je suis le bon jugement, je
 suis, si tu veux, la sagesse et le goût éclairé; mais je ne
@@ -7980,7 +7623,6 @@ Mais je te montre mon esprit tel que le ciel l'a fait, et non
 tel qu'une affection extrême l'imagine à tort. Je ne m'exalte
 pas, je ne me fais pas plus petit, et j'ai, par-dessus MichelAnge et bien d'autres, une prérogative dont tu ne me parles
 pas et qui vaut mieux, à elle seule, que tout ce qu'ils possèdent.
-Je la connais, je la vois, je la respire !
 Et laquelle, donc, je te prie? Est-elle si apparente ?
 
 Oh ! comme elle l'est ! Comme elle éclate dans tes regards,
@@ -7992,25 +7634,6 @@ Ce qui a surtout manqué peut-être à l'auteur de
 la Renaissance, ce furent les dons de Raphaël : il lui
 a manqué d'être un « ordonnateur » ; il lui a manqué
 aussi d' € être heureux ».
-
-if NON RU AA US DR Me LE YA
-NUM HAUT De de AT 2 AA De ne on PNEU LU
-k LE TON KR AH RES | HAE FU R We FR SA VO RDA 1 PE LU ka IA CIE ni HRMERUE D UANUE AU :
-D AAA NAN RAT SAUUHÈRE NAAR REA A TEL Ta DAS AX AE Aou PRES fl
-HAN NAS SAS Ent DU Al PAU One (SES
-(el MAT RU AE o ANT UE ne RER Be crus AREA PE HAN RATE TAN PAUSE 1) à j
-EE) or AA HU ne) me Lo ue LME HN RATE ge”)
-AL Er M 1e LE LP pate NEA oo A ee LA à a
-# PAT Et NA a HE 1) AAA HUE f
-
-RAM CE Hi (een
-
-AU HAS NEA que ÿ ANA
-M M Mu de ho
-NT fe ne ere AA A FAP NL fee Ÿ Ke Prele AE
-A AA ee (AA NY AUE A AE AUDE Nec QE EE STRE AOL SNEN On)
-LL IA AU een NE A Er ue ARE RUN En ET a BV PARENTS
-| ut ‘a pe a TA A D ESA | TAN VENTE ALORS ER ASS AA AE LE
 
 L'Histoire d'Ottar Jarl, pirate norvégien, conqué-
 rant du pays de Bray, en Normandie, et de sa
@@ -8027,7 +7650,6 @@ trouver les premiers documents certains sur ses
 Dès notre première réunion, je vous ai indiqué
 quelle place il convient d'assigner à cet ouvrage dans
 le développement de l'aristocratisme gobinien.
-|
 J'imagine deux méthodes contraires, — mais fort
 légitimes l'une et l'autre, — pour diriger la lecture
 d'un tel livre.
@@ -8154,8 +7776,6 @@ transmet ce souvenir :
 Gobineau venait de terminer la Valkyrie, un de ses plus
 beaux bustes. Les regards enflammés de la Valkyrie plon312
 
-|
-
 gent autour du Walhalla. Peut-être appelle-t-elle Ottar
 
 L'histoire de ce héros du Nord, qu'il honoraït comme le
@@ -8178,8 +7798,6 @@ c'est d'ici que je sors, — je le sens !(1)
 
 Quel était le sens de cette conviction « absolue et
 grave », que sut discerner le prince d'Eulenburg ?
-
-#
 
 Rien de plus simple ! direz-vous peut-être, — M. de
 Gobineau prétendait aflirmer ainsi que, par une
@@ -8216,8 +7834,6 @@ désigner Ottar Jarl comme « le plus précieux de ses
 précieux ancêtres ». Car, en ce pirate, tel du moins
 qu'il reconstituait sa figure, — il imaginaït découvrir les trois dominantes préférées de sa propre
 
-(1) Les Pléiades, I, 2.
-
 nature : savoir, l'activité d'esprit, la patience
 obstinée, et la passion de l'indépendance. (1)
 
@@ -8251,7 +7867,6 @@ trois, dans la plupart de ses descendants, etc. » ï
 
 (3) Paroles recueillies au Collège de France.
 
-| |
 la vie et les prophéties du comte de Gobineau
 idole, le symbole le plus sacré de la race, et il fut reconnu
 que l'on avait le devoir constant de lui sacrifier la vie des
@@ -8432,7 +8047,6 @@ M. Paul Bourget, — sont trop timides d'y consentir.
 Elle remonte, en réalité, au crépuscule du quinzième siècle. En voici les preuves :
 
 Si l'on considère seulement l'ensemble de l'aspect social,
-il continue à y avoir à la fin du xv° siècle, comme au
 x° siècle, au xr°, au xn°, au xur° siècle, une noblesse, une
 bourgeoisie et le peuple; mais combien la valeur de la plupart des familles, dans la noblesse, dans la bourgeoisie,
 est autre! Et, conséquence nécessaire, combien les rapports
@@ -8442,8 +8056,6 @@ Les armées composées de mercenaires ne se complétaient
 plus féodalement parmi les possesseurs de la terre et leurs
 
 (1) Ottar Jarl, I, 3. — (Ottar Jarl et les siens. — Suite des considérations précédentes). !
-
-|
 
 la vie et les prophéties du comte de Gobineau
 tenanciers: c'étaient des aventuriers sortis de la plus basse
@@ -8476,8 +8088,6 @@ que du plus vieux sang de la chrétienté. Voilà comment
 et pourquoi la société française, à dater du milieu du
 xiv° siècle, avait commencé à revêtir une physionomie
 tout à fait inconnue jusqu'alors. Cette noblesse ainsi faite
-
-|
 
 plaisait plus aux rois et à leurs conseillers que l'ancienne,
 et à juste titre. Sa vraie patrie, c'était la cour, c'était le
@@ -8514,8 +8124,6 @@ la vie et les prophéties du comte de Gobineau
 
 Et à l'appui de sa conjecture, il invoquait cette
 page des Mémoires :
-
-[Le Dauphin],
 
 était touché jusqu'au plus profond du
 cœur de la ruine de la noblesse, des voies prises et tous
@@ -8554,7 +8162,6 @@ publiée par l'Action française.
 
 M. le marquis de La Tour du Pin-Chambly, auteur de cette étude fort curieuse, définit ainsi la
 
-dit-il,
 l'ensemble des familles qui, s'étant élevées à une
 situation considérée, s'y sont maintenues et s'y perpé-
 
@@ -8593,8 +8200,6 @@ Le bourg d'Izon est construit à peu près en équerre. Ses
 deux rues principales viennent se toucher à angle droit sur
 le côté de Saint-Martin, et elles sont larges proportionnelle-
 
-|
-
 ment, bordées d'autant de jardins que de maisons, et, pour
 ce motif, bien en verdure, rustiques et, dans la saison, fleuries. À partir de l'époque où Étienne épousa Françoise de
 Massip, il est peu d'habitations dans cette place qui n'aient
@@ -8626,7 +8231,6 @@ dans laquelle les gens du Bordelais tenaient leurs anciennes
 libertés. Le titre de syndic ou grand-syndic d'Ison vint aux
 
 4 397
-|
 
 la vie et les prophéties du comte de Gobineau
 
@@ -8693,7 +8297,6 @@ chose. — Vous n'êtes jusqu'ici que quatre personnes
 à entendre mon Amadis, écrivait-il à son ami le
 prince d''Eulenburg : la comtesse de la Tour, vous,
 le comte Prokesch, et l'empereur dom Pedro. Mais
-il faut qu'il en soit ainsi, et ce qu'il a de valeur
 apparaîtra plus tard... (2)
 Depuis 1876, la fortune de la pensée gobinienne
 n'a pas assez grandi en France pour que les « gens
@@ -8809,7 +8412,6 @@ sculpture (1) ou à sa table de travail, M. de Gobi- |
 neau continuait son Amadis, traduisait le Koushnameh, projetait une autobiographie. IL aimait le |
 travail, et pourtant le mettait au second plan dans |
 une vie heureuse. — L'amour, dit une de ses lettres, |
-est ce qu'il y a de meilleur au monde. Ensuite, le È
 travail. Ensuite, il n'y a rien. (2)
 À Rome, M. de Gobineau avait retrouvé ses amis
 de Stockholm, le comte et la comtesse de la Tour.
@@ -8881,8 +8483,6 @@ famille Wagner, il ne l'était pas moins avec Liszt et la Princesse. Cétait un 
 grand et très mince, les cheveux gris et la démarche un peu
 recourbée. Il reçut Liszt à bras ouverts et nous fit voir différents bustes (ses œuvres) qui marquaient beaucoup de
 
-# n
-
 Je ne reviens pas sur la forte impression que
 Richard Wagner emporta de son entretien de Venise
 avec le comte de Gobineau, en 1880. (2)
@@ -8893,7 +8493,6 @@ galité des races humaines. En mai 1881 et mai
 
 (1) Adelheid von Schorn, page 331. — Mademoiselle de Schorn
 semble anticiper un peu sur les dates, en ce qui regarde Pintimité
-de M. de Gobineau et de la famille Wagner.
 
 (2) Voir Première Causerie, page 25. — M. Schemann, dans
 l'introduction à sa traduction allemande de la Renaissance, a dit
@@ -8925,8 +8524,6 @@ dont aucun Hindou ne se serait rendu coupable ; et si la dureté
 de cette thèse a ici-bas contre elle la douce morale du christianisme, le comte pouvait répondre par son propre exemple,
 qu'une nature d'élite sait d'elle-même être miséricordieuse, et se
 dévouer pleinement sans obéir à aucune contrainte. » (Bayreuther
-
-| Wahnfried).
 
 (2) Das Leben Friedrich Nielzsche's, tome IL, page 886.
 
@@ -8963,8 +8560,6 @@ eu d'elle un regard.
 (1) Lire la belle lettre de Stockholm, 12 juillet 1876, au prince
 d'Eulenburg, et le fragment dune lettre de Pise, 27 septembre 1859.
 
-— Votre excuse ?
-
 Les soldats mirent la main sur l'épaule de don Pierre
 pour le faire marcher. Mais, à ce moment, dona Carmen se
 leva de son siège. Elle était très émue, et ses yeux brillaient :
@@ -8984,13 +8579,9 @@ L'auteur de l'Essai et de la Renaissance se lassait
 de s'entendre appeler partout : « ce bon Gobineau ».
 Mais il ne vécut pas assez pour s'entendre appeler
 
-#X %
-
 Quittant Gastein après sa cure, il alla passer
 quelques semaines en Auvergne. au château de Chaméane, chez madame la comtesse de la Tour. Puis,
 il quitta Chaméane pour se rendre à Pise; son ami
-
-(1) Les Pléiades, II, 3.
 
 la vie et les prophéties du comte de Gobineau
 le comte Sanvitale l'y attendait. Le 12 octobre 188 »,
@@ -9038,40 +8629,8 @@ une sèche plaque de marbre commémore le dernier
 
 Vous lui ferez, dans vos esprits, une tombe plus
 
-Ga qe de Fa ee { ae 1 ‘ AA HU ' LA A)
-ve SOU AU PTE N'H ANR ne tal RENE ME pe HO NEA AT AE Mo ne
-te 14 juer es ROUE DA TA fou j, RAA nat Ar ra EU ï ii . | / |
-ne fs fe 4 NARU SA PAU ne RAP l DR QE 5 ANA PE | à À î
-AE MAL De pa ARUEX tt AAA un FOR 12e M , " :
-| | | à “ UN { que AE LRU TU FAN AA oil ï MAL
-sa Mu à 0e 19 Me 4 Hu Ha pou y Ve Ans LUE DA oi \ ! . |
-nu: SEA CIN als (EU DRE Une dus en LA a ALU FA 1 ti ;
-Rp jte is He oo AURA on la | |
-À 1 0 je aie DMRtE! EME 1
-ne il A ER ji Lo 2 | .
-
-M de, DANS KHAN SES HET te at DOTE Bee re ANDRE CARPE D : : TNA a
-‘ RP RAT PRE RAR RU RS APN Le SN era ie MEET
 0 0 0
-* +E SRIECER DRE VA CERN (On AA Ne, Pas" ee Pt DT PT LRU ET “ L'AURR
-Fit PAPA GES + \t rte RP LT Ps NAT MR TES Put mal |Ga M ST RARES r:
-à ARE PRO A MR DAT QE NN ir TeS PA Te "A te ot 4 SRE TOR
-+ ANT RR TE LASER STE NA AE 1. ces der ,15"48
-OR) De ire FT RAIDS SORCIER ET A
-1 SERRE ORAN Mine Ex) Ke es PPT ne Les de SORTE 1e CARE EN +, |
-OU à Ÿ 2 UE ANR SV RC rs à 2 ai RTE EU 2 OUR LPO NAME Fe
-a A AQ SE &) De Fr MP EEE er 07 de URSS NET
-Re RAA Va Rene LU MAUR AS ENS L6pS TRE nos
-128 jure SPA tte US TES # RE QU AR SENTE ti NS
-PONE à 1e VANALE ART TER ENS dar à L ra h F8 2e PARA TP NAT à À
 
-LNON EE ET FAR HÉAIRE Ta nie AUREN NI Ghax (a PRE 4 SA MS are
-
-TU au Î ire DA { / K( ONE £ DAREA ET Fe
-
-(Ou È f ; RAL TNA % { ù fre let EE HE
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires : la souscription ne confère aucune autorité sur
@@ -9103,17 +8662,6 @@ francs les vingt cahiers de la cinquième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
-
-Je RM AR Soie jo ce AAA ANA EN Ho wi
-je ME GE RE te 21 | RTE
-
-‘ Hs aa RE 0 A NPA EVE AC MES dit : ;
-
-L% 71: 'OOENE EGINLA ÿ { wor res Pa UE FE AD URL ROSES, DSP AR RIRE As
-
-RON LE ee UNE AR MEET Mo SC OU PB ES DEEE SE RTE TO PER CLEA ES pa ru: F
-|; MONNIER SUN
-LUN FRS TAN et DAME NT EAN on ST OO SCENE
 
 au total des prix marqués; ainsi depuis le premier
 janvier 1905 la cinquième série complète se vend

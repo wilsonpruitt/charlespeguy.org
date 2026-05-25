@@ -7,70 +7,8 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 42043
 ---
-4) h on dl L
-
-ni js ' (NET, (LU
-
-su la É nue s
-
-| 0 NA ] L) : Ur
-‘1 TENSR de DITS
-143 nt FA NEA, Mt L'O"E wi
-1 TT L'EN L'A Re nn aù F
-| Hi Pre Ai. J PAT k el ñ L : 4 Ho n Er Tire A 1
-
-| k FE F5 \
-
-| ni | È
-RUN | ne" EE FR | | ss
-NE CES dl î Th
-CA | en ra Can ni:
-ALL A d'x À fi RFI M: ui ON RSS ES
-UE Ft À LA pe MEL T Par. AVE Lt
-
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
-
-: EME Le Le — SRE Die Mc fe
-de A a : } fr ti pt. q
-A NET UE LES D ie: CUT
-
-#4 à ARE + 1 4 A
-| SANTE #f
-
-#4 4 Di ser, |} RARUUE
-
-Y Sat Far A YE 2 Mon CU AN TARN! LS PAU ARR A OUUE
-mi woéi he ou ROR 2 ni y
-
-à FEU AO ES Er A Al VE fe 1 Pa For. TENTE L
-ENT) HOT et ‘4 Ù ; HA Le L'A TER 1 vi
-& ra, DL A LA Er | ! AD EU Dear dis fa
-* DDR SA ce RSC Cour
-Ne A bar à HN RACE 1 : (AS TRNONEE ns.
-Dern, . (ES es ENTIER EST EL 14 DAT | à)
-+5) NT ab NOUS VEUT A7 Er 0 HN ER per
-! at ae ls SA TA L RONA pat Re Se
-
-RE SE NL, sr Q eee 4 2 ET SRE
-rh TU CRE ef Le er F2 RER AR Le
-| 24 4 Ps.
-É Le add
-
-LT ARR ne? MST ECS
-| PERS E 1e ER
-Le: ; id: É pre LÉLY
-Lu En Re ci PR ne
-
-= x AE NES où Pat Pt SU  - de
-/ ML ART RARE GS LE A re an RS NOROT Sn PSP Se ET un CE NL
-M se de A OISE CRE TANTNES PE
-
-MORE ne TPE PQ 7 PE RPLeEA RER, MEL: ;
-
-r' SA ESS UNS SUCER © Fe es A Aa ” ñ He SRE Mot.
-
-‘2 FAO UNS Per Le * HÉLSRIFRRERSR
 
 _ aux Cahiers de la Quinzaine Se
 Fes LEE Le présent petil index donne automati- RARE
@@ -83,7 +21,6 @@ s A du cahier lui-même, dans la série ainsi LS
 = NE - déterminée, en chiffres arabes, de sorte +
 # Se que V-r7 par exemple doit évidemment se w Ë
 218 : lire dix-septième cahier de la cinquième k
-s HE a b) la date du bon à tirer, ou, à son dé- Ë -
 11, See faut, la date du fini d'imprimer, ou, à son ie
 LUS es défaut, la date du cahier même; Re
 M LE ; €) le prix actuel; nee
@@ -102,38 +39,7 @@ Se = mes cahiers rouges, — IV. — quelques-uns de la ,
 — — mes cahiers rouges, — V.— par la ville révoltée ?
 — — mes cahiers rouges, — VI. — au large (X-11, LR
 
-, PRE re Lei Er Es DS Er ARR de « DT T PNA Pr NE
-LEP ne + rs
-AE 5 à Ÿ 4 x L es à 1e ES Pas
-
-es rri Le . rs er Ts
-
-s. PACE = : ns Vel De D L
-$ TS - po s mx LE r
-Be | j De de el Potiie ARE RS
-
 -
-
-: SR EST. mul CT MED MM eo ser tu EE f
-4 | BAT er tes 6 RE PR
-de 4 ‘rs
-T5 TEE L D ES AUrara fr
-
-| dernier. — 1.
-
-v Ne NP 2177 : DIR ES D VE de al -
-RE ee PUR TA ASE RENE PR TT) UNE
-#2: TRS TT CSA EURE
-STE à PROPRES Le 488 DT de VO
-
-BRAS UE ne ÉNDE re RUE ASC
-On Et REV OT UT pere COUR à
-|: PO ER Dr RÉ RRES
-Mars L , Ès " TAPLOR de FR
-à Re CS LE Es Lots gs <<
-4 SEE iv Re ne,
-1 RU Fr EUR cr Ne qe rs 4 ati 4 +17 SD
-Le - RS D" CNT AE ERS 4 ee he: LP $
 
 Mercredi 24 mai. Dix heures du matin. Les flammes
 lèchent déjà les murs de la Préfecture de Police. Dans
@@ -158,7 +64,6 @@ venu. Il est entré dans le grand salon. A coups de
 £ sabre, il brise le lustre de Venise suspendu au plafond.
 Il lacère les tableaux, éventre les meubles. Il pose des
 cartouches partout. Puis il s'en va, après avoir raconté
-qu'à la Légion d'honneur, d'où il sortait, il a pris, à
 poignées, les croix, et les a jetées aux ordures.
 Le caissier, Replan, apporte, dans un drap, de l'ar- ;
 gent, de l'or, des billets. Ce qui reste dans la caisse.
@@ -171,7 +76,6 @@ sur le quai, en face du Henri IV.
 Sans mot dire, Ferré, assis à une table, lui tend un
 papier : « Ordre de prendre au Dépôt les prisonniers
 dont les noms suivent, et de les passer par les armes. »
-Il y a quatre noms.
 Sur ces quatre, Veysset.
 à Veysset. L'homme arrêté le dimanche, jour de l'entrée
 des troupes, à Saint-Denis. L'histoire est restée obscure.
@@ -213,7 +117,6 @@ _ A l'angle du quai et du Pont-Neuf, une barricade. Les ‘
 ..…_ — Citoyens, l'homme que nous emmenons est un traître !.….
 . Un espion. La justice du Peuple l'a condamné. Il va
 nn. …_ — Vive la Commune!
-à Nous traversons le pont. La pièce de canon de la barriLE 4 à: 173
 
 cade Dauphine, (au bas de la maison où vécut madame
 Roland) tire par-dessus le fleuve.
@@ -247,8 +150,6 @@ ai « Vous répondrez de ma mort au comte de Fabrice. » Jamaïs ces £
 (as paroles ne furent prononcées. Pilotell, qui était à deux pas de |
 2e Veysset, quand il fut fusillé, les eût entendues, |
 
-ds ne - LE FUSILLÉ DU PONT-NEUF
-
 + _ — On l'a abandonné ? demandai-je.
 
 > — Non... Deux hommes, ou quatre, ont soulevé le
@@ -260,13 +161,10 @@ ds ne - LE FUSILLÉ DU PONT-NEUF
 À fleuve, cherchant des yeux le cadavre... Je ne vis
 ; rien... Seul, le chapeau du mort, qu'un Vengeur avait
 F ramassé, et jeté par-dessus le parapet, flottait au fil
-de l'eau...
 
 droit < xx noirs de méridional, vif et | >"
-né s. En parlant, il \
 d'Itali s mai : l'un des :| ÿ
 incider s expliqués encore, À 4
-de la tr les autres exécu- l F
 tions, la rue Haxo, des l
 . C'est qui a commande +
 le feu à ur. C'est lui qui Û
@@ -295,18 +193,15 @@ Ville pour se rendre au fort de Bicêtre, où sont enfermés
 
 cade. Il dit quelques mots d'encouragement à ceux qui
 achèvent de l'élever. Je m'approche de lui. Je lui serre
-la main. ;
 
 Et nous causons.. Nous causons.…
 
 — Les Dominicains ?.. Voyons... Pourquoi les a-t-on
-fusillés ?.. Qui? É
 Léo Melliet esquisse un geste vague... J'attends sa à
 
 réponse. Je le regarde. Ce n'est plus le Melliet d'autre-
 É fois. Court, trapu, mais portant haut la tête, et tout /
 
-Rene LES DOMINICAINS
 à _ droit devant lui ses yeux noirs de méridional, vif et
 __ agissant. Melliet s'est alourdi. Les cheveux ont gri- 7
 : sonné. La barbe a des touffes blanches. En parlant, il
@@ -351,7 +246,6 @@ fut membre de la Commune, membre du Comité de è
 mença le drame qui devait se terminer de si sanglante $
 Léo Melliet écrit de Glasgow, où il s'est réfugié après
 la défaite, à M° Renoult. (3) ;
-SPRL je
 F (x) M: Renoult, défenseur de Lucipia devant le conseil de guerre $
 qui jugea, en février 1872, les accusés de l'affaire des Dominicains, L
 LÉ est le père de M. René Renoult, sous-secrétaire d'Etat aux finances. ï
@@ -363,11 +257,9 @@ FPE (3) Je joins à la lettre de Léo Melliet un plan détaillé sur lequel
 Dé jeudi 25 mai. Ce plan (page 93) a été dressé par Lucipia, pour son F.:
 — défenseur M° Renoult, lorsqu'il attendait, dans la prison, l'heure 4
 ù téide comparaître devant le conseil de guerre, !
->] Le
 
 if à Glasgow, le 11 décembre 1871. =
 L'NFa rare 150 Bucelench Street.
-ÉMease * < Mon cher Maitre,
 ps t Vous me priez de vous dire tout ce que je sais à propos
 E des Dominicains d'Areueil. Voici : :
 Fe: Le jour de l'arrestation des Pères Dominicains, je me suis
@@ -466,8 +358,6 @@ $ renseignements pour son journal. (1)
 
 fs car, au moment de mon arrivée, l'attitude des gardes natio-
 
-et
-
 S …. (1) Lucipia faisait partie de la rédaction du Crt du Peuple de
 
 M. Vallès. Sa présence au fort de Bicêtre et à Arcueil le jour de l'ar-
@@ -476,7 +366,6 @@ M. Vallès. Sa présence au fort de Bicêtre et à Arcueil le jour de l'ar-
 
 ei Le conseil de guerre le condamna à la peine de mort, qui fut
 
-4 M RAR te Sa LATE IS
 .  Z. Lieu de l'altercation entre Léo Melliet et les gardes des batail- :
 lons fédérés. — A. G. Ecole d'Arcueil (Albert le Grand) où furent
 … arrêtés les Dominicains. — M. P. Château du Marquis de la
@@ -520,7 +409,6 @@ cé n'était pas réuni quand j'arrivai à l'Hôtel de Ville, et, à mon …
 ; 1e {1) Edmond Turquet, député, arrêté le 19 mars avec les généraux
 a nu. |: Chanry ei de Langourian. (Voir plus loin (page 35) la note de
 4 AL Gaudin de Villaine)
-| Rien) " rer
 
 retour au fort, je trouvai un ordre qui m'enjoignait de ne nc:
 pas relâcher les Pères, recommandation bien inutile, car les j
@@ -543,7 +431,6 @@ les prisonniers, et réussi à faire sortir la garnison, en lais- ss
 sant les Pères à la garde de l'adjudant de place chargé des DE
 prisons et à qui j'avais adjoint quelques hommes quise - ;
 — sont empressés de l'abandonner après la sortie de leurs PAS
-| camarades. a
 Quant à la façon dont les Pères sont arrivés à Paris, je |
 “n'en sais rien; j'ai été forcé de rallier les trainards qui
 … avaient quitté les derniers les tranchées, et que j'attendais |
@@ -561,7 +448,6 @@ F J'avant-garde de l'armée de Versailles, pour qui mon
 _ d'une accusation contre moi à ce sujet, je m'y soumettrai
 … avec la résignation d'un vaincu. Mais s'il faut que j'aille à
 
-_ autres otages Le
 Paris pour démontrer en me livrant, l'innocence de Lucipia, dites un mot et je n'hésiterai pas.
 Merci de votre dévouement pour lui, et agréez mes salutations dévouées.
 d le Moulin-Saquet
@@ -598,7 +484,6 @@ qui avec le 120°, gardaient la redoute.
 Il était onze heures du soir, quand un groupe se pré-
 - sente aux abords de la redoute silencieuse. Un homme
 se détache, s'approche de la sentinelle.
-— Qui vive!
 
 Vengeur est le mot d'ordre.
 
@@ -652,7 +537,6 @@ a …_ Mais les scélérats ne se sont pas contentés de massacrér à
 ‘la mode des sauvages d'Afrique. Ils ont poussé leur affreux NE
 courage jusqu'à fouiller leurs victimes. La petite caisse de
 la cantinière elle-même a été défoncée et pillée… :
-Le Cri du Peuple de Vallès, le Vengeur de Pyat, RE
 l'Avant-Garde, la Sociale, tous les journaux dévoués à :
 la Commune publient des récits semblables. Par toute S
 _ la ville, retentissent les cris des vendeurs :
@@ -689,9 +573,7 @@ Qui a ordonné le meurtre ? |
 Les circonstances qui ont entouré la fusillade des |
 prisonniers sont restées aussi mystérieuses qu'au pre- 1
 mier jour. 7
-Un bouc émissaire : |
 Quand on parle de l'affaire des Dominicains, c'est
-Lui seul.
 Les autres, ceux qui ont été condamnés avec lui par |
 le conseil de guerre de février 1872, sont des comparses.
 Serizier, chef du fameux 1o1° bataillon, puis colonel
@@ -701,7 +583,6 @@ d'autres, il menait le rude combat contre le régime
 impérial. Il doit, avant le Quatre-Septembre, se mettre j
 à l'abri en Belgique. Rentré à Paris après la proclama- Ti
 tion de la République, il se mêle au mouvement révolutionnaire, paraît au 31 octobre. Le 22 janvier est son
-triomphe. On le voit, à la tête du 1o0r°, faire le coup de
 feu sur la place de l'Hôtel-de-Ville. Le 18 mars le met |
 en pleine lumière. Son 1or* est cité comme le plus Ê
 
@@ -734,7 +615,6 @@ que Serizier n'avait été vu nulle part pendant la lutte
 les Versaillais.
 %* au fut reconnu, lors de l'instruction du procès en con_ seil de guerre, par plusieurs témoins, entre autres le
 
-autres otages Le
 Père Grandcollas. Mais, quand vint l'audience, le Père 1
 Grandcollas se rétracta. Il ne le reconnaissait plus. ;
 Serizier ne cesse de protester contre l'accusation -
@@ -805,7 +685,6 @@ la prison de la Santé, et là, aussitôt incarcérés et mis au
 Quand se déroula devant le conseil de guerre, en
 février 1872, le procès des accusés de l'affaire des
 Dominicains, le général Chanzy vint déposer (audience
-du 14 février).
 
 — J'estime — dit Chanzy — que nous devons certainement la vie aux officiers de la garde nationale, et
 
@@ -867,7 +746,6 @@ sait à la livraison des Dominicains. Et quand les prison- 3
 niers furent transportés avenue d'Italie, Moreau racontait ;
 — Je les faisais sortir un par un, en leur disant : « Vous 3
 réclamez le paradis. Nous allons vous y envoyer. » - 4
-Et Montels ajoute : î
 ; N'ayant pas assisté à cette exécution, je ne puis que raconter ce qui m'a été dit, sans pouvoir autrement préciser.
 Ce qu'il y a de certain, c'est que Moreau fut l'objet d'une |
 demande d'extradition pour l'affaire d'Arcueil. L'affaire
@@ -925,10 +803,7 @@ L d'autres soucis. La preuve, c'est qu'arrivés au Champ de
 -  Navets, l'un d'eux, le Père Rousselin, s'attarda d'une cen-
 … taine de pas, et, tranquillement, ne rejoignit pas la colonne.
 
-# ” $
 4 s, devant la porte de
-qu r rdre. Et la porte
-| } aient dehors. Là
 FRE ne l'ont dit en Calédo- k
 Lin pour se faire ouvrir!
 Î eslation, il ne me cachait pas
@@ -937,7 +812,6 @@ fi Versaillais. Mais il lui
 É les arracher de leurs case-
 ñ lu sais le reste.
 jai 1 sur Serizier
-Je it nommé colonel
 4H On m'a toujours dit
 quand on a fusillé les
 y TT ués par la foule, quand
@@ -948,7 +822,6 @@ XAR F 1 moins qui furent compris :
 3 . Séri ille et Pascal, présents,
 / zic y le 25 mai 1872, tomM : iant : Vive la Comja, ! nués aux travaux Æ
 D : aques, lors de
-|
 
 Un de mes amis, Alexandre ( | « était au bagne, pour l'affaire
 Saint-Éloi, me conta la fin t ;
@@ -966,7 +839,6 @@ Lucipia, rentré à Paris, fut, « Î
 conseiller municipal du quar
 Puis président du conseil. Il
 J'ignore ce qu'est devenu Box
-Léo Melliet, Thaller (2) et Mor s
 à mort par contumace.
 à Glasgow, où il était professeu
 député de Marmande. Il est mort
@@ -975,9 +847,6 @@ Thaller et Moreau vivent-ils? Ils
 être, tirèrent sur les moines à son |
 à perpétuité. Plus tard député de P.
 (2) Thaller, sous-gouverneur du for
-
-|
-|
 
 Quand on se trouva, aux fortifications, devant la porte de
 Choisy, les fédérés s'engouffrèrent en désordre. Et la porte
@@ -1050,7 +919,6 @@ _ Quant aux combattants anonymes, à ceux qui, peut- É
 à perpétuité. Plus tard député de Paris (Belleville).
 D" (2) Thaller, sous-gouverneur du fort de Bicêtre (9 mai).
 
-Et TT at ‘aires DARCOS OST
 ge de l'avenue d'Italie, leur sort, comme leurs noms, RE
 te Périrent-ils en défendant leurs dernières barricades? …
 These Furent-ils passés par les armes? Le massacre, dans ce 1
@@ -1060,21 +928,11 @@ F4 fut épouvantable. Pr
 D. L'un des témoins du procès en conseil de guerre, pri
 nt _ sonnier, dans cette journée du 25 mai, des fédérés,
 4 l'abbé Lesmayoux, revenu, le soir même de la défaite, …
-Re: à la barricade de la rue Baudricourt, y rencontra un
 _ monceau de morts. 5
 à — Nous relevions là, écrit-il, plus de cent cadavres,
 Eu parmi lesquels nous ne trouvions qu'un seul soldat
 si Les quatre-vingt-dix-neuf autres — autant dire tous—
 PER étaient les fédérés massacrés. Derrière cette seule barRS ricade… : Ne.
-
-Pur LATE + # A fe CRT TE RS TS ET ere
-| 2 URSS d
-
-d'ACÉR EN TS Éy SYÉE RE NN EDR ce ee + de RIT NET 2 TEA Set
-1e Fr ET ÿ e. € Fr sl LE En RON FPT ASS D raie *
-Ar | JS à TES Nas je Fr
-MT 5 ou” bc # el te NT à
-#4 RP is,
 
 Be | déjeuner chez Vaillant a
 Le Lundi 22 mai. Premières heures du jour. La veille, PE
@@ -1112,12 +970,10 @@ Et Razoua, en uniforme de colonel. Tunique à revers …
 s Le képi aux cinq galons, près de lui, sur une chaise. Si
 pe Le sabre entre les jambes. E
 b: ; — Je viens d'évacuer le Trocadéro. 5
-je. Et, me montrant du doigt le bas de la jambe : il
 4 s — Un éclat d'obus... La cheville à moitié écrasée... Se.
 Le Impossible de me tenir debout... Je rentre chez moi.
 _ Demain, je serai dispos... J'irai à l'Hôtel de Ville... 3
 RE: — Alors? Ils sont au Champ de Mars? Avancent- 4
-Re. — Qu'en sais-je? Je n'ai vu personne... Je ne sais 3
 4 *2 Une voiture passe, au petit pas. À À
 20 (G) Voir Cahier III. Diner chez Rachel, page 353. « #4
 
@@ -1195,7 +1051,6 @@ sa boîte de couleurs à la main, faire quelque pochade.
 Un jour, il s'est campé à quelque cent mètres de la
 " frontière, qu'il n'ose cependant franchir. Passe un
 ÿ gendarme, qui s'approche de l'artiste, le regarde étaler « ses couleurs sur la toile.
-La conversation s'engage.
 — Où allez-vous comme ça? demande le peintre. j
 — À Genève, au consulat de France. k
 — Tiens, je n'ai jamais vu Genève! 4
@@ -1205,7 +1060,6 @@ Fs _ En route donc. Les deux amis arrivent à Genève. Le
 à gendarme se dirige vers le consulat.
 _  — Rendez-vous ce soir ici, dit le Pandore.
 J Et on se serre les mains.
-$ — À ce soir.
 2 Le gendarme attend encore.
 De Onrit. sa3
 : ? Ce sont chaque jour des histoires semblables.
@@ -1219,7 +1073,6 @@ _ suis fier — un ami qui, certes, ne partage aucune de À
 — offert l'asile que bien d'autres, en ces jours de lâcheté, ;:
 è. m'eussent peut-être refusé. Il s'est procuré un passeF. port espagnol au nom de Martinez... Lui-même, l'ami,
 4 est d'origine espagnole... Et moi, basque, je parle la
-ë langue. Il a pris deux places de première, et il ne m'a
 laissé qu'ici, sur la terre libre, après m'avoir embrassé.
 Ée. C'est tout. Vous voyez, mon récit est court.
  — Et le nom de cet ami?
@@ -1228,7 +1081,6 @@ laissé qu'ici, sur la terre libre, après m'avoir embrassé.
 ; VAurore, une chronique sur Razoua. Les journaux
 | 47
 
-PU oct PAM a On T2
 mar LU 1 Rañtres hormimes" SES
 : avaient annoncé la mort d'Antonio d'Ezpeleta, l'eserimeur célèbre. Le mort était-il celui qui avait sauvé
 , notre ami? Je racontai, tel que Razoua nous l'avait i
@@ -1274,7 +1126,6 @@ _ de savoir que le sauveur de notre ami commun n'est point PTE
 … mort et qu'il jouit encore d'une bonne santé.
 …_ Avec mes remerciements, agréez, cher Monsieur, mes 12
 _ bien cordiales salutations. :
-LE pauvrete At
 -  Razoua est pauvre. L ACER
 _ Jamais une parole amère. Jamais un regret. Ilpour- AE
 4 _ rait être à Versailles, tranquillement assis sur le velours 2
@@ -1290,7 +1141,6 @@ _ lIlles a rejoints. Sans s'interroger une minute. Sans
 - En ces temps lointains, qui semblent déjà légendaires,
 …_ ils étaient quelques-uns encore — trop rares — qui
 
-| autres hommes MES in RS
 Razoua était de ceux-là. |
 
 Il vivait, dans un faubourg de Genève, aux Eaux- À
@@ -1332,7 +1182,6 @@ où il va lire ses journaux de France, l'absinthe évoca-
 trice de rêves, la blague à tabac bourrée... l'existence
 | économe, sobre, heureuse... en attendant de revoir la -
 
-RE re : ” la mort
 À css A Zurich, où je suis depuis quelques jours. Une
 Ke O stupeur. Razoua est mort.
 -._ Cest un ami de Genève qui m'annonce la fatale
@@ -1421,7 +1270,6 @@ F4 de guerre de Versailles, le président ait trouvé, dans :
 
 —_. Jourde enlève de ses lèvres la pipe de terre blanche, Sr
 
->” £
 | caresse sa barbe, relève d'un coup de main les mèches D:
 __ rebelles qui couvrent son front. \
 — Oui. Et elle est bien bonne... Mais ce n'est pas
@@ -1461,8 +1309,6 @@ vides et la conscience tranquille, d'un si formidable
 # Pourquoi Jourde n'a-t-il pas été élu député de Lyon?
 % J'en causais, il n'y a pas longtemps, avec Humbert.
 N f — Mais tu sais bien — me dit Humbert — que c'est
-: de ta faute.
-3 — De ma faute.
 ‘ — Mais oui... Tu étais alors de passage à Lyon, je
 _ ne sais plus pourquoi. Tu vins me voir. Et, Rochefort
 —_  tardant à prendre position pour l'un ou pour l'autre, je
@@ -1478,7 +1324,6 @@ Jourde avait raté sa vie... Pourquoi n'aurait-il pas,
 5 bon... Une fois à la Chambre, il y prenait rapidement
 ue place importante... Réputation intacte... Talent de
 
-autres hommes SES EEE
 : parole. Il avait tout pour lui... Oui. Jourde aurait très "+
 ; bien pu redevenir ministre des finances. Et il aurait fait, 4
 # croyez-moi, très bonne figure. L
@@ -1509,9 +1354,7 @@ d'Orléans, et je marche, je marche... Il est deux heures du À
 HI. parus devant une cour martiale qui siégeait en face. À
 :: 0 Condamné à être passé par les armes, on me conduisit 4
 __ dans une salle d'où je voyais le peloton d'exécution formé Ê
-De hi
 
-te La vou
 pour me fusiller. On m'avait déjà dit de me tenir prêt,
 Que nd arriva un ordre du maréchal, prévenu de l'incident, ce ;
 de surseoir à mon exécution... dre
@@ -1523,41 +1366,29 @@ _ Et voilà comment je suis ici. LNAPEES
 _ Vous êtes prié d'assister aux convoi et enterrement de AVE
 ._ décédé à Nice, le 20 mars 1893, à l'âge de 50 ans; quise ae
 … feront le vendredi 24 courant, à midi précis. ps LA
-4 ; On se réunira à la maison mortuaire EU ‘h
 - Nous conduisimes son cercueil, drapé de rouge, au TS
 _ Comme tous ceux de la Commune, Jourde était mort ET
 . pauvre. Une pauvreté voisine du dénûment. RCE
 
-il
-fi Goubhier. (1) Un vieux
 | À à ibre du Comité central, Quipa
 ! t la Commune, galonné,
-HE l ist le la Guerre à
 il de Ville au ministère
 l la Commission de
 D, les soixante-dix ou douze 2e
 x r suppute les années. n
-ht tant de Juin. Il m'a
 A L Petit-Pont, légendaire
-o. J s. Les cheveux,
 ; au ont blanes et :
-| flasques à risté.
-y x. SoixanteL t… Et, plus
-(4 bre de la
 
 Brévannes. la 1 ipale de retraite pour Î $
 vieillards. Là-bas. l ir:
 bien notre affaire nde.. ki :
 * Trois mois de stilles, et f
-Goubhier voyait se t, avec sa [A A
 m'envoyait son fils osse enve- ï :
 loppe cachetée et u Fi
-La lettre, je la pt rise, dans À
 une forme à la fois pe de ces FR
 rant des subtilités is d'idéal, s ea r
 toujours prêts à la ur dernier ;
 jour la foi de leurs il TC
-Ces hommes-là, c éussirent À * à
 l'un des plus audac une Révo- C
 lution — que l'hi s vécurent, L
 après leur défait comme ils {
@@ -1565,10 +1396,7 @@ l'avaient toujours sans en à
 excepter un seul p. uelques-uns ;
 dans la plus noir :
 Voici la lettre d
-Mon cher F8
-Je ne sais à qui la ns lequel
 il y aurait à glaner
-|
 
 Un matin de 1901. On sonne. Gouhier. (1) Un vieux 4
 camarade de Genève. Vieilli, usé, cassé, courbé. Gou-
@@ -1576,7 +1404,6 @@ camarade de Genève. Vieilli, usé, cassé, courbé. Gou-
 que j'ai rencontré, au temps de la Commune, galonné, à
 bavard, affairé, allant du ministère de la Guerre à {
 : l'Hôtel de Ville, et de l'Hôtel de Ville au ministère -
-de la Guerre, où il fait partie de la Commission de +
 l'intendance. È
 
 Goubhier doit avoir largement les soixante-dix ou douze |
@@ -1592,7 +1419,6 @@ Je ne l'ai pas vu depuis des années. Les cheveux, ï
 autrefois roux et plantés en aigrette, sont blancs et :
 flasques. Il parle bas. Il a l'air tout attristé. É
 
-— Il y a... Il y a que je suis bien vieux... Soixante- M
 treize. Ça compte... Ma femme en a autant... Et, plus 4
 
 £ rien. Nous avons vendu nos dernières petites choses. 4
@@ -1627,7 +1453,6 @@ _— l'avaient toujours été. Ils moururent tous, sans en
 4 dans la plus noire misère. ;
 1 # Voici la lettre de Goubhier :
 EL" Paris, le 19 février 1910.
-Day Mon cher ami,
 . .  Jai,àmonâge, perdu tous mes compagnons jeunes etvieux.
 gr" “+4 Je ne sais à qui laisser ce peu de paperasses dans lequel
 
@@ -1640,7 +1465,6 @@ _  donnez-les-lui. #
 1% Je n'y attache qu'une importance. C'est d'avoir dit l'exacte
 r vérité. Car bien des choses ont été écrites à tort, ou inyenET tées, sur les hommes surtout. br
 - Mon regret est d'y parler trop de moi. J'ai si souvent À
-| échappé à la mort et à la police qu'il m'a été difficile de
 Je n'ai reçu aucune instruction, que celle que j'ai pu me :
 ë J'ai tout sacrifié à la cause, car j'ai la haïne de l'injustice Ë
 et je regrette de n'avoir pu faire davantage. E
@@ -1655,24 +1479,20 @@ a nos frères, mère et enfants, qu'ils nous ont massacrés. M
 0 vous, l'assurance de ma profonde amitié. 4]
 “X Ancien combattant de Juin 1848, poursuivi 4 |
 FO pour la Nemesis et la Marianne,fondatèur
-F: de la Libre Pensée de 1869, arrêté en
 nt - août 70, libéré le 5 septembre, membre
 F du Comité central du 18 mars,condamné
 : à mort en février 73 (8° conseil de guerre).
-# x
 EM Souvent, Gouhier m'avait parlé de son collègue au
 _ Comité, Édouard Moreau, arrêté pendant la Semaine …
 . de Mai, conduit à la Cour martiale du Châtelet, et …
 fusillé à la caserne Lobau. <
 
-3 LCA ce ES eg MIE Pr x 4 PAS pere He Res ge % Pia TU |
 _ Édouard Moreau est certainement l'une des figures
 Ÿ les p us' intéressantes de l'Insurrection. C'est lui qui
 ' ji gea les premières déclarations des membres du SES
 … Comité central à la population parisienne, déclarations
 . admirablement conçues, écrites d'une plume sobre et
 -_ Voici la note laissée par Gouhier : st
-ne: f POUR LE 4° ARRONDISSEMENT As :
 . J'ai eu le bonheur de l'avoir eu comme collègue au Comité ge
 … central. Ce fut un de ceux qui, par son grand désintéres- À
 — sement, sut se faire estimer de ses collègues, et qui, le plus un
@@ -1684,7 +1504,6 @@ _ Gaudier (1) le plus souvent. RARES
 —. Il appartenait à une famille riche, et, par sa femme, à Tee
 _ l'aristocratie des B. d'A. Il avait été joué aux Français. (2) LENS
 ….… Sous le siège, plusieurs conférences qu'il fit sur le communi isme le mirent en vedette. Il devait le payer de sa à
-vie. Mhe
 Tout jeune, il avait 35 ans, je crois, son dévouement à lat “:
 ça use communale lui fit abandonner tous ses intérêts. Il PE
 :k jouait, comme nous autres ouvriers, tout son avenir, qu'il \
@@ -1735,8 +1554,6 @@ pa. L'incendie de l'Hôtel de Ville (1) nous envoya à la mairie
 De (1) Ici une lacune. L'incendie de l'Hôtel de Ville commença le
 _ mercredi dans la matinée. 4
 
-me UN DU COMITÉ CENTRAL FR
-
 _ du X}, où l'on jugeait le jeune aide de camp, le comtede
 ‘4 _ Beaufort, condamné et exécuté sur l'heure. (1) Beaufort
 
@@ -1784,7 +1601,6 @@ Lullier et le Mont-Valérien 4
 à Extrait d'une note de Goubhier sur le Mont-Valérienet
 : Le général Vinoy a déclaré que le Comité central avait #
 ; commis une faute en ne marchant pas tout de suite sur 4
-TA Versailles. p : 3
 S Eh bien! c'est à te sujet que le Comité avait cru devoir +
 | donner à Lullier l'ordre de s'emparer, avec des forces sufli4 santes, du Mont-Valérien. On sait comment Lullier se laissa
 __- jouer par le commandant de l'armée de Versailles. Venant
@@ -1794,7 +1610,6 @@ L Là, une scène peu connue éclata. 5 4
 4 Lullier fut traité de lâche. : K
 Æ Assi, (1) tirant son révolver de sa ceinture, allait faire 4
 14 feu, lorsque je lui relevai le bras en lui disant : . k
-es — Pas ici. 4
 à Lullier, fou de rage, écumant, fut enlevé et conduit à la
 Préfecture de Police. e.
 Fr Je me demande encore comment ceux des membres du S
@@ -1805,7 +1620,6 @@ Fr Je me demande encore comment ceux des membres du S
 | Hu. (1) Assi (Alphonse), mécanicien au Creusot, membre du Comité À
 1 2 A central, membre de la Commune (11° arrondissement). h.
 
-MT UN. DU COMETE CENTRAL, de 0 oi de 0e
 SFR __ Picpus et Saint-Laurent 6.
 ee "Voici maintenant une étrange histoire, futile en appa- À
 . rence, mais qui, peut-être, a eu son influence sur deux
@@ -1815,7 +1629,6 @@ _ faits importants : l'arrestation des religieux de Picpus, - RS
 …_  Gouhier avait été chargé, par ses collègues du Comité,
 - de recevoir, au ministère de la guerre, les mille quéman- ne:
 £ _ deurs qui Lg assaillaient chaque jour. Ve
-…_ Un matin, un homme de 3o à 35 ans se présente. Un Ma:
 …— prêtre vêtu en civil. Il demande à faire des révélations KES re
 _ sur les églises et sur les couvents. RTS
 - En retour, il exige qu'on lui rende sa maîtresse, une ie.
@@ -1916,8 +1729,6 @@ Nc Et des vieillards encore.
 
 se pouvait encore le lever. Il n'y voit on uis, la
 
-1150 HR RE EL À SR ir RPG ie ge NE:
-
 tête a déménagé. Continuellement, il radote Lo F3
 
 on _ — Oui, il radote, dit un vieillard assis sur le HR
@@ -1940,10 +1751,6 @@ ceux de la Commune qui sont venus abriter, à Bré
 
 | vannes, la misère de leurs vieux jours. . Ses
 
-. - ; re Se = Fee une TR
-
->” Der À a " ER
-
 Septembre 1898. Au Radical. Depuis un quart d'heure, ne
 
 14 | nous causons, Ranc et moi, dans le couloir sur lequel Ke 77
@@ -1953,8 +1760,6 @@ Septembre 1898. Au Radical. Depuis un quart d'heure, ne
 2 Fa De quoi causons-nous ? De ce qui fait, chaque fois que 4
 
 … nous nous rencontrons, le sujet de nos conversations. va
-
-à _ L'affaire Chaudey. L'Eue &
 
 _ Pourquoi Raoul Rigault a-t-il, brusquement, dans la Sa
 
@@ -1977,24 +1782,13 @@ le lendemain, rue Gay-Lussac... ; Ent
 
 14 _@ Voir Cahier IV. — Quelques-uns de la Commune, pages 22 et %
 
-Le. di
-#
-4 = PRE 0 a Un rave me = À
 m'a conté que la veuve et la mère de Sapia venai |
 ent, tr t préfecture de police. |
-ac ande utorisation de x À » s ez
 t serrées — l'article fame 3
 
-DT Le Le lendemair a jours af Chaudey et
-PR — Alors st Advenant?
 TT, ai noté I que me dit Ranc. Je sie
 ONG ces Que VE la not it r mème de notre conversatio
-ST ES É ne. étions au lendufil
-Lo Re eau V' s le Delescluze @est P
-UA be de if
 
-# É è
-|
 qui, propose de confisquer les biens des membres 1 Y
 srnement de la défense nationale. On dresse la fl .
 oubliez Jules Simon et Picard? crie une |
@@ -2009,7 +1803,6 @@ av 2 donnais ma démission, et \
 ie que j'eusse ouvert la bouche, me de
 ever sa diatribe, Quand il se fut tu, in À
 audey, Cernuschi m'a averti. Mais je }
-è ieux. Je ne suis ni un pol- È
 1 je vous dis : Partez. Il est temps, É.
 n que l'arrestation de Chaudey fut,
 art, l'œuvre de Delescluze.
@@ -2058,13 +1851,11 @@ de l'attaque du pont de Neuilly (2 avril). Quelqu'un, je ne
 ; (à) Advenant, administrateur du Réveil de Delescluze. Cest -
 ] Advenant qui fit élever le tombeau de Delescluze au Père4 Lachaise, tout proche de l'emplacement où étaient installées,
 Ex pendant la Semaine de Mai, les batteries fédérées. ce
-| #
 
 Es ais plus qui, propose de confisquer les biens des membres
 $ _ du gouvernement de la défense nationale. On dresse la
 __ liste des noms. 3
 —_ . — Mais vous oubliez Jules Simon et Picard? crie une "er
-1 Hilarité. L
 3 Tout à coup, nous voyons Delesciuze se lever de son
 ES — Et Chaudey ? s'écrie-t-il. Il est encore libre! ;
 r _. — Mais laissez donc Chaudey tranquille, dit Paschal
@@ -2088,12 +1879,10 @@ de si vous ne voulez pas être arrêté.
 -_ A ce moment, survint Ulysse Parent, qui se joignit à moi
 . pour supplier Chaudey de quitter immédiatement Paris.
 : Mais Chaudey n'en voulut rien croire.
-À Il resta.
 Il semble donc bien que l'arrestation de Chaudey fut,
 _ du moins pour une part, l'œuvre de Delescluze.
 _…  Jla voulut, il la réclama dès le premier jour.
 
-autres hommes NE
 Il la fit réclamer, par son ami Advenant, au Père
 Le motif qui poussait Delescluze à poursuivre Chaudey de ses haïines ? C5
 Ce jour-là Delescluze était avec Razoua, Cournet, e
@@ -2149,7 +1938,6 @@ Et comme je demandais à Avrial, s'il savait qu'après
 
 . cette séance de la commission exécutive, une preuve
 - quelconque de la culpabilité de Chaudey eût été portée
-à la connaissance de la Commune :
 
 — Non. Jamais aucune preuve ne fut mise sous nos
 
@@ -2162,15 +1950,12 @@ Bref, où et par qui l'article avait-il été rédigé, apporté
 
 Il y avait, dans ces interrogations, le désir ardent de
 
-PO Lt Pa RARE en ee (pe TU PR RE
-#22 autres hommes 7 EFFETS
 percer un des mystères du journalisme. Car, journaliste, Ranc l'était avant tout. {
 Quand, pour une raison quelconque, pour une liste de ;
 souscription à publier, on lui demandait son titre. 27"
 Et il ajoutait, de son ton mi-aimable mi-renfrogné : F
 — C'est assez. L:
 — — Voyons, me disait-il, lequel de vous trois a fait 4
-Je restais muet. 14
 Un dernier coup droit : e
 — Bah! c'est vous, alors? Voyons, avouez... E
 Mais je n'avouais pas. Je n'avouais pour personne. 4
@@ -2192,14 +1977,12 @@ _ mis dans le commerce) 7
 = Avant de le quitter, je lui tendis la main. Et lui, le ns
 NE doigt posé sur le titre de la couverture rouge : TS
 *_  — Allons, cette fois, vous avouez, je l'espère. AN.
-_. — Non, répondis-je en riant.. Non. Pas encore... Du à
 reste, je n'y parle pas de l'affaire Chaudey. (1) k
 Mr: Juillet 1901. Nous causons, avec Ranc, de Rigault. FR
 274 Rance avait un faible pour les Hébertistes. (2) Il aimait Rs
 “assez qu'on le classât parmi eux. Hébertiste et BlanDe quiste, Rigault ne pouvait manquer d'avoir les sympa- è
 — thies de Ranc, avec qui il s'était rencontré un peu *
 “partout où l'on conspirait et où on luttait, dans les
-es L (À nr h LS
 Re dernières années de l'Empire. #
 Re … — La dernière fois que je rencontrai Rigault — me conta he;
 -_ Rance — ce fut quelques jours avant l'entrée des troupes. he
@@ -2225,7 +2008,6 @@ choquera nullement. Je tiens qu'Hébert est un grand calomnié, et
 ; plaira! mais jacobin, non! Je n'ai jamais été de l'église où l'on
 _ glorifie Robespierre. Je n'ai jamais fait mes devoirs dans la cha_ pelle de l'Etre suprême. Ceci dit, passons. »
 
-Ne an: RL
 Je venais de recevoir des nouvelles de Versailles. Je lui 4
 en fis part. Elles étaient très mauvaises. L'armée était aux 4
 portes. C'était une affaire de jours. D'heures peut-être.
@@ -2237,10 +2019,8 @@ Rigault songea un instant. #
 — Bah! dit-il brusquement. Ce sera bien plus simple. 4
 Nous foutrons le feu à la boîte! à
 — Oui, repris-je. Mais, auparavant, il faut mettre en sûreté 4
-les archives de la Révolution. Il y en a à la Préfecture — et F
 - je montrais du doigt les bätiments de la police — il yen a Ê
 aussi à l'Hôtel de Ville... Toute la Commune, la grande... B:
-Ses sections. :
 Rigault me sembla ignorer la présence, tant à la Préfec4 ture de Police qu'à l'Hôtel de Ville, de ces précieux docu
 — C'est vrai, me dit-il. Je vais, dès aujourd'hui, faire 4 k
 transporter tout en lieu sûr. St)
@@ -2258,8 +2038,6 @@ ancien comme tout ce qui est là, un homme au visage
 
 énergique, à la barbe en pointe grisonnante. Il lit un
 
-Le citoyen Privé. ;
-
 Privé a dépassé la soixantaine. Dans sa haute taille
 et ses larges épaules, avec sa crinière grise, ses sourcils
 broussailleux sur des yeux bleus, son nez fortement
@@ -2273,13 +2051,11 @@ La prochaine, c'est Elle... C'est la Commune ! ;
 Revoir flotter le drapeau rouge ! Entendre encore une
 fois tonner, sur la place de l'Hôtel-de-Ville, les accla-
 
-| : 2,70 :aatres hommes 777 ISERE
 mations d'autrefois ! Rêve éternel du vieux comm anaré ER
 qu'était resté Privé ! | D
 Je donne un petit coup au carreau de la porte. Privé cs.
 lève le nez. : +
 — Entre, me criéft-il sans bouger. 4
-Et continuant : ie
 — Les clients ne se sont guère montrés aujourd'hui. 4
 Je t'avertis que je suis maussade... C'est demain le 44
 terme. Tu sais, le Terme... Proudhon a fait un chouette re
@@ -2306,7 +2082,6 @@ Ca _ pour son compte... C'est plus sûr. 0
 > Le gamin me quitta. Où alla--il? Je n'en sais rien. Je Re
 754 n'ai jamais plus entendu parler de lui. Re
 
-TS L ne” +3 06 RARE CITOYEN PRIVÉ DAnre
 ÿ A Je cachai mes deux chassepots dans les broussailles.
 _ Pourquoi ? Je me le demande encore... Puisque je fuyais.
 LR Et je grimpai à la muraille, m'aidant aux poutres qui y
@@ -2344,7 +2119,6 @@ laissée le voisinage des roues de canons. De la boue jaunâtre. De larges plaqu
 contre les tombes, de l'herbe mouillée... Et, à ma ceinture,
 . mon revolver...
 
-Ah ! de celui-là, je me dis que je ne me séparerais pas, Ç
 dût-il me faire fusiller… !
 La salle du restaurant était vide. Tout le monde devait j
 être caché dans les caves ou ailleurs. Je poussai une porte
@@ -2374,14 +2148,12 @@ fiché mon revolver. :
 — Oui, par la rue de la Roquette. Je me suis rappelé \
 qu'un maçon de ma loge avait sa boutique tout près.
 — Tu t'es réfugié chez lui?
-— Oh là! là! Ce qu'il m'a reçu... Il se mit à me faire une ? H
 longue théorie sur les dangers que nous avions fait courir L |
 à la République... Louis Blanc lui-même n'avait-il pas J
 | flétri la Commune! ù
 — Mon vieux! lui dis-je, au revoir. Î
 Je filai sans regarder derrière moi... 4
 
-ES Be “ie LE CITOYEN PRIVÉ
 : sé Heureusement d'autres maçons furent plus dévoués, et j'en
 connais qui risquèrent la fusillade pour sauver des frères
 Ë qu'ils voyaient pour la première fois.
@@ -2418,15 +2190,12 @@ _ souvenirs! Depuis cette rencontre, je voyais chaque 114
 _ soir Mérigot corriger attentivement ses épreuves. Il les DE.
 _ corrigea courageusement, luttant contre la maladie,
 jusqu'au soir où, en avril 1907, le mal le terrassa et le - 4
-_ mit au tombeau. | % L.
 2 -. Nul journal, autre que le Radical, où je fis la « nécro_
-À ÿ logie » du vieux camarade, ne parla de Mérigot. Qui ça, É-
 _ Mérigot? Inconnu. Et, cependant, aux plus sombres 24
 7. _ jours du Siège de 1870, ce nom fut jeté par les orateurs
 4 _ des clubs à la foule affolée de vengeance et de désespoir. 4
 . 82 7
 
-ie. ES L'HOMME DU FEU GRÉGEOIS
 RER Mérigot, pendant ces mois enfiévrés de patriotisme,
 2 avait, à lui tout seul, ou avec un ou deux amis, trouvé
 FOR le moyen suprême — et cela va sans dire infaillible —
@@ -2458,7 +2227,6 @@ Grégeois, par G. Mérigot, membre du Comité du Feu Grégeois.
 Administration centrale et Comité du Feu Grégeois, 3, rue de
 YIsly. Bureaux de la souscription, 2, rue Vivienne. » ”
 
-autres hommes FRE L
 Le Siège vint. On était aux premiers jours de - à
 novembre, quand nous le vimes entrer un soir, en è
 costume reluisant neuf de la garde nationale. Il vint
@@ -2486,7 +2254,6 @@ Madeleine. Vous verrez mon canon à feu grégeois. s 4
 Un canon pour feu grégeois... Dans un appartement i
 du quartier de la Madeleine. Cela vaut la visite. Le |
 lendemain, avant l'heure du déjeuner, nous frappions à :
-la porte. 4
 Mérigot était sous les armes. Il vint ouvrir, un outil ;
 de forme étrange à la main, une espèce de seringue à À
 
@@ -2568,10 +2335,7 @@ Hélas! la capitulation vint, et, après elle, la paix. Le 4
 feu grégeois n'avait pas eu le temps d'accomplir les =
 fameux exploits promis par Mérigot. 2
 
-né LES Es D DRE pie æ F Ch 4 5 Fe Eee Far URSS *
-D Se M ee TA AE PE SE
 re De es premiers jours d'avril 1871, j'étais allé à
-_ PHôtel de Ville. | - SANS
 Salle du Trône, causant dans un groupe, au milieu 2
 ns des fusils en faisceaux et des matelas sur lesquels
 _ dormaient des gardes — Mérigot. NN.
@@ -2587,32 +2351,8 @@ Ra mu le Feu grégeois, dont je n'entendis plus parler M.
 __  — jusqu'au soir d'hiver où le vieux correcteur du AS
 _ Radical, courbé, usé avant l'âge, sa calotte de fourrure se
 qe à la main, vint m'apporter mes épreuves. 4 20
-D Var LES
 
-|!
 ne quon VA
-Le 7 ane VER
-nu que VEN be
-on RS F
-ct Ne eee AS |
-
-|
-| |
-
-> LME 123 NB
-| 6 ÉCCMEREOS
-L er RES
-s ii ds NE
-| ù ! 51
-
-RU UT le UE LR
-#4, 7' SPC r |
-
-SAAB L'ReET SET re Ag AS di. LE MT STE y
-Les Ci. ie se D ee Ve PATATE » STE SRE He 4 f
-ni FT ES BRU
-Les e É et e .
-ER se ‘ L — 1 {dés tie
 
 D Raoconté par un canonnier de Montmartre (1) FER
 
@@ -2624,7 +2364,6 @@ _  Michaux, (2) 9, place Pigalle. Vers minuit, je regagne ne
 ._ mon domicile, 13, rue Saint-André. (3) Je traverse la
 Là _ place Saint-Pierre. Tout est désert. La Butte perdue Lo
 FES dans l'obscurité. Là-haut, les sentinelles veillent surles
-canons. Ne
 HE _ 8 mars. Six heures et demie du matin. — faità Fe
 Ar peine jour. Des coups de feu. Je saute hors du lit. pes
 
@@ -2639,41 +2378,28 @@ u L'artiste habite toujours, à Montmartre, ce‘ boulevard Rochesy re chouart d
 
 _ (2) Aujourd'hui le café de la Vouvelle Athènes.
 
-fi in utour de la laitière
 EH 3 laitière pleure et pi $
-| ñ t sse découverte ! $
-à F4 Une b ée à la hâte sur
 Ai s épar nant la générale
-ai Le r x armes
 Î La B res, en pleine nuit,
-ji I Gardes de Paris. ù
 ' Serg jui ont, à leur képi,
-at ir ardes nationaux de { h #
 1: : ir sommeil, les 1
 s de crosse, ont pu
 F4 sont eux, les sergents x
 ! dansälés"r: pauvre laitière, qui :
 * à | en « tres, a été leur pre- Re
-TE hd ia re ènt toujours. Les den
-Re RS b: Ës accourent, le à
-\ hé) ! oi le ventre. an
-(Jo =" ïc Hirci, la crête de la pin) _
 A ê: d Hérouges des soldats À
 : “ii nt forte A l'assaut! lits
-+ È les Mar de la Fonteuelles les Là
 W û Mpent les pente " En
 l Prampant
 
 — Netirez pas! « l'avant }
 tous
-On va tirer sur t * À
 Arrêt des gard ine 4
 Préparez-vous î
 Mais le momen ant Î
 On atteint la crêt 4
 Ce n'est qu'une mi 4
 Les mains se ten rre
-On s'embrasse…
 Les soldats du 88 quels or
 leur commandait tou
 Le plateau est € ivils
@@ -2747,7 +2473,6 @@ On atteint la crête.
 Ce n'est qu'une minute... une seconde... un éclair.
 
 Les mains se tendent... les fusils sont jetés à terre.
-On s'embrasse..
 
 Les soldats du 88° acclament ceux sur lesquels on
 leur commandait tout à l'heure de tirer.
@@ -2777,7 +2502,6 @@ avancer la monture. Le général reste debout. On We 4
 | voit un instant, dominant la foule, comme élevé en
 © triomphe... On le dépose sur le sol... Il est prisonnier. P+.
 Gardes nationaux, soldats, mobiles, entourent le gé- 3
-néral... ne |
 L Un rapide colloque, dont toutes les paroles n'arrivent S |
 pas jusqu'à nous. 4
 — Il faut le conduire au Château-Rouge ! 1
@@ -2811,7 +2535,6 @@ de tourner bride... Une dizaine de municipaux et de
 _  sergents de ville désarmés, que la foule hue…. ;
 _ Je descends dans le centre de Paris, rue d'Hauteville,
 où j'ai mon atelier. On commence à connaître les incidents de la matinée. On lit les affiches du gouverne-
-| ment.
 Onze heures et demie. — Je suis de retour à Montmartre. Au coin du boulevard Rochechouart et de la
 rue Clignancourt, une petite barricade, avec un passage
 libre pour les piétons.
@@ -2824,7 +2547,6 @@ De une heure à trois heures. — Les bataillons des
 sur les Buttes.. Le bataillon de Saint-Vincent-de-Paulancienne légion de l'Empire, vient, lui aussi, féliciter les
 Le Château-Rouge est sévèrement gardé. On ne laisse Ù
 
-RS MOT, entres Jai 2 0 CE
 w Quatre heures et demie. — Une colonne, gardes et
 724 soldats, est montée aux Buttes, conduisant le général é.
 __ Lecomte.. Nous courons.. Rue des Rosiers. Tout est
@@ -2835,12 +2557,10 @@ _ emmené, lui aussi, là-haut — sont fusillés. On nous re
 #1 A la nuit tombante. — Avec deux lieutenants du
 # ; 61° bataillon, nous pénétrons dans le jardin sinistre. À
 Les deux cadavres sont couchés sur l'herbe, à une +
-S __. dizaine de mètres l'un de l'autre. À
 Ée Nous restons là quelques minutes... Cinq ou six
 gardes, debout, le bras appuyé sur le fusil... Sur la s
 Hu. crète du mur, assis, les jambes pendantes, des gamins, À
 Fa qui, du doigt, sans mot dire, se montrent les géné-
-Fe raux.….. ce
 
 a la porte de Vincennes
 Pourquoi Delescluze, le soir du jeudi 25 mai, quittat-il la mairie du onzième arrondissement pour aller se
@@ -2892,12 +2612,10 @@ Les gardes de service, quand nous voulûmes franchir le
 : la Commune.
 — Non. Vous ne passerez pas! Personne ne passera. à
 AU — Non. Vous ne passerez pas. 3
-| 98 à
 | 4
 
 Encore Dibi-Péfesdure, protesta: : à +
 : RE Mais je suis le citoyen Delescluze, délégué à la -
-Da guerre. à LE
 _ — Personne ne sortira d'ici. È
 RE Et, quelqu'un ajouta : :
 LITE — Nous sommes fichus. Vous resterez avec nous. ;
@@ -2908,7 +2626,6 @@ onzième. je
 - _. Delescluze et nous qui l'accompagnions fùmes conduits,
 
 par les gardes, baïonnettes aux fusils, chez un marchand Ra
--_ de vins de la place de la Nation. [AA =
 _ Là, Delescluze se laissa tomber sur une chaise, écroulé, A
 > tué par la douleur et la honte. Ft
 # _ — Je ne veux plus vivre! répétait-il. Non. Tout est fini
@@ -2918,7 +2635,6 @@ ne _ pour moi. : #
 se _ à la maïrie, où nous mîmes nos collègues au courant des A
 _ incidents auxquels nous venions d'être mêlés.. ‘ +4
 _ Je n'abandonnaïis pas cependant le projet. “es
-“ie Je décidai de me rendre à la porte de Montreuil. Rs
 na Toujours accompagné du parlementaire, je franchis avee
 __ Ja plus grande difliculté les barricades. ES
 Jarrivai enfin à la porte. RES
@@ -2937,7 +2653,6 @@ Quand je rentrai à la mairie du onzième, il était huit
 Delescluze n'était plus là.
 Mes collègues m'apprirent que, peu après son retour à la
 mairie, il les avait quittés pour se diriger, par le boule_  vard Voltaire, vers le Chäteau-d'Eau..
-ETS de È
 
 un témoin |
 : Il y a quelques années de cela, à la suite d'un article !
@@ -3014,7 +2729,6 @@ scène du refus de passage par les gardes. (Voir Enquête Parlementaire, 18 mars
 Paris. Il avait fait, avec son secrétaire particulier, Mac-Kean, de
 nombreuses démarches pour faire mettre en liberté Monseigneur
 
-L Ve È autres faits” Aie TE EE ds: MS 7 1
 ï Pourquoi aurait-il inventé cette fable?
 Le secrétaire particulier de l'ambassadeur des ÉtatsUnis était alors M. Mac-Kean, (1) nommé à plusieurs
 reprises par M. Washburne dans la brochure relatant +
@@ -3031,13 +2745,9 @@ Je ne veux plus vivre! 4
 Ce qu'il faut retenir, c'est le désespoir, la honte de 4
 Delescluze, soupçonné, injurié par les combattants de
 la dernière heure, traité de fuyard.… 4
-Lui! É
 — Je ne veux plus vivre! répétait-il à la porte de
 Et à Ferré, qu'il rencontra à son retour à la mairie %
-du onzième : _: #0
-— Je suis épuisé... ="
 | Dès cet instant, sa résolution fut prise de marcher à à
-4 Her la mort. a
 Ds (1) J'ai déjà nommé Mac-Kean (voir Cahier IV, page 40, en note).  « _ Mais je dois reconnaître que j'ai été trop affirmatif. Le doute 4
 
 De Au Père-Lachaise... Aux obsèques d'un vieux cama- LPS
@@ -3047,7 +2757,6 @@ _ terre-plein du columbarium, dont les cheminées fument nas
 - amis descendent, par petits groupes, les allées qui con #4
 .  duisent à l'entrée. Machinalement, tout en causant, ne
 _ nous nous dirigeons vers le Mur. Le pèlerinage habiDe tuel. a
-5 _ Nous y voilà. Le
 re Une façade de couronnes rouges, pâlies, desséchées,
 ne _ aux rubans déchiquetés par la pluie et le vent. « Aux
 __ morts de 1871. Anniversaire de la Semaine sanglante.
@@ -3148,7 +2857,6 @@ tombe du dimanche matin. 4
 Un conservateur du cimetière, M. Leprestre. Jeune 4
 employé en 1871, il avait vu. Tout vu. Les malheureux É
 qui, serrés, en tas, attendaient la fusillade. Les morts.
-Les horribles fosses. 4
 — C'était le matin du dimanche, me raconta M. Leprestre. (Je suis ici les notes écrites que j'ai prises de À
 notre conversation.) Vers sept heures. Ils étaient cent
 cinquante, ou à peu près, groupés dans l'allée centrale, k
@@ -3188,10 +2896,7 @@ moins... Peut-être plus... Je vous dis. On ne les comptait pas. (1)
 (1) Le Père-Lachaise reçut beaucoup plus d'un millier de cadavres.
 A elle seule, labominable cour martiale de la Roquette fournit à
 ses fosses communes douze cents fusillés.
-de S foRLe
 
-AÉMRSSSEEE SN RO DRE PR UE NET » 55 — Et au pied du Mur? RATES MO ir LS
-__ —Je ne sais pas. Il se peut qu'on en ait fusill s es F
 Comme un peu partout. Il se peut aussi qu'onenait
 368 enterré quelques-uns à cette place. mire mob je vous à
 __ le répète, c'est dans les fosses que je les ai vu jeter,
@@ -3203,9 +2908,6 @@ commandait passa près de moi, avant d'obliquer à
 __ droite pour atteindre les hauteurs, je le regardai fixe
 ment. Et, je vis, nettement, deux larmes briller sous
 _ ses paupières... Moi aussi, j'avais le cœur affreusement Se.
-ut « ei AS Le) :
-
-| DOMBROWSKI
 
 A maintes reprises, pendant nos longues causeries su _
 les derniers jours, Brunereau m'avait conté, à Genève,
@@ -3217,7 +2919,6 @@ tonnaient les pièces fédérées, les canons s'étaient tus.
 Les artilleurs, les servants, les combattants des alen-
 
 tours, tous, avaient quitté leur poste, pour venir embrasser une dernière fois le chef héroïque, blessé à
-mort, la veille, à la barricade de la rue Myrrha et de la
 rue des Poissonniers, porté à Lariboisière expirant, reconduit, mort, à l'Hôtel de Ville, d'où, la nuit, à la
 lueur des torches, il avait été enlevé sur une civière.
 
@@ -3275,7 +2976,6 @@ Une après-midi de juin 1907. A la Chambre. Dans É
 l''embrasure d'une des fenêtres du Salon de la Paix. |
 Nous causons, Humbert, un de nos confrères, Ernest B..
 et moi. Ernest B... a été mêlé à bien des choses'intéressantes de la période qui suivit 1871. Il a été l'un des
-secrétaires du Comité monarchiste. Il a vu et il a retenu. J
 
 Nous causons du « Flambez Finances », le fameux
 ordre manuscrit, produit au conseil de guerre qui, en
@@ -3324,7 +3024,6 @@ _ graphes. Celui-là est venu jusqu'à moi.
 
 Rentré chez moi, je me hâtai de fixer sur le papier
 
-le récit de B...
 | D'où venait le « Flambez Finances » ?
 
 Comment était-il parvenu jusqu'au président du
@@ -3426,7 +3125,6 @@ de la prison de la Santé. Ce dernier ordre, le président
 du conseil de guerre l'avait égaré. Il le retrouve et le
 
 — Parfaitement, dit Ferré, je le reconnais. Il est de
-moi.
 
 Pourquoi donc Ferré eût-il nié le « Flambez Finances »?
 
@@ -3450,9 +3148,6 @@ Et il tomba.
 
 Un homme qui sait mourir ainsi ne ment pas. |
 
-|
-
-| LE FAUX « LATRONCHE »
 Autre faux. Moins célèbre que le « Flambez Finances ».
 | Il n'eut pas, comme ce dernier, l'honneur d'être produit
 et discuté en conseil de guerre. Je n'en aurais même
@@ -3485,7 +3180,6 @@ le Palais-Royal, et repliez-vous sur la rue Germain-des-Prés.
 
 « Ici tout va bien. »
 
-#24 Le AC A. RATE AE 72 “ EME RES LER RT MRRe RAT. FÉVR Fe LT ETES + Ter ren CS
 ; Ce document, écrit au verso d'un imprimé de chemin de “4
 fer et dont les fragments, tout maculés, ont été réunis avec 4
 peine, fut découvert en 1871 dans la paille de l'emballage de Ë
@@ -3502,7 +3196,6 @@ journal lyonnais, n'était autre en effet que le faux La- S
 Je remis donc à M. Etienne Charles la lettre suivante, 2
 qui fut publiée par la Liberté et par le Nouvelliste. k:
 Paris, le 10 décembre 1909.
-Mon cher confrère, y É
 La pièce communiquée au Vouvelliste par son correspon- É.
 dant, et que vous me signalez, est très connue. Elle a été
 reproduite, en fac-similé, dans l'Autographe, dirigé alors par |
@@ -3532,7 +3225,6 @@ _ ments du papier, pour reconnaître, sans hésitation, que _
 appuyés, hésitants, sans liaison de lettre à lettre, comme ;
 _ cela existe dans l'écriture courante. Cela suffirait déjà à s
 _ faire rejeter la pièce. *
-jt. Le document est daté de Floréal an‘79, 3 h. soir. La dé- re
 as chirure n'a laissé subsister que les lettres éal, très nettes. <
 Re … Ce n'est pas ial, mais éal, l'é avec boucle et accent.
 Fe Or, depuis le samedi 19 mai, nous ne sommes plus en
@@ -3543,7 +3235,6 @@ de: grave de faire mentir le calendrier révolutionnaire. ÿ
 ea La dépêche est adressée au citoyen Latron.….e. %
 2 Qui est ce Latron..e ? s 5
 re L'Autographe, s'appuyant je ne sais sur quoi, traduit CE
-| _ Quel Latronche ? ,
 v Consultez l'Officiel de la Commune, ou, plutôt, pour alle
 LS plus vite, le Livre Rouge de d'Heilly, qui réunit les noms (1) à
 de de ceux qui ont joué un rôle principal ou occupé une fonction, vous ne rencontrerez ni Latronche ni même Latron...e. ;
@@ -3593,7 +3284,6 @@ Cette pièce fut, en effet, communiquée gracieusement au
 journal l'Autographe, dont M. H. de Villemessant était alors *
 rédacteur en chef, et l'authenticité n'en fut nullement mise 1
 
-pee LE FAUX ( LATRONCHE D
 en doute, à cette époque, encore bien rapprochée des tristes
 événements qui nous occupent.
 
@@ -3798,7 +3488,6 @@ k nistre de la justice.
 sa Les deux interlocuteurs se saluèrent. M° Rousse quitta ;
 Evt le cabinet du délégué.
 
-| LE DERNIER JOUR DE LA MONNAIE
 24S J'ai demandé à mon vieil ami Camelinat, directeur de
 À la Monnaie sous la Commune, de me renseigner sur le
 4 type des pièces de cinq francs frappées, sur leur
@@ -3811,7 +3500,6 @@ la Commune.
 Voici la très intéressante lettre que j'ai reçue de l'ancien directeur de la Monnaie en avril et mai 1871. (1)
 
 Paris-Belleville, le 15 septembre 1909.
-Mon cher Vuillaume,
 
 Tu me demandes de te fixer, d'une manière complète et
 définitive, sur les opérations de la Monnaie, pendant ma
@@ -3832,7 +3520,6 @@ Les deux types ont un avers et un revers commun : ceux
 1 la Commune (Cahier V, pages 213 et suivantes), ainsi que la note
 sur le même sujet (Cahier VI, page 360).
 
-#3 MAN Fo 1 di RTS
 des pièces de 1848, dites à l''Hercule, de Dupré. Au revers, à
 gauche du millésime, figure un trident, choisi par moi
 : comme déférent.
@@ -3948,13 +3635,11 @@ que petite brasserie, causer des vieux jours... Brusque- HAT
 “ moi. Que voulait-il? Pourquoi me menaçait-il?.. Ah! LHARR
 #4 je comprends, maintenant. 1 EST
 7244 . J'ai toujours à la main la lettre encadrée de noir. Es FE
-: __ Madame veuve EUGÈNE VERMERSCH, née DELPHINE DE ‘ se
 — … SoMER, ses enfants, parents, frères, sœurs et beaux-frères, FR
 ont la douleur de vous faire part de la perte cruelle qu'ils TN
 5 . viennent d'éprouver dans la personne de leur bien-aimé Lt
 ‘a _ mari, père, gendre et beau-frère, 1
 ses journaliste et docteur ès-lettres (1) 18%
-> NÉ A LILLE (FRANCE) . FER
 7 mort à Londres, le 9 octobre 1838, à l'âge de 33 ans Û
 k5 et deux mois, après une longue et pénible maladie. sh
 j L'enterrement civil aura lieu à New South Gate, au Great
@@ -3981,7 +3666,6 @@ Il fut atteint dimanche dernier des premiers symptômes.
 
 Les premières paroles qu'il prononça, quand il revint à lui,
 furent : « Vuillaume... Avec toi... Vuillaume... Qu'il vienne
-me voir... »
 
 C'est à la misère, et aux calomnies, qu'il doit cette position malheureuse.
 
@@ -4046,8 +3730,6 @@ que j'ose le croire complètement guéri...
 D'autres nouvelles m'arrivent bientôt par Edmond
 Levraud, que j'avais vu, quelques mois auparavant, à
 
-5 Mon cher Vuillaume,
-
 Caria, qui m'a donné votre adresse, vous à raconté l'état
 dans lequel se trouve Vermersch.
 
@@ -4071,8 +3753,6 @@ Pour la seconde fois depuis ma dernière lettre, j'ai vu
 Eugène dimanche. Regnard aussi est venu le voir. Nous
 l'avons trouvé dans l'état le plus déplorable. Il ne pouvait
 
-| FA
-
 e plus parler, et pleurait à chaque instant. Tout espoir est -
 k donc perdu. J'ai bien de la peine à croire qu'il verra le mois
 de janvier. à
@@ -4083,7 +3763,6 @@ trouvé aussi affecté que dimanche, en voyant ce pauvre
 
 < ami souffrir, et me prier de le sortir de cette maison où il
 
-a conscience qu'il va mourir. Car il me l'a dit. C'est le cœur
 : bien serré que l'on revient d'une visite comme celle-là.
 
 Recevez, cher citoyen, une cordiale poignée de main de
@@ -4091,7 +3770,6 @@ Recevez, cher citoyen, une cordiale poignée de main de
 votre dévoué
 Quelques jours encore, et la triste nouvelle me sera
 annoncée par Edmond Levraud.
-Mon cher Vuillaume, : ; -
 ; Vermersch est mort (le 10). L'enterrement a eu lieu aujour- <
 
 Ne sachant pas si Caria vous a annoncé cette triste nou- :
@@ -4119,10 +3797,8 @@ Levraud, je les ai devant moi, pendant que j'écris ces
 
 lignes, tels que les a copiés, pour me les envoyer, su
 LES . l'original, la veuve de mon pauvre ami. Les LU NL TARE 4
-D: MS ui: Tite le véux bien: ? Re
 Se Plus d'un sage envierait ma vie, ÿ ES
 Te Qui vraiment est digne d'envie; LEE
-“a Car je vis à ne faire rien. s Dr
 ur L'excellent docteur qui me soigne Cr
 D Comme un fils, ayant le frisson Res
 me Que de lui trop tôt je m'éloigne, S:
@@ -4132,8 +3808,6 @@ Pat. Des arbres le feuillage vert à:
 de S'emplit de feuilles couleur d'ambre tes
 ” Annonçant le prochain hiver. LS
 LP Mais le temps est si doux encore “4
-à Ris, Qu'on se croirait en fin de mai, LE
-AR Que j'ai vu se lever l'aurore 4
 FR U Dans un grand ciel couleur de lait. Se” 4
 #74 Un de ces ciels que l'Italie : ;
 ni Toute seule mavait montré, ; FF
@@ -4152,7 +3826,6 @@ e + ï “À + Cancanent comme des portières, . 4
 
 À NE AU -Brochant sur mille et mille riens. 11724
 
-1 Gé ; Le nee sa + À
 Mais les légères alouettes
 Allant se perdre dans le ciel,
 Dans leurs harmonieuses strettes
@@ -4177,46 +3850,8 @@ Je ne puis l'oublier.
 (:) Wieland était un professeur “d'Alfort avec qui Vermersch
 s'était lié.
 
-Le pa LÉ LÉ Ve Ze (US, as 7
-|
-|
-|
-he de |
-EU ne te) |
-Que Gin RE
-
-|
-|
-|
 | 4
 
-FREE RON a tes PS Da je
-MINES NE ÿ 0 ve Ares cf
-CCE le TRI SRE Lis
-\Ta ae APR
-Au Est EUR
-SNA sine L'URSS Lx 3 CE ESS
-{ bal tar F M: A 10 1 SPORE LES
-
-set RAS NN, es ET A QE PEL LEE TER SA
-
-Et Res PR RSR CESR OL EE bre s + Mer TES
-
-# D. a : nn
-
-ER ON CÉAPRITAS EE Xe sets de ï
-PA 7 UE DRE DA DERNIER ET Tale DE
-
-il LS na) ë 2 LAS ENT EE"
-PCT UACEE Sete k an CE
-ét AE à. Li l . ‘ , Late nés Ce 5"
-L'SITENEE 2 ete
-Dont 7 LR TES
-if, M x ne” pas LA
-ee LA ERR Us . ie 4 LUE SDHC
-RNA as MS du 4 di din ne Frais ENTRE:
-
-se MÉDAILLE DE LA TRAHISON
 4 > Boulevard Rochechouart. — Je rôde aux devaniures
 des marchands de vieilleries. Dans une sébille, des
 pièces de monnaie, des médailles. Une, en étain doré, e
@@ -4267,7 +3902,6 @@ peut-être, comme on chérit et comme on adore une
 L'aurore ne s'est point levée.
 
 Peu à peu, une rage sourde a envahi le possesseur
-de la médaille. A bout de patience et de colère, un
 soir, entre deux grand'gardes, dans les tranchées
 glacées, il a, sur la relique menteuse, désormais
 détestée, incisé le mot sinistre. |
@@ -4280,7 +3914,6 @@ pouvaient-elles s'expliquer autrement que par la
 
 ; Le 18 Mars est fils, pour une bonne part, (1) de cette
 _  exaspération, dont étaient sorties déjà les deux journées
-_ du 3x octobre et du 22 janvier.
 La médaille de la Trahison que je rencontrais dans
 - la sébille du boutiquier du boulevard Rochechouart
 avait appartenu à l'un de ces exaspérés du siège, futurs
@@ -4299,11 +3932,6 @@ exceptions près, de la Commune (vingt-six membres de la
 Commune, et, à côté d'eux, Brideau, Caria, Clavier, Flotte,
 Sapia, Salvador Daniel, Treillard, etc.), témoigne de cette exaspé-
 ration. Voir sa reproduction dans les Murailles politiques françaises.
-
-ET PET 0 GA CE pa ae UE 5 à
-+ PAR £ Sn te Chr RS PA À
-Cara - ü à a TEE CAR
-PME SANTE A A RE lg ice NE RER EES
 
 Le nom souligné est celui d'un membre
 

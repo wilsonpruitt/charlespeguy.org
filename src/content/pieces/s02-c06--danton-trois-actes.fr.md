@@ -25,8 +25,6 @@ d'un jeune Anglais aristocratique, calme, de volonté
 
 froide et inébranlable. Au fond, le bouillonnement d'une foi fanatique.
 
-HÉRAULT DE SÉCHELLES, 34 ans. — Bel homme, et élé-
-
 ÿ gant. Le dernier représentant à la Convention des manières et de l'esprit de l'ancien régime. Mélange d'ironie et d'affectueuse indulgence. Très paisible, très maître de soi.
 
 BILLAUD-VARENNE, 38 ans. — Haute taille, figure large et pâle. Perruque de cheveux rouges. Larges épaules.
@@ -40,15 +38,12 @@ VADIER, 58 ans. — « Voltaire gascon ». Vieillard grand et osseux; le nez cro
 Larges yeux noirs. Long nez. Cheveux rares et plaqués.
 L'air ascétique et violent.
 
-LE GÉNÉRAL WESTERMANN, 43 ans.
-
 HERMAN, président du tribunal révolutionnaire.
 
 LUCILE DESMOULINS, 22 ans. — Blonde, menue, les yeux noirs, les cheveux frisottants. « Se démenant comme un lutin, montrant les dents comme un chat. »
 
 ÉLÉONORE DUPLAY, 25 ans. — Grande, les yeux calmes, des traits purs d'un dessin classique. Sous sa froideur transparaît par instants une âme rougissante. — « Cornélie Copeau. »
 Salon bourgeois d'un goût fantaisiste, où tous les styles se mêlent. Aux murs, des estampes licencieuses du siècle. Sur la cheminée, un buste de philosophe antique. Sur la table, une petite Bastille. Un berceau d'enfant dans un coin de la chambre. Une fenêtre est ouverte. Ciel gris et triste. Il pleut. Camille et Lucile, son petit enfant dans les bras, regardent au dehors. Philippeaux se promène de long en large, et jette en passant un coup d'œil par la fenêtre. Hérault de Séchelles, assis dans un fauteuil, près de la cheminée, observe ses amis. Bruit de foule
-LUCILE, Se penchant à la fenêtre
 Les voilà, les voilà ! Ils passent au bout de la rue!
 Bon voyage, père Duchesne ! n'oublie pas tes fourneaux !
 
@@ -134,9 +129,7 @@ Combien de ces amis viendront à son secours, si on l'attaque?
 Je n'ai besoin de personne. À moi, mon écritoire !
 La fronde de David (il montre sa plume) vient de renverser le fier-à-bras de la guillotine, le roi des jean-foutres et des tape-dur. J'ai cassé la pipe au père Duchesne, cette fameuse pipe, semblable à la trompette de Jéricho, qui, lorsqu'elle avait fumétrois fois autour d'une réputation, la réputation s'écroulait d'elle-même! D'ici est parti le trait qui frappa au front le Goliath impuderit et couard. J'ai soulevé contre lui les huées de son peuple. Tu as vu tout l'heure, autour de la charrette, les fourneaux du père Duchesne? C'est moi qui ai eu l'idée de les faire porter. Mon invention a eu un succès fou.
 Pourquoi me regardes-tu ?
-Une idée.
 
-Dis-la.
 As-tu pensé quelquefois à Ja mort?
 la mort? non, non, je n'aime pas cela. Fi! cela sent mauvais!
 Tu n'as jamais pensé comme cela fait mal de mourir ?
@@ -245,7 +238,6 @@ Ma cause est aussi la vôtre, — la tienne, Danton,
 Je le sais, Westermann, c'est parce que tu as attaqué, comme moi, Rossignol, Ronsin, tous les scélérats qui déshonorent l'armée, que les Jacobins te poursuivent de leurs clameurs furieuses. Nous ne tabandonnerons pas.
 
 Il faut agir. Je t'apporte ma plume, et Westermann son épée. Dirige-nous, Danton. Vieux routier, tu as l'expérience des foules : tu connais la stratégie des révolutions ; mets-toi à notre tête, il y a encore un dix août à faire.
-Plus tard.
 
 Tu disparais de l'arène, tu te fais oublier. Montretoi. Que fais-tu, pendant des semaines, caché dans ta province ? -
 J'embrasse la terre natale, afin d'y puiser, comme
@@ -277,7 +269,6 @@ Peste ! vous savez vos auteurs.
 Eh bien, quel mal y at-il? Chacun sait {a Pucelle.
 Tu as raison, petite. C'est le bréviaire des honnêtes femmes.
 En avez-vous récité parfois à Robespierre ?
-Je n'aurais garde.
 
 L'avez-vous vu, quand on dit devant lui une gauloiserie? Son front se plisse de grandes rides, et remonte vers son crâne; il crispe les mains; il grimace, comme un singe qui a mal aux dents.
 Héritage de son père. C'est de Rousseau qu'il tient sa haine de Voltaire.
@@ -310,7 +301,6 @@ L'ennemi est là, qui te souffle dans le dos ; si tu t'arrêtes, il te jette en 
 cule le coup qu'il veut porter.
 Je n'ai qu'à me retourner et leur montrer ma hure, pour qu'ils tombent foudroyés.
 Fais donc. Qu'attends-tu ?
-Plus tard.
 Tes ennemis s'agitent. Billaud-Varenne se répand en paroles enragées contre toi. Vadier plaisante sur ta chute prochaine. Le bruit de ton arrestation a déjà couru dans Paris.
 DANTON, haussant les épaules
 Sottise ! Ils n'oseront pas.
@@ -320,7 +310,6 @@ Il écume de fureur.
 Parler aux clubs, soulever Le peuple, renverser les comités, abattre Robespierre.
 
 Plus tard. Je ne veux pas.
-Tu te perds, Danton.
 J'étouffe quand je vois la peur d'agir qui pèse sur les honnêtes gens ici. Quel poison diabolique coule donc dans cet air, pour que des hommes comme vous, à un jour de l'échafaud, se croisent les bras et attendent, sans oser faire un mouvement, ou pour combattre ou pour fuir! Je n'en puis plus. Je vous laisse. J'agirai sans vous. J'irai trouver ce Robespierre dont vous avez tous peur (car vous en avez peur, oui, tout en le plaisantant); votre timidité fait toute la force de ce gueux. Je lui cracherai la vérité : il verra pour la première fois un homme qui lui résiste. Je briserai l'idole !
 Il sort avec emportement.
 Je viens avec toi, Westermann.
@@ -330,7 +319,6 @@ de mépris ?
 Ine brisera rien du tout. Robespierrele regardera,
 — comme cela — et ce sera fini! Pauvre bougre !
 Vous êtes des poltrons. Il n'y a rien à craindre.
-Il sort.
 Hérault se lève, prend son chapeau et se dispose à partir.
 Tu pars aussi, Hérault?
 Camille, tu n'es point fait pour la guerre à la
@@ -340,7 +328,6 @@ Pour satisfaire sa conscience.
 HÉRAULT hausse les épaules doucement.
 et baise la main de Lucile
 Sait-on jamais ?
-Où vas-tu ?
 Tu fais aussi visite à Robespierre ?
 Non: ma promenade habituelle. Je vois passer
 
@@ -530,7 +517,6 @@ La porte de gauche mène au cabinet de toilette des
 Duplay. La fenêtre donne sur une cour où travaillent des menuisiers. On entend le bruit des ouvriers qui clouent, rabotent et scient. Robespierre est seul, assis à son bureau.
 
 MADAME DUPLAY, ouvrant la porte
-Je te dérange, Maximilien ?
 lui tend la main.
 
 Toujours au travail. Tu ne t'es pas couché, cette nuit.
@@ -549,14 +535,12 @@ Quoi ? cela ne te fait pas plaisir qu'on t'aime ?
 La France se porterait mieux, si elle pensait moins à Robespierre, et plus à la liberté.
 La liberté se confond avec Robespierre.
 C'est bien là ce qui m'inquiète pour elle. J'ai peur pour sa santé.
-MADAME DUPLAY, s'approchant de la fenêtre
 Comme ils font du bruit dans la cour! Je suis sûre que ce tapage de marteaux et de rabots te fatigue. J'ai demandé vingt fois à Duplay que les ouvriers ne commencent pas si tôt le travail, afin de ne pas te réveiller quand tu dors ; mais il dit que tu défends qu'on change rien aux habitudes.
 Il a raison. Cette activité régulière me repose. Le travail est bienfaisant aux autres et à soi-même.
 Au sortir d'une nuit de pensées fièvreuses, comme celles où nous sommes forcés de vivre, il renouvelle l'air vicié et meurtrier.
 Quel travail t'a fait veiller cette nuit ?
 Non le travail, mais le souci.
 Tu as l'air préoccupé, comme à la veille d'uñe catastrophe.
-Une catastrophe, oui.
 Ne peux-tu l'empêcher ?
 Loin de là, je dois l'accomplir.
 Je n'ai pas le droit de l'interroger ; mais il ne faut pas être triste aujourd'hui. La maison est en fête. Le Bas et Saint-Just sont revenus cette nuit de l'armée.
@@ -564,12 +548,10 @@ Saint-Just est revenu ? Tant mieux : j'ai besoin de sa volonté.
 J'oubliais de te dire: il y a un général qui voulait te parler, le général Westermann. II était iei avant le jour ; je l'ai empêché de monter. Il a dit qu'il reviendrait dans une heure. Faut-il le recevoir ?
 Je ne sais.
 Il a attendu longtemps dans la cour. Il pleuvait.
-Bien.
 Quel temps il faisait cette nuit! Je suis revenue trempée.
 Où étais-tu ?
 Aux Halles. J'ai fait queue depuis minuit. On se poussait! Impossible de fermer l'œil un instant; tout de suite votre place était prise. À l'ouverture
 
-* PAR at Lu: FA PRET We
 A CROSS i des grilles, on s'est battu. Heureusement, je sais défendre mes droits. Enfin, j'ai réussi à avoir trois
 œufs et un quarteron de beurre.
 Trois œufs pour la maison, ce n'est guère.
@@ -649,7 +631,6 @@ Vous risquez votre vie? Nos têtes, à tous, en France, sont l'enjeu dela formid
 -__ les instruments de la Révolution, la hache chargée de frayer la voie à la République au travers de ses ennemis. C'est une tâche terrible qu'il convient d'accepter sans faiblesse, mais sans orgueil. Vous n'avez pas plus lieu d'être fiers de vos canons, que nous de la guillotine.
 
 Tu outrages la grandeur de la guerre.
-Il n'y a de grand que la vertu. Où qu'elle se
 Buse trouve : soldats, ouvriers, législateurs, la Répu- l blique l'honore. Mais que les criminels tremblent!
 
 Rien ne les protège de ses coups, ni leurs titres, ni leurs épées.
@@ -701,7 +682,6 @@ Quel bien me fait votre maison ! Quel repos y goûte mon âme! Ce n'est pas un �
 
 odeur de bois coupé, la paix et l'espérance. L'honnête figure de Duplay, la voix cordiale de votre mère, votre main, Éléonore, tendue vers moi avec un sourire fraternel, tant de loyale affection, me font connaître le bien le plus inappréciable, le plus rare, oh ! le bien dont je manque le plus et dont j'ai le plus besoin !
 Quel bien ?
-La confiance.
 Vous vous défiez de quelqu'un ?
 Je me défie de tous les hommes. Je lis le mensonge dans les regards, je vois la ruse embusquée sous les protestations. Leurs yeux, leur bouche, leurs serrements de main, leur corps tout entier ment. Le soupçon empoisonne toutes mes pensées, J'étais fait pour des sentiments plus doux. J'aime les hommes, je voudrais croire en eux. Mais comment y croire encore, quand on les voit comme moi, chaque jour,se parjurer dix fois, se vendre, vendre leurs amis, vendreleurs armées, vendre leur patrie, par crainte, par ambition, par débauche, par malfaisance! J'ai
  vutrahir Mirabeau, Lafayette, Dumouriez, Custine, le roi, les aristocrates, les Girondins, les Héber41
@@ -717,7 +697,6 @@ Oui, et plus que les preuves : la certitude morale, cette lumière infaillible q
 Non, vous ne pouvez vous tromper : vous savez tout, vous voyez au fond des cœurs. Hélas! sont-ils tous corrompus ?
 Il y a quatre ou cinq hommes que j'estime : l'honnête Couthon, insensible à ses souffrances, pour ne songer qu'à celles du monde; l'aimable et modeste
 Le Bas; mon frère, qui est généreux, mais aime trop le plaisir : deux enfants et un moribond.
-Et Saint-Just ?
 Celui-là, je le crains. Saint-Just, glaive vivant de la Révolution, arme implacable, qui me sacrifierait comme les autres, à sa loi d'airain. — Tout le reste trahit. Gênés par ma clairvoyance, jaloux del'amour du peuple, ilstravaillent à me rendre odieux. Les proconsuls de Marseille et de Lyon couvrent leurs atrocités du nom de Robespierre. La contre-révolution .
 prend tour à tour le visage de la clémence et celui de la terreur. Que la lassitude m''accable un instant, c'en est fait de moi, c'en est fait de la République. Couthon est malade. Le Bas et mon frère sont deux étourdis. Saint-Just est loin, et dompte les armées. Je reste seul au milieu de ces traîtres,
 
@@ -739,7 +718,6 @@ ROBESPIERRE, 'écitant, avec un sourire d'affection unpeu mélancolique, un peu 
 MADAME DUPLAY, du dehors
 Saint-Just entre tranquillement. Robespierre va audevant de lui. Ils se donnent la main, comme s'ils se retrouvaient après quelques heures d'absence.
 
-Ils s'asseyent.
 d SAINT-JUST, le regardant avec calme
 Je suis content de te revoir.
 Le Bas nous a écrit qu'il s'en est peu fallu que nous ne te revoyions plus.
@@ -762,7 +740,6 @@ Mets la hache entre eux et toi. Il ne faut toucher les impurs qu'avec le fer.
 La corruption gagne tout. Des hommes sur qui je comptais le plus. D'anciens amis.
 Point d'amitiés! la Patrie.
 Danton menace, Danton est suspect. Il se répand en paroles violentes et injurieuses. Il s'entoure d'intrigants, de débauchés, de financiers ruinés, d'officiers cassés de leurs grades. Les mécontents de toute sorte se rallient autour de lui.
-Que Danton disparaisse !
 Danton fut républicain. Il aima la patrie. Il l'aime encore, peut-être.
 Il n'aime point la patrie, celui qui ne la respecte point par l'austérité de sa vie. Il n'est point républicain, celui qui a les vices et les maximes d'un aristocrate. Je haïs Catilina. Son cœur cynique, sa lâche intelligence, sa politique ignoble, qui flotte entre tous les partis, pour se servir de tous, avilit et menace la République. Que Danton soit frappé!
 Il entraîne dans sa chute l'imprudent Desmoulins.
@@ -778,7 +755,6 @@ Rien ne fait contrepoids en toi à la haine du vice.
 J'ai vu le vice de plus près que toi.
 Où donc ?
 
-En moi.
 En toi, dont la vie tout entière est un modèle d'abnégation et d'austère sacrifice!
 Tu ne sais point.
 Quel péché de jeunesse ?
@@ -799,7 +775,6 @@ La guillotine! Tu as trop attendu, Robespierre: nous sommes en danger. Si Danton
 
 BILLAUD, des papiers à la main
 Regarde. Le traître a continué.
-Qui?
 Ton ami, Maximilien, Camille, le cher Camille.
 Il a encore écrit?
 On vient de saisir ces épreuves. Lis.
@@ -808,11 +783,9 @@ La septième du Vieux Cordelier. La suite du
 Credo du bon apôtre.
 Le fou! Il ne se taira donc pas?
 BILLAUD, attaché à son idée fixe
-La guillotine!
 SAINT-JUST, lisant avec Robespierre
 C'est une fille. Il souffre de la maladie de se déshonorer.
 
-Et Danton ?
 Danton s'agite; il pérore au Palais-Royal. Il insulte Vadier, moi, tous les patriotes. Desmoulins est avec lui. Ils sont attablés avec Westermannet des catins; ils profèrent des injures obscènes contre le Comité. Le peuple s'attroupe et rit.
 Tu l'entends, Robespierre!
 Aucun danger. Avant que Danton ait fini de boire, nous avons le temps de délibérer en paix. —
@@ -849,12 +822,8 @@ VADIER, goguenard. Il lit le numéro du Vieux Cordelier
 tions de Pitt; car « tu ôtes ainsi au gouvernement un de ses plus grands ressorts : le relâchement des mœurs ». Tu entends, Incorruptible ? Ceci doit te faire plaisir ?
 
 L'âme basse et hypocrite !
-La guillotine!
 Il tombe, la téte sur la table, étourdi comme un bœuf abattu.
-Il s'évanouit ? x
-Un étourdissement.
 Saint-Just ouvre la fenêtre. Billaud revient à lui.
-Tu es malade, Billaud ?
 
 BILLAUD, d'une voix rauque
 
@@ -876,7 +845,6 @@ Brutus, homme magnanime, homme vertueux, je savais bien que tu n'hésiterais poi
 Le sort de Desmoulins est lié à celui d'un autre homme.
 As-tu peur de prononcer le nom de Danton ?
 J'ai peur de briser un talisman de la République.
-Son porte-veine.
 Danton m'est ennemi ; mais si mes amitiés ne comptent point dans nos débats, mes inimitiés ne doivent pas davantage peser sur mes jugements,
 Avant d'engager le combat, discutons froidement les risques qu'il y aurait à démanteler cette forteresse de la Révolution.
 
@@ -984,7 +952,6 @@ Avant tous, Philippeaux, le désorganisateur de l'armée, le destructeur de la d
 Westermann, l'épée sanglante, toujours prête la rébellion. — Est-ce tout ?
 Le cher Camille que tu oublies.
 Ne voulez-vous pas plutôt Bourdon, ou Legendre, qui sont les porte-paroles de la faction à l'Assemblée ?
-La justice.
 Adieu. Je vais préparer le rapport. Demain, à la
 Convention, je les terrasserai.
 Non pas, non pas, jeune homme ; l'imprudence de ton âge t'emporte. Quoi ! tu veux attirer Danton à la tribune ?
@@ -996,7 +963,6 @@ Nous ne devons pas livrer la République aux hasards d'un combat en champ clos.
 Que voulez-vous donc ?
 Robespierre ne répond pas.
 Que Danton soit arrêté cette nuit.
-Jamais.
 Qui veut la fin veut les moyens.
 
 Je ne frappe point un enhemi désarmé. Mettezmoi face à face avec Danton : de tels combats ennoblissent la République; mais votre proposition la déshonore : je la repousse du pied.
@@ -1051,7 +1017,6 @@ Dieu, n'ayant qu'un œil et le corps mutilé, que d'avoir deux yeux et d'être j
 République, retranche-le de la République. Et si le sang de la République, si ton propre sang coule par la blessure béante, laisse-le couler ; que la République soit pure, ou qu'elle meure. La République est la vertu. Où il y a souillure, la République n'est plus.
 
 Ils sont fous. Fous à lier. Il ne faudra pas tarder
-FOUQUIER-TIN VILLE, accusateur public, HERMAN, président. JURY, GENDARMES, FOULE. — Au banc des accusés, DANTON, DESMOULINS, HÉRAULIT,
 personnages muets ; — FABRE D'ÉGLANTINE, dans un fauteuil au milieu d'eux. — Les fenêtres de la salle sont ouvertes. On entend le remous de la foule au dehors. De temps en temps, apparaît par le guichet d'une porte, derrière le président, la tête de VADIER, surveillant le procès. — Près de la porte, debout, le général HANRIOT. — Herman et Fouquier-Tinville
 Jettent par moments des regards inquiets vers lui.
 On interroge Chabot et les Frey.— Danton s''agite avec indignation. Desmoulins semble accablé. Hérault, calme, regarde en souriant. Philippeaux, les maächoires serrées, les yeux fixes, se prépare à la riposte.
@@ -1059,7 +1024,6 @@ Fabre, souffrant, est affaissé dans son fauteuil. — La
 Joule se pousse et regarde avidement. Elle souligne toutes les péripéties du procès, à la façon d'un public qui assiste à un mélodrame, — amusée et émue tout ensemble. (1)
 (1) On n'a noté qu'une partie des mouvements et des clameurs de la foule, Ces indications doivent varier avec les éléments dont on dispose à la scène.
 
-LE PRÉSIDENT, aux Frey
 Vous êtes les agents de Pitt. a) — Vous avez voulu corrompre la Convention. Pour favoriser vos spéculations et vos rapines, vous avez fait le projet d'acheter les représentants du peuple. Vous avez tarifé chacune des consciences.
 Président, donne-moi la parole! b)
 Votre tour viendra, Danton.
@@ -1084,7 +1048,6 @@ comme tes coaccusés, au chef de corruption.
 La corruption de Danton ne se met pas à la remorque de la canaïille. Donne-lui au moins la première place. Danton ne saurait être le second en rien, ni dans le vice ni dans la vertu. b)
 
 Tais-toi et sois prudent.
-LE PRÉSIDENT, Aux Frey
 
 Vous êtes juifs de naissance, originaires de Mo-
 
@@ -1104,7 +1067,6 @@ e) UNE rizLE, montrant Fabre. — C'est celui-là, là-bas, dans un fauteuil...
 J) Danton se bouche le nez. — Il fait le dégoûté!
 Davin. — 1] grimace de fureur et de peur.
 — Quelle gueule il a! — Bravo, Danton!
-Trois FEMMES. — Tu crois qu'on va le condamner? —
 Quand son tour viendra-t-il? — C'est que je suis pressée.
 VADIER, entr'ouvrant doucement le guichet de la porte, fait signe au général Hanriot, debout près de la porte
 Tout va bien, Hanriot?
@@ -1146,8 +1108,6 @@ Quoi ? Qu'est-ce que tu me montres?
 Près de la fenêtre, ce jeune homme...
 Ce gamin effronté, avec une mèche de cheveux qui lui tombe sur Les yeux, ce clerc de procureur qui pince la taille à une femme?
 Ce n'est rien, j'ai eu une hallucination, j'ai vu...
-je me suis vu...
-Toi?
 Je me suis vu brusquement à sa place, assistant au procès des Girondins, mes victimes, — oh!
 Pendant ce temps, la pièce dite falsifiée par Fabre a passé sous les yeux du jury.
 
@@ -1188,17 +1148,14 @@ auprès de Dumouriez pour ces négociations criminelles, qui ont sauvé les Prus
 
 Les accusés s'agitent. Le peuple devient plus attentif. Danton dit quelques mots brefs d'encouragement aux siens.
 Plan mal fait, intrigue confuse; trop de personnages ; on ne sait d'où ils viennent, et l'on sait trop où l'on va : inutile de tant parler. Ta pièce est détestable, Fouquier. Tu ferais mieux de me faire couper la tête tout de suite : j'ai mal aux dents. c)
-LE PRÉSIDENT, à Hérault de Séchelles
 Accusé, vos noms et qualités. d)
 Feu Hérault-Séchelles. Ci-devant avocat-général au Châtelet : je siégeais dans cette salle. Ci-devant
 d) Qui est-ce? quel est cet aristo ? — C'est Hérault, président de la Convention : j'ai inauguré en son nom la Constitution républicaine. Ci-devant membre du Comité de Salut public; ci-devant ami de SaintJust et de Couthon qui m'assassinent. à)
 Vous êtes un aristocrate. Votre fortune date de vos relations avec la cour, et de votre présentation à la femme Capet par la Polignac. Vous n'avez ja_ mais interrompu vos relations avec les émigrés; vous étiez l'ami de Proly l'Autrichien, bâtard du prince de Kaunitz, guillotiné le mois passé. Vous avez divulgué les secrets du Comité de Salut public, et livré des papiers importants aux cours étrangères. Malgré la loi, vous avez donné asile au cidevant commissaire des guerres, Catus, poursuivi comme émigré et comme conspirateur. Vous avez poussé l'audace jusqu'à aller le réclamer et prendre sa défense à la section Lepelletier, où il était arrêté. b) ë
 Sauf sur un point : la divulgation des secrets d'État, que je nie formellement, et que je vous mets
-a) UNE FILLE. — Ah! il est bel homme!
 UNE TRICOTEUSE. — C'est encore un faraud de l'ancien régime !
 
 au défi de prouver, tout le reste est exact. Jele reconnais hautement. ; LS
-rie LE PRÉSIDENT : Le
 Fe Quelle explication en donnez-vous?
 Aucune explication. J'avais des amis. Nulle vo2
 lonté d'Etat ne pouvait m'empêcher de les aimeret de les aider dans le besoin. :: 10)
@@ -1212,7 +1169,6 @@ Camille, puis, tout de suite, silence. e.
 Vos nom, prénoms, qualités.
 CAMILLE, très troublé
 Lucie-Camille-Simplice Desmoulins, député à la
-Votre âge ?
 L'âge du sans-culotte Jésus, quand il fut sacrifié trente-trois ans. @)
 Vous êtes accusé d'avoir diffamé la République.
 Vous avez calomnié les actes de l'Etat, comparé la gloire où nous vivons aux turpitudes des Césars romains. Vous avez réveillé les espérances des aristocrates, excité le soupçon contre la nécessité des répressions, entravé l'œuvre de la défense nationale. Avec une humanité simulée, que dément votre caractère passé, vous avez voulu ouvrir les prisons aux suspects pour submerger la République
@@ -1293,7 +1249,6 @@ Tais-toi, Desmoulins !
 C'est un piège. Prends garde !
 Foutre ! avale ta langue !
 Je parle des Girondins. a)
-Le peuple murmure.
 a) Davin. — Il avoue! Il avoue!
 
 L'accusé reconnaît de lui-même qu'il a trempé dans les complots des Brissotistes.
@@ -1307,7 +1262,6 @@ la pauvreté. Nimium limemus mortem et exilium et paupertatem. » Cette vie mér
 
 Imbécile! tu nous coupes la tête! ZI l'embrasse. a)
 On vient avertir Danton que son tour est venu. Il se lève et va vers le tribunal. b)
-LE PRÉSIDENT, à Danton
 Accusé, vos nom, prénoms, âge, qualité et de- j meure.
 DANTON, d'une voix retentissante
 Ma demeure ? Bientôt le néant. Mon nom ? Au
@@ -1319,7 +1273,6 @@ Vous connaissez la loi : répondez exactement.
 Je suis Georges-Jacques Danton, âgé de trentequatre ans, natif d'Arcis-sur-Aube, avocat, député
 a) UNE rizze. — C'est égal, il est gentil tout de même !
 b) Une grande houle dans le public, quand Danton se lève. Un bourdonnement de voix. — Voilà... Voilà...
-c) Un frémissement général.
 UN HOMME, enthousiasmé. — Hein! crois-tu? Hein !.…
 à la Convention, domicilié à Paris, rue des Cordeliers.
 Danton, la Convention nationale vous accuse d'avoir conspiré avec Mirabeau et Dumouriez, d'avoir connu leurs projets liberticides, et de les avoir secrètement appuyés. a)
@@ -1343,8 +1296,6 @@ mes vertus appartiennent au peuple ; je ne lui voile rien. Je me montre au monde
 Danton, ce langage impudent outrage la justice.
 
 L'ignominie de vos expressions montre la bassesse
-
-UNE FEMME, furieuse. — Il blasphème !
 
 c) Davip. — Le Sardanapale! Regardez-le vomir !
 
@@ -1413,7 +1364,6 @@ Tu mens, je viens de les nier. b) J'ai vécu largement, honnêtement, ménager, 
 Votre voix se fatigue, Danton : reposez-vous.
 Davin. — Le viédase! Comme il brame! S'il pouvait se foutre une extinction de voix!
 b) Mais oui! mais oui!
-c) QUELQUES voix. — Les témoins!
 à Davip, à son voisin. — Vas-tu te taire! Prends garde à toi. Tu défends les traîtres? On te fera mettre aussi la tête à la fenêtre.
 
 Ce n'est rien, je puis continuer.
@@ -1423,7 +1373,6 @@ Je somme l'accusateur public de me déclarer, en face du peuple, pourquoi la jus
 Je ne me suis point opposé à leur citation, et jee is
 Fais-les donc venir; rien ne se fait sans tes ordres. (
 Je déclare donc permettre que les témoins soient appelés d), autres toutefois que ceux désignés par
-b) PLusieurs voix. — Les témoins! x Fe:
 
 les accusés dans la Convention ; car l'accusation émane de l'Assemblée tout entière, et il serait ridicule de prétendre faire concourir à votre justification vos propres accusateurs, surtout les représentants du peuple, dépositaires du pouvoir suprême, qui n'en doivent compte qu'au peuple.
 Il rit avec Fabre.
@@ -1438,7 +1387,6 @@ Le peuple est notre seul juge; vous n'êtes rien sans lui. a)
 Vous voulez nous bâillonner. Vous n'y parviendrez pas. Ma voix remuera Paris jusque dans ses entrailles. La lumière ! la lumière ! c)
 
 Les témoins! d) qu'on fasse venir les députés!
-Les juges s'effarent.
 
 c) La lumière! — L'agitation de la foule, qui n'a cessé de monter en un crescendo formidable, depuis le premier appel de Danton à ses témoins, éclate en une tempéle de cris et de bravos, qui couvre toutes les paroles.
 
@@ -1453,7 +1401,6 @@ Nous allons confondre ces gueux; vous allez les voir écroulés, le nez dans leu
 La grâce de ceux qui veulent notre mort!
 Bah ! nous nommerons Saint-Just maître d'école
 b) Quelques rires. Conversations et discussions dans la foule.
-à Blérancourt, et Robespierre, marguillier à SaintOmer. a)
 HÉRAULT, haussant les épaules
 Ils sont incorrigibles. Ils espéreront encore dans la charrette.
 Les imbéciles! accuser Danton et Desmoulins de combattre la République ! C'est Barère qui est patriote à présent, n'est-ce pas? Et Danton aristocrate! b) — La France n'avalera pas ces bourdes de longtemps. — À un juré. Nous crois-tu conspirateurs? Voyez, il rit, il ne croit pas. Écrivez qu'il
@@ -1479,7 +1426,6 @@ Fouquier a écrit une lettre qu'un garde prend et emporte.
 
 En attendant la réponse de la Convention, nous allons continuer l'interrogatoire. — Les gendarmes font rasseoir les accusés. a) — À Philippeaux. Vos nom, prénoms, qualités.
 Pierre-Nicolas Philippeaux, ci-devant juge au présidial du Mans, représentant du peuple à la Convention. e
-Votre âge?
 Vous avez tenté de paralyser la défense nationale, pendant votre mission en Vendée ; vous avez voulu
 
 jeter le discrédit sur le Comité de Salut public, par d'injurieux pamphlets ; vous avez fait partie de la conspiration de Danton et de Fabre pour rétablir la royauté.
@@ -1492,7 +1438,6 @@ Ceux qui excitent votre pitié, les royalistes écrasés par Rossignol, respecta
 a) Davin. — C'est un Vendéen!
 b) Quelques bravos et beaucoup de protestations.
 Rien n'excuse le crime.
-La victoire. a)
 Accusateur, je t'accuse.
 Je dénonce au peuple ces paroles infâmes.
 FOUQUIER-TINVILLE, haussant les épaules
@@ -1505,12 +1450,9 @@ et cause bruyamment.
 Tais-toi, animal ! tu jettes des pierres dans mon jardin.
 J'en ai dit bien d'autres !
 
-LE PRÉSIDENT, à Westermann. à)
 Accusé, levez-vous.
 C'est à moi ? Tonnerre ! en avant!
-Votre nom ?
 Tu le sais bien.
-Votre nom ?
 
 WESTERMANN, haussant les épaules
 Faiseurs d'embarras ! — Demande-le au peuple.
@@ -1524,7 +1466,6 @@ a) Murmure de voix, intéressées. — Westermann….
 D'accord avec Philippeaux, vous avez tâché d'abattreles patriotes que vous aviez la charge de défendre.
 — Vos antécédents sont d'ailleurs déplorables.
 Vous avez eu trois accusations de vol.
-Tu mens, cochon! a)
 Je vais vous faire reconduire en prison pour insultes à la justice, et juger sans vous entendre.
 quinze ans, j'étais soldat. Le 10 août, j'ai commandé le peuple à la prise des Tuileries. J'ai combattu à Jemmapes. Dumouriez m'a abandonné en
 Hollande, au milieu des ennemis; j'ai ramené ma légion à Anvers. Ensuite j'ai été en Vendée ; j'ai donné de la tablature aux brigands de Charette et de Cathelineau. Savenay, Ancenis, le Mans sont gras de leurs charognes. Les jean-foutres m'accusent d'avoir été cruel; ils ne disent pas assez : j'ai été féroce pour les lâches® — Veut-on des preuves contre moi ? En voici: à Pontorson, j'ai fait charger par ma cavalerie mes soldats qui fuyaient. A Chàtillon, j'ai fendu la figure à coups de sabre à un offiLE PEUPLE
@@ -1568,8 +1509,6 @@ Infamie ! on nous étouffe ! b)
 Ce ne sont pas des juges, ce sont des bouchers.
 Tu n'as pas tout lu. Il y a encore autre chose. La réponse ! La réponse à notre demande! c)
 La Convention donne communication de la lettre suivante, que les Comités ont reçue de l'adminisLE PEUPLE , a) Mouvement. La foule chuchote. Puis, crescendo rapide. — Ah! bien, c'est fort! — Conversations bruyantes.
-
-c) Oui! Oui! La réponse d) Silence glacial.
 
 tration de la police, afin que le tribunal voie quel péril menace la Liberté. a)
 
@@ -1666,7 +1605,6 @@ La Convention sera bien vide demain. Je bäille la pensée que ceux qui nous sur
 Ils ne l'entendront plus longtemps. J'ouvre la fosse, Robespierre m'y suivra.
 J'eusse voulu voir pourtant le développement du caractère de certaines petites canaiïlles : Barras, Talien, Fouché. Mais il ne faut pas trop demander.
 Allons-nous en, Hérault.
-Ils sortent.
 CAMILLE, s'accrochant à son banc, d'où les gendarmes l'arrachent
 Je ne veux pas partir ! Vous voulez me tuer en
 
@@ -1703,14 +1641,12 @@ Cette garce m'a trompé; elle me sacrifie aujourd'hui ; elle sacrifiera Robespie
 Il sort avec Philippeaux.
 J'invite le jury à déclarer s'il est suflisamment instruit. ,
 Le jury se retire pour en délibérer.
-Le jury sort.
 La foule est houleuse, indécise, mal disposée. —
 Au dehors, on entend la voix de Danton, et les vociférations du peuple. — Le public se presse aux fenêtres. Quelques gens du tribunal vont aussi voir. a) Ceux qui sont dans la salle répètent les paroles du dehors, d'abord à mi-voix, puis plus fort.
 a) LE cLerc, se penchant à la fenêtre. — Les voilà qui sortent!
 LE PEUPLE, qui est autour de lui, se pressant pour voir. — Voyons, voyons...
 Le czerc. — Desmoulins hurle et se débat.
 riLLE. — Pauvre diable! il est fou; ses habits sont déchirés; il a la poitrine nue.
-Le cLErc. — Danton parle.
 Le PEUPLE. — Écoutez ! — Voix de Danton, au dehors.
 Le PEUPLE, au dehors. — Vive Danton! Fouquier à la lanterne !
 Le PEUPLE, au dedans, répétant les cris du dehors. —
@@ -1719,7 +1655,6 @@ L'émeute commence. Nous allons être écharpés.
 Empêchons que ces cris influent sur l'esprit du jury. Allons les éclairer.
 Ils sortent. La foule proteste contre Vadier et
 Fouquier, qui entrent dans la chambre du
-LE PRÉSIDENT, époufanté
 
 Citoyens... la sainteté du tribunal... le respect de
 
@@ -1774,7 +1709,6 @@ Une grande clameur s'élève. a) Débandade générale. La foule se bouscule et 
 VADIER, regardant la foule d'un air gouailleur
 Le cœur est bon, mais l'estomac meilleur.
 Le jury rentre. La monotonie des questions du président se perd dans les cris de la foule qui s'éloigne. Graduellement, le bruit s'éteint au dehors, et la voix d'Herman se fait entendre plus nettement. La sentence est prononcée dans un silence de mort.
-LE PRÉSIDENT, AUX jurés
 Citoyens jurés, — il a existé une conspiration tendant à diffamer et avilir la représentation nationale, à rétablir la monarchie et à détruire par la.
 a) Brouhaha général. — Laisse-moi passer. — Après moi, donc! — Je suis pressé. — Eh bien, et moi? — Tu attendras! — Au diable! — Vite! — Attends, je veux voir la fin.
 Deux vViEUxX BOURGEOIS. — Allons doucement, et laissons-les crier. Pas à pas, on va bien loin.

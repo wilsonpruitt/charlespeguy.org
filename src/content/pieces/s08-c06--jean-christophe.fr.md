@@ -10,29 +10,17 @@ wordCount: 18264
 paraissant seize fois par an
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-ASANT EE À Le Ait ALORS PR EN NNE a à
-ee À QI PEN 4 * Us dre De VERNIS d'A dre , *
-de US ER RATS RE RER SEC
-| “ à : DES
-| à =: LT Le Lee
-
-LA OR RM AUS Nice A A AT MNT AMEN) NN TO Etes MO UE
-
-fe Fe ni à AA ALL ENCORE EN
-
 PA) Nous avons publié dans nos éditions antérieures et
 
 it dans nos cinq premières séries, 1900-1904, un Si 18)
 
 _ grand nombre de documents, de textes formant dos- 74
-ue siers, de renseignements et de commentaires; — un 10
 el si grand nombre de cahiers de lettres, — nouvelles, :
 a romans, drames, dialogues, poèmes et contes; — un
 4 si grand nombre de cahiers d'histoire et de philo-  « Ke sophie; et ces documents, renseignements, textes, pl hi
 HE dossiers et commentaires, ces cahiers de lettres, "M
 VA d'histoire et de philosophie étaient si considérables se à
 nf que nous ne pouvons pas songer à en donner ici C0
-| PF A É je ë +410
 He l'énoncé même le plus succinct; pour savoir ce qui a “AT
 K aru dans les. cinq premières séries des cahiers, il
 
@@ -50,7 +38,6 @@ autant qu'il se pouvait, une image en bref, un raccourci, 5e =
 1 Ce catalogue, in-18 grand jésus, forme un cahier AE
 Et très épais de XI1+-408 pages très denses, marqué cinq HR
 
-nn AE PUR: FRQUE LE er RE À æ 2) 4 à PARLE AU
 francs; ce cahier comptait comme premier cahier de à
 4 sixième série et nos abonnés l'ont reçu à sa date, le ; 14 1
 2 octobre 1904, comme premier cahier de la sixième AN
@@ -59,7 +46,6 @@ F _ série; toute personne qui jusqu'au 31 décembre 1905 (FEU
 __  vait, par le fait même de son abonnement, en tête de la É me
 1 _ série; nous l'envoyons contre un mandat de cinq francs 4 $ 3
 ._ à toute personne qui nous en fait la demande. AS:
-#4 . Û n . We:
 _ Pour la septième série, année ouvrière 1905-1906, et PR
 …. en attendant que paraiïsse le catalogue analytique som- su
 É maire de nos deuxièmes cinq séries, 1904-1909, on #5 n » peut consulter, — provisoirement, — la petite table a
@@ -73,14 +59,6 @@ _ tique sommaire dans l'index total de nos éditions anté- We ;
 3 _ rieures et de nos sept premières séries, même premier JF
 … cahier de la huitième série. VA
 
-PORR dr PA OA QUES MA RAA EVA SR
-
-nn SA Del a 4 2 { ANS Aion DANS
-
-Ÿ vi qi qu MURS À L j 1 À (TES RE DTA? AU 47 ARC )
-
-PA be le ER VUE TOI
-: ELA URLS BAT FU à nr AA FAURR PR Fr, LA # Wie
 AVR aux Cahiers de la Quinzaine LE
 4 e à Le présent petit index donne automati- : NOR
 <% quement pour tout volume et pour tout ‘eu ee
@@ -92,27 +70,19 @@ Pare du cahier lui-même, dans la série ainsi Me:
 nur FR déterminée, en chiffres arabes, de sorte F4
 4 que V-17 par exemple doit évidemment se 4 pu
 EU:* lire dix-septième cahier de la cinquième Ur
-A b) la date du bon à tirer, ou, à son dé- il \ SA
 . UN faut, la date du fini d'imprimer, ou, à son h 5
 4 défaut, la date du cahier même; 4:11
-Si c) le prix actuel; RER
 Ne d) quand il y a lieu, c'est-à-dire pour nos } ke ol
 É: ; éditions antérieures et pour nos cinq pre- r ME
 0 mières séries, la page du catalogue ana- ee
 10 lytique sommaire où ce cahier se trouve É GR
 _ Romain Rolland, — Aërt, — trois actes, — premier août JA ‘5
 ‘4 __ 1898, un volume en voie d'épuisement.. sept francs 2 PA
-M.  — — le Triomphe de la Raison, — trois actes, — 20 oc- # ie x
 _  tobre 1899, un volume en voie d'épuisement.............. : Ce
-L'E dl É LE ru
-| Le : V — — Les Loups, — trois actes, — octobre 1898......... fl ARE
 el #3 — — Danton, —trois actes, — (I-6, Jeudi 7 février 1901, je ne
 ni: K un cahier épuisé, n'est plus mis en vente que dans les col :
 Pig complètes de la deuxième série............... 29 LR
 
-| A CRE AM Le
-
-SE MST NE du même auteur} 11"1N MONNIER
 Le A Romain Rolland, — une introduction à une Lettre inédite HU
 a de Tolstoi, adressée à Romain Rolland (9, samedi
 à à — — Le 14 juillet, action populaire, — trois actes, — 0
@@ -126,13 +96,11 @@ ni — — Le temps viendra, — trois actes (V-14, mardi À
 A — — le Théâtre du Peuple (V-4, mardi 24 novembre FA
 rie . 1903, un cahier épuisé, n'est plus mis en vente que dans ji
 Go les collections complètes de la cinquième série ..... 9277 + #4
-de RL
 À Ke — —  — — le même sous couverture Fischbacher, OO « VS quelques exemplaires .............. trois francs cinquante …
 US — — Jean-Christophe. — X. — L'aube (V-9, mardi 2 fé à M
 je prier I904........sie.......:. trois francs Cinquante LS19 PSS
 fa .: — — Jean-Christophe. — I. — L'aube, — édition Ollen- 40
 ‘g dorff, en vente à la librairie des cahiers..:............... 21
-# É ‘TT
 ï ÿ — — Jean-Christophe. — IL. — Le matin; la mort de.
 1l Jean-Michel; Otto; Minna (V-10, mardi 16 février 1904 .... C4
 Das — — Jean-Christophe. — I. — Le matin, — édition DT
@@ -140,7 +108,6 @@ L à Olleñdorff, en vente à la librairie des cahiers ............
 la trois francs cinquante 4
 
 NS _ Romain Rolland, —Jean-Christophe. —TIL. — l'adolescent; es
-ne MORE va : = È « SITE GAAE  }
 “y la maison Euler ; Sabine; Ada (VI-8, mardi 10 janvier 1905, a ne
 ‘ AK” _ — — Jean-Christophe. — I. — l'adolescent, — édition Pur ‘4
 _  Ollendorff, en vente à la librairie des cahiers.............. MAR
@@ -148,9 +115,6 @@ _  Ollendorff, en vente à la librairie des cahiers.............. MAR
  — — Vies des hommes illustres, — la vie de Michel- En si
 Ange, — IL. — l'abdication (VIII-2, mardi 16 octobre 1906... LT
 ‘ie — — Jean-Christophe. — IV. — la révolte. — 1 —
-: 11H L Ë trois francs FLO
-EU: he : L{HÉNEPES
-s Mes 'à PÉDY-LPS DES
 
 Lee Il a été tiré de ce cahier treize exemplaires sur ‘4
 " swhatman ainsi distribués : ‘4
@@ -161,7 +125,6 @@ on ministrateur;
 4 troisième exemplaire de souche, exemplaire de lim- {
 Ie dix exemplaires d'abonnement, numérotés de 1 à 10 #
 S Tous nos exemplaires sur whalman sont numérotés &
-# à : PTE : Es
 13 à la presse et imprimés au nom du souscripteur ; nos è
 (8 tirages d'exemplaires sur whatman sont rigoureuse- à
 di ! stant souscrits; nous ne vendons point d'exemplaires
@@ -174,7 +137,6 @@ U ; Les Cahiers de la Quinzaine sont composés à la main, ;
 ‘ en caractères fin dix-huitième siècle (Didot) de la fon- He
 +4 è derie Mayeur (Allainguillaume et compagnie succes- fl
 | seurs) 21, rue du Montparnasse, à Paris, sixième h
-bi P AME SES
 
 / Note du gérant. — De ce petit index il résulte que
 Jean-Christophe se compose présentement de quatre
@@ -229,11 +191,9 @@ D: parties qui feront respectivement trois cahiers.
 1 ue . Première partie de ce quatrième livre : Sables mou- 18
 \ 20 vanis; cette partie formait le quatrième cahier de la #
 1 ï huitième série, un cahier blanc de 160 pages, marqué a:
-NE trois francs ; 51
 : À Deuxième partie de ce quatrième livre : l'enlisement ; À
 di c'est le présent cahier, sixième cahier de la huitième k
 10 série, un cahier blanc d'environ 144 pages, marqué si
-#0 trois francs ; (fl
 pale Troisième partie de ce quatrième livre : la délivrance, se
 
 Ch un cahier à paraître dans cette huitième série, qui sera . A
@@ -242,9 +202,6 @@ SE Pour avoir les quatre premiers livres de Jean-Chrisdl tophe, il suffit d'envo
 : cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, fl
 ul cinquième arrondissement. On recevra par le retour |
 ri les quatre cahiers indiqués ci-dessus formant les trois M:
-Ne oh
-
-A Eat LL OUR ER TES
 
 |!" premie "s livres et la première partie du quatrième .
 _ le présent cahier formant la deuxième partie du Ve
@@ -252,53 +209,19 @@ _ le présent cahier formant la deuxième partie du Ve
 …_ Le dernier cahier formant la troisième et dernière ER
 _ partie de ce quatrième livre. ? LT
 He: le gérant ES
-P: Comme on va le voir ci-après, la pagination du pré- FAR VIE
 _ sent cahier, deuxième partie du quatrième livre, fait Ste
 
 … suite à la pagination du cahier rappelé ci-dessus, pre-
 … mière partie de ce quatrième livre. Pages 57, 64, 140, a BE
 
 … quise trouvent par conséquent dans cette première FA Fe
-4 We partie, tout le monde a lu et je prie qu'on rétablisse Ro.
 …  Hebbel, au lieu de Hebel. C'est le grand Hebbel qui est # ui
 F4 notre homme, Friedrich Hebbel, Yauteur de Judith et FT
 M le plus puissant dramaturge allemand du dix-neuvième ui je
 PM Siècle, avec Henri de Kleist, et non l'autre, Johann RO
 ' je _ Peter Hebel, le poète dialectal bien connu des environs F4,
 
-| de Bâle. : 10e
-
-D he RTE OA PTRO Len PR UE RAT PARA TARN NS BA LME De
-st PURES LOVE Ÿ ? Pie à V | LE SPA
-Que, L'AUTRE
-7h fx Les Hd Ar d n
-
-| rt ARS VA
-
-L 11 tu NERenrs FANS TRE FA PANNE ENS
-DE i MAY LEE AE ve ' Free Qu in tr ar V4
-#1) AE Au APTE l EA f Mi on AU 2 4 (TR
-We an k | SA TETE TON
-
-4 5 RTE, TR Pt MTS sn ES TRES Des PRONTORT DEM PEN ATE
-#5 ‘ tie 7 e : (TL NESES
-Dit 4 THE
-
-Ne ET ï te 3 ERAE NAS Fe
-
-LORS MA on dx ÿ AA A (Aa LT FA TANT
-LPS OUR où AA ” (i ATEN RL TR Ne Li AUS
-REFTRU PR MAR et 4 ARR PRE rit IATTNN KE (
-
-| AE PARTIE ON A RP A RS AE PET VEN
 | APASERS l'enlisemen ee
-| MARNE SAN 3 : À LLRSER
-
-:} VON Ent joue , 1 RER PARATRE AREA SUR TUN 25 SENTE ES
-
-Dent ; Ne 1, NUE fe
-
-}'XY OR U EN À pet % ul AA NOTA LU Le
 
 Christophe en était là de ses expériences un peu à
 désabusées sur l'Allemagne, quand vint à passer dans a
@@ -322,14 +245,12 @@ $ A la Revue de Waldhaus, on en faisait grand bruit. WE É
 É C'était enlever à Christophe le désir de le connaître Rio
 ne davantage. Mannheim l'assommait avec ses éloges F2
 3 de Paris. Il y avait été plusieurs fois; il avait là une 1}
-L partie de sa famille : — il avait de la famille dans à k
 4 tous les pays d'Europe; et, partout, elle avait pris la Men F
 “ nationalité et l'aspect du pays: cette tribu d'Abraham A
 Ÿ comptait un baronnet anglais, un sénateur de Belgique, $ É
 j un ministre français, un député au Reichstag, et un val
 comte du pape; et tous, bien qu'unis et respectueux de L.
 
-k Jean-Christophe 2 4
 la souche commune dont ils étaient sortis, étaient sin- r
 cèrement Anglais, Belges, Français, Allemands, ou #
 papalins : car leur orgueil ne doutait point que le pays 1
@@ -401,7 +322,6 @@ qu'il avait dit à ses amis, il n'en voulait pas démordre; ;
 
 nn Jean-Christophe l'UE
 AE ve et il fût resté chez lui, ce soir-là, comme le précédent, si, A1 .
-ï A au moment où il rentrait mélancoliquement, le hasard Fe:
 (de 4 ne l'avait mis en présence de Mannheim. 10
 we ! Mannheim l'attrapa par le bras, et lui raconta d'un
 ul air furieux, mais sans cesser de gouailler, qu'une vieille à
@@ -425,27 +345,22 @@ si RE s'y pavane avec la femme Grünebaum et leur dinde de ‘4
 os leur dire de très désagréable. Mais cela leur est bien 3 à
 PA égal, pourvu que je leur apporte des billets, — quoi- L
 Va qu'ils aimeraient encore mieux que ces billets fussent 4
-de de banque. : 1
 Ve 1 s'arrêta brusquement, la bouche ouverte, regardant
 ‘4 ù — Oh!... Mais voilà... Voilà ce qu'il me faut! 4
 4 : — Christophe, tu vas au théâtre? À
 di — Si fait, Tu vas au théâtre. C'est un service que je %
 fo te demande. Tu ne peux pas refuser. à 4
 
-CR PES VE ne
 0 Christophe ne comprenait pas : 4
-i — Mais je n'ai pas de place. L , 4 $
 s — En voilà! fit Mannheim, triomphant, en lui fourrant NA
 de force le billet dans la main. < à
 | — Tu es fou, dit Christophe. Et la commission de ton Au
-père ? \ de
 — Il sera dans une colère! fit-il. \
 ‘ Il s'essuya les yeux, et conclut : ]
 ne — Je le taperai demain matin, au saut du lit, avant ae
 k qu'il sache encore rien. ñ n:
 ‘à — Je ne peux pas accepter, — dit Christophe, — sa- N
 14 chant que cela lui serait désagréable. }
-à :— Tu n'as rien à savoir, tu ne sais rien, cela ne te f
 regarde pas. é
 Ë. Christophe avait déplié le billet : |
 ; — Et que veux-tu que je fasse d'une loge de quatre À
@@ -456,15 +371,12 @@ regarde pas. é
 à — Non, décidément. Reprends-le. Gi
 nr — Jamais de la vie, fit Mannheim, en reculant de 30
 M - quelques pas. Je ne peux pas te forcer à y aller, si cela ÿ ‘1
-‘4 t'ennuie; mais je ne le reprendrai pas. Tu es libre de le a
 ‘4 jeter au feu, ou même, homme vertueux, de le porter J ÿ
 U, aux Grünebaum. Cela ne me regarde plus. Bonsoir! 4
-34 I se sauva, plantant là Christophe, au milieu de la . m à
 de rue, son billet à la main. Bi
 | 5 Christophe était assez embarrassé. Il se disait bien <
 Fa qu'il serait convenable de porter les places aux Grüne- ;
 
-Jean-Christophe } 1
 baum; mais cette idée ne l'enthousiasmait point. Il | 1
 rentra, indécis; et, quand il s'avisa de regarder l'heure, L
 il vit qu'il n'avait plus que le temps de s'habiller pour {
@@ -491,11 +403,7 @@ ou jolie. Il avait passé devant elle; il s'arrêta un moment, se retourna, et, 
 — Vous n'avez pas trouvé de place, mademoiselle ? |
 demanda-t-il, à brûle-pourpoint. |
 | Elle rougit, et dit, avec un accent étranger :
-|
-|
 
-ont a RERO de dei #9 PACS. } DL EU 5 ' F Mer
-| its OMR ET RNLISEMENT: FE
 |  — J'ai une loge, dont je ne sais que faire. Voulez- F0
 54 vous en profiter avec moi? #8
 is Elle rougit plus fort, et remercia, en s'excusant de ne #6
@@ -510,18 +418,11 @@ D moi. Prenez, c'est de bon cœur, Bet.
 : 4 La jeune fille fut si touchée de l'offre, et de la façon à
 . cordiale dont elle était faite, que les larmes lui en TE
 2 montèrent presque aux yeux. Elle balbutia, avec recon- Un:
-# . . . je É vi 5 RE
 ‘% naissance, que jamais elle ne voudrait l'en priver. Ne ;
 b. — Eh bien, alors, venez, dit-il, en souriant. he.
 ‘4 Il avait l'air si bon et si franc ‘elle se sentit "
 ‘ honteuse de lui avoir refusé; et elle dit, un peu To
-É. — Je viens. Merci. ; ‘à
-on: l'enlisement. — 2 an) #
 
-GLS NU NE CAE ENT AVEC à ah st NE SPA UT MENT LA
-
-Al es Le OT AA) FH SA A NAT NA
-au hi RAR DO PA ne TON NOR AN OA EES
 une Ils entrèrent. La loge des Mannheim était une loge de f.
 _ face, largement ouverte : impossible de s'y dissimuler, ‘4
 ne si on l'eût voulu. Il est inutile de dire que leur entrée ne ; À
@@ -580,7 +481,6 @@ DA: homme. — (La chose n'est pas commune, aujourd'hui.) :
 NE — Le travesti enfantin et un peu ridicule de la Léonore
 ca de Beethoven ne lui était déjà pas agréable. Mais celui É
 
-ï Jean-Christophe M A
 ; d'Hamlet passait tout ce qu'on pouvait rêver, en fait #12
 \ d'absurdité. Faire de ce robuste Danois, gras et 14
 ie blême, colérique, rusé, raisonneur, halluciné, une femme, ‘4
@@ -614,7 +514,6 @@ débordaït de vie. Malgré tous ses efforts pour s'enfer- #|
 mer dans son rôle, la force de jeunesse et de joie qui ;
 ! était en elle rayonnait de sa chair, de ses mouvements, ï
 
-se L'ENLISEMENT "
 | de ses gestes, de ses yeux bruns, qui riaient malgré 4
 elle. Tel est le pouvoir d'un beau corps, que Christophe, 12
 | impitoyable l'instant d'avant pour l'interprétation S
@@ -653,7 +552,6 @@ a extravagances. — Il ne se trompait pas : cette âme de
 F jeune filie, que le hasard avait rapprochée de lui pour
 fl quelques heures, était d'une réserve presque malaje ‘ 163 Venlisement. — 2. ë
 
-AL Jean-Christophe LIRE 1
 1 _ dive: il avait fallu qu'elle fût dans un état d'exaltation È je À
 ÿ M anormal pour qu'elle eût osé accepter l'invitation de 40
 À | Christophe. A peine avait-elle accepté, qu'elle eût ot
@@ -668,14 +566,12 @@ je part; et, quand il était venu s'asseoir à côté d'elle, elle - 14
 ane _ avait été glacée d'effroi : quelle excentricité n'allait-il d ie 4
 ft k pas encore faire ? Elle eût voulu être à cent pieds sous f
 pa) terre. Elle se reculait instinctivement; elle avait peur 9 ÿ
-: ie de l'effleurer. 4
 e Mais toutes ses craintes tombèrent, lorsque, l'entr'acte TA à
 nie venu, elle l'entendit lui dire avec bonhomie : Bi
 4 — Je suis un voisin bien désagréable, n'est-ce pas ? 4
 He Je vous demande pardon. 5
 “dE Alors, elle le regarda, et elle lui vit son bon sourire, 1
 qui l'avait tout à l'heure décidée à venir. ‘1
-| Il continua : 4
 — Je ne sais pas cacher ce que je pense... Mais aussi, A
 ; c'était trop fort! Cette femme, cette vieille femme !.… À 4
 Il fit de nouveau une grimace de dégoût. ÿ
@@ -690,7 +586,6 @@ he Il regarda sa modeste petite robe : 1
 LE Elle rougit, et dit : x
 À — Quel pays? - S
 Elle dit : ; #
-1 — Je suis Française.
 6 Il fit un geste d'étonnement : je
 ù — Française? Je ne l'aurais jamais cru. PAL
 D — Pourquoi? demanda-t-elle timidement.
@@ -719,8 +614,6 @@ Ro. Il ajouta, après un instant de silence : |
 54 çais? demanda:t:il. g
 dE Il croyait plaisanter : il avait touché juste. x
 
-ju Nas à OR ET ANR AU jus
-nr Jean-Christophe EPA
 — Ah! fitelle avec un accent de sincérité qui le L
 frappa, cela me fait tant de bien! J'étouffe ici. ‘544
 Il Ja regarda mieux, cette fois : elle crispait légère- ÿe À
@@ -728,10 +621,8 @@ Il Ja regarda mieux, cette fois : elle crispait légère- ÿe À
 É elle songea à ce qu'il pouvait y avoir de blessant pour SR
 lui dans cette parole : ne
 — Oh! pardon, dit-elle, je ne sais pas ce que je dis. En
-IL rit franchement : ‘1
 — Ne vous excusez donc pas! Vous avez joliment rai- 1
 son. Il n'y a pas besoin d'être Français pour étouffer ici. À
-| Ouf! ;
 | . Il leva les épaules, en aspirant l'air. ‘4
 Mais elle avait honte de s'être ainsi livrée, et elle se
 tut désormais. D'ailleurs, elle venait de s'apercevoir :
@@ -754,10 +645,7 @@ Les couloirs, le foyer, étaient vides. Dans son agitation, i
 il descendit les escaliers du théâtre, et sortit, sans s'en 4
 apercevoir. Il avait besoin de respirer l'air froid de la fl
 
-Fc ne ARE HER IDR 2. Lea ï 1 Hu
-# J ; 518
 nuit, de marcher à grands pas dans les rues sombres 4
-et à demi désertes. Il se retrouva au bord d'un canal, Ne ie
 à accoudé sur le parapet de la berge, et contemplant Her
 l'eau silencieuse, où dansaient dans l'ombre les reflets | “ ÿ
 ; des réverbères. Son âme était pareille : elle était ob- 3
@@ -769,7 +657,6 @@ Fortinbras? Non, cela ne le tentait pas. Beau L
 __ triomphe! Qui pense à envier le vainqueur? Qui vou- 2
 _  drait être lui, après qu'on a été gorgé de toutes les ve
 d sauvageries de la vie féroce et ridicule? Toute l'œuvre +4
-| Are 2e : L. " KES
 % est un réquisitoire formidable contre la vie. Mais une PA
 4 telle puissance de vie bout en elle, que la tristesse 1 » devient joie, et que l'amertume enivre.. j Ne
 da Christophe revint chez lui, sans plus se soucier de j 11
@@ -843,7 +730,6 @@ I baragouinait un peu .de français, elle baragouinait SE
 …_ intelligeñte et expansive, qui eût crevé d'ennui, au LS,
 ft milieu de ses stupides compagnons et d'un pays dont 5
 
-Hs Jean-Christophe LAINE |
 ; ÿ elle ne savait pas la langue, sans la joie naturelle qui Ua
 était en elle, était heureuse de trouver à qui parler.
 Quant à Christophe, c'était un bien inexprimable pour HS 14
@@ -915,7 +801,6 @@ tête en récitant son rôle; ses épingles à cheveux tom- 1
 _ obstiné refusait d'entrer dans sa mémoire, elle avait
 —_. des impatiencés d'enfant mal élevée : il lui échappait ;
 
-Fe Jean-Christophe TRES Lu À
 parfois un juron drôlatique, ou même d'assez gros mots, {
 — un très gros et très court, dont elle s'apostrophaïit 1
 elle-même. — Christophe était surpris de son mélange ne
@@ -929,7 +814,6 @@ c'étaient alors des coq-à-l'âne burlesques. Elle ne s'en \
 affectait point; quand elle s'en apercevait, elle en riaït k:
 à se tordre. A la fin, elle dit : « Zut! », elle lui arracha ;,
 le cahier des mains, le lança à la volée dans un coin à
-. de la chambre, et dit : n
 — Vacances ! L'heure est sonnée !.. Allons nous promener ! En
 Un peu inquiet au sujet de son rôle, il demanda, par k
 — Vous croyez que vous saurez ?
@@ -1004,7 +888,6 @@ M 1 s'amusa dès lors à faire choix d'œuvres de plus en
 
 3 173
 
-Fi Jean-Christophe RTE ‘hi
 5 lièrement neuve, dont Christophe avait presque fini par ê
 | douter, parce qu'il n'avait jamais réussi à la faire goûter LÉ
 u en Allemagne, quel fut son étonnement, quand Corinne le (xs
@@ -1016,7 +899,6 @@ Elle se mit à rire, et expliqua qu'elle avait débuté
 comme chanteuse dans un opéra de province, maïs J
 qu'un impresario en tournées avait reconnu ses disposi-
 À tions pour le théâtre poétique et l'avait poussée de ce ki
-L côté. IL s'exclamait : :
 , — Pourquoi? fit-elle. La poésie est aussi une musique. J
 Elle se fit expliquer le sens de ses Lieder ; il lui disait
 NE les mots allemands, et elle les répétait avec une facilité
@@ -1035,9 +917,7 @@ pourquoi elle aimait ou n'aimait pas une chose, il y
 avait toujours dans ses jugements une raison cachée.
 \ Chose curieuse, c'était dans les pages les plus classiques |
 _et les plus appréciées en Allemagne qu'elle se trouvait |
-|
 
-as L'ENLISEMENT ta
 : le moins à l'aise : elle faisait quelques compliments, par ï
 . politesse; mais on voyait que cela ne lui disait rien. f:
 Comme elle n'avait pas de culture musicale, elle n'avait À
@@ -1069,11 +949,7 @@ semblaient toutes naturelles à Christophe : elle éprou-
 S à même, elle aimait mieux passer la mesure. Alors, il la
 1 — Vous n'aimez pas cela? demandait-il. ë
 4 Elle fronçait le nez.
-| A EU 1
 
-ses IRAN
-
-: x Jean-Christophe FF HER À :
 | — C'est faux, disait-elle. &
 À. ;$ — Non pas, faisait-il en riant, c'est vrai. Réfléchissez Fe
 | à ce qu'il dit. Est-ce que ce n'est pas juste, ici ? #3
@@ -1115,7 +991,6 @@ assister. Elle lui fit promettre de revenir la prendre
 
 dans l'après-midi du lendemain, pour faire la prome- À
 
-|
 < Le lendemain, la même scène faillit se renouveler. Il £
 trouva Corinne devant son miroir, juchée sur un haut 4
 È tabouret, les jambes pendantes : elle essayait une per- 4
@@ -1140,7 +1015,6 @@ Me C'était parce que le coiffeur parisien s'était trompé
 Le qui ne convenait pas au rôle :
 if — Toute plate, disait-elle, et tombant tout droit, bêteha
 
-( ÿ Jean-Christophe 7 à
 ES + ment. Quand j'ai vu cela, j'ai pleuré, pleuré comme une h
 Ÿ Madeleine. N'est-ce pas, madame Désirée? Fe
 ‘% Elle s'adressait à l'habilleuse.) FRS
@@ -1210,9 +1084,7 @@ ma émut pas, tira bravement sur l'étoffe qui craqua, et
 ! continua de grimper, en se retroussant gaillardement.
 Peu s'en fallut qu'elle ne sonnât les cloches. Du haut
 des tours, elle déclama du Victor Hugo, auquel il ne
-| 179 l''enlisement. — 3. :
 
-â Jean-Christophe UT
 comprit rien, et chanta une chanson populaire française. c
 Après quoi, elle fit le muezzin. — Le crépuscule tom- k Li
 ÿ baït. Ils redescendirent dans l'église, d'où l'ombre "
@@ -1238,7 +1110,6 @@ pris, il fut aussi content que Corinne, et se rendit 4
 aussitôt à l'hôtel. Il craignait de trouver toute la troupe f
 réunie au diner ; mais il ne vit personne. Corinne même ÿ
 avait disparu. A la fin, il entendit sa voix bruyante ét )
-riante, tout au fond de la maison; il se mit à sa pi
 recherche, et parvint à la découvrir dans la cuisine. 11
 Elle s'était mis en tête d'exécuter un plat de sa façon, x]
 un de ces plats méridionaux, dont l'arome exubérant 1
@@ -1347,7 +1218,6 @@ Pau et, quant à jouer l'amour, en l'absence de l'amour,
 à c'était là une idée qui ne lui serait jamais venue.
 1 Corinne s'amusait de sa froideur. Assise auprès de
 
-ÿ Jean-Christophe ‘ ; À
 _ Jui, devant le piano, tandis qu'il jouait les morceaux { |
 qu'il avait apportés, elle avait passé son bras nu autour À
 du cou de Christophe, et, pour suivre la musique, elle L :
@@ -1368,7 +1238,6 @@ et semblait se tenir à quatre pour ne pas éclater. î
 — Qu'est-ce que vous avez? dit-il, étonné. #
 Elle le regarda, et partit d'un bruyant éclat de rire. je
 
-| Il n'y comprenait rien : ;
 — Pourquoi riez-vous ? demandait-il, est-ce que j'ai |
 
 dit quelque chose de drôle ?
@@ -1383,8 +1252,6 @@ son aise; son corps riait tout entier. Il fut gagné par son 1
 } rire, il vint vers elle, et lui donna de petites tapes dans fl
 le dos. Quand elle eut ri tout son soûl, elle releva la À
 tête, essuya ses yeux qui pleuraient, et lui tendit les |
-
-| deux mains : :
 
 | — Quel bon garçon vous faites! dit-elle. 4]
 — Pas plus mauvais qu'un autre. |
@@ -1413,7 +1280,6 @@ h — C'est pour ça qu'on l'aime... Il viendra la voir à
 : — C'est promis... Et elle, elle m'écrira?
 
 1 — C'est juré... Dites aussi : Je le jure. 1
-ÿ — Je le jure. |
 ; — Non, ce n'est pas comme cela. Il faut tendre la main.
 $ Elle imita le serment des Horaces. Elle lui fit pro- |
 
@@ -1437,7 +1303,6 @@ FN Christophe une photographie qui la représentait nue '
 
 ‘ comme frère et sœur. Et vraiment, depuis que Corinne 4
 
-Jean-Christophe LUS
 avait vu que Christophe l'aimait bien, mais que déci- 1
 LA dément il n'était pas amoureux d'elle, elle s'était mise à
 à l'aimer bien aussi, sans amour, comme une bonne ï
@@ -1501,7 +1366,6 @@ Quand il partit, elle quitta la table pour lui faire ses
 renouvelèrent leurs promesses de s'écrire et de se revoir.
 Il reprit le dernier train, pour rentrer chez lui. A une j
 
-à Jean-Christophe ARR
 me station intermédiaire, le train qui venait en sens inverse +4
 attendait. Juste dans le wagon arrêté en face du sien, 1 1
 — dans un compartiment de troisième, Christophe vit ;
@@ -1554,12 +1418,10 @@ souvenir de la gentille actrice, avec un mélange de plai- #
 “ réveiller sa mère, qui dormait à côté. |
 k Un mot qu'il avait entendu, l'autre soir, dans la loge, #
 A lui revint à l'esprit : 2
-: — Il y en a d'autres, aussi.
 A Dès sa première rencontre avec la France, elle lui È
 : posait l'énigme de sa double nature. Mais, comme tous $
 4 les Allemands, il ne s'inquiétait point de la résoudre; k
 $ et il répétait tranquillement, en songeant à la jeune fille $
-C du wagon : :
 24 — Elle n'a pas l'air Française. ' |
 du Comme s'il appartenait à un Allemand de dire ce qui ù
 à est Français et ce qui ne l'est point. É
@@ -1575,7 +1437,6 @@ tal venir, dès le premier instant; mais il n'y avait pas n
 ï les épaules, dans son lit : à
 ii — Qu'est-ce que cela peut bien me faire? se dit-il. 4
 h Cela ne me regarde pas. 13
-à Il se rendormit. 4
 A Mais, le lendemain, la première personne qu'il ren- F.
 | contra en sortant fut Mannheim, qui l'appela « Blücher », 4
 ‘4 et lui demanda s'il avait décidé de conquérir toute la N:
@@ -1588,11 +1449,8 @@ Ba un grand homme. Je ne suis rien auprès de toi. 4
 | de toi. Souffler la loge au nez des Grünebaum, et y à
 inviter leur institutrice française à leur place, — non, D
 ji cela, c'est le bouquet, je n'aurais pas trouvé cela! 1 ! |
-| 1 S 4)
 
-He sig _ L'ENLISEMENT “4
 — C'était l'institutrice des Grünebaum ? dit Christophe, É
-| stupéfait. ï
 | — Oui, fais semblant de ne pas savoir, fais l'innocent,
 je te le conseille !.. Papa ne décolère plus. Les Grüne- 1
 baum sont dans une rage'. Cela n'a pas été long : ils ,
@@ -1601,14 +1459,12 @@ ont flanqué la petite à la porte. ;
 Renvoyée à cause de moi? fi
 — Tu ne le savais pas? dit Mannheim. Elle ne te l'a
 pas dit ? . f
-Christophe se désolait. :
 — Il ne faut pas te faire de bile, mon bon, dit |
 Mannheim ; cela n'a pas d'importance. Et puis, il fallait
 + bien s'y attendre, le jour où les Grünebaum viendraient
 — Quoi? criait Christophe, apprendre quoi ? {$
 ; — Qu'elle était ta maîtresse, parbleu!
 ; — Je ne la connais même pas, je ne sais pas qui elle ;
-est.
 : Mannheim eut un sourire, qui voulait dire :
 É — Tu me crois trop bête. ; |
 À Christophe se fâcha, somma Mannheim de lui faire |
@@ -1623,7 +1479,6 @@ n est trop tard. La fille est loin, maintenant.
 Christophe, la mort dans l'âme, tâcha de retrouver la à
 es piste de la jeune Française. Il voulait lui écrire, lui
 
-ue Jean-Christophe A
 R demander pardon. Mais nul ne savait rien d'elle. Les
 Je ". Grünebaum, à qui il s'adressa, l'envoyèrent promener; 4
 qu ils ignoraient eux-mêmes où elle était allée, et ils ne f
@@ -1674,7 +1529,6 @@ ke la déclamation wagnérienne, se demandait depuis 1
 J longtemps si ce n'était pas un non-sens, une œuvre N
 contre nature, d'accoupler au théâtre et de ligoter
 
-Jean-Christophe a ‘4
 | ensemble dans le récitatif la parole et le chant : c'était 1
 comme si l'on voulait attacher au même char un cheval
 etun oiseau. La parole et le chant avaient chacun leurs
@@ -1707,9 +1561,6 @@ gnement, sans chercher à y fondre leur voix, mais À
 en tâchant au contraire qu'on n'entendit rien qu'eux, 1
 avait de quoi révolter toute oreille musicale. Mais, |
 depuis qu'il avait goûté l'harmonieuse voix de Corinne, # |
-|
-|
-|
 
 — cette voix liquide et pure, qui se mouvait dans
 la musique, comme un rayon de lumière dans l'eau,
@@ -1728,7 +1579,6 @@ Mais les théâtres se montraient peu disposés à tenter
 l'expérience; elle devait être coûteuse et paraissait
 # absurde. On admettait bien la compétence de Christophe en musique; mais qu'il se permit d'avoir des
 $ idées sur la poésie et sur le théâtre faisait sourire les
-É gens : on ne le prenait pas au sérieux. Le monde de la
 4 musique et celui de la poésie semblaient deux États
 étrangers l'un à l'autre, et secrètement hostiles. Pour
 k pénétrer dans l'État poétique, il fallut que Christophe
@@ -1740,7 +1590,6 @@ de fait, ii n'entendait rien aux poésies qu'on admiraïit
 autour de lui. Avec son honnêteté et son opiniâtreté
 ordinaires, il s'était donné bien du mal, parfois, pour
 
-Fi Jean-Christophe 2 PTE
 ) tâcher de sentir la beauté de telle ou telle d'entre elles; L
 mais il était toujours sorti de là bredouille, et un peu
 f honteux de lui-même : non, décidément, il n'était pas
@@ -1771,4 +1620,3 @@ d'archéologie. Agamemnon était neurasthénique, et ;
 Achille impuissant : ils se désolaient longuement de leur
 état; et naturellement, leurs plaintes n'y changeaïent Li
 rien. Toute l'énergie du drame était concentrée dans le F |
-ni

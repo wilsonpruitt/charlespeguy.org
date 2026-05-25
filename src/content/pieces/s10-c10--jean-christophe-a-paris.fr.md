@@ -7,21 +7,6 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 76519
 ---
-D PRE ne
-ETES Rte F2 L'PÉRSTSENERE
-+ LAS ARS ta THERE
-
-hG 17 Mais - FN AIRNESS
-Le LE PUR TA ARS USE RER SES tee
-1 et : PF at PR ER ES DR PS 4 MARIE SAT RSC
-
-Le PLNSRE FRANS * i De EU 0 ig BU, ri tr
-ne Re Ë me F Rd PATES
-154 HTVA k L Ces : RENE : pa
-ASE FSC ER Le DU De PAL Or ce a
-RE MAD ES CT FOIS TOO Ars de PE 24
-
-| AUX AMIS DE CHRISTOPHE
 J'ai tellement pris l'habitude, depuis des années, de
 causer mentalement avec mes amis absents, connus et
 inconnus, que j'éprouve le besoin de le faire tout haut, "
@@ -39,12 +24,9 @@ Ne d'année en année, j'ai senti davantage combien nous
 É des mêmes choses, en province comme à Paris, hors
 Ë. de France comme en France. J'en ai eu tout récemment
 
-| Romain Rolland Mn, is
 _- encore la preuve, à l'occasion de mon dernier volume,
 
 où Christophe décharge sa conscience — et la mienne
-
-FLE ESS de ce qu'il pense de la Foire sur la Place. Aucun
 
 de mes livres n'a trouvé un écho plus immédiat. C'est
 : qu'à vrai dire, il n'était pas seulement ma voix, mais
@@ -73,8 +55,6 @@ Pour cela, il me fallait un héros aux yeux et au cœur È
 
 purs, qui eût l'âme assez intacte pour avoir le droit de F:
 
-DR on ns + ! k ù
-> AUX AMIS DE CHRISTOPHE it
 LS É parler, et la voix assez forte pour se faire entendre. J'ai i
 - bâti patiemment ce héros. Avant de me décider à écrire
 
@@ -95,7 +75,6 @@ _. sa place marquée dans ce livre. Il ny faut donc pas A
 Le cours de route, une de ces grandes terrasses de la vie,
 É. _ d'où l'on contemple la contrée qu'on vient de traverser,
 L. et l'horizon lointain vers lequel on va se remettre en
-Le marche.
 
 > Il est clair que je n'ai jamais eu la prétention d'écrire
 - un roman, dans ces deux derniers volumes (la Foire sur
@@ -115,7 +94,6 @@ DE. y a des vies humaines qui sont des lacs tranquilles,
 
 _ d'autres des plaines fécondes, d'autres des cimes déchi-
 
-Romain Rolland
 quetées. Jean-Christophe m'est toujours apparu comme
 un fleuve; je l'ai dit, dès les premières pages. — Il est
 des zones dans le cours des fleuves, où .ils s'étendent,
@@ -128,18 +106,6 @@ loin, soudain, au premier obstacle. Tel est le cas des
 qu'il s'est longuement amassé, absorbant les pensées de
 l'une et l'autre rives, il va reprendre son cours vers la
 mer, — où nous allons tous.
-
-LÉ CARTER ET SES nr RAA Hé CHE te
-f ES RETENIR ET ET ee ALU OP Mons ru LR EE Ain TA
-LUS CRE FAT EAU PRIT T'ES TA ave
-PSS AE PAS TS Axe 2 ÊTES ASE ss VERRE
-
-45 Brie ÉTRR ES de TRE es FER Ge
-PC AT NE POS SL cr ie DE CARS "4 LR RCD. È
-FSU GAS 1 SIRET RE ef NC RECU Ne US SRE
-0 SEE + z tac DE 25 7. Lies te Fe
-| SrUPESRE RÉ - * An 0, Se AAC 2
-HE es . GA ES CURE A MAR La
 
 : J'ai un ami! Douceur d'avoir trouvé une âme, où se î
 4 blottir au milieu de la tourmente, un abri tendreet sûr,
@@ -223,8 +189,6 @@ répétait Olivier avec effusion.
 — Dame! il le fallait bien, dit Christophe. Vous, vous
 ne seriez pas venu.
 
-|
-
 Ps Jean-Christophe à Paris
 — Croyez-vous? dit Olivier. NACRE es
 - Puis, presque aussitôt : CRE
@@ -238,8 +202,6 @@ vous ne le désiriez pas autant.
 envie de vous voir, et je suis venu. Si cela vous ennuie,
 je le verrai bien.
 _ — Il faudra que vous ayez de bons yeux.
-: Ils se regardèrent en souriant. |
-Olivier reprit :
 — J'ai été soi, hier. Je craignais de vous avoir déplu.
 d C'est une vraie maladie que ma timidité : je ne puis :
 plus rien dire. ; .
@@ -257,7 +219,6 @@ voilà tout. Re
 mon choix. Quand je vois passer dans la vie un visage ‘À
 24 4
 
-ne DANS LA MAISON
 qui me plaît, je suis vite décidé : je me mets à sa
 poursuite; il faut que je le rejoigne.
 
@@ -304,7 +265,6 @@ _ êtes fort. Mais moi, je ne le suis guère. :
 c'est d'une autre façon. Au reste, je viens justement
 _ pour vous aider à être fort, si vous voulez. Car ce que
 
-SR li NE
 Jean-Christophe à Paris ESS
 -je viens de vous dire me permet d'ajouter, avec plus
 de franchise que je n'en aurais eu sans cela, que —
@@ -321,7 +281,6 @@ Christophe promenait ses regards autour de lui.
 
 — Ouf! on ne respire pas. Vous pouvez vivre ici?
 
-: — Je ne m'y ferais jamais. F
 Christophe ouvrait son gilet, et respirait avec force.
 
 Olivier alla ouvrir la fenêtre, tout à fait.
@@ -402,18 +361,14 @@ de Morale dans une École municipale.
 — Un cours de quoi ?
 — Quelle diable de sottise est-ce 1à? On enseigne la
 morale dans vos écoles? |
-Olivier sourit : |
-— Sans doute. É
 ë — Et il y a de quoi parler pendant plus de dix ‘
 — J'ai douze heures de cours par semaine. ù |
 — Vous leur apprenez donc à faire le mal? |
 — Il ne faut pas tant parler pour savoir ce qu'est le
-— Ou pour ne le savoir point. n Fe.
 { — Ma foi oui: pour ne le savoir point. Et ce n'est pas È
 la plus mauvaise façon pour le faire. Le bien n'est pas 24
 une science, c'est une action. Il n'y a que les neuras- :
 théniques, pour discutailler sur la morale: et la première |
-| 28 ;
 
 Le de toutes les lois morales est de ne pas être neurasthé-
 & nique. Diables de pédants ! Ils sont comme des culs-de__  jatte qui voudraient m''apprendre à marcher.
@@ -630,8 +585,6 @@ de son pouvoir, s'il n'en avait rougi, comme dur
 bonheur qu'il ne méritait pas : car il se regardait
 comme très inférieur à Christophe, qui n'était pas moins
 
-er Tes
-se DANS LA MAISON
 _ humble. Cette humilité mutuelle, qui venait de leur .
 grand amour, était une douceur de plus. Il était déli_ cieux — même avec la conscience qu'on ne le méritait
 pas — de sentir qu'on tenait tant de place dans le cœur
@@ -668,7 +621,6 @@ Christophe tressaillitt Le nom d'Antoinette fut un
 éclair pour lui.
 ds — Antoinette ? dit-il.
 — Ma sœur, dit Olivier. Ë
-Christophe répétait : -
 — Antoinette... Antoinette Jeannin.…. Elle était votre :
 sœur ?.. Mais, dit-il, en regardant la photographie qui
 était sur la table, elle était tout enfant, quand vous
@@ -704,8 +656,6 @@ donc? Pourquoi ne me le disais-tu pas ?
 _ histoire d'Antoinette; — mais il ne lui dit pas ce qu'il
 4 _ ne devait pas dire : le secret, qu'elle avait tu, — et que
 … Christophe savait peut-être, sans qu'il fût besoin de le
-#
-| ;
 
 Dès lors, l'âme d'Antoinette les enveloppa tous deux.
 Quand ils étaient ensemble, elie était avec eux. Il n'était
@@ -853,7 +803,6 @@ et peut-être grâce à elle, grâce à la lumière apaisante
 qui rayonne de certains morts aimés, comme la lueur |
 de l'aube qui rafraichit les yeux et l'âme des malades,
 Olivier était parvenu, sinon à se dégager de ces troubles,
-du moins à s'y résigner et à les dominer. Peu de gens se
 doutaient de ces combats intérieurs. Il en renfermait en <
 lui le secret humiliant, cette agitation déréglée d'un |
 corps débile et tourmenté, que considérait, sans pou- ,
@@ -871,7 +820,6 @@ l'éternel renouveau. Dans cet univers intérieur, où il se
 sentait libre, vaste, souverain, il oubliait sa faiblesse et
 ses angoisses physiques. Il y avait même quelque douceur à contempler de loin, avec une ironique pitié, ce
 corps souffreteux, toujours prêt à disparaître. Ainsi, l'on
-ne risquait pas de s'attacher à sa vie. Et l'on ne s'en
 attachait que plus passionnément à la vie. Olivier
 reportait dans l'amour et dans l'intelligence toutes les
 forces qu'il avait abdiquées dans l'action. Il n'avait pas
@@ -921,8 +869,6 @@ Mais transplantées en lui, dans une terre plus riche, 4
 
 4 les vertus de son ami poussaient avec une bien autre
 
-| énergie.
-
 ; , Ils s'émerveillaient tous deux de ce qu'ils décou-
 
 à . vraient l'un dans l'autre. Que de choses à partager!
@@ -948,7 +894,6 @@ a — Mon pauvre ami, lui dit Olivier, que sais-tu de la
 __ pour la connaître; il énuméra tous les Français qu'il
 _ avait vus dans le monde des Stevens et des Roussin :
 : Levantins, voire çà et là quelques Français authen-
-| tiques.
 & — C'est bien ce que je disais, répliqua Olivier. Tu
 ; n'en as pas vu un seul. Une société de débauche, quel-
 à ques bêtes de plaisir, qui re sont même pas Français,
@@ -1176,7 +1121,6 @@ E Tais-toi, ne parle pas, écoute.
 “4 de l'action, qui se perdait dans le lointain. Et s'élevait
 le chant divin du silence,
 à _ Le bruit d'abeilles, le parfum de tilleul. ;
-‘le Le vent, ;
 ‘2 Avec ses lèvres d'or frélant le sol des plaines.
 Le doux bruit de la pluie avec l'odeur des roses. —
 4 On entendait sonner le marteau des poètes, sculptant
@@ -1190,8 +1134,6 @@ __ des âmes,
 À Pour qui toute ombre est claire, .…
 y et la bonne douleur, qui vous berce, et sourit, 2 :
 TS De son visage austère, d'où descend À
-| Une clarté surnaturelle,…
-et
 La mort sereine aux grands yeux doux.
 
 | C'était une symphonie de voix harmonieuses et pures.
@@ -1319,7 +1261,6 @@ terres nouvelles dans cette mer intérieure. Plus que
 probablement, d'ailleurs, ils ne devaient rien faire de :
 | leurs conquêtes. Suivant leur habitude, ils étaient les
 fourriers du monde. mas
-| 59 |
 
 Jean-Christophe à Paris Rat MES
 Christophe admirait l'initiative de cette musique
@@ -1487,7 +1428,6 @@ De ce cercle d'airain de l'idéalisme guerrier, des Ë
 batailles de la Raison, — comme Virgile guidait Dante,
 
 ; Olivier conduisait Christophe par la main au sommet 2
-de la montagne, où se tenait, silencieuse et sereine, la F
 petite élite des Français vraiment libres. ;
 
 : -Nuls hommes plus libres au monde, La sérénité 3
@@ -1624,7 +1564,6 @@ de l'art, les fraisiers parfumés de musique, le chant des
 Et Christophe demanda à Olivier: es
 © — Où est votre peuple? Je ne vois que des élites, x
 bonnes ou malfaisantes. 3
-Olivier répondit :
 — Le peuple? Il cultive son jardin. Il ne s'inquiète pas |
 - de nous. Chaque groupe de l'élite essaie de l'accaparer. k
 Il ne se soucie d'aucun. Naguère, il écoutait encore, au
@@ -1632,7 +1571,6 @@ moins par distraction, le boniment des bateleurs poli- 4
 tiques. A présent, il ne se dérange plus. Ils sont quelques 7
 millions qui n'usent même pas de leurs droits d'électeurs. : :
 _ Que les partis se cassent la tête entre eux, le peuple |
-_ m'a cure de ce qui en arrivera, à moins qu'en se battant L
 ils ne viennent à fouler ses champs : auquel cas, il se de
 fâche, et étrille au hasard l'un et l'autre partis. Il magit 2
 pas, il réagit, peu importe dans quel sens, contre toutes 4
@@ -1764,7 +1702,6 @@ _ s'interrompait pas un instant de parler tout seul, rire, ;
 
 … outil ? Je mets un clou. J'en mets deux. Encore un coup
 
-É. de marteau ! Là, ma vieille, ça y est.
 Lorsque Christophe jouait, il se taisait un moment, Æ
  écoutait, puis se remettait à sifller de plus belle; aux : » passages entraînanis, il marquait la mesure sur le toit, $
 … à grands coups de marteau. Christophe, exaspéré, finit
@@ -1811,8 +1748,6 @@ Christophe n'arrivait pas à comprendre ce type dé
 . révolté résigné. Il avait essayé de causer avec lui; mais
 le prêtre, très poli, restait froid, ne parlait de rien de
 ce qui l'intéressait le plus, mettait sa dignité à se murer
-
-: as _ DANS LA MAISON
 
 _ A l'étage au-dessous, dans l'appartement identique à
 
@@ -2017,7 +1952,6 @@ ee continuait d'écrire : c'était pour lui un besoin de se
 - répandre et une joie orgueilleuse. Intérieurement, il
 _ était très satisfait de ses pages éloquentes et de ses ;
 
-| SR. on
 | A Jean-Christophe à Paris
 pensées philosophiques, qui ne valaient pas un lard.
 Gi Et il ne faisait nul cas de ses notations de la vie réelle,
@@ -2083,7 +2017,6 @@ $ - son retour, parmi ses anciens compagnons ralliés au Fe
 É- inutiles. Il lisait beaucoup, écrivait un peu des livres ve
 - doucement incendiaires, tenait — (à ce qu'on préten- :
 “4 daït) — les fils de mouvements anarchistes très lointains,
-#4 É 81 maison. — 5. ee s
 
 Jean-Christophe à Paris Nes ie
 dans l'Inde, ou dans l'Extrême-Orient, s'occupait de la
@@ -2115,7 +2048,6 @@ la Vincent de Paule. Comme ïil se méfiait de toute
 charité officielle, et qu'il savait ce qu'il fallait penser des associations philanthropiques, il entendait faire
 la charité seul; il s'en cachait: il y trouvait une £
 
-ne. LORS DANS LA MAISON
 #4 jouissance secrète. Il avait appris la médecine, afin
 s de se rendre utile. Un jour qu'il était entré chez
 un ouvrier du quartier, il avait trouvé des malades,
@@ -2177,8 +2109,6 @@ Paris : l'hiver, dans quelque hôtel de la Côte d'Azur;
 l'été, sur quelque plage de Normandie, vivant en pétit :
 rentier, qui se donne à peu de frais l'illusion du luxe, 4
 
-| HOME 1 DANS LA MAISON
-
 - en regardant le luxe des autres, et en menant, comme
 Et. eux, une vie inutile.
 
@@ -2234,8 +2164,6 @@ Be amis pour eux; ils savaient leur vie en détail, et leurs :
 = souffrances les pénétraient d'amour et de pitié. Les
 
 : beaux livres aussi, les bons livres, lus en commun,
-
-à je
 
 : Jean-Christophe à Paris
 étaient un bonheur. Mais il n'y en a guère dans la litté-
@@ -2632,8 +2560,6 @@ niques, sans illusions, très tristes. Christophe en avait 4
 
 les jarrets coupés, pour deux jours, après les avoir és
 
-| lues. ;
-
 : _ — Et vous donnez cela au peuple? demandait:il,
 + . apitoyé sur ces pauvres gens, qui venaient pour oublier
 . leurs maux pendant quelques heures, et à qui l'on
@@ -2648,7 +2574,6 @@ devoir sans défaillance ?
 — Sans défaillance? J'en doute. Mais à coup sûr, sans
 - plaisir. Et l'on ne va pas loin, quand on a tué dans
 Fhomme le plaisir de vivre.
-ù — Qu'y faire? On n'a pas le droit de fausser la
 à - — Mais on n'a pas non plus celui de la dire tout
 _ entière à tous.
 < — Et cest toi qui parles? Toi, qui ne cesses pas de
@@ -2686,12 +2611,10 @@ demandaient point si l'arc, qu'ils tenaient à la main, lan- à
 Ils étaient trop intellectuels. Ils manquaient d'amour. #
 Quand un Français a des idées, il veut les imposer aux 4
 autres. Quand il n'en a pas, il le veut tout de même. à
-5 Et quand il voit qu'il ne le peut, il se désintéresse 2
 .des autres, il se désintéresse d'agir. C'était la raï- |
 son principale pour laquelle cette élite s'occupait &
 peu de politique, sauf pour geindre et se plaindre.
 Chacun s'enfermait dans sa foi, ou dans son manque k
-de foi.
 Bien des essais avaient été tentés pour combattre cet :
 individualisme et tâcher de former des groupements
 entre ces hommes; mais la plupart de ces groupes - :
@@ -2882,8 +2805,6 @@ une fameuse chose de vivre! 3
 
 Enfin c'était, chez les meilleurs, un ensemble de qua
 
-LE re PR AE pe Res
-D 0 DANS LA MAISON ee
 _ lité s sympathiques et moyennes : une certaine philo.
 _ sophie, une modération de désirs, un attachement
 
@@ -2895,7 +2816,6 @@ très bien se concilier, en certains cas, avec la sérénité,
 : 1 avec le courage, avec la joie intérieure; mais is
 _ n'étaient pas sans rapports avec l'appauvrissement du
 __ sang, la décrue progressive de la vitalité française.
-+2 È ont re
 __ Le gracieux jardin d'en bas, au pied de la maison de A
 - Christophe et d'Olivier, au fond de ses quatre murs, RE
 . était un peu le symbole de cette petite France. C'était Dr
@@ -2922,7 +2842,6 @@ goûte pas. Tu serais même capable, au besoin, d'être
 un homme politique. — Et puis, tu as le bonheur inap- |
 préciable d'écrire en musique. On ne te comprend pas, É
 tu peux tout dire. Si les gens savaient le mépris pour
-eux qu'il y a dans ta musique, et ta foi en ce qu'ils
 nient, et cet hymne perpétuel en l'honneur de ce qu'ils
 s'évertuent à tuer, ils ne te pardonneraient pas, et tu
 serais si bien entravé, poursuivi, harcelé par eux, que
@@ -2985,7 +2904,6 @@ en les absorbant. Laissez venir à nous et le Nord trouble
 et le Midi bavard...
 
 Jean-Christophe à Paris AE CE 5
-i — et l'Orient vénéneux ? Xe Es
 — et l'Orient vénéneux : nous l'absorberons comme
 le reste; nous en avons absorbé bien d'autres ! Je ris des Û
 airs triomphants qu'il prend, et de la pusillanimité de
@@ -3036,8 +2954,6 @@ Je sais très bien qu'il y aura ensuite une réaction morale, — qui, d'ailleur
 … n'est pas l'œuvre d'un régime. C'est la lèpre du luxe,
 
 | les parasites de la richesse intellectuelle et matérielle.
-
-à Ils passeront.
 
 …_ — Après vous avoir rongés. <
 
@@ -3127,7 +3043,6 @@ gwpposivn, — « le calme silencieux de la mer immobile »;
 — et lui qui savait le fond orageux et trouble de son à
 - âme, et que ce n'était pas trop de toutes les forces de » sa volonté pour maintenir l'équilibre de sa puissante
 - nature, plus que tout autre, il admirait cette harmonie
-| voilée.
 
 Jean-Christophe à Paris
 Le spectacle de la France cachée achevait de bouleverser toutes ses idées sur le caractère français. Au
@@ -3177,7 +3092,6 @@ Christophe serra en silence la main d'Olivier.
 4 — Cher Christophe, dit Olivier, ton Allemagne nous
 à fait bien souffrir.
 L Et Christophe s'excusait presque, comme s'il en était
-| cause.
 : — Ne tafilige pas, va, dit Olivier, souriant. Le bien
 : qu'elle nous a fait, sans le vouloir, est plus grand que
 le mal. C'est vous qui avez fait reflamber notre idéalisme,
@@ -3210,41 +3124,6 @@ forts que nous.
 — O bonne défaite, répétait Olivier. Béni soit le
 désastre! Nous ne le renierons pas! Nous sommes ses
 
-; 2 RTE RE Le ar SR one POUR LAS POUR SR UP ER NES PIS
-
-L PSE PTS EN AS ARE En OR TS Len ET ES
-
-MA M Ur din date PAIN SE PRE EE NLe BTE te DUT
-| SEGA NYSE 1° Ex DRE ea A ETES Se
-
-3 Tes RU TS 5 Re NES ge
-| RER >E LIVRES CORRE
-
-| (CEE : EL ÉTFLAN TERRES
-| LITRES 2 RL à
-DRE ee à ou + FAX LORD
-
-RE te L: 2 TRE RRORREER
-ec ur: L à ANNÉE CE OM
-NET ie ; TON CERN AR EEE
-DANEE PAL NS Art ARRET AMERE EN NE Per 00 ‘
-FN ce D EN RE URAATE MR ENR LC
-
-D ds tee MAUR 170 HR RSS ce One > P HÉS TS
-RAA, ns ER bee MARS RTE MERS LA *,
-LR SES A A Ce CT US Re en ae 2e Be à Puf PORT SÉTEENERS
-| FLN EEE LE LE ne, ORNE
-MAL © Es % L Lee S'PAAERESE
-LITE MERE RUE LA RL er PTE SE S
-
-DER ASS RSR A SR à ÉRBNE DOME Des
-ARMES SENTE TP: ER ne LAURE
-RONDE ie - 2 L NET hone LA
-MARNE | LA EST RCE ES sh
-6 5) MR ER e À LL ae TA fa
-pe, ee er EE AT NE Mest me #
-f'SLERR RME Tes È 8 RM EE TO to PCA.
-
 La lutte, que soutient Christophe, n'est pas limitée à
 la France. Partout se livre le méme combat contre les
 _  pourrisseurs de la pensée européenne. Dans toute l'Eu_ rope, nous avons des frères d'armes. C'est notre devoir
@@ -3264,7 +3143,6 @@ plusieurs années, ils travaillent avec une ardeur admirable au relèvement inte
 _ qui lisent l'italien, les aident dans leur effort! Et que
 - ceux qui ne lisent point l'italien, l'apprennent! Aucun
 
-PE ere ne ER INR PAR UE + à
 Français lettré n'a d'excuse de l'ignorer.Pour quiconque
 E de notre peuple a ses racines profondément enfoncées É
 : dans le sol de la patrie, c'est une nécessité vitale de
@@ -3319,18 +3197,6 @@ sous le titre: L'Italia risponde. (« L'Italie répond: »)
 Ils feront sentir, mieux que je ne le puis, cette richesse
 féconde de la pensée italienne d'autrefois, en même
 temps qu'ils donneront un bel exemple de la pensée
-
-Roman ROLLAND
-
-SRE ne AE EU er Di tee MEL Are NÉE TA AS AE ANe
-MEN Ne à ORNE PEUT eo ‘
-
-LUE ES PR ARTE de SITES ATEN STORE Ne
-| cross LCR EPS SR RNA TONNERRE FNPRT EE
-
-HER Re CAE NE NES RNA ES nes
-
-LÉ À 3 ME Hire ” wi PE RAIN Le 2 re b LEUR
 
 « … Depuis cinquante ans, dit l'Italie, je me suis vuamener
 une vingtaine de génies étrangers, qui m'étaient annoncés
@@ -3388,8 +3254,6 @@ eux souvent, sinon toujours, plusieurs de ces idées, que
 vous écoutez, les oreilles dressées, comme des nouveautés :
 inouïes, quand elles vous sont trompettées dans la langue 4
 
-du oui, du ja, ou du yes... ‘3
-
 « Il y a quelques années, on faisait grand bruit de la phi- 3
 losophie positiviste; elle était portée en triomphe par les
 places et les Universités, comme le just out de la pensée. 4
@@ -3431,7 +3295,6 @@ k catholiques; mais, chez le premier, c'est le cas de l'oppo-
 | sition entre la vérité scientifique et le texte biblique ; chez É
 l'autre, entre le pouvoir civil et le pouvoir religieux. Tous
 
-| SR .
 deux cherchent à se sauver et à sauver l'Église avec des.
 raisons ; et ces raisons ressemblent à beaucoup de celles
 que nos prêtres avancés ou nos néophytes enflammés d'aujourd'hui s'imaginent avoir inventées. Sarpi n'a-t-il pas été
@@ -3487,9 +3350,7 @@ avec toute la révérence due à un dieu étranger. Zarathustrà,
 il reste toujours ceci : que si vous lisez attentivement certaines nouvelles de Boccace, si vous dépouillez les lettres
 | familières de Machiavel, si vous parcourez les souvenirs
 _ de Guichardin, vous y rencontrerez quelques-unes des
-|
 
-: ; Giovanni Papini De
 : idées les plus caractéristiques et les plus curieuses de ES
 Nietzsche, présentées sous une forme beaucoup plus plai-
 - sante et plus modeste, mais toujours facilement reconnais
@@ -3534,12 +3395,6 @@ Giuseppe Prezzolini.— Direction et administration : Florence, 42, via
 pour lItalie, Trente, Trieste et Tessin; 7 francs 50 pour les pays
 de l'Union Postale.
 
-Ê rs RE NORES »£ LATE NE TORE TRS
-PE RCE rs L FE IT SRSRNREE RU CxS
-Ÿ un PARA À + vu EE PARA ANS ne RTC
-Lars EN ES re LES SRE EE se 2
-D ia He: Lt . LA es MT D Re
-
 Vient de paraître chez Hachette, en vente à la
 librairie des cahiers :
 
@@ -3565,8 +3420,6 @@ Le 20 ventôse, an II (10 mars 1794), le Comité de Salut
 % aux représentations données de par et pour le peuple, à cer-
 
 $ taines époques de chaque mois;
-
-, - Romain Rolland _  . ER
 
 « 2 Que l'édifice serait orné, en dehors, de l'inscription A
 suivante : TRÉATRE pu PEUPLE, et que les sociétés d'artistes #
@@ -3599,7 +3452,6 @@ matique, prirent l'initiative d'un mouvement pour fonder <
 un volume, intitulé le Théâtre du Peuple, qui parut, en novembre >
 È 1903, aux Cahiers de la Quinzaine. 1 ; è
 
-; Er Lee .  THÉATRE DE LA RÉVOLUTION
 e. renouer la tradition interrompue de la Révolution; et il
 à _ était naturel que l'un d'entre eux fût amené à choisi
 : comme sujet de ses premières œuvres populaires la Révolution elle-même, l'Iliade du peuple de France. Les trois
@@ -3647,8 +3499,6 @@ __ lumière les grands intérêts politiques et sociaux, pour
 
 3 veut disparaître. Il doit reprendre pour son compte les -
 
-Fe ne _ paroles de Schiller, à la représentation du Camp d le Y Val- Fes
-ES lenstein, le 12 octobre 1798 : ÉVETÉS DEN RS
 _  « L'ère nouvelle qui s'ouvre devant nous enhardüt le poète
 _ à quitter la route battue, à vous transporter du cercle étroit
 HSE _ de la vie bourgeoise, sur un théâtre plus élevé qui ne soit %
@@ -3662,21 +3512,7 @@ ne | _ ombres, peut tenter un vol plus hardi; il le peut, il le doit Fe
 même, s'il ne veut s'effacer, couvert de honte, devant le
 _ théâtre de la vie. » : SEULE
 
-# 3  :
-ce RS
-
-LE VS RER ES ES Se nes te NS AE RE Le
-EF TARA RASE SENE Re le TR 2: RARES, aù er CRISE
-A LE e Ages + LS Re PRSENEeS
-ENTER : ECTS [ DE ra FE
-re | de, si "NA À * TO SA
-dur: FAR LES TN ES ANA AT UN PEUR Tr LA OPRÉSS > Sois die
-ou Re RP et
-
-se RUES TS Ne AREA RS RÉ TEST »
-RO D Re AR Liens de SNS SNS
 ._ Notre catalogue analytique sommaire............ 2
-ue _ DU MÊME AUTEUR aux Cahiers de la Quinzaine, 5
 Roman Rorrann. — Jean-Christophe à  _
 DEUXIÈME LIVRE. — Dans la Maison.......... 13
 D aux amis de Christophe... DDR
@@ -3685,7 +3521,6 @@ Roman Rorcanp. — Théâtre de la Révolution. XV
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce neuvième cahier
 et pour treize exemplaires sur whatman le mardi
-“SE Le gérant : CHARLES PÉGUY
 FINE Ce cahier a été composé et tiré par des ouvriers syndiqués
 
 Jean-Christophe à Paris
@@ -3693,20 +3528,7 @@ Jean-Christophe à Paris
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-12 ai ax eSHEALTS 1 AT A CE ENT ET Er St 14 We k
-ne 1 1e LE ANA FER 1 11% fl AU les vr4
-Î LP NL es CIN le
-
-LAURE RONA NO ES GAME NE AE REA le AEIES
-ARR PACE Pas 5 ROMIEMEMEOUTX 43 RE à frs
-3% : RAR ee } RATE : L SHTNE HAL ANS RARE te e
-2170 PREMIERE L MED ré ju CERTES a 1
-LPS EM a RM EURE de Nevr
-th Hi: RACINES \ LE RURALE < ME
 LA SES pas GTut 2500 Mori
-LT SRE \ ; AA AL AMF ORERERS UNE de
-Et a RUE EVA ES Dre y L 7 è def) A YPATAUEE DRE ANA Mr IE 4
-PER ET bis aie his MP SE nd T A "pu Dee 1 NS IEEE
 
 : Nous avons publié dans nos éditions antérieures e
 dans nos cinq premières séries, 1900-1904, un &
@@ -3755,56 +3577,12 @@ série; nous l'envoyons contre un mandat de cinq francs |
 
 à toute personne qui nous en fait la demande.
 
-TRE er der NE AN
-
-COM : TL POULE ONE D 07 20 RAI SE SAT A Re CEA OS GS » RFA AO on ta T6 | ES AMAR ARE
-PR AUX , 2 te EN ONANRMENENL LES
-
 Jean-Christophe à Paris
 
-SEAT he ARE DE Hit ms NP AE Ale er rs MES
-F3 ape é AS PH pa Du sé ANA AO À Cl \
-Re AE HS M SATA MA FE nd: LD A à
-tn? na ANA FER NES We £ ' HART id LA RE: à!
-Mana RARE € UE sæ Porn TA * qe LS
-KE RE CEA $ | ju MUR FILLE x NI PRE US
-prES pi à ARS : atel L Ô FM Ÿ PA ENTER ne MMS ” FAT F
-NE Nat: f AL TT NS 5 ; SRE eY CAE re, ia ns RU 4
-ÿ QE à EG GIE À . wi (HN L DAME AR il L ser Na
-VA RS YA [NS > he , CRE Gr LR au EXT 1e Le à RASE
-LA LAS FAUNE cs Re in Rte
-“ ETS Lee NUS NH il Mopats A RAP RxPE La
-CE Le SR EUN ji Ur jy OA) NN AT RATS fe KE
-per: HER MONET ï RAS LA POUR d
-l'E Cat sp ER LAN * :
-
 ‘'REMIER LIVRE. — la Foire sur la Place; {
-FRERE Antoinette, épisode;
 EUXIÈME LIVRE. — Dans la Maison.
 17200
-ri L j
 
-. HS Votes PAT CU SEA DE LION 4 VS té
-A FSU HET 104 LASER RAP PA PAT OU fee)
-TE Ne RU RAD ae AP QUE
-| TS per LEA NT ENS (NES vd
-NOUS LV DR (UN AR PU (ER Sa tend RAR np FEHNE ONE AUS wi
-UNE (TE HN dati
-\ 0 il CREER RER SES dy RAD ee jh PAAONI Vs PA a WA HN Y HRINAE
-AE: gt ke DE LAN ND MERE n) Rte 4 SEPT VAN EN NE Era ÉTAPE
-
-Pret TOR 00 È Lex Los Te: Le
-
-RU € pe Er LE ; * VAS QU: Ja | or
-
-PER DES Eee € Fée TE SCT OPA UUCE
-
-DEA ROME RARE RE Mai de NO PACE +
-AU fie un FARMER Ë Fk € SAR CR SERRE L CHERS
-1 L'ÉTNSRRE 45 4 ee FBI FANS és ee
-HAS ARE oo e SR AV Ni 4, PEROU L'UNLINEES is NARES
-
-Ne L'LEEANE Pt tr CE ty PMR D AP ARE UT EN ARC es
 La défaite reforge les élites; elle fait le tri dans la
 
 Ë tion ; elle met de côté tout ce qu'il y a de pur et de
@@ -3870,8 +3648,6 @@ il en avait éprouvé une humiliation singulière. D'abord,”
 cette exhibition sur une estrade lui était odieuse. IL
 voyait le publie, il le sentait, comme avec des antennes, »
 | il savait qu'il était composé, en majorité, de désœuvrés,« 14 +
-
-| LS RSR DANS LA MAISON |
 
 4 ‘ qui cherchaïent uniquement à se désennuyer; et le rôle
 
@@ -3965,8 +3741,6 @@ naissance admirative, pour la complaisance et la facilité avec laquelle Olivier
 _ ilne connaissait rien à la littérature; mais il connais- É
 sait les littérateurs, ce qui valait beaucoup mieux: et |
 _ même, riche et mondain, il se laissait, par snobisme, à
-
-Ness DANS LA MAISON
 
 . discrètement, exploiter par eux. Il dit un mot pour
 
@@ -4198,11 +3972,9 @@ Mais. le pire, c'est la perfidie, avec laquelle ce dieu
 È envoie son prophète pour aveugler les hommes, afin :
 d'avoir une raison après, pour les faire souffrir : |
 « Va, endurcis le cœur de ce peuple, bouche ses yeux
-et ses oreilles, de peur qu'il ne comprenne, qu'il ne se
 | convertisse et ne recouvre la santé. — Jusques à quand, 4
 Seigneur ? — Jusqu'à ce qu'il n'y ait plus d'habitants #
 dans les maisons, et que la terre soit plongée dans la
-Non, de ma vie, je n'ai vu un aussi méchant homme!
 Je ne suis pas assez sot pour méconnaître la puis- M
 sance du langage. Mais je ne puis séparer la pensée de M
 la forme; et si j'admire parfois ce dieu juif, c'est à la M
@@ -4211,7 +3983,6 @@ vain un monstre de Shakespeare à nommer; je n'en
 trouve pas : Shakespeare lui-même n'a jamais réussi à È
 enfanter un tel héros de la Haïne, — de la Haïne sainte 4
 
-. rte DANS LA MAISON
 ; et vertueuse.) Un tel livre est effrayant. Toute folie est
 contagieuse. Et il y a dans celle-ci un péril d'autant
 … plus grand que son orgueil meurtrier a des prétentions
@@ -4219,7 +3990,6 @@ contagieuse. Et il y a dans celle-ci un péril d'autant
 8 pense que, depuis des siècles, elle en fait sa pâture.
 3 J'aime à sentir entre elle et moi le fossé de la Manche.
 - Je ne croirai jamais un peuple tout à fait civilisé, tant
-. qu'il se nourrira de la Bible.
 . — Tu feras bien, en ce cas, d'avoir aussi peur de
 moi, dit Christophe, car je m'en enivre. C'est la pure
 . moelle des lions. Les cœurs robustes sont ceux qui s'en » repaissent. L'Évangile, sans l'antidote de l'Ancien Tes-
@@ -4274,7 +4044,6 @@ musique en sonnera mieux... » Mais cette forfanterie ne 1
 leur rendait pas l'argent qu'ils avaient dépensé; etils M
 rentraient au logis, le cœur gros de l'indifférence des 1
 
-a D gs tes ;
 Parmi toutes ces difficultés, le seul qui leur vint en
 
 aide était un Juif d'une quarantaine d'années, nommé
@@ -4362,7 +4131,6 @@ L affectueusement les deux mains, et lui dit :
 . blessure causée par son ami. ,
 * Mooch sourit, avec une ironie triste, et il répondit - ÿ
 “ C'est un bien plus grand malheur d'être un . |
-| homme. |
 > Christophe ne vit là qu'une boutade. Mais le pessi- |
 misme de cette parole était plus profond qu'il ne lima3 ginait; et Olivier, avec la finesse de sa sensibilité, en Me » avait l'intuition. Sous le Mooch qu'on connaissait, il en
 4 était un autre, tout différent, et même en beaucoup de
@@ -4523,7 +4291,6 @@ quelque service nouveau, un article de revue désobligeant sur sa musique, par L
 ‘7 pas une franche critique, mais de cette bienveillance
 insultante, qui, par un jeu de persiflage raffiné, s'amu-
 
-see DANS LA MAISON
 : sait à le mettre sur la même ligne que des musiciens. de L
 troisième ou de quatrième ordre, qu'il exécrait.
 — Remarques-tu, dit Christophe à Olivier, après le
@@ -4549,7 +4316,6 @@ syrapathique : c'est même odieux souvent. Du moins, ils |
 pouvons critiquer, raïller, maudire les Juifs. Nous ne
 pouvons nous passer d'eux.
 \ — Il ne faut rien exagérer, dit Christophe, gouailleur. À
-- Je saurais m'en passer.
 | — Tu saurais vivre, peut-être. Mais à quoi te ser-
 … virait, si ta vie et ton œuvre restaient inconnus de 5
 È tous, comme elles le seraient probablement sans h
@@ -4580,8 +4346,6 @@ et lui rendre la vie... Que serions-nous, mon pauvre
 | Christophe, quelle serait notre action, à nous, catholiques de race, qui nous sommes faits libres, sans une
 poignée de libres protestants et de Juifs ? Les Juifs sont
 dans l'Europe d'aujourd'hui les agents les plus vivaces
-| de tout ce qu'il y a de bien et de mal. Ils transportent
-. au hasard le pollen de la pensée. N'as-tu pas eu en
 de eux tes pires ennemis et tes amis de la première
 ni — Cela est vrai, dit Christophe; ils m'ont encouragé,
 k à soutenu, adressé les paroles qui raniment celui qui
@@ -4950,8 +4714,6 @@ Sans aucun désir de se venger — (cela n'en valait pas » la peine: car c'est 
 
 * sonne ne montrait plus de confiance naïve, quand il se A
 
-| ; 145 ;
-
 Jean-Christophe à Paris AE 0 ra
 trouvait en présence de deux aiïmables yeux. Colette $
 témoignait un intérêt si sincère à son amitié avec Chris
@@ -5099,13 +4861,11 @@ avec sa voix de fausset, les intentions des grands
 Christophe entendit qu'il parlait, avec des sous-entendus e
 É polissons, de l'amitié de Wagner et du roi Louis. |
 j 1 — Assez! cria-t-il, en frappant du poing la table, près d
-DE de lui. |
 
 On se retourna avec stupeur. Lucien Lévy-Cœur, rencontrant le regard de Christophe, pâlit légèrement, et =
 — Est-ce à moi que vous parlez? 2
 — À toi, chien! fit Christophe. | cé
 Il se leva, d'un bond. >.
-* — Il faut donc que tu salisses tout ce qu'il y a de x
 __ grand dans le monde, continua-t-il avec fureur. A la $
 porte, cabot, ou je te flanque par la fenêtre!
 Il s'avançait vers lui. Les dames s'écartèrent avec de
@@ -5128,7 +4888,6 @@ _ du gros homme. ;
 * êtes-vous fou? É
 46 — Du diable si je remets les pieds chez vous! dit
 2 Christophe, en se dégageant de ses mains; et il gagna £
-4 la porte.
 ; Prudemment, on lui faisait place. Au vestiaire,
 
 Jean-Christophe à Paris . ï
@@ -5263,7 +5022,6 @@ trio: ils envisageaient la chose surtout comme une | de
 partie de plaisir, qui ne leur coûtait rien. Aucun n'attri- 4°
 _ buaït la moïadre importance au duel. Ils étaient d'ail- AE
 _ leurs préparés, avec un calme égal, à toutes les éven- Se
-| tualités. Le
 | Ils arrivèrent au rendez-vous, avant les autres. Une À
 petite auberge au fond des bois. C'était un endroit de De
 plaisir, plus ou moins malpropre, où les Parisiens _
@@ -5286,7 +5044,6 @@ _ manda de la bière. L'air était exquisément tiède et eZ
 _ rempli du bourdonnement des abeilles. Christophe LS
 -  oubliait pourquoi il était venu. Barth, vidant la bou ‘4
 _ teille, dit, après un silence : o , » — Je vois ce que je vais faire. LS
-Il but, et continua : Fe ds
 
 — J'aurai encore le temps : j'irai à Versailles, après.
 
@@ -5403,7 +5160,6 @@ petite clairière, les quatre fers en l'air, se roulant comme
 he conta qu'il avait troué son adversaire, de part en part,
 ER comme un tamis; il le força à jouer à saute-mouton »
 
-| DANS LA MAISON
 avec lui, il le força à sauter lui-même ; et il lui assénait
 des tapes énormes, en sautant. Mooch, bon enfant,
 s'amusait presque autant que lui, malgré sa maladresse.
@@ -5559,7 +5315,6 @@ de rayonner, avec ou sans musique. Qu'avons-nous à
 * faire d'un art aussi inhumain?.…. L'Occident se brûle.
 
 Fone _ Bientôt... Bientôt... Je vois déjà ( autres lu mières, qui
-ee. _se lèvent, au fond de l'Orient. DONDUt a TU
 RU RE Laisse-moi tranquille avec ton Orient! dit Chris__ tophe. L'Occident n'a pas dit son dernier mot. Crois-tu 74
 que j'abdique, moi? J'en ai encore pour des siècles. “à
 PE _ Vive la vie! Vive la joie! Vive le courage qui nous 5
@@ -5572,7 +5327,6 @@ ss Là-dessus, il se mit à sa table, et écrivit tout ce qui
 FA _ Jui passait par la tête, sans plus penser à ce qu'il venait 3
 3 1
 
-ne,
 Christophe était alors dans un état d'équilibre parfait
 de toutes les forces de sa vie. Il ne s'embarrassait pas
 de discussions esthétiques sur la valeur de telle ou telle
@@ -5639,7 +5393,6 @@ du monde l'écœuraient. Avec une grande intelligence et ;
 LE c'est de vivre : d'autant plus impérieuse, quand on est
 _ un génie; car on vit davantage. Olivier fuyait la vie; il e.
 
-ru PR DANS LA MAISON S 2
 sé laissait flotter dans un monde de fictions poétiques
 sans corps, sans chair, sans rapports avec la réalité. Il |
 était de cette élite littéraire, qui, pour trouver la beauté,
@@ -5701,7 +5454,6 @@ ne s'en esmeut point, et de teste en pied, n'en tressault « F point, comme douc
 3 dérobé hors de soy, c'est signe qu'il a l'âme tortue, vbine cieuse, et dépravée, et duquel il se faut donner garde :
 ? comme de celui qui n'est point heureusement né... » M
 
-sa :) LIEU PUE SES ie FAESS ane
 à | — Je connais cela, dit Christophe : c'est de mon ami
 à — Non, dit Arnaud doucement, c'est d'un Français ;
 - qui vivait avant lui, c'est de notre Ronsard. Vous voyez :
@@ -5844,7 +5596,6 @@ Il le niaït. Mais il en était tout plein. L'abbé Corneille
 Jui disait, en souriant, que, comme le bon géant, son
 patron, il portait Dieu, sans le savoir.
 — D'où vient alors que je ne le voie pas? demandait
-Christophe. 1
 — Vous êtes comme des milliers d'autres : vous le
 voyez, tous les jours, sans vous douter que c'est lui.
 Dieu se révèle à tous, sous des formes diverses, — aux 4e
@@ -5957,7 +5708,6 @@ HE même de les connaître, arrivaient à s'aimer, sans trop 4
 SE savoir pourquoi. Ils étaient tout surpris de se trouver
 PES si près l'un de l'autre. Ils ne l'eussent jamais pensé.— “à
 à : Christophe était entre eux. 1
-| un k
 
 Il avaït d'innocentes alliées dans les trois enfants, —
 ‘les deux petites Elsberger, et la fillette adoptive de “
@@ -6012,7 +5762,6 @@ Christophe sur son piano, le commandant sur sa flûte.
 Christophe voulait partir; mais l'autre ne le Iâchait
 plus; et il s'était lancé dans des développements à
 perte de vue sur la musique. Brusquement, il s'arrêta,
-et dit : |
 
 — Venez voir mes canons.
 Christophe le suivit, se demandant de quel intérêt |
@@ -6027,7 +5776,6 @@ te (ce qu'elle est en eflet, pour une part) — un magnifique
 Rae jeu de l'esprit ; et il s'ingéniait à poser et résoudre des
 74 énigmes de constructions musicales, plus extravagantes 3
 
-Ame MT pans LA Mason à s
 et plus inutiles les unes que les autres. Naturellement,
 il n'avait pas eu beaucoup de temps, au cours de sa |
 carrière, pour cultiver sa manie; mais depuis qu'il avait
@@ -6193,7 +5941,6 @@ heures, mais quelques minutes de temps en temps, un .
 — Vous vous contez des histoires? Oh! racontez-les-
 | Elle lui dit qu'il était trop curieux. Elle lui confia seulement que c'étaient des histoires, dont elle n'était pas
 | l'héroïne. u
-Il s'en étonna :
 . — À tant faire que se raconter des histoires, il me
 . semble qu'il serait plus naturel de se raconter sa propre
 histoire embellie, de se rêver dans une vie plus heureuse.
@@ -6215,7 +5962,6 @@ séparât de lui. En vain Christophe protestait-il que l'of- ;
 f. 2 ficier, vigoureux et énergique comme il était, n'avait 1
 , pas besoin d'elle, qu'un homme de cette trempepouvait
 
-Nas DANS LA MAISON
 rester seul, qu'il n'avait pas le droit de la sacrifier.
 Elle prenait la défense de son père; par un pieux mensonge, elle prétendait que ce n'était pas lui qui la forçait
 à rester, que c'était elle qui n'aurait pu se décider à le
@@ -6304,7 +6050,6 @@ se passait dans le jardin du bas que de ce qu'il lui
 …  déliant, il avoua qu'il avait pour la jeune fille une
 4 vieille amitié, et peut-être quelque chose de plus :
 k la famille Elsberger était liée depuis longtemps avec
-de:
 
 Jean-Christophe à Paris 3
 celle du commandant; mais, après avoir été très in- À
@@ -6354,7 +6099,6 @@ trouver une chère fille, qu'on aime et qui vous aime,
 qu'elle croie tout ce qu'elle veut, et croyez tout ce que
 
 | vous voudrez! Au bout du compte, toutes vos idées se
-valent; et il n'y a qu'une vérité au monde, il n'y a qu'un
 bon Dieu: c'est de s'aimer.
 
 — Vous parlez en poète. Vous ne voyez pas la vie. Je
@@ -6400,7 +6144,6 @@ ve _,  pénétrait son interlocuteur, mais ne le décidait point. ‘1
 %.  — Oui, peut-être, c'est vrai ! ARE
 A Mais il en restait là. Il semblait, comme les autres,
 a _ frappé d'une incapacité de vouloir et d'agir. Mr"
-Dit L se ns
 
 Christophe avait entrepris le combat contre cette
 inertie, qu'il retrouvait chez la plupart de ses amis |
@@ -6412,7 +6155,6 @@ dégoût pour les maîtres du jour et pour leur pensée Kb “
 corrompue. Presque tous, la même conscience triste et CRE
 fière de l'âme trahie de leur race. Et ce n'était pas le 3%
 - fait de rancunes personnelles, l'amertume d'hommes y
-_ et de classes vaincus, évincés du pouvoir et de la vie gi F
 active, fonctionnaires révoqués, énergies sans emploi,
 - vieille aristocratie retirée sur ses terres et se cachant  :
 pour mourir, comme un lion blessé. C'était un sentiment x
@@ -6422,7 +6164,6 @@ de révolte morale, sourd, profond, général : on le ren- E
 + reaux, dans tous les rouages vitaux de la machine Là
 _ gouvernementale. Mais ils n'agissaient pas. Ils étaient LS
 …  découragés d'avance; ils répétaient : Ko
-; — Il n'y a rien à faire; ai
 : -  — Tâchons de n'y plus penser. |
 4 Ils détournaient peureusement des choses tristes leur ae]
 # pensée, leurs propos; et ils cherchaient un refuge dans LE
@@ -6460,7 +6201,6 @@ ANR leurs confrères de la presse, si les critiques honnêtes et
 __  instruits, siles artistes, sur le dos desquels ces Arlequins M
 k s'escriment, ne les laissaient faire, en silence, par timi- ji
 
-ne LT de | DANS LA MAISON Le
 _ dité, par peur de se compromettre, ou par un honteux
 _ calcul de ménagements réciproques, par une sorte de
 pacte secret conclu avec l'ennemi, pour rester à Fabri
@@ -6521,7 +6261,6 @@ mis. Il n'essayait pas de leur incuiquer sa façon de »
 — Vous êtes trop humbles. Le grand ennemi, c'ést la w
 neurasthénie, le doute. On peut, on doit être tolérant et 4
 | humain. Mais il est interdit de douter de ce qu'on croit *
-“A bon et vrai. Ce qu'on pense, on doit le croire. Et ce.
 DS qu'on croit, on doit le soutenir. Quelles que soient nosw
 1e forces, il nous est interdit d'abdiquer. Le plus petit, en
 
@@ -6649,11 +6388,9 @@ luttes comme celles-ci, il faut parler, discuter, voter, |
 subir des contacts déplaisants avec des tas de fri- M
 | pouilles : cela ne me va pas. ‘4
 #4 — Vous êtes bien dégoûté ! En Afrique, vous en avez \ -
-x vu d'autres! 4
 ê — Parole d'honneur, cela me dégoûtait moins. Et puis, 4
 Fa on pouvait toujours leur casser la gueule! D'ailleurs, L
 
-nn Ru re DANS LA MAISON RNA
 pour se battre, il faut des soldats. J'avais là-bas mes k
 _  tirailleurs. Ici, je suis tout seul. |
 R. - — Ce ne sont pourtant pas les braves gens qui
@@ -6661,7 +6398,6 @@ R. - — Ce ne sont pourtant pas les braves gens qui
 À — Partout autour de vous. )
 Ÿ — Eh bien, qu'est-ce qu'ils font alors ? ‘
 i — Ils font comme vous, ils ne font rien, ils disent AS
-qu'il n'y a rien à faire. A
 — Citez-m'en un, seulement. SES
 — Trois, si vous vouliez, et dans votre propre maïi- : n
 Christophe lui nomma M. Weil, — (le commandant Se
@@ -6681,7 +6417,6 @@ s — lis l'aiment autant que vous. WE
 . reçue. Mais les autres, les ennemis du dedans, ce n'est
 ke pas la même chose : ils usent d'armes malhonnèêtes, “ki
 % - de sophismes, d'idéologies malsaines, d'humanitarisme
-L. empoisonné. |
 È . — Oui, vous êtes dans l'état d'esprit des chevakers $
 À i du moyen-âge, qui se sont trouvés, pour la première d
 
@@ -6716,7 +6451,6 @@ faire triompher nos adversaires? L.
 inquiétiez pas de savoir si c'était pour le Roï, ou pour la
 République, que vous vous battiez. J'imagine que beau- ï k
 _ ! coup d'entre vous ne pensaient guère à la République. “4
-— Ils s'en foutaient. 6 2
 
 + — Bon! Et la France y trouvait son avantage. Vous
 . conquériez pour elle, et aussi pour vous, pour l'honneur, pour la joie. Eh bien, que ne faites-vous de même,
@@ -6731,7 +6465,6 @@ exaltez l'amour fécond, la joie du sacrifice, l'action. Et <
 ne déléguez jamais à d'autres le soin d'agir pour vous.
 Agissez, agissez, unissez-vous! Allons!
 Et il se mit, en riant, à taper sur le piano les pre- u
-mières mesures de la marche en si bémol de la Sym- in
 … phonie avec chœurs. 3 ;
 “ — Savez-vous, fit-il, en s'interrompant, si j'étais un
 ï de vos musiciens, Charpentier ou Bruneau, (que le a
@@ -6764,7 +6497,6 @@ k — Ne t'afflige pas. Un homme ne peut pas changer, l
 | : d'un coup, tout un état d'esprit de toute une société. Ce 1
 ‘serait trop beau! Mais tu fais déjà beaucoup, sans ten
 — Qu'est-ce que je fais? dit Christophe. 1
-3 — Tu es Chrisiophe. 1
 — Quei bien en résulte-t-il pour les autres? ;
 — Un très grand. Sois seulement ce que tu es, mon
 cher Christophe. Ne t'inquiète pas de nous. ‘à
@@ -6779,10 +6511,8 @@ se mit à lire; elle sortit un peu plus; elle s'intéressait à u
 e plus de choses. Et un jour que Christophe bataillait .
 \ contre son père à propos des Elsberger, le commandant
 hr. la vit sourire; il lui demanda ce qu'elle pensait; elle »
-Ce | répondit tranquillement : 4
 HR — Je pense que M. Kraft a raison. 3
 
-à Ge la
 | Le commandant, intertoqué, dit : NOR
 ES C'est un peu fort! Enfin, raison ou tort, nous x :
 sommes bien comme nous sommes. Nous n'avons pas al
@@ -6804,7 +6534,6 @@ lisant attentivement un livre qu'il refusa de lui laisser &
 S voir. En reconduisant Christophe, Céline, seule avec ÿ
 4 . — Savez-vous ce qu'il lisait ? Un livre de M. Weil. LE
 È Christophe fut tout heureux. J ÿ 1 1
-d — Et qu'est-ce qu'il en dit ? demanda-t-il. nn
 4 — Il dit : « Cet animal! » Mais il ne peut s'en je » détacher.
 Fe Christophe ne fit aucune allusion au fait, avec le
 commandant. Ce fut celui-ci, qui lui demanda:
@@ -6840,7 +6569,6 @@ C'était une femme grande, maigre, assez bien faite, Ye
 à de beaux yeux bruns, opaques, un peu inexpressifs, Où
 _ s'allumait, par moments, une flamme morneetdure, M
 
-ne A
 dans une figure jaune de cire, les joues plates, la bouche J
 _ crispée. La vieille madame Germain était dévote, et
 passait ses journées à l'église. La jeune femme s'iso- À
@@ -6979,7 +6707,6 @@ ns tombée de la nuit. La porte de l'appartement était restée É
 Aux derniers reflets décolorés du jour, Christophe es +
 | reconnut les yeux fiévreux de la femme en deuil. I fut
 ë | saisi. Debout au seuil de la chambre, elle dit, la gorge. RÉER
-| serrée: FÉMCAS
 À — Je viens. Voulez-vous. Voulez-vous me la + Fa
 k Christophe lui prit la main. Madame Germain pleu UE
 Dot Puis, elle s'assit, au chevet du lit. Après un mo- Re
@@ -7007,10 +6734,6 @@ femme avait une expression d'apaisement et de joie AS ia
 UE ecrète, qu'ils ne lui connaissaient pas. Elle ne faisait : LA A
 | W au une attention à eux. Cependant, au moment de par- ro ÿ
 
-NS Her UE SAT PO (le +4 Te an-C h is tophe à Paris Ki
-
-Gta He OU M CR RATS QU ER RCA
-ne D A0 Vous m'avez sanvéel: :! PNR nr ms
 ur _— Qu'est-ce qu'elle a, cette folle? demanda ChrisNée _  tophe, étonné, tandis qu'ils remontaient l'escalier, après |
 A NE qu elle fut partie. | RNCS
 | Olivier sourit, et l''embrassa. FN LS
@@ -7066,7 +6789,6 @@ Fe toire, la gloire?.. Patience! L'essentiel, c'est que tout ce É.
 FREIN soi-même, ne se décourage pas avant l'heure. Bonheur
 _ et génie ne viennent qu'aux peuples qui ont su les méri- W
 MT ter par des siècles de patience stoïque, de labeur et …
-rl de foi. u MA
 FAN _— Qui sait? dit Christophe. Ils viennent souvent
 He plus tôt qu'on ne croit, — au moment où on les attend |
 PAPA) le moins. Vous tablez trop sur les siècles. Préparez_ ! vous. Ceignez vos reins. Ayez toujours vos souliers à,
@@ -7130,8 +6852,6 @@ même. Les raisons de cette hostilité persistante, brus- al
 quement réveillée, leur échappaient à tous deux, et. à
 surtout à Christophe, qui, en sa qualité d'Allemand,
 j n'avait aucun motif d'en vouloir à un peuple, que son |
-
-ke MAMAN 1 DANS LA MAISON
 
 ' peuple avait vaincu. Tout en étant choqué lui-même de
 
@@ -7289,9 +7009,7 @@ des autres peuples? | Dee
 — Il faut bien que quelqu'un commence. Ce quelqu'an;“
 ce doit être nous. Nous avons toujours été les preémiers.« ; À nous de donner le signal! É “4 * ;
 
-| LÉTNAMENSSS DANS LA MAISON
 4 _ — Et si les autres ne marchent pas? Ÿ
-4 — Ils marcheront. ; ae
 2. — Avez-vous des traités, un plan tracé d'avance?
 L_  — Qu'est:il besoin de traités? Notre force est supé- |
 * rieure à toutes les diplomaties.
@@ -7348,15 +7066,12 @@ es se sentir atteint par cette épidémie morale, qui propage
 FE dans les peuples la puissante folie des pensées collec- w
 me tives, le souffle de la guerre! Elle travaillait tous ces
 ae gens qui entouraient Christophe, et Christophe Jai- “
-ei même. Ils ne se parlaient plus. Ils se tenaient à l'écar à
 \ les uns des autres. ‘F0
 TR Mais il était impossible de rester longtemps dans cet.
 ne état d'incertitude. Le vent de l'action rejetait, bon gré,
 qi mal gré, les irrésolus dans l'un ou l'autre parti. Etun
-REA jour, où l'on se crut à la veille de Vultimatum, — 0 à,
 Lie _ dans les deux pays, tous les ressorts de l'action se
 
-mn je Hu, |
 À _ tenaient bandés, prêts au meurtre, Christophe s'aperj çut que tous avaient choisi, au dehors de la maison,
 ; comme au dedans. Tous les partis ennemis, d'instinct,
 se rangeaient autour de ce pouvoir haï, ou méprisé,
@@ -7467,11 +7182,9 @@ re démons réveillés dans votre cœur... 4 ER
 on — Ils m'épouvantent, dit Olivier. J'aime mieux la
 solitude éternelle que l'union de mon peuple, à ce prix. a
 
-_ Is se turent; et ni l'un ni l'autre n'osait aborder e.
 ne _ sujet qui les troublait. Enfin, Olivier fit un effort, et, la .
 | gorge serrée, il dit : [LAURE
 > — Dis-moi franchement, Christophe : tuallais partir? |
-11 _ Christophe répondit : ÿ à ea no
 
 à Olivier était sûr de la réponse. Et pourtant, il en eut
 un coup au cœur. Il dit :
@@ -7505,7 +7218,6 @@ non pour léteindre. A chacun son devoir! Si César
 ; veut la guerre, que César ait des armées pour la faire,
 % des armées comme autrefois, dont la guerre était le
 
-NS De LOGO - T4 EN O2 RATER PU A ARE D an nr Er RAS RE 6 UT ‘61, PART
 dE Jean-Christophe à Paris tr , Fr PORC |
 métier! Je ne suis pas assez sot pour perdre mon temps
 à gémir en vain conire la force. Maïs je ne suis pas de
@@ -7540,7 +7252,6 @@ ET diables d'abstracteurs, comme vous êtes, pour vous
 placer dans l'absolu, au lieu d'étreindre l'instant qu à
 — Que veux-tu? La flamme brûle la torche. On ne $
 peut pas être et avoir été, mon pauvre Christophe. Ni
-— Il faut être.
 — C'est une grande chose d'avoir été quelque chose >
 de grand. L
 — Ce n'est une grande chose qu'à condition qu'ily
@@ -7568,33 +7279,20 @@ le crépuscule, je ne veux pas de cette paix avant-coureur FA
 
 Jetez de nouvelles brassées de bois sur le feu ! Encore! 2!
 Encore! Et moi avec, s'il le faut. Je ne veux pas que fi
-# 229
 
 ne uns dit Olivier; elle vient dufond
-F, ME — Je connais ta voix, APE
-À AT ET TER arie du passé. | ui .
-fi æ Ja Hu rayon un livre de poètes ur il k ‘1
 prit sur un se | à
-ri ut la sublime apostrophe du dieu Kri ( ui :4
 Dh « Lève-toi, et combats d'un cœur a à pe - sta
-ÿ 104 SN laisir et à la douleur, au ga et
  rentaup : bats de toutes tes forces... me.
-; Eu pu victoire et à la défaite, com Co
 ; JUS Christophe lui arracha le livre des m à ss
-ER Je n'ai rien au monde qui m HT
 V\  agir:iln'est rien qui ne soi pui ma
 LEUR t l'action. Si je n'agissais pas, sar 196" 0
 | déserte poin en ane sn ù
 4 ni relâche, ériraient. Si je cessais Fo
 *SNCE ut suivre, tous les hommes P ÉT
 | * faut suivre, ‘agir, je plongerais le monde dans 8 LA
-un seul instant d'agir, je p hp ne
-|| chaos, et je serais le meurtrier de de La
-no, la vie? SLR
 a _— La vie, répéta Olivier, qu'est-ce qu cp Me.
-ÿ Ha EU ti ; à ie ce
 & ae Une tragédie, fit Christophe. Hour à:
-| “à h 5 RARES p
 
 La houle s'effaçait. Tous se hâtaient d'oublier, avec
 une peur secrète. Aucun ne semblait plus se souvenir
@@ -7630,7 +7328,6 @@ Patience les regrettait bonnement, se consolait gaie- 4
 ment, sauvait Panurge qui se noyait, et disait : « Je Ne
 sais bien que tu me joueras encore des tours, je ne suis à
 pas dupe ; mais je ne puis me passer de toi : tu es utile à
-à ma rate, tu me fais rire. » à
 Sur ce poème, Christophe composait de grands à à
 à tableaux symphoniques, avec soli et chœurs, des batailles À
 héroï-comiques, des kermesses déboutonnées, des bouf- 3
@@ -7657,8 +7354,6 @@ partition, bien lancée, avait eu un retentissement immé- 4%
 _ diat, à l'étranger. Un grand Ækapellmeister wâgnérien, De
 ami de Hecht, établi en Angleterre, s'était enthou® c $
 
-ji US rt A TU Re TRS |
-Deus NS DANS LA MAISON F
 | siasmé pour l'œuvre; il l'avait donnée, à plusieurs de
 : ses concerts, avec un succès considérable, qui s'était
 répercuté, avec l'enthousiasme du kapellmeister, en
@@ -7709,11 +7404,6 @@ théâtres, comme le lui apprenait une lettre venue de
 Dresde, où on lui disait qu'on serait heureux de monter
 la pièce, pour la saison prochaine. “4 » , Re
 
-VE 2T EC NIET Là Tes AS € PR A IA de CGT ARS ;
-AE SCSI pe nn RE ui: PAR + COTES Par
-
-SEE CARMEN et qu EUR FR NT UPS >.
-
 Le jour même où Christophe recevait cette nouvelle,
 qui lui faisait entrevoir enfin, après des années de misère, des horizons plus calmes et la victoire au loin,
 une autre lettre d'Allemagne lui arriva.
@@ -7728,8 +7418,6 @@ l'écriture était tremblée! s
 
 « Mon cher garçon, je ne vais pas très bien. Si ça
 était possible, je voudrais bien te voir encore une fois.
-
-Je t'embrasse. f
 
 Christophe poussa un gémissement. Olivier, qui travaillait dans la chambre à côté, accourut, effrayé. Christophe, incapable de parler, lui montra la lettre sur la |
 table. Il continuait de gémir, sans écouter ce que disaït
@@ -7781,7 +7469,6 @@ Christophe, comme d'un enfant, jusqu'au départ. Il le : Ke
 |. conduisit à la gare, et ne le quitta qu'au moment oùle
 FS Dans la nuit, où il s'enfonçait, Christophe, les yeux
 Qu grands ouverts, regardait devant lui, et il pensait : > ;
-Li — Arriverai-je à temps ? SEE D ÿ
 A _ savait bien que, pour que sa mère lui eût écrit de 4
 venir, il fallait qu'elle ne pat plus attendre. Et sa fièvre M
 
@@ -7888,7 +7575,6 @@ lui étaient chers : celles de ses trois petits, celle de son
 son amour des premiers temps, celle du vieux grand- :
 … père, et de son frère, Gottfried : elle gardait un attache6
 
-D CU RE Jean-Christophe à Paris; TV me St
 47 ment touchant pour tous ceux qui avaient été bons, si |
 à is | peu que ce fût, pour elle. Elle avait épinglé sur le drap
 son de son lit, tout près de son visage, la dernière photoHe graphie que Christophe lui avait envoyée; et ses der-
@@ -8148,9 +7834,6 @@ des hêtres, que l'automne avait müûris. Entre les pierres 23
 gs tintait l'eau d'un petit ruisseau. Christophe et Olivier #
 ds . s'étaient arrêtés, et ils ne bougeaient plus. Chacun
 3 songeait à ses deuils. Olivier pensait : a 5
-Hs, — Antoinette, où es-tu? + S
-
-Et Christophe :
 
 — Que me fait le succès, à présent qu'elle n'est
 plus ?
@@ -8222,11 +7905,9 @@ des arbres, qui lentement s'égouttaient. Du petit pré 4
 petites filles, dansant ensemble une ronde autour É
 de la maison; et de loin, le vent d'ouest apportait, | 4
 | comme un parfum de roses, la voix des cloches de »
-| France... ee
 
 — O paix, divine harmonie, sereine musique de l'âme
 
-ÿ délivrée, où se fondent la douleur et la joie, et la mort
 +: et là vie, et les races ennemies, les races fraternelles, e
 je aime, je te veux, je t'aurai… “2
 
@@ -8234,14 +7915,7 @@ Le voile de la nuit tomba. Christophe, sortant de son
 rêve, revit près de lui le visage fidèle de l'ami. I lui
 sourit et l''embrassa. Puis, ils se remirent en marche, à
 travers la forêt, en silence; et Christophe frayait le
-chemin à Olivier.
 n'andavan l'un dinnansi, e l''altro dopo,
-
-Se ne RACE TREND OR MER A |
-ÈS MES Le ADI EE LIST CNRS Ports PLIS SN re
-s SES ARS = &E à 28 Ar > 45 ni DER Lérse
-An ee dr ue ne LE LV ELPT CHPSRSEENES
-L'CRRROR AP TITRE OR ME MEL ns ET UE
 
 Il a été tiré de ce cahier et du cahier précédent
 treize exemplaires sur whatman ainsi distribués : Re
@@ -8267,15 +7941,6 @@ en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allaingu
 
 successeurs), 21,rue du Montparnasse, à Paris, sixième
 
-# ds. PURE et Fa
-ERP RT Mme ni AM DEEP PTE 2 ee:
-Rte LME à NET DT ENURES AE Es FILS
-M2 LPS È RP DES er PRESS
-LE ER Fe 2154 tar Ÿ HIVER FETE Vas: Fr
-PAGES Lee ENTRE > A" FE PAST ds per
-LEE NU Sex es Vi L'or Mr:
-
-_ CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement. 4
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions k
@@ -8300,21 +7965,6 @@ _ automatiquement par le rang même qu'elles occupent 4
 . naturellement aux premières inscriptions; c'est Ce numéro d'inscription qui devient automatiquement le
 - numéro du tirage réservé à chacun des souscripteurs ; e
 - lédition sur whatman est strictement limitée au
-
-D MST VE EN CR RATS ET TR ES een CETTE AE TE, UT je: AR
-
-: PRET PIC NERR re RÉ MIE ER Le re, SE DE SET £ CARS.
-RE ATEN RO : < Re Me M de nus ee eux
-RE UN: 2% o] ir DRAC een RS
-"HORCTIPARES à 2115 La eee SOINS DB
-Ar LE +: ne de ARR ST 7e
-D ne RE
-DÉEASREET | ne se AT AS NOT ASE
-: #5 2 pr: & De ë Rae a NS sr éd Pot
-
-ME re pr Dr: : LES FRUITS CNE ee
-
-, 2 ÉTAT RAA RAD, L'UATE te Eat MORTE: x
 
 Pour tout changement d'adresse envoyer soixante
 centimes, six timbres de dix centimes. Sr En

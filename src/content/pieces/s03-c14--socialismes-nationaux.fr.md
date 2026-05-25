@@ -284,7 +284,6 @@ pas le gain. Faites-le donc jouer pour rien, il ne s'y
 échauffera pas et s'y ennuiera. Ce n'est donc pas l'amusement seul qu'il recherche :un amusement languissant
 et sans passion l'ennuiera. Il faut qu'il s'y échauffe et
 qu'il se pipe lui-même, en s'imag'inant qu'il serait heureux de gagner ce qu'il ne voudrait pas qu'on lui donnât
-à condition de ne point jouer, afin qu'il se forme un d HU TN
 
 sujet de passion, et qu'il excite sur cela son désir, sa
 colère, sa crainte, pour l'objet qu'il s'est formé, comme les enfants qui s'effrayent du visage qu'ils ont barbouillé.
@@ -314,7 +313,6 @@ ni de biens, ni de domestiques pour les assister dans
 leurs besoins, ils ne laissent pas d'être misérables et
 abandonnés, parce que personne ne les empêche de songer à eux.
 
-[Cet homme si affligé de la mort de sa femme et de
 son fils unique, qui a cette grande querelle qui le
 tourmente, d'où vient qu'à ce moment il n'est pas triste,
 et qu'on le voit si exempt de toutes ces pensées pénibles À
@@ -439,8 +437,6 @@ l'état où nous ne sommes pas: et, quand nous arriverions
 à ces plaisirs, nous ne serions pas heureux pour ‘cela, î
 parce que nous aurions d'autres désirs conformes à ce
 
-Sr LA a Hurt A RATE RP.
-
 Je lis dans le Mouvement Socialiste, numéro 79, du
 samedi 15 février 1902, sous la signature de M. W.-H.
 Hollande. le Ministère et le militarisme
@@ -468,7 +464,6 @@ mais pour le faire il nous laissa toute latitude. Il nous
 laissa faire le choix, l'agencement, la composition, les
 (1) L'Aciion Socialiste, page 334. i
 
-"au UNE CITATION
 corrections sur épreuves. À peine ai-je besoin de dire
 qu'il ne toucha pas un sou dans l'opération. Moi non
 plus. J'y perdis même de l'argent. C'était du temps que
@@ -522,7 +517,6 @@ encore la paix, est préférable aux suprêmes atrocités de
 la guerre. Je cite textuellement les deux premiers paragraphes de l'article. On y saluera en passant les citations tronquées
 La France veut la paix, sans humiliation et sans
 faiblesse, mais elle veut la paix. Elle en a besoin
-me UNE CITATION
 
 pour développer sa fortune, arrêtée, sinon atteinte,
 par une longue crise ; elle en a besoin pour mener
@@ -729,7 +723,6 @@ Lagardelle ne le croit. Nous y avons lu tous les huit
 jours avec stupeur que M. Zévaëès tous les jours sauvait
 l'honneur du socialisme français. Je ne parle que pour
 mémoire de la collaboration régulière de M. Lumet ou
-de M. Garnier, et de l'envahissement de la camaraderie.
 Le Mouvement Socialiste a une tâche rare, unique;
 lui seul peut la faire : c'est tout bêtement de nous tenir
 au courant du mouvement socialiste international.
@@ -744,7 +737,6 @@ Socialiste nous renseigne aussi bien, par M. Vliegen, sur
 les affaires de Hollande, que M. Vliegen est renseigné
 sur les affaires de France, à qui croire?
 Nous reproduisons ci-après l'introduction écrite par !
-M. Sorel au livre de M. G. Gatti, le Socialisme et
 l'Agriculture, publié récemment chez Giard et Brière
 dans la Bibliothèque Socialiste Internationale.
 
@@ -773,8 +765,6 @@ autant de socialismes que de races, et M. G.Le Bon (1)
 - s'est efforcé de mettre en lumière les grandes différences
 … qui existent, à ce point de vue, entre les Latins et les
 ÿ Anglo-Saxons ; son étude est insuflisante, parce qu'elle
-
-+ (1) G. Le Bon. — Psychologie du socialisme.
 
 est fondée sur les qualifications de la psychologie
 classique; et nous savons que celle-ci a été conçue pour
@@ -896,8 +886,6 @@ RG) Dubois. |) Les. Chemins! de fer aux États-Unis, pages 163,
 . donc bien une caricature de l'ordre qui correspond à l'organisation
 … delatelier, tandis que la législation publique est une élévation de
 … la vie économique à la rationalité.
-
-ou In
 
 qu'une caricature de la régulation sociale (Æapitalistische Karikatur der gesellschaftlichen Regulirung
 des Arbeitsprocesses) telle que l'exigent la coopération
@@ -1081,7 +1069,6 @@ semble pas bien se rendre compte de ce qu'on nomme
 - ferme beaucoup d'éléments historiques. La vie ouvrière
 dn (1) D'après un article de M. Biard sur l'Industrie américaine et
 l'industrie anglaise (Bulletin de la Société d'encouragement, avril 1900,
-| page 639).
 
 n'est point, à ses yeux, un état particulier propre à une
 section du peuple, maïs plutôt une préparation, une
@@ -1204,7 +1191,6 @@ _ sans raison que de pareils phénomènes sont rapprochés
 : en matière électorale ; les masses suivent des groupes
 à peu nombreux unis autour de comités. D'après la docps trine officielle, Le syndicat est une coalition permanente,
 à (1) Office du travail. — Les associations professionnèlles ; tome I,
-| page 282.
 
 ce qui veut dire qu'il est une agence d'agitation, suscitant des difficultés incessantes au patron et épiant le
 moment favorable pour provoquer un conflit (quand le
@@ -1230,7 +1216,6 @@ de production ne s'entendent pas toujours mieux que
 les syndicats et les patrons.
 De pareils comités fonctionnent comme des comités
 (1) Le rapport de l'ingénieur en chef des mines au Conseil général
-de la Loire, en 1901, constate qu'à la suite de la réduction de la
 journée de travail la production a augmenté de 3,6 0/0, tandis que
 le nombre des ouvriers augmentait de 7,2 0/0; ainsi la productivité
 avait en moyenne diminué par homme. À
@@ -1393,7 +1378,6 @@ que disent « les avocats parlant des lois, surtout des lois ouvrières ».
 
 1 (@) Proudhon. — De la capacité politique des classes ouvrières,
 
-Georges Sorel JE
 créer des difficultés au ministère; — on a de bonnes
 raisons de supposer que les tullistes de Calais ont refusé
 d'accepter le règlement du travail en deux postes sur
@@ -1504,7 +1488,6 @@ rurale serait ainsi une annexe d'un magasin urbain;
 @) Le Mouvement socialiste, premier avril 1901, page 388 et page 393.
 G@) Cf. les conclusions du mémoire consacré par M. Varlez à la
 
-Georges Sorel. ÿ Le
 impossible d'en méconnaître davantage le vrai caractère !
 L'association agricole est l'association par excellence,
 celle qui réalise le plus complètement la notion. La
@@ -1687,7 +1670,6 @@ Cependant un jeune Chinois, passager de seconde classe,
 se précipite vers les policiers, leur offre de gros cigares
 qu'ils acceptent. Ce jeune Chinois m'a dit hier qu'il va
 s'établir à Vladivostock pour y faire du commerce : il
-# 104
 
 cherche évidemment à se concilier les bonnes grâces de
 ceux qui représentent la force. Ces Chinois sont d'excellents commerçants!
@@ -1730,10 +1712,6 @@ LR je demande la raison de la décision prise contre moi; mon
 ” j'allègue ma qualité de professeur envoyé en mission par
 
 Université de Paris, je montre les lettres données par
-
-| (ii 65 IV.
-
-|: TS
 
 , l'ambassadeur de Russie au Japon, pour le gouverneur de
 Vladivostock et d'autres gouverneurs, qui signalent cette
@@ -1874,8 +1852,6 @@ Done à la Banque, et à cette occasion me fera visiter la
 | Désormais, tous les policiers, mon policier même, me
 “Saluent avec respect. Vraiment, on ne saurait être plus
 
-Félicien Challaye QUE
-
 Ce matin, un agent de police vient me chercher et me
 conduit à terre. La chaloupe traverse le port, d'une rare
 intensité de vie : des remorqueurs, des sampans chinois,
@@ -1890,7 +1866,6 @@ des Coréens. C'est un étrange grouillement cosmopolite, un
 prodigieux confluent de toutes les nations d'Asie. — La
 ville semble sortir de terre, tant on y bâtit de tous côtés,
 tant le sol est bouleversé, défoncé, bosselé, coupé de tranchées, semé de pavés, de pièces de boïs, de tas de sable ou
-de briques, de monceaux de rails. On a le sentiment qu'on
 voit sous ses yeux construire une future très grande ville:
 c'est une capitale naissante.
 Sous la garde du policier, j'arrive au bureau du capitaine
@@ -1977,9 +1952,7 @@ d'août, je déposai une plainte au Ministère des Affaires étrangères.
 On me fit dire qu'on en prenait « bonne note », On vient de
 m'aviser qu'une enquête a été faite à Pétersbourg, et que les résultats en ont été adressés au Ministère de l'Instruction publique, où
 on me les communiquera verbalement.
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-[IMPRIMER DE SURESNES (E. PAYEN, administrateur), 9, rue au Pont. — 5811.
 
 Félicien Challaye nous prépare un courrier du Japon.
 

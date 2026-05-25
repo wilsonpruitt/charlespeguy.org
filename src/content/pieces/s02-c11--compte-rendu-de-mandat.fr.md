@@ -131,8 +131,6 @@ de nous donner tous les samedis sa grande salle sans “+ nous demander seulemen
 
 — Ça dépend, trois francs, cent sous. Quelquefois plus.
 
-— Sur combien ? )
-
 — Je ne sais pas. On a été cinquante, soixante inscrits. Il y en a qui disent quatre-vingts. Mais ils ne payaient pas leurs cotisations. Mais on ne les rayaït pas. Il faut que le groupe soït important.
 
 — Sur combien d'habitants, dans la ville ?
@@ -142,8 +140,6 @@ de nous donner tous les samedis sa grande salle sans “+ nous demander seulemen
 — Et quand il y avait réunion, est-ce qu'on faisait des quêtes ?
 
 — Faut bien. Dans une casquette. Pour les grévistes.
-
-—On ramassait combien ?
 
 — Ça dépend, quarante, cinquante sous. Quelquefois moins.
 
@@ -261,8 +257,6 @@ Pour un beau coup parlementaire, vous êtes forcé d'avouer que c'était un beau
 
 — Un autodidacte. Moi, vous savez, jen'aime pasça; Fautodictature.
 
-— L'autodidascalie.
-
 — L'autodidascalie. Je suis pour la dictature impersonnelle, comme le citoyen Vaillant.
 
 — Je vous assure que ces deux mots n'ont rien de commun.
@@ -272,8 +266,6 @@ Pour un beau coup parlementaire, vous êtes forcé d'avouer que c'était un beau
 Ce Pierre le Febvre a donc beaucoup lu pour se former et vivre comme un homme et par cela même il nous est désagréable. Et puis c'est un radical. Nous nommons radicaux les vieux républicains de province qui nous gênent. Le programme radical, c'est nous qui l'avons ramassé. Nous faisons de l'anticléricalisme bourgeois aussi fructueusement que les meilleurs élèves
 
 _ de Clemenceau. Le débat redoutable où nous assistons parmi nous vient de ce que la moitié des socialistes sont devenus des opportunistes pendant que la moitié devenaient desradicaux. Viviani estgambettiste.Zévaès j est clemenciste. — — — Monsieur, demanda Pierre Deloire, qui de l'unité ôte les deux moitiés, il ne reste rien. ; — Je ne parlais que de l'État-Major, monsieur, et nous pouvons espérer qu'il ne pèsera pas lourd. Vos interruptions sont donc oiseuses. Nous voulons bien que Zévaès parle exactement comme le citoyen Pichon discourait. Vous savez les fameux discours, avant l'ambassade. Nous voulons bien que Viviani parle un peu plus bourgeoisement que Jules Ferry. Mais nous ne voulons pas accueillir parmi nous, en province, les vieux républicains. Vous entendez la différence. Quand nous usurpons le programme radical, auquel ce pays est habitué, ou même le programme opportuniste, nous socialisons un excellent moyen de production. Quand nous fermons la porte au nez aux vieux républicains, nous sauvegardons nos moyens de consommation. Vous suivez ? — Nous tâchons. — Le programme opportuniste et le programme radis J cal produisent beaucoup de mandats. Pour des raisons que nous examinerons plus tard. Et les mandats produisent beaucoup d'avantages. Quand donc nous captons L les voix des électeurs opportunistes et radicaux en cal quant nos programmes sur les programmes opportu- nistes et sur les programmes radicaux, nous accroissons 4 d'autant nos moyens de production. Au contraire si nous faisions place aux vieux républicains parmi nous, 4 3x cela réduirait nos parts dans les moyens communs dé À consommation. Il y a si peu de places. Le monde est si étroit. Vous m'entendez à présent ? 56
-
-— Nous y atteignons.
 
 — Un exemple vous facilitera l'entendement. La République, c'est la maison. Les républicains, c'est
 
@@ -403,8 +395,6 @@ onzième cahier de la deuxième sérik À Ilest causeur infatigable. Tous les so
 
 — Le citoyen Roland n'eut pas de peine à nous démontrer que mon petit cousin n'était qu'un de ces … vils intellectuels, un dreyfusard, un bourgeois, qui veu lent commander au prolétariat, duper le prolétariat, ke: détourner de ses devoirs et de ses intérêts propres, lui. ‘4 faire oublier la lutte de classe. Puis il examina, comme il disait, la seconde face de la question. Le citoyen le ‘2 Febvre avait dit que mon petit cousin, participant au … congrès, y ferait un travail plus utile que lecitoyen Roland. — J'admets, répondit le citoyen Roland, que le citoyen Péguy s'est rendu beaucoup plus fort que. ‘à moi. — Nous lui sûmes le plus grand gré de cette humi- “#"" lité feinte. — J'admets que le citoyen Péguy est beauM) coup plus fort que moi. La question n'est pas là. Mais la question est beaucoup plus précise. — Nous aimons les questions précises, n'est-ce pas. Nous sommes des hommes d'affaires, et non pas des hommes parleurs.
 
-Le we À
-
 ee, La question n'ést pas de savoir qui travaillera le plus î et le mieux dans le congrès à la préparation de la révod 4 lution sociale ; mais la question est de savoir qui sou2 tiendra ie plus dans le congrès les intérêts du groupe. ï L'électeur avant tout. Nous valons bien les bourgeois. pe Nous avons longtemps déclamé avec eux pour le seru È un de liste contre le scrutin d'arrondissement. Le 1 scrutin d'arrondissement substituait à la politique À d'idées la politique d'affaires locales. Mais quand nous J eûmes à constituer nos assemblées parlementaires, 3 nous imaginâmes un scrutin près de qui le scrutin d'arrondissement paraît vaste ainsi que le vaste monde. à Nous imaginâmes le scrutin de groupe, ou de quartier. ÿ Enfin nous pratiquons pour nos assemblées parlemen3 taires ce suffrage restreint et ce suffrage à deux degrés, 4 et à plusieurs degrés, contre lesquels nous avons mené à de si ardentes campagnes. A l'usage nous nous aperÀ cevons qu'ils sont fort commodes. 4 Un exemple vous facilitera l'entendement. Quand les È électeurs de la première circonscription d'Orléans sont 4 convoqués pour élire un député, ils ne se demandent #4 pas qui sera le meilleur député. Car le député d'Orléans k n'est pas le délégué d'Orléans à la meilleure adminis- tration de la France avec les délégués des autres cirl conscriptions françaises. Mais, puisque nous vivons : Fe sous le régime universel de la concurrence, et puisque la concurrence politique est la plus aiguë des concur-
 
 FE rences, le député d'Orléans est exactement le délégué d'Orléans à soutenir les intérêts orléanais contre les délégués des autres circonscriptions, qui eux-mêmes en
@@ -438,8 +428,6 @@ CM ORNE Paie FRERE ONLL EU ET NA DAT d 45 COLLÈGE LIBRE DES SCIENCES SOCIALES �
 ; Przcer, professeur agrégé à la Faculté de Droit de l'Univer- sité de Paris.
 
 L Révern, professeur au éollège Sainte-Barbe. !
-
-Eve RiGoLAGE, agrégé de l'Université. Bo
 
 E. pe ROBERTY. Li En ! Rouaxer, député de Paris. 22 ANR UR 4 À Fézrx RousseL, conseiller municipal de Paris. LAPE de SALEILLES, professeur à la Faculté de Droit de l'Université de Paris. AE SEIGNoBos, professeur adjoint à la Faculté des lettres de l'Université de Paris. “ 3- Madame Sourey-DARQUÉ. RL Pau Srrauss, sénateur de la Seine. ELA « SON TARBoURIECH, docteur en droit. Den TARDE, professeur au Collège de France. » Ja THALLER, professeur à la Faculté de Droit de l'Université ( de Paris. É A Le Max TurMANN, publiciste. À pe VILA, ouvrier papetier, secrétaire de la Chambre consul- « tative des Associations ouvrières de production. ‘1- Maurice Waur, inspecteur général honoraire de l'enseiM} : gnement aux colonies. RU WEser, actuaire de l'Office du Travail. Lie ‘ LEA PROGRAMME DES COURS P. LS , FM THÉORIE ET MÉTHODE A = LA M VISITES INDUSTRIELLES ET SOCIALES DIN sous la direction de M. CHarLes BARRAT, enquêteur permanent à l'Office du Travail A A. Uiilisation des déchets d'une grande ville. Far a) Industrie du chiffon. — Les cités d'ouvriers chiffonniers. — Les » ouvriers chiffonniers ramasseurs. — Les petits marchands revendeurs. — Le triage des résidus. — Le commerce des chiffons et du vieux papier. — Les grandes usines. — Les fabriques de carton de la banlieue parisienne. VAE b) Industrie des engrais. Utilisation des ordures ménagères pour 17 la fabrication des engrais. — L'usine de broyage des ordures ména- … gères. — Les champs d'épandage. — Les usines élévatoires. — Les … égouts de la Ville de Paris. y EU) B. Les Sociétés coopératives. Ares a) Sociétés coopératives de consommation. — Celles qui sont composées en majeure partie d'adhérents ouvriers. — Celles dont les nl a ouvriers ne forment pas la majeure partie des adhérents. — Ori ! gines. — Résultats. b} Sociétés coopératives ouvrières de production, fondées : 1* à la 5 suite d'une grève pour recueillir les ouvriers renvoyés; 2 par un ie syndicat pour maintenir les salaires ; 3* en vue de l'émancipation du prolétariat. c) Les organisations d'assistance par le travail. DÉMOGRAPHIE M. le docteur JAcQUuEs BERTILLON, chef des travaux À - statistiques de la Ville de Paris Lois du développement de la population. — Nuptialité. — Natalité. — Mortalité. — Migration. — Mouvements de population par classes sociales, par professions. i Statistique morale (religion, instruction, divorce), statistique judi: ciaire, etc. Ù MÉTHODE GÉOGRAPHIQUE È Application des données géographiques à l'étude de quelques L problèmes pratiques d'économie sociale M. JeAN BruNKESs, professeur à l'Université de Fribourg (Suisse)
 
@@ -499,8 +487,6 @@ Re AR travail. — M. BRETON, directeur de l'Industrie.. La législation de la p
 
 L'inspection du travail par des délégués ouvriers. — : À RTE A. FonTAINE, directeur du Travail.
 
-di. E a doctrine socialiste. — M. VAILLANT, député de la Seine.
-
 _ AnrrTiGrxe PREMIER. — Pour obtenir le Certificat
 
 Sr dE udes sociales, l'étudiant doit produire trois attesta- tions, délivrées chacune par un professeur. ‘ ÿ aie Arrnicze 2. — Une de ces attestations porte mention
@@ -510,10 +496,6 @@ Sr dE udes sociales, l'étudiant doit produire trois attesta- tions, délivrées
 But de la fondation 4 ARTICLE PREMIER. — Le Collège libre des sciences sociales, 3 € établissement libre d'enseignement supérieur, a organisé l'enseignement des sciences sociales à Paris. it ARTICLE 2. — Les chaires sont autonomes. Chaque profes. seur a la direction et la responsabilité de son cours dansla limite du respect de la loi. Le titre de professeur au ColNe lège libre des Sciences sociales s'acquiert par l'inscription 4 sur les listes publiées chaque année, et revisées par le comité de perfectionnement. C- Administration FALSE A ARTICLE 3. — Le Collège est administré par : 72.00 55 1° Un comité de perfectionnement ; RASE 70 IC
 
 2° Un comité de direction composé de dix membres et des administrateurs ; +
-
-3° Un directeur;
-
-4° Un secrétaire général ;
 
 - 5° Un secrétaire-trésorier. AnvIcLe 4. — Lecomité de perfectionnement reçoit les rap\ ports et comptes rendus du directeur et du comité de direction. à ARTICLE 5. — Le directeur est chargé du maintien de ordre. IL préside de droit le comité de direction.
 

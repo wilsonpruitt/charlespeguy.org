@@ -7,7 +7,6 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 18904
 ---
-| Ÿ k M "1
 un peu de vérité sur la mort des otages
 la fusillade
 
@@ -53,8 +52,6 @@ qui, sans lever l'arme — les exécuteurs étaient tellement
 pressés les uns contre les autres qu'il eût pu blesser
 quelqu'un d'eux — cria :
 
-Le peloton tira.
-
 Tous tombèrent, excepté l'archevêque.
 
 — Mais il est donc blindé, celui-là ! cria Lolive, en
@@ -77,7 +74,6 @@ lui aussi, et s'appeler le mur des Fédérés.
 
 : procès-verbal de l'exécution, comme le leur avait prescrit Ferré. |
 
-Sur le seuil de la mairie se tenaient à ce moment
 plusieurs membres de la Commune, Vermorel(2) qui
 
 (1) Quand il comparut devant le conseil, Lolive avoua avoir rechargé son fusil.
@@ -92,8 +88,6 @@ de feu, vous avez rechargé votre arme pour tirer de nouveau.
 (2) Vermorel (Auguste), membre de la Commune (dix-huitième
 arrondissement) ; blessé boulevard Voltaire le 25 mai, mort à lPhô-
 pital de Versailles le 20 juin 1871.
-
-|
 
 un peu de vérité sur la mort des otages # ÿ
 devait être grièvement blessé le lendemain, Jourde, (1) |
@@ -118,7 +112,6 @@ voudra franchir la porte de Vincennes ?
 
 La nouvelle de l'exécution de l'archevêque s'était
 répandue rapidement dans la foule qui encombraït les
-abords de la mairie et de la prison.
 
 Les hommes du peloton avaient raconté les détails
 du drame. L'odeur de sang qui flottait depuis le matin $
@@ -218,7 +211,6 @@ de son devoir de protester et le dialogue suivant s'engagea entre
 le commandant et la « compagne » de François :
 Le commandant. — Votre mari ?
 Zélie Grandel. — Oui. Mon mari !
-Le commandant. — À la mode de la Commune.
 Zélie Grandel. — Oui, monsieur. Mais mon mari ! Lt
 L'acte d'accusation portait: Fille Grandel, concubine de François.
 
@@ -306,21 +298,6 @@ avait pris le fusil. Il passait place Voltaire quand le peloton se
 dirigeait vers la Roquette. Il se mêla aux hommes, et les suivit
 jusqu'au mur. Jouannin mourut il y a une dizaine d'années, à Moulins, sa ville natale. Sa famille lui fit faire des obsèques religieuses.
 
-HE et ERA nie DRE ASC. NC DRE "A VRAI ETES FN
-
-ne FRS En Te. pra A EEE INR RUN OUS FU
-MAT à CU PES RAT APPAS nu LOTS FAURE L'
-a Rae à js AUS UN A RER ee ENTER
-as LUE NES NES LEUR SES ris
-SUR RAT re fiefs RE 4 AR EN ï
-ND. el UNE" PE TRES NU MENU ee LureMEre *
-mo D Do. EL er AUS RD AE FPS Durs Dune de
-ee dE UU RS Aie CU HANAUE SIA Ron Re
-
-de ER AE PE EE NN que AIS ALIAS RARE RU NOUS RE FEI LAN LR .
-
-NS EZS lee FE ART Re REINE IEEE +) LE
-
 Si nous allions chercher Jecker (1)
 
 Le vendredi 26 mai, peu après le lever du jour, la
@@ -359,7 +336,6 @@ l'écart.
 
 Trois hommes donnaient des ordres aux combattants:
 Liberton, commandant du 275°; G..., capitaine d'armement au même bataillon, et Adolphe Baudoïn, lieutenant
-de la r°° compagnie. j
 
 Ce 275°, bien que tardivement formé, n'en prit pas
 moins une part très active à la lutte. Lorsque le 9 mars
@@ -383,7 +359,6 @@ causant avec un membre de la Commune de l'arrondissement, Géresme (2) et deux a
 La conversation s'engagea sur la défense du Trône.
 
 — C'est dommage que nous n'ayons pas de canons!
-dit G... Ce qu'on balayceraiïit ça, de là-haut!
 
 (1) Adolphe Baudoin qui, au moment où éclata le 18 Mars, était
 sous-officier d'artillerie de l'armée, fut fusillé à Satory le 6 juillet -
@@ -416,13 +391,11 @@ Père-Lachaise, a été percée après les événements.
 (2) Dans le récit des Droits de l'Homme, c'est Clavier, désigné
 sous le nom de « l'homme », qui apporte de la mairie l'ordre de
 fusiller Jecker. C'est une erreur. Clavier n'est pas monté à la 5
-mairie, et il ny a eu auçun ordre, ni de la Commune, ni de quiconque. |
 
 un peu de vérité sur la mort des otages
 ; Le nom du banquier mexicain (x) est prononcé pour la ;
 première fois par Clavier, on ne sait à la suite de quelle
 
-Est-ce le voisinage de la Roquette où on a fusillé
 lavant-veille, le mercredi soir ?
 
 Pourquoi Jecker plus qu'un autre ? à
@@ -502,7 +475,6 @@ François donna l'ordre d'extraire Jecker de sa cellule,
 dit-il à demi-voix. Hier encore, il me proposait un million pour s'évader. (1)
 La porte de l'escalier qui conduisait au corridor du
 premier étage du pavillon Ouest, où était Jecker, s'ouvrit.
-Le condamné parut. |
 La redingote serrée à la taille, boutonnée jusqu'au
 menton, les cheveux coupés ras, la barbe grisonnante
 soigneusement taillée, correct, Jecker avait le visage |
@@ -543,7 +515,6 @@ tenter la fortune que je voulais retourner à Mexico. (1)
 que vous faisiez hier encore à François ?
 — Mais, répondit brusquement Jecker, je n'ai jamais
 | fait d'offres à personne, pas plus à M. François qu'à
-| quiconque.
 
 — François vient de me dire à l'instant que vous lui
 
@@ -574,7 +545,6 @@ dait le groupe.
 — Où allons-nous ? demanda quelqu'un.
 — Allons aux Partanis! répondit Clavier. Comme cela,
 nous verrons si l'on a envoyé nos canons au Trône !
-La montée
 Après avoir suivi la rue de la Roquette, $usqu'au
 Père-Lachaise, et longé ensuite le boulevard de Ménil- -
 montant, on s'engagea dans la rue des Amandiers,
@@ -585,12 +555,10 @@ Malgré l'heure matinale, des fédérés, des femmes, Ë
 des gamins, sont sur le pas des portes, à l'entrée des
 On dévisage le prisonnier, dont la tenue correcte,
 l'attitude sévère, augmentent la curiosité,
-— Qui est-ce ?
 — Où allez-vous ? -
 Et quand ils apprennent que cet homme, entouré si
 étroitement, est « l'homme du Mexique », celui dont le
 nom a si souvent frappé leurs oreilles, Jecker, le fameux
-— Nous en sommes !
 Et üls suivent, le fusil sur l'épaule.
 — ]1 nous fallait, me disait G..., refuser du monde !
 Augmenté des hommes « de bonne volonté », le cortège arriva au coin du chemin des Partants.
@@ -606,7 +574,6 @@ Jecker était muet, comme absorbé.
 On marchait depuis plus d'un quart d'heure.
 
 Cest bougrement loin! dit M., quand on arriva rue
-de Puebla (1)... Si on le fusillait là...
 
 Jecker ne broncha pas.
 
@@ -681,11 +648,6 @@ François « fouilla le cadavre, prit le portefeuille et le porte-
 (2) Nous répétons le mot tel qu'il nous a été rapporté par l'un
 des acteurs du drame. Voir aux Annexes, note VI, page 229.
 
-He nt te MAS en qu RE Le EU wi etAno TES
-de 1; 1 A ARE) HAE STE MA D LES AN EL Ne AAA ES nn HEURE MS DEVRA à 4
-LEE us : 0 SNS M UE dE EN AR TE AN que
-DT MA HET RE AtES AS ART Due ea ea, JE AI) NES : NAS
-
 Jecker venait de tomber, quand deux hommes, attirés
 . par les coups de feu, arrivèrent en courant.
 
@@ -707,10 +669,8 @@ Et, fixant le cadavre :
 | — C'est Jecker,
 | — Jecker !.. Où l'avez-vous été prendre ?
 — A la Roquette.
-| — Ah! à la Roquette.…..
 
 un peu de vérité sur la mort des otages
-Puis brusquement :
 — Mais, si nous allions en chercher d'autres, à la
 Roquette!… Des curés... Des gendarmes... (1)
 Personne ne répondit.
@@ -731,7 +691,6 @@ condamnés, François, de remettre à qui de droit les gendarmes
 détenus à la Grande Roquette et tous les otages que le peloton d'escorte pourrait emmener ».
 Cet ordre vague n'a jamais existé que dans l'imagination de
 M. Maxime du Camp. Là aussi, comme dans ses récits de la mort
-de l'archevêque et de la mort de Jecker, M. Maxime du Camp a
 maintes fois faussé compagnie à la vérité. « Gois monte à cheval. »
 (page 307) Ranvier dit à Gois à la mairie de Belleville: « Va me 7
 fusiller tout cela aux remparts. » (page 310) Autant d'inventions, 5
@@ -780,7 +739,6 @@ un peu de vérité sur la mort des otages
 en tout, il redescendit avec G. vers le Père-Lachaïse et
 la Roquette, où l'attendaient depuis de longues heures
 ses compagnons.
-Il m'en faut cinquante.
 Ces préparatifs avaient pris toute la matinée. Il était
 déjà deux heures quand les cinq exécuteurs de Jecker,
 Goiïs, C... et leur troupe armée, se présentèrent à la
@@ -791,7 +749,6 @@ A François, qui se présenta, Goïis dit brusquement :
 
 — Nous venons chercher les otages ! à
 
-— Tu as un ordre? interrogea François. Je ne te
 livrerai personne sans ordre. C'est déjà assez de Jecker.
 Qu'en avez-vous fait ?
 
@@ -1042,8 +999,6 @@ Giffault fit un signe. Largillière se leva. Les deux
 
 Largillière avait pali.
 
-— Un renseignement.
-
 Deux agents en bourgeois s'étaient approchés. Largillière comprit.
 
 — Encore des calomnies! s'écria-t-il. Je sais que j'ai
@@ -1105,8 +1060,6 @@ serait fusillé le lendemain. Le lendemain, Ruault faisait des révé-
 lations, et l'affaire n'eut pas de suite. » (Gazette des Tribunaux.
 (2) Regnard (Albert), docteur en médecine, secrétaire général de
 la Préfecture de police. ÿ
-
-| LA RUE HAXO
 
 On mit devant Ruault une feuille de papier blanc, et
 on lui dit d'écrire quelques lignes.
@@ -1181,7 +1134,6 @@ Couvrant les vociférations, ils sonnent à plein cuivre
 la marche populaire du siège :
 
 Y a la goutte à boire là-bas.
-Y a la goutte à boire !.…
 
 En tête, marche Goiïs, en costume de colonel fédéré,
 à pied. Ceux qui l'ont accompagné à la Roquette sont
@@ -1249,7 +1201,6 @@ ouverte laissait voir un amoncellement de vieilles
 choses, datant peut-être d'un demi-siècle, il me sembla \
 que devait flotter encore, au milieu des paperasses et
 des détritus, le souffle des terribles jours de la semaine
-de Mai.
 Une femme était sur le seuil.
 Qui sait? Jeune, déjà là, elle avait peut-être vu passer
 les otages!
@@ -1338,7 +1289,6 @@ sur les murs, des gardes assis à la porte des cabarets,
 un peu de vérité sur la mort des otages |
 le fusil entre les jambes. Au milieu, serré dans la foule,
 un cavalier galonné.
-Les otages attendaient.
 Un des officiers qui avaient pris, depuis la prison, la
 je tête du cortège, se tourna vers la fenêtre où se tenaïent
 les deux membres de la Commune, et, du sabre nu, fit
@@ -1349,8 +1299,6 @@ A peine avait-il levé son arme, que dans cette foule
 désordonnée et hurlante, un silence se fit.
 
 Tous les regards se dirigèrent vers la fenêtre.
-
-L'oflicier parlait.
 
 Il s'adressait à Eudes, qui était là, coiffé du chapeau
 mou de ses Enfants Perdus.
@@ -1389,7 +1337,6 @@ Quelque chose lui disait-il, à cette foule exaspérée
 par la déroute, qu'une vengeance terrible allait lui
 être offerte, et qu'au pied de ce mur qu'elle regardait Ç
 depuis l'arrivée du cortège, les otages allaient être
-le mur
 Un quart d'heure avant la fusillade, trois hommes,
 dont un membre de la Commune, Avrial, et deux journalistes, Lissagaray (2) et Alphonse Humbert (3) se ]
 trouvaient dans la salle du premier étage d'un petit |
@@ -1408,7 +1355,6 @@ des Tourelles.
 du Père Duchéêne.
 (4) Roullier (Edouard), cordonnier, membre de la Commission
 du travail et de l'échange (5 avril).
-| 203 Ÿ
 
 un peu de vérité sur la mort des otages |
 Déjà, à l'arrivée du cortège, les quelques membres
@@ -1555,7 +1501,6 @@ dun témoin devant le sixième conseil de guerre. Grimpé sur le
 mur de la rue du Borrégo, ce témoin vit, jusqu'au dernier moment,
 Ruault, qu'on appelait dans son quartier « le père Joseph ».
 
-&* où APPART DU
 un peu de vérilé sur la mort des otages
 
 Quand tout fut fini, quand le tas ne remua plus, les
@@ -1598,9 +1543,7 @@ Ce tas de morts, au bas du mur, dans la terre rougie!
 
 Gois sortit de sa poche un papier plié qu'il ouvrit lentement, et qu'il déposa sur le rebord du petit mur.
 
-di LA RUE HAXO
 C'était la liste des cinquante otages qu'il avait pris à
-| la Roquette. (1) ÿ
 Les deux officiers s'approchèrent du tas des morts,
 À les soulevèrent, comme s'ils cherchaïent à les recon-
 : naître, à les identifier.
@@ -1616,7 +1559,6 @@ Lorsque les morts furent étendus, ils les comptèrent.
 encore.
 | — Voilà bien, dit Gois, dix curés. quatre de la police. trente-six militaires. Cela ne fait pourtant que
 Gois reprit sa liste, compta encore.
-— Décidément ! il°y en a un de trop!
 celui qui est de trop
 Les deux hommes se regardèrent.
 Pendant la fusillade, lorsque, du coin du pavillon, à
@@ -1624,7 +1566,6 @@ Pendant la fusillade, lorsque, du coin du pavillon, à
 nombre de cinquante. G., qui les a comptés à l'entrée au secteur,
 me l'a affirmé de la façon la plus formelle. Ceci pour rectifier les
 listes fantaisistes, toutes différentes, données jusqu'ici.
-| 209 otages. — 6.
 
 un peu de vérité sur la mort des otages \
 droite du mur, il assistait à l'exécution, à quelques pas
@@ -1907,31 +1848,6 @@ Saint-Jacques, ceux de Satory, qui marchaient en :
 longues files, venant par centaines, par milliers, se coucher au pied du mur, emplir le jardin, former une terrifiante montagne dont j'avais peine à voir le faîte, et sous
 laquelle disparaissaient les cinquante victimes du 26 mai
 
-LA PET PU be AS Le ar
-RSS CE de us RE CARO a MAN ta RO 5
-NE NE CE Es AS SMART PI RP Un AU re SN AT NE Nes CR DATI ENS : We:
-j'te RS Rss ÿ DATE ON RQ ee M
-| EM
-AA HA AA Mes ue ce PURE ROUEN PA ee
-LP NE A, à x vu d: il de ù EUR PRE AE. RAT e 2% n
-eee SERRES le EL Ù EIRE TTEN EEE 0 TR SR LLC TRE
-ne FN TNISRRPEAR ERE PA RE MEN NE RO NAT
-LORD RTE AREAS MENTES FE Re LEA TEA) dan ci M'EST EE HENRI
-PAIE Ce RAS ot RSA A CR PET RARE HUIT Ron
-RS AT RATE Gr n es RS ee Xe MES jeu TEE 2 Jeu
-Do Mise TR A LES à HE RSMEMeE
-
-et SAN EN PR ARTE MES ART LA RTE AUS RAS
-is ar pi ne. NET ie 7 na tone
-CRAN Fes ne Fan DONS orne Le AS AN Ce À
-NEO 1 RAT NES Ne FO AE RL tail Heat
-fe Re ENS SES RDS LEE NA ie 1 EE ME AA NEPAL NAN EX CURE Sea à dress
-jf RSS Mr A A ne Re APTE SACS
-14) EEE NE eu je RNA Er RD RAP RE DR ETES"
-et Rd ar NY SMS ETES RO RUE A AG UE MERE Le ER
-| FOEUS ARS RNA PEUT j hrs RS NOTES FACE
-TETE 3 È LAC FAP ur f s PAR UE te
-
 Page 125. — L'Histoire qui. se trompe)
 
 M. Maxime du Camp n'est pas le seul qui, volontairement ou non, ait travesti les faits. Certains membres
@@ -1974,7 +1890,6 @@ cutés de nouveaux otages à la Roquette.
 Aucun otage ne fut fusillé le 26 à la Roquette. Jecker
 fut fusillé rue de la Chine. Les cinquante otages de |
 l'après-midi furent conduits rue Haxo. d
-(Page 143. — Sur Beaufort)
 Lissagaray dans son Histoire de la Commune, Da
 Costa dans sa Commune Vécue, semblent ignorer les
 circonstances dans lesquelles Beaufort se mêla au mou- 2
@@ -1995,7 +1910,6 @@ vivement un homme d'une trentaine d'années, à la physionomie très intelligent
 fois de le sauver.
 — Nous venons de faire l'impossible, vous l'avez vu, sans
 Presque en même temps retentit une décharge non loin
-de là.
 L'homme tressaille et se couvre le visage, éperdu.
 — Entendez-vous, répond Deleseluze. Voilà le résultat de
 vos menées contre la Commune. C'est vous et vos amis qui
@@ -2076,7 +1990,6 @@ de Paris (considérés comme ennemis), que le pape se porte |
 M. Hyacinthe Loyson a confirmé ce grave propos …
 dans un article, paru dans le Siècle du 22 janvier 1906, R
 
-2 sous le titre « De Pie IX à Pie X ». Il rapporte comme 54
 suit sa conversation avec Pie IX : 3
 
 Ce fut dans de telles conjonctures qu'eut lieu l'un de mes
@@ -2106,7 +2019,6 @@ Vénérable Frère Georges, Archevêque de Paris »; repro-
 vier (à partir de la 3° édition). j
 ; Lire encore l'étude très documentée parue dans la i
 Revue d'Histoire et de Littérature religieuses, numéro de : 3
-Le NW tes
 
 Paris) intitulée: Monseigneur Darboy et le Saint-Siège.
 (Page 159. — Sur deux lanternes)
@@ -2197,22 +2109,7 @@ Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce onzième cahier
 et pour vingt exemplaires sur whatman le mardi
 
-Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
-
-A Dire
-ee. Are à ee je . ARS
-éros Ne ne a HR à
-PE AAC et PAS AE AR FE MU RER Re RPRRERE nes FA À LI NAR
-Les He ue RENE RARE RAA * Fi NA UIN EE en
-RES tas RES ne Mai 4 EUR RP SAGE Hs KES
-Ds de A É RE PA ALU ue LR ne
-À D NE A A Re AT HÉNARET BHENREe ‘isa
-ce ue PE SM TEA ; À A S FA RUE
-eo ON NES (RAD) En IE QE ARE NE HAN Abe A (CSSS
-PMR $ AMAR VAR PR RUE Er KR VUE va NA Foy Fe UN À ARS <
-Aves | HHMESE Pare RIRE ACTA SE Ne AR : RITES
-|} 1 ETAT TN
 
 Il a été tiré de ce cahier vingt exemplaires sur
 #whatman ainsi distribués :
@@ -2230,24 +2127,11 @@ pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
 
-e: DUREE U FE os à PURE ne DR TR
-Pa PRE LE FA er PLUEE RTS EE PARA ES :
-Pr Re DANCE VUS EN AR MAN LÉLIERN ra Par à RER AUE PE
-Ne RCA SR ee Pi LT UURE AS one re |
-ee HAE MnGES AREA + è VAE L: HER LR ke “
-St M ENTER É AT RECU LME DE à a <a rs
-pi CRD PANTIN] Û Ni &7 #4 ‘ É ae NE FAC M Lil k
-(ARE SON IP AE “2 Ant PA é 4h74 ( APE Len
-ve LUE f “ A de k RS EM nt
-
-AU NE NA à te He HT ie RE
-
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il sufjit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième, de la quatrième, de la
 cinquième, de la sixième ou de la septième série.
 
 Pour savoir ce qui a paru dans les cinq premières
@@ -2265,22 +2149,6 @@ Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinzaine en quinzaine,
 à leur date, les cahiers à paraître de cette neuvième
 
-Des Se SLR ANTONE
-ee re ie HN E SAC Le
-races $ HA Ci AUX EU PA AT ACHETE a PRESS Ne EE 537 : PUS ee
-à et L'an ne SR A Al
-un si Fee NRA Re AN RASE HSE AS i RTS
-
-Pa | TURC EEE î CA ES pere AE Et ‘QU ea
-SAR TNT AE RES) UE TEST DRE NUL ne FINE
-re HT ANNE TEE der MALTE Fe 1 A NS TES “NE
-Me a LE HONOR { Cas NIUE x + st Les RAT DE PTE 4
-
-js HT AS A ns es L'AIDER
-vie on. Ne a AS RIRE TU PRO HERO l'A se
-
-on
-_ … CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, j
 rez-de-chaussée, Paris, cinquième arrondissement. S
 Nos Cahiers sont édités par des souscriptions men- 5
 suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur :
@@ -2305,20 +2173,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 naturellement aux premières inscriptions; c'est ce numéro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est striciement limitée au
-
-NT ES ape NUE RU RURSX HOT RAGE Ste LA
-SA es eee ar He
-
-Vi HARAS JS ASE RAT pra LR A PA NE FA Mes RU SD RL
-
-AB En PERLE RE Gr RW LÀ NEA dr ne ARTE ON Tee LAON ES k à
-
-Ne se Pre DRE 1 RSR : ( 4] A PES ETS nr à ARS LAN
-ne, Ne st SEA AT AE OS SE an \
-ne LH ATEN ORNE ee | RICE 1 x
-ta tr SUN Ne ou MR + 1
-
-RAR Une
 
 Pour tout changement d'adresse envoyer soixante
 centimes, six timbres de dix centimes.

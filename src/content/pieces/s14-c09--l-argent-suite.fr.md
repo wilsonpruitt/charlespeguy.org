@@ -7,99 +7,20 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 71577
 ---
-à dot area 47 MA Rue sx 1e NUE:
-: purs 2 RE 46 Les SES LAN
-Fa du Rey
-je. PPS
-
 139987
 10.16
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
-LA hi MAY E MENT PR KES CRE É
-
-RAR UNE, Pres
-
-À AUS ä BOT ee PLUS RS LL TT
-
-TAN PERIN L BE Qt PRE FT VAN ss
-Une a LL4 + k LA ete SÉPRUNR
-
-A er 9 DA ET TERRES L
-
-> Er SC RSR
-
-ou ; NE EL EF ete RATS a he (
-“dir ( Sa OMAN ER AS RTE EE ns
-
-ARMOR: dat MU DR OU TER MONA OUT AUS INA
-a dan: ” « el ë k et es? ete! SARENTERN UE
-00 | A RUE re NE ni
-“FAN « & et vor x
-
-|
-
-De r D FN PAR ONE ‘gi
-
-# +) + nwr L ve { À à à % F
-É 4 CANLII vu: QUE ER LU LE (TR ARS
-: FN rh du « vu tr F0 ñ
-Le ARR HOUR tre
-> +, LA) "# | 4 k INT +
-| TPACUER # ‘ Ÿ LÉ ANS Lite
-
 en vente à la librairie des cahiers
 Charles Péguy. — les sept contre Paris. — I. — Paris ;
 — Il. — la banlieue; — deux poèmes dans la Grande
 
-LÀ 2-4 Pc NTIC # Do PARA Ro oil Nr me NUL + Le
-ET Le LU RTE EX le dial Eat L'LIP EAST
-FAN. CNT 124 DA PAS iles NE ee! A PAPE RAR r NE NE
-if RTE RU LT Ne AR .| {tt FUN
-à 8e A à Nr Pan TUE UT a MAG et DA GTS
-
-CAES ALU re EUR Le TT AMONT En ENT à
-'ERGSS one ne) 47 tan nl AE VOA LATE ER Le PAR
-PR en Le Len PPT er AREUI UT Gr 197 UN OT SE PRES
-LES CABREMET TRE NRA ad a NT, ET er part ANT 44 Jr LEErS PO E/
-4 SUR ALT cs he
-YA ne En dt DER SUPREME RS. ES ACTUPNTRS Fi TRY
-
-| CSS RL AS
-« LR (42 1 The l SR ES TON QE %. e MA LE DFA NEC EN A Con HER US Lt
-Per: F7 Vi ï Ê a LE TE LCA TR ANTE NAN
-
-je
 aux Cahiers de la Quinzaine
 Charles Péguy. — l'argent, — sixième cahier de cette
 
-ns SA NA SCORE
-, LONGER AMP E RE EAN Jr GAS IE pue ? ces. Ut AS
-DE na V NA Ÿ s ; 14 ei At
-| <MOBLES , | Line ps a 4
-[PA HUE AU j (re DST ARE LS A TA TU TES LEE Eh?” Cor W SU
-
-Le PEUT D RE FAT OUT Joue Car SCC PE rl ANR NES
-ta PA FAR “4 à es es HET OE EN Ds hé #1 LA?! 5e Di TRCEN
-AC Ne es ap ie CS RIT AS TR AR es LANDES
-Ear2 : PAT X « È “à r-dé 07 Le 1, txE PAT ME
-ei. ne . ”." N'JAUNNENNEESS
-M NL ne nr ni Lt ul Re
-
-4,5 TOURS RAR Nan An + Tes
-CC un à
-
-| La
 l'argent suite 0
 
-RL de TE 7 "En UNE ATEN DEA
-Nr REP EN Mn DR ML TA de 59 ni it F $
-RE LE SEAT ir SE EC PSS M EC ORNE
-# Jui Si À d 1 Le 748
-| KE 35700 ‘ DELA
-
-LA Tele Le A ee TE Dre tr
 ke M. Lanson tel qu'on le loue. — J'en dirai autant dd
 De M. Lanson. Dans ce même numéro de cette même US
 à Revue Critique où M. Langlois trouve presque que 2e
@@ -108,7 +29,6 @@ _ 15 janvier 1913 M. Rudler trouve naturellement que TE
 ÿ M. Lanson est tout à fait un très grand écrivain. Je n'y 14288
 _  reviendrais pas, M. Rudler ayant tous les droits de
 trouver comme par hasard que M. Lanson est un très Re +
-L- grand écrivain et par conséquent de le dire, si ce qu'il ta : #
 __ y a cette fois-ci d'intéressant, ce n'était sur quoi FT
 …_ M. Rudier trouve cette fois-ci que M. Lanson est un à
 _ très grand écrivain. Je lis dans ce numéro le compte. LE
@@ -119,10 +39,7 @@ _.etleurs maîtres, de conversation avec des informateurssûrs 4e
 _ et éminents, c'est assez pour voir beaucoup, et, selon toute ee
 _ apparence, pour voir juste, à condition d'avoir l'œil prompt à Lun
 Re: et net, l'esprit aigu, la pensée en éveil, l'habitude des
-# as | J'AUr La
-Ni F Ter k
 
-Mr": \ L HEAR ii ROUEN EL Te SANT NE h
 Fu ; 4 méthodes exactes, et l'amour puissant du vrai. De son bref FAN ee |
 RAR, séjour aux États-Unis, M. Lanson a tiré un livre vif, fin, 2710 |
 _ précis, probe, et singulièrement riche. La couleur y est 4 a |
@@ -156,7 +73,6 @@ TS campagne, quelques parties du Canada, différents types x
 , : d'hommes et de femmes, quelques traits saillants du carac- QAR
 gh tère et de l'esprit nationaux, quelques formes de la vie;car M4
 
-Le re MST Re VAT 1 NS S Re 1 L'ET CNP DORE ES net ; RC
 toute généralisation hâtive a trop de chances d'être fausse. ,
 4 — Le gros de l'ouvrage décrit le régime de l'enseignement,
 Collèges, Universités, Cours de jeunes filles, Bibliothèques,
@@ -232,12 +148,10 @@ voilà une de ces formes qu'un écrivain n'emploie jamais; 4
 
 sans savoir pourquoi. Mais il ne s'agit peut-être pas de RS
 
-c demander de l'écrivain et de la race à M. Rudler. 1
 (1) M. Rudler piquant, ou M. Rudler piqué. Non. |
 
 | 18 1
 
-GORE he 2° RME Ra PAR ER re: es ARRET QE ce PP Pr SE À
 | Que dirai-je de Sirius, lointain et démodé. Quelle Mer
 ne. vulgarité. Et cet emploi de antinomies est bien hasar- di “SR
 deux et risque bien d'être impropre et purement litté- 1
@@ -249,7 +163,6 @@ est une science très particulière et M. Rudler n'a pas *
 - je demandais pour M. Langlois. Je demande : Qui
 trompe-t-on. Je demande : Qu'est-ce que la méthode. F s
 
-. Et y a-til une méthode ou »'y en a-t-il pas. Et pour Des
 qui est faite la méthode. Et si nos maîtres sont lassés LUS
 de la méthode, qu'au moins ils le disent. Vi
 #94 C'est nous autres imbéciles, c'est nous écrivains, Ta
@@ -268,7 +181,6 @@ rique depuis le commencement des Incas et même avant, (42
 3 Nord tient au Mexique et, par l'Amérique Centrale, à Es % 2
 4 l'Amérique du Sud). C'est nous autres comédiens qui ‘a 3
 -_ avons le droit d'aller trois mois en Amérique et de …
-f regarder; et de voir, et de rapporter, et de parler, et de De
 â 5 conter. M. Lanson est tenu de dépouiller auparavant et PAR
 À d'épuiser toute la documentation et toute la littérature | 5 #4
 _ sur l'Amérique. Autrement M. Lanson n'est plus scien- PR *
@@ -284,8 +196,6 @@ et méthode, s'ils veulent s'en évader, s'ils veulent fuir dd _ 4
 _  deuxièmement qu'ils ne nous veulent pas mal de mort 3 |
 
 Fe _ pour nous en être évadés dans la liberté de nos vingt- Re
-
-: Car si M. Lanson a le droit de parler de l'Amérique 4!
 
 AS sur une saisie directe, j'ai peut-être le droit, moi, de D
 
@@ -330,7 +240,6 @@ A par une saisie directe; qu'un seul sujet ait été dérobé à $ ÿ |
 A la méthode de l'épuisement indéfini du détail; qu'un
 
 seul sujet ait été abordé sans que l'opérateur ait effectué à
-l'épuisement de la documentation et de la littérature; :
 qu'un seul sujet ait été élu; qu'un seul sujet ait fait la À
 matière, ait été l'objet d'un choix, aussitôt par cet
 unique choix tout le choix passe, et tout le système du !
@@ -348,7 +257,6 @@ valeur, tout le système des valeurs remonte. S'ils choï-
 sissent une fois, nous choisissons toujours. Si sur leur
 océan de plomb ils font émerger une seule vague tout
 le système des valeurs remonte; et la hiérarchie; et
-l'ordre ; et la dignité; et le génie; et le héros; et le saint;
 et Dieu.
 
 M. Rudler s'en est parfaitement aperçu. M. Rudler
@@ -473,7 +381,6 @@ AN ces deux phrases de M. Rudler. J'ai bien le droit de |
 | étudiants et leurs maîtres, de conversation avec des A
 . informateurs sûrs et éminents, c'est assez pour È .
 
-| M. LANSON TEL QU'ON LE LOUE 4
 voir beaucoup, et, selon toute apparence, pour voir {
 juste, à condition d'avoir l'œil prompt et net, l'esprit
 aigu, la pensée en éveil, l'habitude des méthodes à
@@ -533,19 +440,15 @@ ralisation hâtive a trop de chances d'être fausse. »
 
 de M. Lanson et de M. Andler. — Dans notre généra-
 
-VA xl SR ; AE sue ei âne = MA U ï
-
 és tion, qui vit l'avènement de la méthode, deux hommes
  K3S _ comptaient et furent les introducteurs de la méthode. de 6
 _ Ou plutôt les anteurs, les instaurateurs de la méthode.
 ! "à 6 ht magna. Ces deux hommes n'étaient pas A
-H )9 FA M. Lanson et M. Langlois. Ces deux hommes n'étaient à é Hi
 0e Li pas M. Andler et M. Lanson. Ces deux hommes étaient NA
 ai ve _ M. Andier et M. Langlois. Je ne dis pas qu'ils étaient ; 2 Pa
 ‘4 _ de notre génération. Ils étaient dans notre génération, Se 5
 _ génération pour agir immédiatement dans notre géné- ï ps
 _ ration. Ces deux hommes furent les véritables auteurs ÿ ; 1s à
-# et de la méthode et de l'avènement et du règne de la a
 _ méthode parmi nous. Non point que je confonde ces _:
 deux hommes, ni même que je les appareiïlle. M. Lan- 44 5 !
 …  glois était une tête historique. M. Andler était une tête \
@@ -574,14 +477,11 @@ _ qu'il annonçait un homme d'une très grande valeur. is
 
 ‘1 espérances il donnait, comme il était à l'aise dans la
 
-Pre « # i PERRET D PR CT que; GRR SU
 “ _ pensée, comme la pensée était sa matière, son milieu ne
 ie naturel, son climat. Ceci donné je vais pouvoir me faire . NRA
 entendre et entrer dans mon parallèle de M. Lanson et é rl
-L de M. Andler. 4
 ! ne On peut être opposé, on peut être diamétralement 1
 _ contraire aux idées de M. Andler, à la pensée de "À
-._ M. Andler, à la méthode de M. Andier, au système de
 à M. Andler, il faut convenir qu'au moins il a suivi sa 4
 ü U ligne, et que c'est une vie tout d'une pièce. M. Andler #24
 A, nous a enseigné qu'on n'a pas le droit de traiter un 2]
@@ -608,8 +508,6 @@ soit venu même à haïr cette méthode, qu'on ne lui par- ; Al
 donne pas de nous avoir tant fait perdre, cela c'est
 | notre propre situation. Mais enfin ici on a affaire à un L |
 homme constant, 4 |
-| 28 ENS |
-| ee |
 
 à Tout autre est la situation, tout autre est la carrière
 …. de M. Lanson. M. Lanson est comme Raphaël, (1) il a
@@ -620,7 +518,6 @@ l'enseignement secondaire. Pensait-il à en sortir par
 ÿ l'enseignement supérieur, pensait-il à en sortir par
 it ladministration, c'est-à-dire en devenant lui aussi |
 inspecteur général, c'est un de ces points d'histoire qui
-12 demeureront éternellement controversés. Ce qu'il y a de
 Ë certain c'est qu'il faisait de l'enseignement secondaire
 1 avec la pensée ailleurs, avec la sourde convoitise d'être
 fa ailleurs. C'est une mauvaise condition pour faire de ]
@@ -649,7 +546,6 @@ de comptabilité est la seule qui compte : il n'aimait pas
 ses élèves. IL était déjà cet ambitieux aigre, inquiet,
 
 ; 14 (1) Sanzio. Mais Raphaël est mort plus jeune. ;
-| 1 29 Lanson. — à,
 
 : doucereux. Quand de cette rhétorique il fut nommé à
 l'École Normale il fit naturellement sa dernière classe.
@@ -717,9 +613,7 @@ LR: me rappelle encore comme si j'y étais ces longues et à
 1 ponctuelles et sérieuses leçons sur l'histoire du théâtre D
 “À français, qui nous plongèrent dans une stupeur d'admi- UE
 464 ration. Je le dis sans ironie aucune. Je n'ai pas envie M
-L: de rire; et on peut m'en croire. Ça, c'était du travail. Il 0e
 ‘4 1 avait lu, il connaissait tout ce qui s'était publié ou joué ne
-+1 ou l'un ou l'autre ou l'un et l'autre de théâtre en France k : û
 Le ou en français jusqu'à Corneille. Et des leçons d'une
 
 Le. composition et d'une succession admirables. Un tissu
@@ -883,11 +777,7 @@ personnel de l'École Normale qu'il ne se préoccupa pas
 mais qu'il se préoccupa vivement de ce qu'allait devenir
 | le personnel de l'École Normale. Il fut entendu que le
 personnel de la nouvelle École Normale, introduit en
-# pet 14
-À ft LE
 
-| 4 :) dt NE RS te tes
-| 1460 a PARALLÈLES DE M. LANSON ET DE M. ANDLER gh
 __ - Sorbonne de quelque façon, aurait une situation person- 4:
 _ nelle, si je puis dire, au moins égale à son ancienne es:
 RE: situation; et généralement avantagée; et plus d'avenir. ec
@@ -946,7 +836,6 @@ TA tière pour donner de l'éclat à l'ancienne École Normale.
 ee La plus simple décence demandait qu'on le gardât, ‘
 sa (puisqu'on l'avait demandé), à présent qu'on avait
 
-24 changé de politique. Il y a un tel manque à la plus da
 x À élémentaire décence à demander à un homme de venir
 
 H] L illustrer une maison et ensuite à manœuvrer sournoise- $
@@ -964,7 +853,6 @@ ee netière n'eût pas été l'homme qu'il était, quand même à
 San même pour un homme ordinaire, même pour un maître y
 à de conférences ordinaire c'est toujours une honte qu'un < |
 
-| À 0x ONE |
 corps abandonne l'un des siens. Ces professeurs qui ont
 : montré tant de fois de l'esprit de corps quand il s'agisf sait d'exercer ou d'installer un gouvernement spirituel,
 F et un gouvernement temporel des esprits, pouvaient
@@ -1028,7 +916,6 @@ Ce reniement de Brunetière était d'autant plus sot, et
 cette méconnaissance, qu'on ne saurait trop le redire,
 Brunetière était un des leurs. C'est ce que j'avais essayé ‘
 
-| NIES PARALLÈLES DE M. LANSON ET DE M. ANDLER
 "va de marquer dans ce Brunetière que je ne suis pas près
 . de donner, Seulement il était honnête; et c'est cela qui
 É les gênait.
@@ -1090,15 +977,9 @@ dans l'enseignement secondaire, après cette deuxième
 | dans la science et dans l'enseignement supérieur, %
 | M. Lanson est évidemment résolu à tâter d'une troisième
 
-% k CAUAN : TUE ON re Mis ET RL SP ON 20m RAR Là MURS
-kole. AdRen NME, CE S
-| VIES PARALLÈLES DE M. LANSON ET DE M. ANDLER
-
 + après quinze ans de science et d'enseignement supé- Al
 
 4 rieur, il a commencé il y a deux ou trois ans une He
-
-K carrière de journaliste, et de publiciste, et de chroni- l
 
 n queur, et de critique; et d'écrivain pour le monde; et
 
@@ -1139,7 +1020,6 @@ s, métiers. Ses activités sont débordantes. Il s'est fait
 
 ‘4 tateur. On se demanderait quand ces hommes-là tra- 1
 La vaillent, si l'on ne savait qu'ils sont tous comme
-| | Napoléon.
 
 supplément aux Vies parallèles TA
 Entre nouveaux métiers, (et entre autres métiers de
@@ -1168,10 +1048,8 @@ d'énorme tirage et de très grand publie, ou plutôt de
 tout le public, un feuilleton littéraire. Je crois que ce ne
 serait pas impossible. Quel ne fut pas notre étonnement
 quand nous trouvâmes en quatrième, ou en cinquième
-page du Matin, ou en sixième, ou en septième, ou en s
 huitième, parce qu'il n'y en a pas de neuvième, ces
 
-Ang à f Ve ve PT Na L
 4 _ espèces de crottes de bique perdues dans les commu- a
 0 niqués des petits théâtres et dans les annonces des
 __  couturiers et dans les insertions payantes des éditeurs.
@@ -1208,7 +1086,6 @@ qu'en lui il nous laisse ainsi traiter, (car il a beau faire, ke 4
 À des royaumes spirituels), et même qu'en lui il laisse QU
 3 ainsi traiter la Sorbonne. ‘4
 Il y a des représentations involontaires; et fatales; et 4
-naturelles. IL y a des délégations inconscientes. Il y a ne
 j des responsabilités qui sont dans le fait. Quelles que re
 \ soient nos divergences dans les républiques intellec- se
 tuelles, quelles que soient entre nous nos contrariétés ) |
@@ -1259,14 +1136,12 @@ D plein de fioritures typographiques art nouveau, plein
 À du samedi de la femme, ou d'une autre pareille, est luiA même l'objet, et comme la résidence, d'une perpétuelle
 j injure typographique. Il y a là-dedans une dérision, un
 k mépris du spirituel, insoutenable, Et un mépris typographique, le pire de tous, de ce que c'est qu'un professeur,
-É et un critique, et même de ce que c'est qu'un article de
 | journal. Et ce qui fait surtout mauvais effet, c'est qu'on
 } lui mette au bas de son article, et dans les mêmes
 4 _ colonnes, les annonces payées des éditeurs. Nous nous
 ÿ sentons tous bernés par ce sans-gêne, par ce qu'il a de |
 commun, de grossier, par ce sans façon, par cette
 
-NN en UN
 . manière de traiter, et encontre par cette manière de se :
 laisser traiter. On nous fait injure à nous tous, à tous
 qui en un certain sens et en face du grand publie,
@@ -1299,11 +1174,9 @@ l'assemblée des dieux, que la philosophie n'ait pas de |
 patron en Sorbonne. Car il est évident que M. Durkheim
 n'est point un patron de la philosophie, mais un patron
 
-| vies PARALLÈLES DE M. LANSON ET DE M. ANDLER
 4 contre la philosophie. Rien ne trahit mieux, rien ne
 Ft saurait mieux exprimer cette aversion, et non pas
 À seulement cette indigence, cette terreur que la Sorbonne :
-| 44 a actuellement de tout ce qui est de la pensée. Et je la
 É ferme, (ma parenthèse). Î ?
 | f Ici je découvre que je suis bien embarrassé. Pour mon {
 | © algèbre. Dans un précédent cahier j'avais innocemment a
@@ -1330,10 +1203,7 @@ L le droit de faire une troisième carrière, et nous la lui SU
 We souhaitons bonne, mais il n'en a pas le droit pour . M
 18 M. Lanson et pour M. Rudler. 4
 14 Il faut ici que nous défendions M. Lanson contre
-[A M. Lanson et contre M. Rudier. S
 Nous nous voulons bien que M. Lanson fasse une
-
-cd Lan! ‘5 SAN 2 NE sé SELS:
 
 troisième carrière. C'est M. Lanson deuxième carrière, 4
 c'est M. Rudler qui ne veut pas. À
@@ -1367,7 +1237,6 @@ tout un certain climat intellectuel, (et une simple bonne
 lecture des textes), fassent plus qu'un épuisement de
 50 -
 
-D On aa Un
 documentation et qu'un épuisement de littérature que
 
 d'ailleurs on n''atteint, que d'ailleurs on n'obtient
@@ -1432,8 +1301,6 @@ ment on peut devenir écrivain en gardant la méthode
 scientifique et par le ministère de la méthode scientifique. |
 Que nous ayons un nouveau confrère, qui ne s'en
 
-É 7 US AN RE ARE de VA LIN ART ra ney REVO PRES
-| VIES PARALLÈLES DE M. LANSON ET DE M. ANDLER | 7
 __ réjouirait. Tout ce que je demande, c'est de n'être pas 4
 M forcé de l'appeler : monsieur le doyen. 7.
 Di: Et tout ce que nous demandons, c'est qu'il vienne ï
@@ -1460,7 +1327,6 @@ al glois, professeur à la Sorbonne. — G. Lanson, pro- .
 L- au Lycée Carnot. — D: J. Philippe. — E. Pottier, E
 6 membre de l'Institut. — S. Reinach, membre de |
 PA - l'Institut, — G. Renard, professeur au Collège de ME
-‘Aie France, — Ch. Seignobos, professeur à la Sor- : s4
 E:. Quand une revue met sur la première page de sa LS:
 À] couverture un tel paquet de noms, ainsi présentés, c'est £ x à
 % évidemment qu'elle veut créer une impression d'un VE
@@ -1479,9 +1345,7 @@ _ Si M. Lanson a le droit de voir l'Amérique au lieu ‘4
 _ rique, j'ai le droit de lire Corneille et de lire Polyeucte, As 1
 _ au lieu d'épuiser la littérature et la documentation sur ‘4 Al
 ES: Corneille et sur Polyeucte. ' S:
-‘oi + _ Si M. Lanson a le droit de traiter directement l'Amé- M:
 ‘5 rique, j'ai le droit de traiter directement Corneille et FE
-È Si M. Lanson a le droit de découvrir l'Amérique, j'ai : |
 A LS le droit de découvrir Corneille et Polyeucte. 3 |
 a Ce sera lui et nous à nos risques et péril. Mais le :
 * | risques et péril est de règle dans notre métliode. 134 Î
@@ -1490,7 +1354,6 @@ a Ce sera lui et nous à nos risques et péril. Mais le :
 ; ailleurs, que l'on ne peut pas même imaginer ailleurs, ' à
 Re qui fleurit dans un certain monde de la Sorbonne. On A
 4 : ne la trouve point dans le peuple, on ne la trouve point \ "24
-x dans le reste de la bourgeoisie. On ne la trouve ni chez A
 #6 k les paysans, ni chez les ouvriers, ni chez les journalistes, 1,174
 E ni chez les politiciens. On ne la trouve ni chez les typos tu
 "3 ni chez les maîtres imprimeurs. On ne la trouve ni chez _.
@@ -1501,7 +1364,6 @@ chez les commerçants ; ni chez les industriels. On ne la
 fait un métier de droit commun, depuis qu'il s'adresse à
 un public de droit commun il est notoire qu'il s'est déjà
 beaucoup dépouillé de la méchanceté professorale.
-$. — Je repense à la méthode de M. Langlois et de
 M. Babut. Tout ce qu'il leur faut, c'est qu'il n'y ait pas
 des héros et des saints. Modernes, ils sont également
 contraires à la grandeur païenne et à la grandeur chré-
@@ -1561,9 +1423,6 @@ dis que chez eux et dans leur propre système ils se |
 mentent à eux-mêmes (et qu'ainsi à nous ils nous
 mentent au deuxième degré), je dis que chez eux et k
 
-RS PRET ENT TA a ps) AS ART OMR (* ph
-14 DT L'ARGENT SUITE ia
-
 …_ - dans leur propre système ils ne tiennent le coup que
 _ d'un côté, ils ne font que l'une des deux parties; et "
 s qu'ils négligent constamment la contre-partie; et qu'ils | di
@@ -1598,14 +1457,10 @@ naissent tout le monde, qu'ils ne se soient jamais 1
 . La querelle des saints et la querelle des héros envers d
 
 | eux est la même querelle. (Et c'est aussi la querelle du ke
-| Le
 
-"T0 cahiers de la quinzaine RU
-ve | génie). C'est la querelle de la race et de la grâce. Et ÿ
 à c'est la querelle même de la grandeur. "2
 0 C'est contre' eux et leur monde moderne la querelle
 _ ensemble de la sainteté et de l'héroïsme; la querelle |
-ut ensemble de la communion et de la cité. 114
 ‘48 Pour eux leur système est d'une désagrégation con- 4H
 4 LA stante, Ils travaillent toujours dans le même sens, qui 4
 RC est le sens de la diminution. Tout ce que l'humanité M:
@@ -1661,7 +1516,6 @@ frauduleusement les avoirs.
 , 59
 
 cahiers de la quinzaine FAURE 4
-$. — Ils espèrent qu'à force de déliter tout ce qu'il y Ê
 à a de grand ils réussiront peut-être, ils finiront peut-être El
 par réussir à tout ramener à leur plat niveau. Et qui sait, j
 c'est peut-être eux qui finiraient par paraître grands. À
@@ -1673,7 +1527,6 @@ Vs - Tout ce qui est perdu pour le texte est gagné pour la 174
 glose. Tout ce qui est perdu pour cette belle pierre de ;.
 taille est gagné pour le commentaire et pour le com- (
 
-|
 Mercredi 19 février 1913. — J'ouvre le Matin de ce \
 matin. Je finis par y apercevoir le Lanson de cette |
 
@@ -1692,15 +1545,11 @@ et est typographié exactement dans le même ton. Et |
 pour ce feuilleton même quel titre extraordinaire, courant au-dessus en caractères art nouveau: Mouvement |
 60 4
 
-# pos hi sis TROP) LUE AC ÿ a
-FE - as à L'ARGENT SUITE +
 E littéraire, les idées d'hier et de demain. Tout cela en ne
 s Mouvement littéraire, les idées d'hier et de demain. EE
-4 Je demande si c'est là un titre scientifique. Et à quoi ça de
 | ressemble. Et de qui est ce titre. S'il est de M. Lanson, de
 comment a-t-il pu inventer un titre aussi plein de ñ.
 battage. Mais s'il est du Matin comment M. Lanson #
-a-t-il pu se le laisser imposer. Comment ne se respecte- NRA
 t-il pas lui-même. Ou comment ne se fait-il pas res- ï,
 # $. — L'étonnement, dans ce petit monde, que l'on ose k ;
 | parler de M. Langlois, de M. Lanson, de M. Lavisse, est |
@@ -1739,8 +1588,6 @@ $- — Ils veulent bien que l'on commente tout. Mais
 ils ne veulent pas que l'on commente le commentaire.
 Ils veulent bien que l'on critique tout. Mais ils ne veulent pas que l'on critique la critique. Ils ne veulent pas
 que l'on écrive le pamphlet des pamphlets.
-|
-|
 Fe $. — Et ils ne veulent pas que l'on fasse l'histoire des
 | historiens. Ils veulent bien épuiser l'indéfinité du détail
 historique. Mais ils ne veulent pas, eux, entrer en ligne
@@ -1788,7 +1635,6 @@ n'ont pas le droit d'être petits. Ils n'ont pas le droit de i
 se dérober comme petits. Nul n'est petit dans leur |
 système. Dans leur système il faut qu'ils soient traités e |
 
-DES 1 AT EL A RSENe dbrmt ee 00 0 LUE
 et qu'ils se laissent traiter et qu'ils se fassent traiter hi
 comme les grands hommes et que ce soient eux-mêmes TA
 k qui nous en requièrent. Et puis enfin, s'ils sont si petits, Pa ne
@@ -1798,7 +1644,6 @@ k qui nous en requièrent. Et puis enfin, s'ils sont si petits, Pa ne
 4 Pourquoi se sont-ils fait, à eux et à leurs critiques, ces
 k (je veux dire aux critiques qu'ils font), et à leurs com- ‘4 A
 ; mentaires, de si grosses places temporelles, de sigrosses Are
-Es places officielles. L E
 D: $. — Ils veulent bien être gros pour émarger au CA
 h : budget, pour émarger aux honneurs, pour peser de ne
 h #1 toute leur grosse masse sur les gloires acquises, sur les re
@@ -1812,9 +1657,7 @@ L É faut que nous les traitions tous sur le même plan. ÿ
 Ee. $. — Pendant trente ans ils se sont mis sur le pied de ga A
 MW” ruiner tout ce qui était debout en France et la France te
 | à _ elle-même. Et aujourd'hui nous n'aurions pas le droit “M k
-| et 65 Lanson. — 4. « pu
 
-Re et
 cahiers de la quinzaine 1
 k de ruiner cette ruine. Nous n'aurions pas le droit de
 corroder cette corrosion, d'éroder cette érosion.
@@ -1830,7 +1673,6 @@ $. — Trente ans durant ils ont bien voulu essayer È
 de mettre en déliquescence tout ce qui était la force et
 le nerf de ce peuple. Ils ont tout tenté. Et nous nous |
 n'aurions pas le droit de signaler seulement leur propre |
-|
 $. — Et j'ajoute que leur surprise n'est pas feinte, k
 Ils sont très réellement scandalisés que l'on ose parler
 de M. Lavisse. Ils veulent bien qu'on parle de Dieu,
@@ -1865,7 +1707,6 @@ ramollissement ; et le commun relâchement; et la com67 Me
 
 cahiers de la quinzaine RC
 ; mune et la basse misère. Sans compter que le sang est : |
-tout de même au bout. Car si M. Lavisse et la géné- À
 ration de M. Lavisse avaient réussi à faire de la France l
 ce qu'ils voulaient, c'est-à-dire des gens comme eux, M
 des mous comme eux, et si profitant de cette univer- ol
@@ -1881,7 +1722,6 @@ grands tourments peuvent se préparer dans le silence A
 du cabinet. Celui qui démoralise un peuple peut être, ;
 est même certainement l'auteur direct et la cause épui- L
 sante des désastres qui peuvent arriver à ce peuple.
-Si M. Lavisse et si la génération de M. Lavisse avait |
 réussi à faire de la France une basse et molle proie,
 eussions-nous dû penser, mon jeune camarade, eussions- ;
 nous dû continuer à penser que M. Lavisse est un
@@ -1892,8 +1732,6 @@ qui serait une capitulation perpétuelle devant les puis- |
 sants de ce monde, Je ne veux rien savoir d'une 1
 charité chrétienne qui serait une capitulation constante
 
-Le ee À rt STATS HN SNS
-L'udT RUES RES AE Ne te RS
 3% (du spirituel) devant les puissances temporelles. Je ne NA ! u
 | veux rien savoir d'une charité chrétienne qui serait une 1e 1
 4 capitulation constante devant les princes, et les riches, U +
@@ -1921,10 +1759,8 @@ _ Tout cela, mon jeune camarade, c'est la guerre et ce FEAT
 . sont des faits de guerre. C'est même une guerre de | à SL
 # libération. J'avoue que c'est une des guerres de la GR
 _ liberté. C'est la vieille résistance à l'oppression. Il s'agit Fe Ÿ l4
-Le. de ne pas se laisser écraser, et de ne pas laisser PE
 écraser ce pays, et de ne pas laisser écraser ce peuple De
 
-p° cahiers de la quinzaine PNR XL.
 Ê . sous la plus basse tyrannie spirituelle et même intellec- Û
 ha tuelle et même mentale qui ait jamais voulu s'exercer
 par les moyens de force et notamment par les moyens N
@@ -1935,7 +1771,6 @@ actuellement l'École Normale nous ne serions peut-être
 pas frais. Et qu'il y aurait peut-être longtemps que les
 Prussiens seraient à Suresnes. Et cela, mon cher camarade, ne se fût point accompli peut-être sans quelque |
 trouble et sans effusion de sang. j
-|
 
 ÿ $. — A moins que vous appliquiez à ces guerres spi- À
 rituelles, les plus précieuses, les' plus poignantes de
@@ -1954,8 +1789,6 @@ comble d'honneurs, si on veut, tout ce que nous deman- 4
 dons, c'est que le plus indigne ne soït pas mis, et laissé, |
 à la tête, et qu'ensuite on ne le remplace pas par un 4
 pareil à lui. 4
-
-| f ÿ ICE AT SAN ONE re SRE UE SE LE | Br Es SE D ag ESA
 
 À $- — Que ces messieurs commencent. Mais occuper AA
 
@@ -1985,8 +1818,6 @@ mA .  renouvelés. Occuper une telle situation, par cela même, PRE PA
 > stant, c'est là un acte constant qui se décompose j 16
 
 - instantanément en une multitude d'agressions. Par cela té tri
-
-. seul qu'il est là, il nous attaque; et constamment. Par Ph on A
 
 ” cela seul qu'il est là, il nous fait du mal; et constam- ' TU
 
@@ -2024,8 +1855,6 @@ mouvements, ils parasitaient en outre, ils parasitaient |
 aussi, ils parasitaient alors le mouvement unanime qui
 s'est produit contre eux. Ayant profité de tout ils profitaient encore et pour couronner du mouvement pro72 |
 
-VE NE PV. Joie ji FR Ad PURE 'Rellat NES en 4 POP
-
 e fond qui s'est produit contre eux. Et il faut avouer que M ‘4
 pour un dernier coup ce fut un coup suprême; et un: Ve 1 re
 1 fort beau coup de politique. Et un beau coup de jeu ph
@@ -2055,8 +1884,6 @@ Cette cérémonie Lavisse, comme par hasard, tomba 17
 I juste le premier dimanche qui suivit le mercredi ou le : #3
 [M vendredi de l'élection présidentielle. M. Poincaré était
 [# dans toute la jeunesse, dans toute la ferveur des tout ARR
-ll _ premiers jours de la désignation de sa présidence. CR ue
-| Fr 7 Lanson. — 5 k de
 
 cahiers de la quinzaine à
 La question n'est pas de savoir si M. Poincaré fut
@@ -2107,7 +1934,6 @@ _ ments sont assez connus. Et mes répulsions et mes
 _ ques mots, un certain mécanisme de la domination du à
 10 « _  {. — Nous sommes faits ici pour aller aux points |
 
-A) cahiers de la quinzaine CA 4
 Dr précis, aux articulations des mécanismes. Pour les
 grands courants et pour les généralités les quotidiens
 5 suffisent, Nous sommes tenus ici à dire quelque chose, |
@@ -2127,7 +1953,6 @@ partisans, adversaires, c'est qu'il est un fanatique et Î
 essentiellement, einseitig, un unilatéral. Et d'autre part |
 Lavisse est le type même du faible et du double et du
 fourbe et du bilatéral.
-|
 $: — Que Herr ait des liaisons avec d'autres fana- |
 tiques, avec d'autres unilatéraux, c'est tout à fait son |
 droit, je puis le dire. Mais j'ai aussi le droit de dire
@@ -2136,7 +1961,6 @@ faut le dire, une aussi fidèle liaison que celle qui s'est |
 établie entre ce fanatique et ce faible, entre cet unila- |
 téral et ce bilatéral. L
 
-ne L'ARGENT SUITE 4
 $. — Tout le secret de l'invention et de l'intrusion et
 de la domination du parti intellectuel est là, dans cette
 singulière liaison. Tant que Herr travaille dans le
@@ -2191,7 +2015,6 @@ telle sorte qu'à son enterrement il aura un nombre
 incalculable de batteries de 75. Alors pourquoi M. Herr
 forme-t-il un couple avec M. Lavisse.
 
-% $. — Là est le danger. Là est le pernicieux, Si le HT
 virus de Herr était réservé pour lusage externe, il Fe
 _ serait inoffensif. Mais M. Lavisse est la seringue, qui IE
 introduit ce virus dans le tissu même de l'enseignement .
@@ -2215,7 +2038,6 @@ L 2 Jouer sur les deux tables. è
 ; : 4 mécanique. Ces deux hommes sont tout ce qu'il y a de MA
 . plus contraire l'un à l'autre. L'un est un fanatique et (0
 
-F: | cahiers de la quinzaine D nu
 l'autre est censément un libéral. L'un est censément un À
 , socialiste et l'autre est réellement un bourgeois. Et À
 même un gros bourgeois. Et un gros fonctionnaire. Et
@@ -2229,7 +2051,6 @@ ta $. — L'anarchie a le droit. Enfin je veux dire qu'elle À
 re a le droit au premier degré. Mais ce qui n'a pas le droit, 1)
 * ce que nous ne voulons pas, c'est que l'anarchie veuille 4
 nous gouverner revêtue des autorités de l'État. A
-| F
 $. — C'est tout le cas de la Sorbonne, j'entends de la
 ; Sorbonne actuelle, et c'est toute l'affaire de la Sorbonne
 actuelle et de la Nouvelle École Normale. Quand la
@@ -2253,7 +2074,6 @@ gr. qui disait: Attention, nous sommes un corps et nous AR
 tous en jeu, que nous nous engageons en corps contre U "a
 la loi de trois ans. Ainsi ils retournent contre l'État, ss
 ë contre la République, contre la France, l'autorité même . $ 6
-: et le temporel qu'ils tiennent de la République, de la TER
 É France, de l'État. C'est toujours exactement ce même 1 ;.
 # double jeu. Ce sont toujours des anarchistes de gou
 4 vernement. Ils sont contre l'État, ils se déclarent en l 4
@@ -2304,9 +2124,6 @@ me confère, et encore c'est par prétérition, c'est d'être
 arrêté dans les rues par les haïes de soldats, quand il
 faut laisser passer la Sorbonne.
 
-QU Po aie HS ANS pRY da: (à chi) 4 "Ne : pate)
-
-Es de 20 APR RE Er ON ENS ans TD TR Ur NT
 ‘4 $. — Ils sont anarchistes, mais ils veulent bien être, F iU
 Fe tant qu'ils peuvent, dans la Légion d'Honneur. Et aussi
 haut qu'ils y peuvent monter. ANS ï \
@@ -2327,10 +2144,8 @@ _ presque toutes les carrières et notamment pour ainsi DU
 que par un décret d'État un homme est ou n'est pas
 exposé ou condamné à mourir ou à ne pas mourir de ee
 
-k te 1 à: er Age V ni 1 FRS
 cahiers de la quinzaine * SA
 $. — Ces anarchistes sont gros fonctionnaires,
-|
 $. — Et ils ne se dévêtent jamais de leur autorité, de 1
 leurs honneurs, de leurs cérémonies, de leur magistra- 1
 ture, de leurs fonctions. Il faut voir dans une compagnie 28
@@ -2349,13 +2164,10 @@ fut une grande question de savoir si M. Séaille ou |
 Ça c'était une affaire, et une affaire d'État.
 $.— Ils sont anarchistes, mais ils veulent bien entrer |
 
-|
-
 : dans les gros mariages d'argent, dans les gros mariages
 bourgeois, dans les gros mariages des dynasties univer-
 Ë sitaires, dans les gros mariages de défense républicaine.
 Et ils ont fait de la Sorbonne une pépinière de gendres,
-} $. — Sur la fourberie de M. Lavisse. — M. Lavisse
 1 naturellement n'a pas signé le manifeste des professeurs
 , contre la loi de trois ans. Pour ces sortes de manifes-
 | tations c'est, dans le couple, Herr qui fonctionne. Mais
@@ -2383,7 +2195,6 @@ cahiers de la quinzaine j
 parce qu'il est encore un peu libre, parce qu'il leur \ 4
 | échappe encore grandement, parce que des jeunes gens t
 libres y écoutent encore des maîtres libres. À
-il
 
 $.— Ces grands anarchistes, qui ne connaissent absolument point les rangs sociaux, il faut voir dans une
 compagnie comme ils ignorent leur propre rang; et
@@ -2434,7 +2245,6 @@ k coffret et comme le temple. Et comme étant responsable |
 | et qui se sont constitués contre le sacré, ils savent que ;
 _ . la pensée est sacrée, et ils veulent s'installer dans ce 4
 
-de x F0 cahiers de la quinsaine HER Éd 4
 De sacré, et ils veulent représenter ce sacré, et ils veulent
 $ ÿ nous gouverner au nom de ce sacré. Comme si tous les \
 h laboratoires de pensée n'étaient pas en dehors d'eux et |
@@ -2470,7 +2280,6 @@ $.— Dans ce grand Paris qui est la plus merveilleuse |
 
 J ruche, dans ce grand Paris où tout le monde travaille, pi
 
-A ne à oo)
 h eux seuls ne font rien, que de regarder les autres tra- |
 4 vailler. Et encore ils regardent mal, ils ne savent pas $
 
@@ -2503,9 +2312,7 @@ l'instituteur qui avait pris le parti de ses pères
 $:— Qui avait pris le parti de ses pères contre son
 père, tout est là, tout est dit, et tel est le programme
 | et la dure destinée de notre génération, ;
-| 89 à
 
-cahiers de la quinzaine Sa À
 $. — Mais c'est aussi ce qui nous justifie, et ce qui
 nous authentique, et ce qui nous fait rentrer dans la Û
 nature, et dans l'ordre et la loi. C'est nous ainsi qui |
@@ -2519,7 +2326,6 @@ C'est nous qui sommes le plus vieux droit. Nous leur
 passons par-dessus la tête. Un tel mot éclaire tout.
 C'est nous qui sommes leurs pères. Et ils sont de bien
 mauvais fils.
-|
 $.— M. Lavisse a donc fait appeler les trois chefs de
 section (ou les six) et leur a demandé, enfin les a dis- |
 suadés, (eux représentant tous leurs camarades), (qui |
@@ -2532,7 +2338,6 @@ signe cette pétition. Mais il en est l'auteur éminent, il
 en est l'auteur au deuxième degré, car il est l'auteur, |
 il est l'endosseur, il est le représentant et réel et res- |
 
-de L'MRA A TPRAROERNE 'SUITR, l
 S ponsable et devant le public et devant le pouvoir de Fe
 4 cette nouvelle sorte d'École Normale d'où ensuite le fe
 manifeste est naturellement sorti. à À re
@@ -2569,7 +2374,6 @@ A _ et leur propre rayonnement, pour ainsi parler, n'était * 4]
 ds _ par la quantité de terre temporelle où on parle À
 AU _ français. Comme si ce n'était pas César qui avait 214
 1 08 déterminé la quantité de terre où le monde serait |
-: t pe intellectuellement et spirituellement romain. x À
 nas $. — Un Auguste aisément peut faire des Virgiles.
 FA Non, mais c'est un Auguste, un César qui fait la quan- |
 - tité de terre temporelle où un Virgile se fait entendre, pl
@@ -2583,12 +2387,9 @@ n et les lois et les arts et la religion même et le langage 4
 4 et la race peuvent ensuite, mais ensuite seulement, et }
 “4 alors seulement, se coucher pour grandir. 4
 | 2
-#s $. — Il y a un temporel. Et le temporel est essentiel- 4
 ge lement militaire. Quand on dit que les forces des 4
 K puissances sont uniquement financières, premièrement F1
 
-MONT Ne if 1/703 SR à He Re gs à Ca L ir
-# L'ARGENT SUITE 104
 on se trompe, car elles ne sont pas uniquement finan- D
 4 cières, et il s'en faut, deuxièmement il faut s'entendre, $
 ï à car quand on dit que les forces des puissances sont
@@ -2603,7 +2404,6 @@ porté la déclinaison grecque, et la conjugaison, et cet
 immense trésor. Et, au fond, ils n'ont point porté la décli- |
 naison juive, et la conjugaison, mais ils ont porté le
 : tabernacle et le Dieu d'Israël.
-$. — Il n'y a rien à faire à cela. Et il n'y a rien à Fi
 dire. Le soldat mesure la quantité de terre où on parle
 une langue, où règnent des mœurs, un esprit, une âme,
 L un culte, une race. Le soldat mesure la quantité de
@@ -2619,7 +2419,6 @@ cahiers de la quinzaine \
 le lourd soldat a mesuré la terre à ce que l'on nommé
 si improprement la douceur virgilienne et qui est une
 mélancolie d'une qualité sans fond. |
-|
 $. — IL faut aller plus loin. Non seulement c'est le |
 soldat romain qui a porté la voûte romaine et qui a |
 mesuré la quantité de terre, mais il a porté le temple et |
@@ -2639,17 +2438,11 @@ Racine, et le virgilien dans le racinien, non point comme
 un étranger appris, mais comme un frère et comme un
 père, ce n'est point Virgile même, c'est le soldat romain
 qui l'a fait.
-|
 $: — Mais il n'a pas fait seulement les langues
-|
 
-Re Be a ut » Li rer 0 MS SE Le RES PCR LÉPAEN LUN OT PUS
-ON tr SEE ARR
-| T'ES L'ARGENT SUITE ; LOTUS
 4 romanes, et la terre mesurée aux langues romanes; il ia
 n'a pas fait seulement les peuples romans, et la terre
 i mesurée aux peuples romans; il n'a pas fait seulement JA
-| 4 la romanie et la romanité et le monde romain et le 1
 # monde latin. En dedans ils portaient le monde grec. sx
 | C'est-à-dire la première moitié du monde antique. Et la fi
 pensée antique ne se fût point insérée dans le monde et A
@@ -2675,7 +2468,6 @@ chrétien prit cette forme temporelle qu'il devait recevoir LY
 | extérieur, le berceau de bois, le berceau antérieur, qui
 . épouse les formes du navire, et d'où le navire sera
 
-AN E cahiers de la quinzaine SUR IT 4
 lancé. Il fallut le préfet pour qu'il y eût l'évêque. C'est 1
 4 certainement un des plus grands mystères du monde, et
 je c'en est peut-être le plus grand, que cette inquiétante, \
@@ -2698,8 +2490,6 @@ antique, les prophètes, pour une très grande part, et
 peut-être pour tout, a été forcée de prendre la forme du
 monde romain.
 $. — Tout a été forcé de se revêtir du manteau |
-
-AS 4% je Aus }! L'ARGENT ji mie mA RE AO REA 710
 
 F 4 romain. Et ainsi en un certain sens tout a été forcé de USE
 Er se revêtir du manteau militaire. $ pe 4
@@ -2733,8 +2523,6 @@ un fleuve qui glisse mais frotte dans son propre dit,
 | comme un fleuve qui coule mais tout de même frotte NE À
 ne - au fond et aux bords. 4
 
-si v Mat Dal TE AE LES ER SR LP À 6, 4 4
-; Ts ds F je de CHR HATE EE 14
 cahiers de la quinzaine
 $. — Une seule exception se présenterait peut-être,
 si l'on ne savait que cette exception ne signifie jamais
@@ -2744,7 +2532,6 @@ paraissent présenter un exemple, et le seul, d'une race |
 spirituelle poursuivie, prolongée, poussée sans le soutien |
 d'une armature temporelle et particulièrement militaire, 4l
 sans le soutien d'un État et particulièrement d'une
-|
 $. — 11 est peutêtre vrai. Que la race d'Israël ait |
 poursuivi sa destination sans armature et particulière A
 ment sans armature militaire. Et que depuis la disper- À
@@ -2787,8 +2574,6 @@ temporelle et de l'empire et de Rome militaire même. ”
 
 tout préparé. Cette diffusion n'a-t-elle pas été en ce sens
 
-% et méditerranéenne, et romaine, et impériale. Et la
-
 diffusion judaïque n'a-t-elle pas été très semblable, et
 
 1 très apparentée, et très liée à la diffusion chrétienne.
@@ -2807,7 +2592,6 @@ de compte et en même temps et par un mouvement ta
 j même le berceau temporel même que prenait pour sa Ar
 rs communion la naissante chrétienté.
 
-k cahiers de la quinzaine RARUER EI LÉ
 : $. — Israël en fin de compte a pris pour sa dispersion {
 et elle a dû prendre le monde que Rome avait fait, le ; {
 54 monde que tout le monde a pris. Et il n'est point témé-
@@ -2836,7 +2620,6 @@ chrétienté. Ce qui revient à dire que c'est encore le |
 soldat romain qui a jalonné la dispersion d'Israël.
 | 1
 
-DE ds MANS GT AURA AT DE HUE TA ‘4
 __ $: — Que la Sorbonne le veuille donc ou non, @'est |
 _ le soldat français qui lui mesure la terre. C'est le Ê +48
 soldat français et c'est le canon de 75 et c'est la force 4 RE
@@ -2855,9 +2638,7 @@ camp du temporel. C'est en définitive, ou plutôt c'est à EU 4
 | pas français ici ou là. C'est le soldat qui fait qu'on Fa $
 _ parle français de Dakar à Bizerte et de Brest à 4
 _ Longwy. C'est le soldat qui fait qu'on parle françaisàa
-4 _ Maubeuge et à Liège et en somme à Mulhouse et à 3 # ;
 _ Colmar. Et c'est le soldat qui fait qu'on parle français Re.
-| à Paris. RUES 2 UNE
 Le $. — De sorte qu'en dernière définitive le soldat ne | joe d
 _ sert pas seulement à empêcher de passer quand la ÿ note
 _ Sorbonne fait des cérémonies dans la rue, il sert aussi
@@ -2868,7 +2649,6 @@ cahiers de la quinzaine 1
 passive, si honnie des Sorbonnards, fait que le soldat
 défend aveuglément la Sorbonne contre tous ses en- |
 
-|
 Que $. — Est-ce donc seulement par légèreté, par manque |
 de gravité, par manque de réflexion, par manque d'es- |
 prit et d'esprit de suite et de philosophie que la Sor- |
@@ -2888,7 +2668,6 @@ plus qu'un professeur, et un Doktor plus qu'un docteur. |
 Et on ne sait quel obscur dessein, que de devenir ProJessor, de professeur qu'on était, ce serait monter; en
 grade. Et Doktor, de docteur. |
 $. — Il faut avouer qu'il y a quelque chose de véri- |
-|
 
 |  tablement monstrueux à ce qu'un peuple soit ainsi trahi k È \
 par sa tête. Puisqu'ils sont pangermanistes, et qu'il 0
@@ -2912,10 +2691,7 @@ peut-être sait ce qu'il y a dans ses manuels.
 L 4 Car 1797 c'était le premier Directoire, (celui d'aujour- J
 n; d'hui étant le deuxième), et nous ne touchons 1797 pré _
 RE cisément que par les livres des historiens. 1897, qui est 4
-| DS « a , AS
 
-Lade Fo ta FAR SRE AN F VA RE D M ts £ il “|
-cahiers de la quinzaine TR PEU Er
 très loin aussi, nous le touchons dedans notre mémoire.
 à Un jour des temps, en 1897, les bandes antisémitiques :
 | et antidreyfusistes avaient, par quelque ruse de guerre, s|
@@ -2940,8 +2716,6 @@ nous nous battions comme des chiens et je puis le dire,
 dans ces batailles de la rue rien de part et d'autre ne
 fut jamais commis contre l'honneur. |
 
-118 PART ART) SNA 02, ARTE (Eee SA rfi CARRE PL Ee NE NUE NA
-SSD LA sd HAT RS TENTE) MAS EC À ATOS \ on nl
 | $. — Il n'était pas question d'être pacifiste, dansce pe
 ; temps-là. Tout le monde était à la guerre, tout le monde
 : faisait la guerre. Il est vrai que c'était la guerre civile pe. NS
@@ -2993,7 +2767,6 @@ de la République. Mon ami les députés radicaux veulent
 bien être dreyfusards en 1913, et il faut leur rendre
 cette justice qu'en 1913 ils sont des dreyfusards force106
 
-72 “es L'ARGENT SUITE Op
 4 nés, des dreyfusards fanatiques. Mais en 97 ils aimaient | ny
 mieux ne pas être dreyfusards. Chacun son goût. Et en 7 1e
 4 1913 les radicaux se bousculent comme des petites pi
@@ -3005,7 +2778,6 @@ République. Mais en 97 ils préféraient regarder vers Le
 sémitiques. La preuve c'est qu'il existe encore. Et ça ns
 c'est une preuve historique. Ou alors il n'y en a pas. dr
 Non, il ne fut pas massacré. Car je veillais.
-|
 Éa $. — J'accourus à son secours. C'est là un de ces
 _ menus incidents que les historiens négligent mais que
 les chroniqueurs n'oublient pas. Les chroniqueurs 1
@@ -3021,8 +2793,6 @@ l © des soldats de cette guerre civile. Nous étions, nous É.
 . formions une petite bande d'une souplesse, d'une mobi- É
 fi lité, mais d'une fermeté extraordinaire, Notre vitesse de ;
 
-LIEN cahiers de CyiNyaine NT
-+ sl L FES MS AT RUE
 À mobilisation avait été portée à un point de précision sa g
 "4 inouï. En moins de quelques minutes, (mettons six ou F |
 Es sept en tout), nous pouvions, partant du 45 de la rue
@@ -3104,8 +2874,6 @@ humour un peu braque mais d'autant plus singulier,
 vues, les plus réjouissantes, les plus crues; les plus |
 baroques ; censément les plus neuves; les plus maté- ; |
 
-HAE FACE TE ; RU SU ni ge vi MAT MA ! de hs 1
-
 48 __rielles; souvent les plus terre à terre et les plus réalistes; nu
 
 4 _ toujours les plus contraires à ce que l'on attendait à ce 8 A
@@ -3133,8 +2901,6 @@ fs fort, ni dans la Gazette de Cologne, ni dans la Gazette FR
 _ de Poméranie, ni dans n'importe quelle autre Zeitung. (OR
 
 ‘1 Premièrement je ne comprends pas que vous ne sentiez nr
-
-n pas qu'il y a là, en ce moment, une question de la plus 1
 
 | élémentaire décence, Même M. Maximilien Harden PA j
 
@@ -3171,7 +2937,6 @@ que nous lui avons donnée par ailleurs, le peuple peut
 être tenté de faire ce raisonnement imprudent : qu'il
 sait l'histoire, puisqu'il l'enseigne. (Car pour nous nous
 
-be. débattons la question de savoir s'il y a de l'histoire ou TR
 K: s'il n'y en a pas, mais le peuple sait très bien qu'il y a ; 4
 #& l'histoire, puisqu'on la lui apprend; et qu'elle est sur les À
 : programmes). Le peuple écoute M. Seignobos ce qu'il à
@@ -3216,7 +2981,6 @@ __ plus libéral que tous ces libéraux et tous ces libertaires |
 é LE ai qui en font tant de cérémonies. Je ne dis pas que l'on 4
 __ est forcé de croire que l'on aura la guerre, mais je dis
 rar LES _ que c'est une folie de garantir qu'on ne l'aura pas. ru
-y F rs $. — Il y a là, de la part de cet historien, une mécon- |
 k re naissance, une ignorance, un oubli incroyable de ce que À 4
 ee, c'est que la réalité même de l'événement, et de l'événe- 41
 1H ya ment proprement historique. On peut à la rigueur avoir 1l
@@ -3230,11 +2994,6 @@ qui est fou, ce qui est une gageure, dans une situation 1
 k le coup à une telle gageure. L'habitude qu'ils ont prise ;
 * de savoir la guerre mieux que Napoléon et la paix |
 mieux qu'Auguste et que Napoléon leur a donné cette 41
-| assurance. 1
-
-* a DAVIS dr a a ae pti Ne ; 4 4 il At SE fe “ ” %
-
-# '
 
 ? L $.— li faut être un professeur, et un professeur d'his- Qu
 | . toire, et (croire) avoir saisi dans le passé les lendemains
@@ -3248,7 +3007,6 @@ monsieur le professeur, monsieur notre maître, mais on |
 
 —…_ ne saisit pas demain. |
 
-|
 À $.— J'avoue que je suis assez blessé de cette idée de :
 | M. Seignobos de parier un déjeuner avec M. Marcel “OA
 ; Prévost que nous n'aurons pas la guerre et je comprends
@@ -3269,7 +3027,6 @@ Nul ne peut se vanter qu'il ne sera pas vaincu. Mais :
 
 L nous nous vantons que nous ne serons pas vaincus dans re
 -_ la catégorie du ridicule. Et autant que nous lé pourrons Fe
-4. nous ferons que ça ne ressemble ni à 70 ni à 9x et nous ie
 
 D à ferons que ça ressemble à 93. Nous ne savons pas ce #
 2. que sera demain. Et différentes hypothèses peuvent être HN
@@ -3305,7 +3062,6 @@ Malheur au parti qui ne réduit pas les ennemis de l'intérieur. Tout mon vieux 
 ne mets rien au-dessus de ces excellentes institutions
 d'ancien régime qui se nomment le Tribunal Révolutionnaire et le Comité de Salut public et même je pense
 
-ARS ° L'ARGENT SUITE Fra QE EU |
 | le Comité de Sûreté générale. Ils ont sauvé la France,
 à c'est tout ce qu'on leur demande. Et dans ces moments- Re
 | là je ne mets rien au-dessus de Robespierre dans l'anF cien régime et rien au-dessus de Richelieu dans le \
@@ -3334,9 +3090,7 @@ ainsi dire jamais ce qu'il faut dire, mais il sait presque (
 D: valeurs, dans quel ordre de grandeurs on se meut. Il est
 à indéniable qu'il sait un peu d'histoire. Et c'est d'autant ve)
 De. plus merveilleux qu'il en est agrégé, d'histoire, ou qu'il
-| , À 5 117 Lanson. — 7. Pa
 
-ca fu cahiers de la quinzaine LEE ORT STE
 y est agrégé, comme on voudra. Il y a quelques années, 4
 , quand il commençait ses exercices, Hervé déclarait È
 à modestement qu'il était le meilleur élève de M. Seigno- A
@@ -3369,8 +3123,6 @@ Pi bien, lui, que ce n'est pas une question d'un déjeuner, 1
 \ et que c'est une question de vie ou de mort, : |
 | 118 4
 
-SE ES SNA LS SAR EE ce Mo
-
 $- — Sa seule erreur était de croire que nous nous
 i laisserions faire, et que, nous partis, nos femmes etnos. (5 È
 enfants les laisseraient faire. En temps de paix ceux
@@ -3382,7 +3134,6 @@ f _ vieil ami le vidame Francis de Pressensé. On croyait
 1e qu'il était péri, mais voilà que l'on dit qu'il s'est réveillé ÿ ji.
 à Brest, port transatlantique. Ce bouffi, (et on sait de ton 14
 st reste que ce mot n'est point une injure quandils'adresse ÿ %j
-_ à M. Francis de Pressensé), ce tonneau a résolu d'oc- NA
 _ cuper depuis dix ans la seule position peut-être qui soit fe
 :i jntenable. Voici ce que je veux dire. PA F
 a $. — Mais d'abord je veux noter que M. Francis de : ALTER
@@ -3393,9 +3144,7 @@ conjonction latine, et une conjonction adverbiale, etune
 _ indirecte), de combien, quanto, il est le plus bel exemple 14 ti
 __ et peut-être le plus beau témoin de combien les vertus D
 _ de la guerre sont plus faciles que les vertus de la paix, “ta *
-l Hé n : ii ve ÿ ME #3 A
 
-5, de * Peel Ge PERS DE Lu L
 cahiers de la quinzaine ; #e |
 Et c'est assez réussi pour un pacifiste. Il ne fait (j'allais |
 dire malheureusement) aucun doute que pendant les 4
@@ -3428,8 +3177,6 @@ sophisme de raison et un sophisme de conduite qui est
 demeuré très fréquent. Nous essaierons de l'analyser un
 peu si j'arrive à parler un jour du cas ou comme on dit
 de l'affaire du Paty de Clam et d'un autre cas que je
-|
-|
 
 4 connais. Depuis qu'il fut rendu aux loisirs de la paix NL
 | M. de Pressensé, avec une sorte de soin jaloux, n'a 3
@@ -3437,7 +3184,6 @@ point cessé de tenir les positions de déséquilibre et de
 F __ contradiction intérieure les plus intenables. Ce fut une 14
 d sorte de gageure si inlassablement tenue que l'on dirait
 2 un amusement. Mais c'est un amusement qui coûte cher
-à un peuple, et même à un parti, et à une doctrine. Par )
 | b cette sorte de gageure insoutenable inlassablement sou- /
 A tenue, cette grosse barrique a tenu constamment des ÿ
 # positions et des situations de déséquilibre intellectuel et LS
@@ -3459,7 +3205,6 @@ LL. 4 m'occupe que de l'oppression économique, de l'oppresk: KL : sion subie pa
 “— étre incomplète, mais au moins en elle-même elle se
 ne tient, en somme en elle-même elle est constante. Mais à
 
-es cahiers de la u haaine RER” 14
 ' es $. — S'il y a une doctrine où il y ait une question ;
 f os d'Alsace-Lorraine et où elle soit éternelle et où la
 ke revendication soit imprescriptible c'est la doctrine des À
@@ -3472,7 +3217,6 @@ _ président de la Ligue des Droits de l'Homme ou enfin il 1
 pi bonnet et le plus gros personnage de la Ligue des 1
 . Droits de l'Homme. Non seulement cela, mais il est L
 cas essentiellement la Ligue des Droits de l'Homme. Il en 1
-D est la tête, il en est la moelle, il en est le noyau, il en |
 ? _ est le mage, il en est le corps et tout le volume. Il est |
 Ra même assez amusant que cette ancienne grande ligue
 M censément démocratique et pour tout dire qu'une Ligue À
@@ -3482,21 +3226,15 @@ M censément démocratique et pour tout dire qu'une Ligue À
 '£ ment ridicule, tant c'est contradictoire, que ce soit jus- A
 % « tement une Ligue des Droits de l'Homme qui déclare 4
 | qu'il n'y a pas une question de l'Alsace-Lorraine. 1]
-| $. — I1 y a des systèmes où il n'y a pas de question
 d'Alsace-Lorraine. Mais le système des Droits de Al
 : l'Homme est peut-être celui où au contraire si je puis . ail
 dire la question d'Alsace-Lorraine bat son plein; celui
 
-| | ie
-
-di a SUR
-DT NE UN des te RENE
 | où elle est pour ainsi dire le plus pure; celui où certai
 ÿ _ nement elle rend le plus. C'est celui où elle est, où elle te
 ‘ existe le plus. C'est peut-être même le seul où elle existe
 
 4 $. — Je ne voudrais point parler un langage un peu sit
-À philosophique, mais enfin s'il y a un système où le « AE
 | droit des peuples à disposer d'eux-mêmes soit um
 1 absolu; et un primat; et une donnée; immédiate, c'est 1710
 !. bien le système de la Déclaration des Droits de Ps En
@@ -3524,7 +3262,6 @@ Polonais rendus Allemands et Prussiens; cahiers de nos !
 collaborateurs Pierre Mille et Félicien Challaye pour les
 nègres du Congo français et de l'ancien Congo léopoldien; et en ce moment même je crois qu'on nous prépare |
 un cahier pour les nègres des possessions portugaises. |
-|
 $.— Certes je ne regrette rien et si ces cahiers étaient |
 à refaire je les referais tous. Et j'espère que nous en
 referons encore bien d'autres, des pareils. Mais je
@@ -3539,13 +3276,10 @@ ici toute latitude pour défendre les peuples opprimés |
 qui sont ses clients. Admet-il ou n'admet-il pas qu'on L
 doive défendre aussi le peuple opprimé d'Alsace et le |
 peuple opprimé de Lorraine. 1]
-|
 $. — J'en dirai autant, ou plutôt j'en demanderai |
 autant à notre maître M. Gabriel Séaille ou Séailles, (on
 
-. À DES But | L'ARGENT SUITE ES : és RCE
 “ me pardonnera, je n'ai pas ses Œuvres complètes sous ae
-| la maïn et je ne sais plus s'il prend un s ou s'il n'en 3 r
 e prend pas). M. Séailles a-t-il assez présidé de meetings +
 |.‘ pour les peuples opprimés. Alors comment se fait-il “
 ÿ qu'il préside un meeting contre les Alsaciens-Lorrains. %
@@ -3567,15 +3301,11 @@ L- $. — Il y a dans les familles de ces secrets honteux. : À
 à fait avec eux, ce que nous avons fait d'eux. Et il n'y a in
 4 pas à en être fier. À a
 
-x LT Ne bas FANARE He AE: Fe: DNA D g
-
-} SHARE cahiers de la quinsaine PACE PNIRSETRSR
 W) $. — Le fond de ma pensée, sur la question d'Alsace- |
 ne? Lorraine, c'est que je n'en veux pas aux Prussiens de \ 4
 _ les avoir pris. J'en veux à ces misérables français qui 4
 ea les ont lächés. Les Prussiens n'étaient que des soldats, |
 dre des vainqueurs et des conquérants. Ils ont fait jouer la 1
-fr} | force, la force de la guerre, de la victoire, de la conquête. ]
 # A Mais je méprise et je hais, mais j'en veux à ces misé- 4
 , Fa rables Français qui pour avoir la paix ont vendu deux k
 ar provinces et ensuite sont allés pleurer à l'Assemblée de |
@@ -3595,9 +3325,7 @@ guerre civile, les trente mille hommes, les trente mille À
 fi l'ennemi commun d'abord tout ce que ces deux moitiés i
 de la France dépensèrent l'une contre l'autre. Etony ñ
 
-+ LAN EE 4 Era EE An QE RTE AE A A nr on
 ; 3 épargnait ces quarante années de paix armée, et de Dr Ne
-| ‘dénatalité. TENUE
 a $. — C'est pour cela, monsieur Seignobos, qu'il faut An
 __ se méfier et que nous ne recommencerons jamais 70; ni 14
 par suite 71. Nous ne recommencerons pas des guerres VA OA
@@ -3674,7 +3402,6 @@ L: pierre qui est humain. Les régimes de lâcheté sont ceux
 #. qui coûtent le plus au monde, et en définitive ce sont I
 | # ceux qui peuvent finir et les seuls qui finissent réelle- ù
 
-De ne à _ cahiers de la qu wainé 7 Mot NAT
 mt ment dans l'atrocité. Et en outre c'est une atrocité de . |
 pr _ turpitude. Il n'y a que deux politiques. En temps de À!
 NEA guerre les régimes qui ne réduisent pas immédiatement {À
@@ -3690,7 +3417,6 @@ di troupeau même. de
 
 4 4 $. — C'est la Convention Nationale qui est en temps
 VA de guerre le régime de douceur et de tendresse. Et c'est 1
-._ l'Assemblée de Bordeaux et le gouvernement de Ver-
 “ | saïilles qui est la brutalité de la brute et l'horreur etla
 1 $. — La Convention n'a pas coûté cher, pour ce 2}
 Ÿ qu'elle avait à faire, et pour ce qu'elle a fait. MA |
@@ -3698,8 +3424,6 @@ V. $. — Et en outre c'est la Convention Nationale qui À
 4 est l'ancien régime et c'est le régime de Robespierre CE |
 qui est le régime de nos rois, étant le régime de
 
-> L'ARGENT SUITE |
-L $. — En temps de guerre il n'y a qu'un régime et
 À c'est le régime jacobin. Louis XVI fut déplacé à bon
 droit puisque pour cette guerre qui venait, qui était
 E commencée, il était déplacé, il était remplacé par de à
@@ -3721,7 +3445,6 @@ LS c'est Vive la Nation.
 | ennemi, quel qu'il soit, d'où qu'il vienne, et quel que
 soit son parti. Et je le hais d'autant plus, et je le
 Ÿ méprise d'autant plus que par les jeux des partis politiques il prétendrait s'apparenter à moi.
-| LE F
 
 cahiers de la quinzaine cf
 $. — Quels que soient les partis celui qui ne rend
@@ -3752,12 +3475,9 @@ sacrement à pécher, à commettre le péché de paresse.
 C'est vouloir faire servir la prière et le sacrement
 contre le commandement d'obéissance, contre le com132
 
-| + een LL TARA AE LTS de U PRO EE be GENE
-ne PEN L'ARGENT SUITE
 “  mandement de travail, qui est je pense l'un des plus
 ‘4 vieux commandements sinon le plus vieux, étant lié à ;
 3 la première loi et au péché d'origine et au pourchas du k
-| “ |
 EE $. — Celui qui fait jouer la prière et le sacrement :
 pour se dispenser de travailler et d'agir, c'est-à-dire en
 i . temps de guerre pour se dispenser de se battre rompt
@@ -3782,7 +3502,6 @@ L 14 par un frauduleux balancement du calcul des respon-
 # de 1870. Autant il est permis, autant il est béau, autant
 | ___ ilest profond de demander par la prière, de demander
 4 dans la prière le couronnement de fortune et ce sort 4
-| | } à È 133 Lanson. — 8 #
 
 40 | cahiers de la quinzaine Poe “1
 n £ des batailles qui ne réside que dans l'événement, autant A:
@@ -3889,14 +3608,12 @@ dynastie; forte dans sa jeunesse.
 $. — J'ai horreur du lyrisme et du romantisme toujours. J'en ai encore plus horreur quand il s'agit de
 l'Alsace-Lorraine. Je ne comprends même pas que l'on
 
-_ LE ici dE js Loos ps ÿ is E ) ES À.
 . ose en parler. Je ne comprends même pas que l'on ya
 puisse en parler. Il y a quelque chose de honteux à $ Ne
 _ parler toujours de ces malheureux que nous avons KE
 4 abandonnés. La question n'est pas d'en parler, mais de ES
 _ les libérer. Ou puisqu'on a eu le courage de les livrer, L
 _ et puisqu'on n'a pas eu le courage de les libérer, il vaut #
-2. mieux se taire. Le,
 À $. — J'ai horreur de l'éloquence toujours. Mais que
 | 4 dire de ceux qui font de l'éloquence dans cette malheu- 5
 EE reuse affaire où tout le monde est coupable et certaine- $ :
@@ -3904,8 +3621,6 @@ EE reuse affaire où tout le monde est coupable et certaine- $ :
 ._._  gine il s'agissait uniquement de garder les armes ou de ER
 “ne pas les garder, où depuis il s'agit uniquement de
 | 2 prendre les armes ou de ne pas les prendre.
-#4 F
-| $. — J'ai horreur de l'éloquence toujours, et de la
 - métaphore. Quand je dis qu'il y a un parti allemand et ë.
 4 que Jaurès est un pangermaniste, ce n'est point une ;
 __ invective. Tout ce que j'essaie de faire c'est d'ébaucher
@@ -3916,7 +3631,6 @@ Tout ce que je veux faire, tout ce que je me propose de ]
 _ question d'Alsace-Lorraine qu'à mon corps défendant. 0
 ù $. — Ce que je demande aux doctrines, aux systèmes, Le
 
-FACTONS MA GAME En 0 te .
 aux partis, avant tout c'est d'être constants, cestdese 2
 tenir avec soi-même. Ensuite naturellement nous pour- DE
 > FE rons leur demander autre chose. Mais au premier degré h
@@ -3941,7 +3655,6 @@ t nous parle pas des peuples opprimés. LAS
 : $. — Mais ce qui n'est pas tenable, c'est la position - 14 | |
 Ft de M. Francis de Pressensé, de venir toujours nous & |
 
-# L'ARGENT SUITE
 1 parler de tous les peuples, (il a fait sa carrière là- &
 : dedans, et sa fortune politique), et de ne pas vouloir
 : que lon parle des Alsaciens-Lorrains.
@@ -3981,8 +3694,6 @@ on dit que la Pologne est opprimée, il est rigoureu- |
 sement vrai de dire que en ce même sens l'AlsaceLorraine est opprimée. Alors comment se fait-il qu'on
 nous parle toujours des autres et qu'on ne nous parle |
 jamais de ceux qui demeurent nos frères. |
-|
-|
 $. — Pour Jaurès l'explication est extrêmement
 | simple. Il est pangermaniste. (Il faudrait l'en féliciter, |
 s'il'était né sujet allemand). Il est un agent du parti |
@@ -3991,7 +3702,6 @@ Mais pour Pressensé l'explication est beaucoup moins |
 $: — Je n'ai jamais dit que Hervé fût un pangermapiste ni un agent du parti allemand, Le cas de Hervé,
 tout en étant baroque, est aussi beaucoup moins simple. (
 C'est un cas de fanatisme. Et un cas de frénésie.
-|
 
 à __ $.— On pourrait assez bien résumer ce trio dans les
 
@@ -4053,7 +3763,6 @@ de e $. — De sorte que en dernière analyse on trouverait .
 4 que M. de Pressensé est pour la liberté des peuplesà
 [sp condition qu'il n'y ait pas de risque de guerre, à condi-
 
-6 | L'ARGENT SUITE Fee
 * tion que la libération des peuples opprimés n'entraîne ne
 pas, ne comporte pas des risques de guerre. ue
 À $: — Ce qui revient enfin à dire que Pressensé est ni
@@ -4074,7 +3783,6 @@ de. - $. — C'est un système fort connu, et que l'on a tou- int
 ; une échelle des valeurs où l'honneur est moins cher que 4
 L 4 la vie. On peut le déterminer d'un mot en disant que it
 À … c'est un système qui prend exactement le contre-pied !
-Fr à du systèmé cornélien ; et de la doctrine cornélienne ; et * "
 | … de l'échelle des valeurs cornélienne. Mais d'autant que Fi
 | # l'honneur est plus cher que la vie, Mais d'autant que Fu
 4 143
@@ -4091,9 +3799,7 @@ bien, mais qu'on le dise. Qu'on dise : Il n'y a pas de question d'Alsace-Lorrain
 l'Allemagne, de la force allemande. Et il y a une question |
 des nègres de l'Angola parce que nous n'avons pas |
 peur de la force portugaise. |
-|
 $. — C'est un pacifisme à tout prix, un système de
-la paix, à tout prix. J'y consens, mais ce qu'il y a de
 saugrenu, ce qu'il y a d'intenable, c'est de mettre un |
 pacifisme, et si je puis dire un pacifisme intégral, sous ;
 l'égide, et sous l'invocation de la Déclaration des Droits |
@@ -4103,7 +3809,6 @@ Déclaration des Droits de l'Homme a justement été
 faite, elle a été justement introduite dans le monde pour
 expliquer que le droit passait avant tout, et par consé- |
 quent notamment avant la paix. Les historiens mêmes
-savent cela. L
 
 | .— La République une et indivisible, voilà ce qui
 est sorti de la Déclaration des Droits de l'Homme et du
@@ -4126,10 +3831,7 @@ royaume de France.
 - l'Homme le pacifisme. Rien n'est plus contraire. Le
 à pacifisme ici c'est le démembrement. C'est le démem1 brement perpétré et le démembrement maintenu. La L
 République du pacifisme, c'est la République démemf brée. C'est la République plurielle et divisée. |
-' G) Et du citoyen.
 
-SRE de dr à
-& FE 4, : Né o cah el s de la quinsai ne “y RRSRRR An s
 _  $:— Je vais plus loin et évidemment je ne voudrais
 n. pas entrer dans les idées générales et surtout être és
 AU __ chargé de mettre des idées générales dans la tête de
@@ -4144,7 +3846,6 @@ __ vouloir introduire un droit quelconque, un point d…
 naisse, il en vienne, en même temps, en cela même, e.
 D. k par cela même, indivisiblement, un point de guerre. {
 
-5% ; $. — Si M. de Pressensé a jamais lu la Déclaration |
 $ M _ des Droits de l'Homme et du Citoyen, (et au fait pourne quoi ne l'aurait-il pas lue), il y aura peut-être vu que
 ve _ l'insurrection est ou peut être le plus saint ou le plus A
 à fe sacré des devoirs. (Allons bon, voilà que c'est moi qui À
@@ -4159,7 +3860,6 @@ ER en pleine paix. Les batailles de la guerre civile ce sont
 VAE des batailles du temps de paix. Les morts et les blessés \ 4
 il G de la guerre civile, ne sont pas découpés par les mêmes } sl
 
-agrandi beta CHAR EPA ad EE SR Rd TES RTS
 | ‘4 chirurgiens. Les massacres des guerres civiles, ce sont ;
 | 4 évidemment des massacres de maisons de santé.
 $. — Je ne veux pas entrer aujourd'hui dans la critique du syndicalisme, qui demanderait tout un cahier.
@@ -4189,7 +3889,6 @@ n'était pas en lui-même et instantanément une machine
 S montée, un appareil de guerre; et qu'est-ce que la
 Déclaration des Droits de l'Homme sinon un immense
 programme, un immense appareil d'une constante |
-|
 $. — Avec la déclaration des Droits de l'Homme on
 ferait la guerre tout le temps, toute la vie, tant qu'on
 $. — Non seulement la justice maïs la charité même |
@@ -4237,7 +3936,6 @@ A d'une aussi amère dérision de bourreau. Ou plutôt de
 . Est-ce qu'on nous a dit que la Finlande fasse elle-même, ‘4
 ‘4 et l'Arménie elle-même, et la Pologne elle-même. Est-ce :
 55 _ qu'on nous demande que les nègres opprimés fassent
-#: LE lai n
 . 1e $. — L'idée de la paix à tout prix et de la politique ,
 _ de M. de Pressensé, l'idée centrale du pacifisme, (car je +3
 JA lui donne un centre), c'est que la paix est un absolu, À
@@ -4312,11 +4010,8 @@ L vue, il y a une question d'Alsace-Lorraine. Et qu'elle |
 Ê même.
 “à $.— Tant que ce sont les ignorants qui parlent, ça va ,
 RS bien. Ceux qui ne savent pas sont faits pour montrer |
-| -1e 153 Lanson. — q. |
 
-RL re 4 LR Le ca ja s de la quinsaine At PARU ce
 aux autres, Mais on a une espèce de honte, une pudeur,
-# NT 1 . . . L' Ë à ss rh
 +R Le quand on voit des hommes instruits, qui savent quelque 1 Ke:
 “Fi _ chose, ou enfin qui l'ont appris, un Jaurès, un Délaisi, « ai un Pressensé, venir toujours raconter au peuple, aux NL:
 militants, les trois ou quatre mêmes sornettes. (Des Re
@@ -4403,7 +4098,6 @@ s. hommes du monde qui pense le plus de travers. Mais il de
 est le seul de la bande qui pense lui-même, qui regarde mA
 Ë ce qui se passe, et qui dise ce qu'il pense, et qui ait ce ÿ
 À courage, et qui dise ce qui se passe. se
-#
 % _ $. — Comment parler de Lavisse à présent. Mais
 > comment n'en point parler quand on sait qu'il est préci- |
 ; sément la porte basse par laquelle tout ce désordre est re
@@ -4422,14 +4116,12 @@ un * et demi. Sesquipedalia verba. Maïs la liaison de Herr Û
 | nisme, le couple de mécanisme qui a lié le désordre à KL
 à | l'ordre, qui a fait pénétrer un certain désordre jusque <
 
-DA Dec PAIN OON ON er SA
 “RSR | cahiers de la quinsaine
 dans les conseils du gouvernement universitaire. Onne
 ME saura jamais ce qu'un froncement de sourcils de Herr “4
 4 " aura fait, ce qu'il aura eu d'influence sur les destinées 1
 mn à de la troisième République. Car Herr fronce aisément 4
 16 _ ses gros sourcils; et il gonfle volontiers sa grosse voix; ; ù
-Ce et il jure et il sacre: et les Nom de Dieu font sa ponc- k
 PA _ tuation la plus modeste; et M. Lavisse, qui ne s'y 4
 À __ connaît pas beaucoup, croit que c'est cela de la force,
 7e et que c'est cela du courage, et que c'est cela de L'3i
@@ -4458,13 +4150,11 @@ nu désordre. Et à tous les trois les vices de la bureaucratie %
 WL a). — le dreyfusisme qui était un système de liberté
 * absolue, de vérité absolue, de justice absolue, et d'un
 fe ordre spirituel profond, est devenu sous le nom de com- 0
-F bisme et de jauressisme un système de contrainte et de qu |
 Be: raison d'État, un système de mensonge politique, un 4 Fi
 ‘@ système de faveur, d'oppression, d'iniquité; un système lé .
 & aussi de corruption; et un système de fraude etunsys car
 4 tème de turpitude ; ? ; 14 pa
 4 b), — le socialisme qui était un système économique ip !
-_ de la saine et de la juste organisation du travail social 10h if
 4 est devenu sous le nom de jauressisme et sous le nom ; FE)
 % identique et conjoint de sabotage un système de la
 _  désorganisation du travail social et en outre et en cela A )
@@ -4483,13 +4173,11 @@ $ dans l'administration ni dans le gonvernement de l'État. que Ni 1
 | être parfaitement excusable et même parfaitement à sa : 82e
 plage dans un parti, dans nn monde révolutionnaire gt Dr
 
-D DU f CS ARR ar AE PANNE TUE
 cahiers de la quinzaine "a 4
 qui est tout à fait hors de place, tout à fait désastreuse 1
 pour tout le monde quand elle est dans le monde qui
 est au pouvoir; k
 s d). — le laïcisme, qui était un système de neutralité
-en matière de foi et de métaphysique et en somme un
 | système de la liberté de conscience est devenu sous le A
 nom de sociologie un système métaphysique le plus
 j, grotesque sans aucun doute que l'on ait jamais vu dans |
@@ -4509,12 +4197,9 @@ Et tout ce qui reste encore debout et ce qui reste encore
 propre de l'ancienne République est ce qui n'a pas
 encore été contaminé de jauressisme;
 f). — la force révolutionnaire, qui était l'honneur et
-la grandeur de ce peuple, l'honneur de ce pays et de
 cette race, et qui consistait essentiellement à vouloir |
 que ça aille bien et à en faire plus que son compte, |
 
-L'ÉNeSS L'ARGENT SUITE : ue
-# À
 l'esprit révolutionnaire, qui était essentiellement géné-
 # reux, l'instinct révolutionnaire est devenu en leur temps re
 . et sous leur gouvernement et en leurs mains un bas 3
@@ -4541,8 +4226,6 @@ s. de ce parti socialiste qui ferait contre-poids à leur
 l | 1 que c'est équilibré, qu'ils marchent d'accord avec un
 (4 parti socialiste allemand qui en fait autant. Tout le
 
-BARRE de PME RD Fc RAP ANR 1 à
-“A0 ER ‘cahiers de la quinsaine #2
 4; monde sait le contraire. Jamais peut-être on n'avait E
 es menti aussi systématiquement ; et aussi solennellement; La
 20 et aussi consciemment. On frémit, et on est frappé soi- ke
@@ -4615,7 +4298,6 @@ de renforcement militaire parce que ces impôts fourni- 1
 raient une excellente occasion d'asseoir un impôt plus |
 démocratique. Et de faire payer les bourgeois. |
 
-|
 $: — Je repense à cette formule, la paix par le droit, |
 qui paraît si courte, si simple, si commode, si lucide. h
 Parce qu'elle est comme géométrique, et équilatérale. |
@@ -4625,13 +4307,11 @@ fait par la guerre, mais il est encore moins souvent fait
 par la paix. Dès qu'un point de droit apparaît dans le
 monde, il est un point d'origine de guerre.
 
-pie. Le 7 ele EE tre tot ERREUR A TS ne A PER ESS
 À $.— Nous avons tort de nous étonner que l'Humanité Vs ira
 Ë ait refusé de la copie à Andler. Ou ait refusé de la copie k L”
 R de Andler. Personnellement je crois l'Humanité capable : ie
 À de tout. Maïs il faut se borner et j'en dirai les raisons +
 une autre fois. ut
-F $.— Ce qu'il y a de plus fort c'est qu'ils ne trahissent Ts S
 É pas seulement nos intérêts et nos droits; en outre et en she q
 À cela même ils trahissent autant les intérêts et les droits GTA
 ; dont ils ont pour ainsi dire professionnellement assumé ans
@@ -4652,10 +4332,7 @@ __ le monde. Il ne fait aucun doute que la France a deux à
 l EU :et quelquefois pauvre de forces c'est qu'elle est dou- Nr
 Mn  blement fidèle, c'est qu'elle est fidèle deux fois, c'est ve
 M qu'elle a à pourvoir à deux tâches, et à deux fidélités, AS
-| î ; : 165 EMA
 
-re de à à F CRCAMENTRRSE ER
-Ne _à sa vocation de chrétienté, et à sa vocation de liberté. Li
 He La France n'est pas seulement la fille aînée de l'Église, da À
 LLAP (et ceci apparaît constamment et avec une fidélité 3
 surprenante); elle a aussi dans le laïque une sorte de è
@@ -4683,11 +4360,8 @@ Mr France, j'ai le droit de dire qu'ils trahissent la Révolution N,
 i même et la liberté. Car tant qu'ils peuvent ils s'efforcent 5
 ” d'annuler le seul point d'appui temporel de la liberté #
 ‘ dans le monde. fl
-fi Ce
-|
 (4 $: — Brochant sur le tout ils trahissent enfin tout À
 
-æ dpi DA ON EAN re A EN A nr M
 cel de la manière la plus désagréable du monde, par
 une trahison morose et sournoise, d'une trahison désa
 de tout soumettre aux oppressions plates de la plus ?
@@ -4707,9 +4381,6 @@ __ Serbie et de l'empereur de Bulgarie et du roi de Monté- Aa)
 Mn  négro s'ils n'avaient pas marché. C'est même arrivé au nn me
 | 4 roi de Grèce en marchant. jh a |
 Mn  $:— Depuis deux ans on ne me permettait pas de Lan
-|. NOUS UNS
-| GX TPE PTS RAS
-| Les, K 2 « 1
 
 | cahiers de la quinzaine . Hé 24
 m'occuper de M. Lavisse. Mais pendant ce temps il j
@@ -4739,8 +4410,6 @@ attaques, mais contre nos défenses et contre nos |
 ripostes. Ils ne sont pas amis de nous pour nous |
 défendre de subir, sous le commandement de M. Lavisse, |
 le gouvernement de Herr et de Jaurès. 1
-|
-| :
 
 $: — Allons plus loin et le fond de leur pensée c'est
 qu'absolument on ne répond pas à un homme comme
@@ -4772,7 +4441,6 @@ S personnages il n'y a aucun droit, (et qu'on est même
 #4 nous ne sommes pas des grandeurs du même ordre.
 Qu'il n'y a entre eux et nous aucune commune mesure.
 
-| RSR CETTE SR PS RE RMS DEL PORTANT SRE TIRE
 Fa ÿ À Qu'eux ils sont les riches et que nous nous som mes STATE)
 SR les pauvres. Que nous devons nous soumettre au règne nue Ni
 de l'argent. Qu'eux ils sont les gros fonctionnaires, les
@@ -4787,7 +4455,6 @@ en _ $: — Aussi on peut dire que jamais les grands n'ont 14
 __ été aussi entourés; jamais, sous aucun régime, dans da
 __ aucun système les grands n'ont été aussi couverts contre 15
 NA _ le peuple, et le peuple aussi découvert contre les Ls
-LA grands. PR
 de $. — Et jamais l'argent n'a été à ce point le seul 4
 vi maître et le Dieu. Et jamais le riche n'a été aussi Va
 NAT couvert contre le pauvre et le pauvre aussi découvert * 0
@@ -4803,7 +4470,6 @@ contre le faible, et jamais le faible n'a été aussi décou-
 
 ; $. — On ne peut pas dire que je persécute Lavisse,
 S'il avait quelque chose à dire, celui-là, il en avait les
-moyens, de le dire. Il en a eu le temps, et le volume, et
 
 D: le pouvoir, et les chances, et les situations, et l'argent.
 
@@ -4846,7 +4512,6 @@ $: — Moi aussi je respecte la maladie et les malades.
 A une condition toutefois, c'est que les malades se
 respectent eux-mêmes et respectent la maladie. Mais
 quand la maladie elle-même est un moyen de gouver- /
-|
 $.— Le bon usage des maladies n'est certainement
 pas celui qu'en fait M. Lavisse. On sait ce que c'étaient
 que les maladies de M. Lavisse. Je ne dis pas que
@@ -4886,9 +4551,7 @@ k situation politique, (des lourdeurs, c'est le propre d'un
 baromètre). On eût fait des tables de concordance, et
 des diagrammes, (eussent-ils été historiques, eussent-ils
 — été géographiques), des variations de la situation poli4 tique par et d'après les déplacements de l'index É
-| Lavisse.
 
-ra # ge LE cahiers « € ta qu al {2 de SR ni ras 5 PR +
 54 $. — J'ai assisté, moi petit, à la scène suivante:
 .: 1 Dans une maison que fréquentaient beaucoup les pro
 a Si fesseurs de l'Université qui voulaient avoir de l'avance
@@ -4900,10 +4563,8 @@ de. trop curieux, vous ne saurez ni quel doyen, ni quelle LS 4
 Et tous de rire, je ne sais vraiment pas pourquoi. Ce
 1% n'est pas risible, d'être malade. Alors un imbécile, Ge
 “SR pense que c'était votre serviteur), et qui ne savait pas,
-1ER LEA ouvrit la bouche et dit : Ah, il a quelque chose. — Oui, 1
 k f dit ie doyen, plissant des lèvres attiques, il y a une
 FEV affaire embétante au Conseil Supérieur de l'Instruction
-> Es Î
 _ $. — Ce n'est un secret pour personne que pendant Eu
 des années toutes les fois qu'il y eut au Conseil Supé
 È rieur de l'Instruction Publique une affaire embarrag
@@ -4922,11 +4583,8 @@ F 7! n'aime pas un bon homme, qui est au pouvoir. Dieu De
 veuille que nos maîtres soient fermes, c'est tout ceque
 À nous leur demandons. Rien n'est dangereux pour celui 144
 % qui est dessous, comme la bonhomie de celui qui est Li
-: dessus. ne.
-ei $. — Je n'ai jamais dit qu'il fût un ogre. J'ai dit qu'il ‘ra
 Ne était un prodige de faiblesse, un monstre de mollesse. 1/88
 720 Et, dans celui qui est au pouvoir, c'est le pire. 4 Le si
-#4 Nu “
 1 $. — Vous leur fîtes, seigneur, en les croquant beau- ni qe
 "3 coup d'honneur. Le fond de leur pensée, leur idée de à ji
 É. derrière la tête, c'est que, quand un pauvre est en butte À 14
@@ -4936,8 +4594,6 @@ aux calomnies d'un riche, et un faible aux calomnies EN
 ‘4 fonctionnaire et d'un gros personnage, il doit se trouver PL #
 : très honoré de ce regard, et dire respectueusement À.
 : NS — L'École Normale, m'écrit mon jeune camarade, 1 ”
-
-cahiers de la quinzaine OO je
 
 n'est point aussi bas que vous le croyez. Vous savez :
 qu'il y a depuis plusieurs années un fort contingent de =
@@ -4963,13 +4619,11 @@ ne peut remplacer. Car de l'athée français il peut sortir
 un saint français. Et de tout le Centre allemand et de
 tous ces Autrichiens il ne sortira jamais un saint |
 
-L'OCRRIAX à 175 ete TS LRU CLE
 $-. — C'est le mystère même du charnel et du tem- ‘
 porel, mon jeune camarade, et de l'insertion du spiri- }
 tuel dans le charnel et de l'insertion de l'éternel dans
 le temporel, et pour tout dire c'est le mystère même de
 . l'incarnation. Nous rejoignons ici ce que nous disions à
-l'instant de la prière et du travail, de la prière et de la
 guerre. Nous retrouverons ce mystère dans notre Clio,
 dialogue de l'histoire et de l'âme païenne, et dans notre
 _ Véronique, dialogue de l'histoire et de l'âme charnelle.
@@ -4979,7 +4633,6 @@ qu'il ne suffit pas d'être catholique. Et qu'il faut encore
 _ tout faire. Pièce à pièce. Jour par jour.
 ï s $. — D'abord, mon cher camarade, s'il y a des catho- !
 4 liques à l'École Normale, il ne faut peut-être point en
-…._O attribuer le bénéfice à M. Lavisse, ni à Herr ni à
 À Jaurès, ni à la politique de M. Lavisse, qui est la poli-
 … tique de Herr et de Jaurès. Car ce serait une singulière
 …._ comptabilité. S'il y a des catholiques à l'École Normale,
@@ -4989,7 +4642,6 @@ _ tout faire. Pièce à pièce. Jour par jour.
 #4 mélanger singulièrement l'actif et le passif, que d'en
 “ attribuer le bénéfice à M. Lavisse. 4
 
-A UT A PR cahiers de SA ASE SE |
 228 $. — Comprenez bien, mon jeune camarade, le senti
 Le È ment qui me fait vous répondre. J'ai peur que nous ne 4
 oi x tombions nous aussi dans des sophismes de paresse. R Vi d
@@ -5015,10 +4667,6 @@ mystère temporel c'est précisément que nous savons
 bien qu'avec les mauvais athées elle ne fera jamais des k
 F bons chrétiens. Qu'avec les bons athées elle fasse des
 bons chrétiens, voilà le miracle et la part de la grâce | 4 |
-
-de LOC AS c r N OS ne
-
-Hit QUE AR See CAR
 
 et la part du spirituel. Mais qu'avec les mauvais athées
 
@@ -5050,11 +4698,7 @@ _ tiens). A une seule condition : C'est précisément que 18
 
 | conversation avec lui. Je ne serais pas surpris, quand Ne
 
-_ M. Lavisse a vu qu'il y avait à l'École Normale un fort M br}
-
 _ contingent de catholiques, qu'il ait résolu de faire avec LEA
-
-_ eux le gentillâtre et le galantin. C'est l'a b c de l'art CH
 
 _ de gouverner; et ces libéraux sont tous ainsi. Mais que Je à » notre jeune camarade en croie ma vieille expérience : a #
 
@@ -5081,8 +4725,6 @@ cahiers de la quinzaine d'à
 leur marque même. Et c'est un des plus grands signes
 
 de leur vocation. Il en est de la mystique chrétienne
-
-comme de toute mystique et en ce sens il en va de la
 
 République comme de l'Église. Ce qui est dangereux,
 
@@ -5150,7 +4792,6 @@ métier, et qui pourvoit à tout lui-même, et qui fait son i
 salut lui seul, lui seul sous ses patrons, sans ses gouvernements, sans ses bureaux, sans aucune de ses
 autorités. » Mais j'en reviens toujours à ma comptabilité. Ce n'est
 ni une excuse ni surtout un titre pour ses gouvernements, pour ses bureaux, pour ses autorités.
-|
 ge $. — Je vais plus loin et d'une manière générale
 
 + j'avoue que je ns Eu penal : pact sent ss
@@ -5213,7 +4854,6 @@ dont nul ne peut se passer. Ce serait mal les connaître,
 { . (les docteurs), que de ne pas espérer qu'en effet ils : Ne
 4 “4 débarqueront les saints, Les docteurs n'ont pas seule- RAT
 
-; LEUR PAS TU PEN RARE ES AE RUE: Lie]
 à. ment condamné Jésus-Christ, ils n'ont pas seulement #8
 condamné Jeanne d'Arc, ce ne serait rien encore :
 Nolite judicare, ils ont jugé Jésus-Christ, ils ont jugé |
@@ -5239,8 +4879,6 @@ oppression contre chaque membre lorsque le corps
 social est opprimé. |
 184 4 4
 
-RAP PA RUUE 04: 4 A ET ER Sul “& mu
-LH On eu PEUT ARGENT SUITE i "2
 À * 35. — Quand le gouvernement viole les droits du si
 4 peuple, l'insurrection est pour le peuple, et pour cha- nu
 k que portion du peuple, Le plus sacré et le plus indis- 54
@@ -5261,7 +4899,6 @@ rien et les valeurs que j'essaie de défendre contre les ge
 É. Il sait bien qu'il est l'État, et le temporel, et tout. |
 L. $. — On me dit : C'est un vieillard. Je dis pardon. »
 É Les vieillards ont droit au respect. Ils n'ont pas droit à
-| { Lu / À
 
 Rs Ils ont droit au commandement s'ils savent com- AA
 paie mander, s'ils sont bons pour commander. Maisils n'ont
@@ -5336,7 +4973,6 @@ simplicité même. Nous demandons seulement que À 1
 M. Lavisse aille goûter un juste repos. Nous demandons pi
 simplement que M. Lavisse aïlle se reposer. Et par la À
 même occasion que nous puissions un peu nous reposer ;
-de lui.
 Il ne fait aucun doute que M. Lavisse n'a pas réussi }
 à l'École Normale. C'est le moins qu'on puisse dire. À
 $. — Ce qui fait enrager, c'est que dans le particulier
@@ -5373,9 +5009,7 @@ posséder le pouvoir et d'avoir comme un domaine la
 à France et le gouvernement de la France et les prébendes
 | et les pensions qu'on a l'air de les persécuter quand on
 demande simplement qu'ils n'exercent plus leurs commandements ; et qu'alors on a l'air de vouloir les
-| 189 Lanson. — 11.
 
-HR TES 4 À ARE LLC de Dust "We PEAR
 | habitués à étre flattés, adulés, encensés qu'ils eroient
 sincèrement que c'est vrai, que C'est bien comme ça; NOTE
 é +4 que c'est légitime ; puisque c'ést établi. AN
@@ -5415,7 +5049,6 @@ lequel et ce pays et cette race et cette jeunesse ont fini
 mains de ces vieux. Et de si excellentes troupes aux
 | mains d'indignes chefs. Et toujours ceux qui ne veulent
 pas capituler aux mains de ceux qui n'ont jamais pensé
-| qu'à la capitulation ; et à préparer la capitulation. Et
 4 toujours ces belles recrues sous le commandement et le
 | gouvernement de ces Mac-Mahon. C'est aller au-devant
 de la défaite, c'est vouloir délibérément la défaite et la
@@ -5425,13 +5058,11 @@ de gouvernement des hommes qui ont dans la moelle
 même le goût et l'instinct et l'habitude invétérée de la
 4 défaite et de la capitulation.
 
-CREME de LRU à fes Dr ct LR Ti
 cahiers de la quinzaine die
 $. — Mettre, laisser de jeunes troupes sous de vieux Vel
 chefs : la formule même du désastre.
 $.— Et des vieux chefs que l'on connaît bien, qui ont
 fait leurs preuves de faiblesse et de mollesse et d'affais-
-) sement et du goût de la défaite et de la capitulation.
 $. — Que dire alors de ces cérémonies solennelles, de
 ces apothéoses de Sorbonne où l'on retourne les situa- !
 tions si parfaitement que celui qui n'a jamais travaillé |
@@ -5442,13 +5073,10 @@ $. — J'oubliais. Nous ne demandons pas seulement
 que M. Lavisse aille se reposer. Nous demandons aussi
 qu'on ne nous mette pas à la place ce jeune politicien
 qu'on nous prépare. |
-|
 Mercredi g avril 1913. — Dans le numéro de la |
 Guerre sociale, septième année, numéro 15, daté du 9 ÿ
 au 15 avril 1913, et sous ce titre : Le discours du chancelier, M. Hervé publie un article que je me fais un
 
-A ee Le Lo
-BPM L'ARGENT SUITE \ el
 devoir de citer tout entier. On fera, si je puis dire, la x) se
 part du fou. Et encore elle est bien peu considérable : AU
 à Le discours du chancelier allemand a été sifilé par les élus EURE
@@ -5506,7 +5134,6 @@ _ Le foyer d'infection, il ést en Alsace. Comment peut-il y ù ‘4
 mi pour ne pas le voir? ÿ
 pe _ C'est de là, et non d'ailleurs, qu'est sortie l'alliance franco- à
 1018 C'est là et non ailleurs que s'alimente le nationalisme + 4
-à S Tout ce qu'il y a d'idiots en France et en Allemagne ne va ! \
 TR pas manquer de crier que je deviens nationaliste et revan- w %
 AR: chard. il
 # F Je suis plus antirevanchard et plus antinationaliste que ". 1
@@ -5528,7 +5155,6 @@ Ils combattent lés armements et les folies de la paix d'0
 s armée, pareils au médecin qui combattrait la fièvre par la 14
 
 | quinine, sans voir où sans opérer l'abcès purulént qui est W* HU
-la cause de la fièvre. CES ENS
 À Et cet aveuglement ou ce manque de décision, delapart F0
 Re du parti qui devrait être le plus clairvoyant et le plus auda- Ho
 cieux, est bien ce qu'il y a de plus triste dans la criseque | |
@@ -5558,7 +5184,6 @@ ment une telle proposition ne se tient pas. HT:
 EC. De senectute, les vieillards ont certainement droit au | AT
 D. respect, ot surtout au repos. Mais dire qu'ils ont droit 1 Ne |
 
-"7 LEP RES Ne PR ARABE et
 cahiers de la quinzaine " 4
 à la retraite, c'est précisément dire qu'ils n'ont plus à à |
 exercer les grands commandements. F
@@ -5583,8 +5208,6 @@ et leurs enfants, on se prend à supposer qu'il y a peut-
 des sorts plus déplorables que le sort qu'une opportune
 $. — Respecter les vieillards, c'est entendu, mais il y :
 
-VA A AAC ter Tes + LE AMAR PQ ANT D
-FE RPRRECS L'ARGENT SUITE er
 n" faut tout de même une condition : c'est que les vieillards 4
 De se respectent eux-mêmes. Mais si les vieillards ‘3
 Ë _ s'adonnent à la pire des débauches, à la seule peut-être A
@@ -5602,7 +5225,6 @@ liaison, organique, sentimentale, et presque sacramen- :
 ! telle, que le respectueux seul peut se vanter d'être res- ia
 ,
 \ $. — Il en est des vieillards comme des femmes. Plus HE
-EE: un être reçoit de la nature et de sa situation d'état un 1
 4 respect naturel, plus il y a scandale et bassessé quand | è
 4 ce même être le premier manque à ce même respect, À
 4 quand ce même être le premier manque à se respecter AS
@@ -5629,7 +5251,6 @@ $. — Et comme un magistrat et un prêtre sont les seuls |
 hommes qui puissent donner le plus affreux spectacle, |
 ainsi le vieillard est aussi le seul homme qui puisse 1
 donner le plus affreux spectacle. 1
-|
 
 $. — Autrement, dans leur système, dans l'autre {
 système il suflirait d'être vieillard pour avoir le droit |
@@ -5667,7 +5288,6 @@ vu que l'armée ne les supporterait pas. Et personne ne
 | supporterait qu'il y en eût dans l'armée. Car on est 1
 ainsi fait qu'on redoute les défaites militaires. Et on a Î
 raison. Et qu'on ne redoute pas les défaites civiques. Et
-on a tort. *
 Masquant toutes les avenues : il est bien entendu que .
 ce ne sont pas seulement les avenues des honneurs : on
 les leur laisserait. Mais que c'est aussi et que c'est sur- |
@@ -5689,11 +5309,8 @@ longtemps, mon Dieu je ne dis pas que nous tirerions ;
 sur eux. Nous sommes bien incapables d'un tel méfait, |
 que de tirer sur nos chefs. Mais nous tirerions sur |
 
-AE (4 dE je ce LP ON ARA Re)
-
 l'ennemi à travers eux. Et ils s'arrangeraient comme ils Fi
 pourraient, avec nos balles. 274708 1
-5 f. — Il est incontestable qu'il y a dans le vieillard #4 F}
 à une grandeur incomparable. Mais si l'effet est manqué, s Fi fi
 4 tant de grandeur ne fait justement apparaître qu'une F4 4
 Ke plus affreuse petitesse. E®.
@@ -5707,11 +5324,8 @@ L. $. — C'est une grandeur unique, pourvu et à cette REA
 4 seule condition : que ce ne soit pas une petitesse ur "
 L $. — Le vieillard qui revient vers la source première. ÿ 1
 Il y a une telle grandeur incomparable dans l'appareil NT
-| 4 de la mort et dans l'appareil de la justice, (et dans V4 à
 à l'appareil du secret et dans l'appareil de l'inconnu), } son
 | que celui qui va comparaître est éclairé du reflet le Fu 4
-
-He Led “ R v Ë nn Fe È ME UESS FA " Ne À À À HAT 4 que
 
 Re cahiers de la quinzaine
 
@@ -5730,7 +5344,6 @@ L: Us _ étapes pour arriver à ce jour est revêtu de cette incom- 1
 di _ races barbares, et nous ne sommes point de ces races F4
 romantiques et nous n'avons pas besoin de têtes de 4
 # ÿ mort, préalablement dégraissées, pour penser éternelle- j:
-ENS S ment au jour de la mort. Et ni Jeanne d'Arc ni saint à 4
 Le Louis n'éprouvaient le besoin de se promener avec une 4
 RD: ; tête de mort. Et Jésus sur le mont des Oliviers ne fit :
 04 É point sa méditation sur une tête de mort. La méditation FA
@@ -5747,8 +5360,6 @@ le vieillard n'a pas l'air de s'en douter un seul instant.
 Vi Plus solennel est le jour de la mort, plus solennel est le \
 
 ? jour de la justice, plus aussi on éprouve au cœur le 4 ‘4
-
-| “+:
 
 |. sentiment d'une affreuse contrainte, et d'un affreux ‘a ,
 
@@ -5805,7 +5416,6 @@ un grand vieillard. Il n'y a que deux Testaments, (1) rs
 mais il y a cinq règnes : le règne minéral, le règne
 végétal, le règne animal, le règne humaïn et le règne
 chrétien; ou si on préfère pour les deux derniers le
-règne de l'homme et le règne du chrétien. Et il n'y a
 pas moins d'écart et il n'y a pas moins d'avènement et
 il n'y a pas moins de discontinuité du troisième au
 quatrième et du quatrième au cinquième qu'entre n'importe lesquels des trois autres. L'homme est autant #
@@ -5832,7 +5442,6 @@ un épi. Dorée comme un épi. Mûre comme un épi. k
 
 (1) L'ancien et le nouveau. |
 
-ï au Ue L'ARGENT SUITE :
 1 Blonde comme un épi. Chaude comme un épi. Et d'être :
 f écouté par les jeunes hommes. .
 4 Ce qui revient à dire, et on s'y attendait, que de
@@ -5879,12 +5488,8 @@ i avec tout cela. Vous créez artificiellement, vous créez
 
 sur un autre plan. Vous aussi vous parlez au fond sur
 | un autre homme. Vous aussi vous parlez un autre lan-
-| 4 205 Lanson. — 12
 
-; PA ea Le FT A AT REPAS À RUN VERRE SET
-ide CARS LP TRE AP RAD ta MR: Ge « | nt
 ‘|: hiors de la quinéaine VU
-L We. y ca ta ne. AA NA...
 d gage. Vous aussi enfin vous parlez d'autre chose. Quelle XAVIER
 7 manie de faire des rapprochements. Qui ne peuvent SUR
 if _ pas être faits. Qui se défendent, je veux dire qui s'in- Ra 19
@@ -5910,21 +5515,16 @@ $ sabilités. Ils veulent bien renoncer aux grandeurs n
 grandeurs. Ils veulent bien renoncer aux grandeurs qui |
 engagent l'homme, ils ne veulent pas renoncer à celles |
 | qui le dégagent. Ils veulent bien renoncer aux grandeurs |
-; du maître, et du père, et du vieillard. Ils ne veulent pas Î
 renoncer aux grandeurs du fonctionnaire. Et aux |
 s 4 solennités, et aux encensements, et aux grandeurs des |
 it cérémonies en Sorbonne. Et aux appareils, et aux n |
-|
 
 4 | apparats, et à tous les enguirlandements des gran Fi
 __ deurs politiques, des grandeurs universitaires. Et ils
 
 R- veulent bien ne pas renoncer à la grandeur de leu + |
 
-|_ autorité. Ni à la grandeur de leur puissance. Ni à la
-
 2 grandeur de leur fortune. Ni à la grandeur de leur le
-de IL n'y a qu'à la grandeur de leur devoir, et à la gran- €
 4 deur de leur office, et à la grandeur de leur âge qu'ils 11
 
 4 veulent bien renoncer. 14
@@ -6028,7 +5628,6 @@ sur la grandeur; et plus notamment les considérations
 ' leur matière dans d'autres temps, dans les hommes
 à d'autres temps, mais que ces considérations, fondées
 
-n Sy NN cahiers de Lan er ace FRS DV
 a” | en d'autres temps, ne trouvent plus leur matière, 1 SNS
 
 ï' trouvent plus aucune matière dans notre temps, dans LG
@@ -6056,8 +5655,6 @@ parce qu'elle a toujours la même résistance. Ni la vie RE
 ; et la mort, mon jeune camarade, ni l'amour et ni la LA
 
 haine, ni les lois et les mœurs, ni la patrie et la race, ra
-
-ni le mariage ni les enfants, ni le salut et la peine et s
 
 surtout la misère et ni la pauvreté n'ont baissé de prix er.
 
@@ -6116,8 +5713,6 @@ $. — Ils ne font plus les modestes. Et ils veulent bien
 refaire les fiers quand il s'agit des triomphes et des
 cérémonies et des compliments oratoires, et des péroraisons universitaires. Ils ne trouvent pas, alors, que
 c'est de l'éloquence. |
-|
-|
 
 4 $. — C'est toujours le même vice moderne de dupli-
 ÿ cité. Ils veulent jouer deux fois. Ils veulent jouer deux QE
@@ -6133,7 +5728,6 @@ respect de la patrie, ils corrodent par là même et dedans
 5 et à plus forte raison le respect que l'on nous demande
 4 $. — Détruisant la patrie, ils se détruisent eux-mêmes. +
 
-$. — Ou si l'on veut parler le langage antique, et le G
 4 langage païen, le conseil des vieillards n'est là que pour
 6 la cité. C'est la cité qui est la plus antique. Et c'est la
 4 cité qui est la plus solennelle. C'est la cité qui remonte ;
@@ -6202,8 +5796,6 @@ _ de tant de mauvaise foi et de tant de détournement. {l 4
 Nous ne voulons pas avoir été tout à fait inutiles, dans Rx
 notre peine même, et dans notre sottise, et dans notre VA
 
-| x UNE jt: Le 1: ie PCs Fa
-
 cahiers de la quinzaine 1
 
 sotte confiance envers d'indignes maîtres. Nous enten- 3
@@ -6252,15 +5844,11 @@ L $. — Nous serons plus courageux pour nos enfants ARR.
 : porterons aux extrémités plutôt que de laisser décevoir
 et tromper et trahir et abuser nos enfants par les mêmes RU
 hommes comme nous l'avons été nous-mêmes. ;
-| ù
 A $. — Qu'on le sache, nous serons moins patients pour |
 nos enfants que nous ne l'avons été pour nous-mêmes.
 | Nous sommes résolus à ce que cette irrévocable expé- 4
-| k 217 Lanson. — 13
 
-Na SRE RE ANRT Les, ONE si 3 >
 Res cahiers de la quinzaine
-#2 . A x ME
 158 $. — Trente ans nous avons été trahis. De notresociaer lisme, qui était un système de justice économique et
 3 sociale, de vérité économique et sociale, de santé éconoHa mique et sociale, en un mot de justice et de vérité etde
 7 santé temporelles et un système de la bonne et de la vraie ?
@@ -6268,7 +5856,6 @@ SET et de la juste et de la saine organisation du travail éconoLave mique et so
 ue reniement de tout, une basse politique, un sabotage
 % ignoble, proprement une trahison militaire contre le ÿ; 4
 NE peuple français. De notre dreyfusisme, qui était un |
-tt AR système de justice, et de vérité, et de santé juridiques, à
 K. | etencore sociales, et très proprement nationales, ils ont L
 En: fait une basse politique, et une basse démagogie. C'est #
 4" entendu. Ils s'en félicitent et M. Langlois nous en raille
@@ -6286,9 +5873,6 @@ pour nos enfants. Nous serons peut-être plus courageux.
 \ autant nous avons été malheureux pour nous-mêmes, [
 autant peut-être par quelque compensation nous serons
 ÿ heureux pour nos enfants. À
-
-ane Us VU
-phare SAXE VAT HORS ie T SUITE PAR S TEA MA À
 
 mi $- — D'abord nous serons peut-être moins lâches, 15
 Que chacun revienne sur soi-même, et en soi-même
@@ -6352,7 +5936,6 @@ A nous avons été. Et ce que nous avons fait. Et notam- É
 
 Ne ment ce que nous avons fait pour eux. 2
 
-| ji
 $. — Combien de fois n'avons-nous pas laissé Jaurès
 
 FA impuni. Combien de fois ne l'avons-nous pas laissé À
@@ -6366,7 +5949,6 @@ peut-être eue si souvent pour nous-mêmes, nous ne l'au- +
 rops certainement pas pour nos enfants. Cette insistance,
 cette constante application dont nous avons peut-être
 
-HORS NE TS es DRE CE PE I DR
 |. manqué pour nous-mêmes, nous n'en manquerons cer. ‘4
 
 | tainement pas pour nos enfants. Qu'on le sache bien, 4 PES
@@ -6396,8 +5978,6 @@ _ enfants le fassent. On veut bien avoir été malheureux pos
 ©" heureux. On veut bien avoir été malheureux pourune we
 . Es fois, on ne veut pas l'avoir été pour deux. C'est dansun \ À
 
-Le cahiers de la quinzaine PRÉ T
-
 k tout autre ordre, mais avec des accointances pe À. a
 ' __ fondes, c'est toujours la femme de trente ans et l'homme 34 !
 
@@ -6415,7 +5995,6 @@ _ la dernière. Et de n'avoir servi à rien, on veut au :
 ù Ye) _ refoulé revient d'autant plus fort, et d'autant plus impé- %
 dy: * rieux, et d'autant plus irrésistible. Et d'autant plus fort 4
 tt aussi que l'on sent bien que ce sera pour la dernière F.
-# & fois. Tout ce qu'il y a de grave et de sérieux et de 4
 Di capital et d'uniquement grand dans l'extrême et dans ‘à
 or le dernier apparaît ici et dernièrement rejaillit. Tout ce #
 à qui a été refoulé reflue, en un dernier saisissement, en be
@@ -6477,9 +6056,7 @@ _ et sans doute de se faire pardonner, on devient hardi, ; € dk
 ! m! _ l'antique et irrévocable déception. Et on ferait tout pour y À
 10 qu'au moins ces enfants ne soient pas malheureux. | sé
 
-RAA RU AR de
 cahiers de la quinzaine CAMES
-| ”
 C'est comme la seule manière que nous ayons de réparer s 1
 envers eux. De là une sorte de point d'application
 unique, un entêtement, presque une monomanie ; cette 1
@@ -6532,9 +6109,7 @@ $. — Rien n'est aussi poignant, je le sais, que le
 ê aussi poignant que le spectacle d'une jeunesse qui se
 | révolte. Je le sais. Si je ne le dis pas plus souvent, c'est |
 1 que j'ai horreur de tout ce qui est excitation et de tout f
-| ( À 225 Lanson. — 13.
 
-LA : = cahiers de la quinzaine un as ETS ss
 À ce qui ést romantisme et d'un enthousiasme qui nest
 mi: point ceinturé. Mais enfin il est permis d'en parler, 4
 y _ pourvu qu'on en parle sévèrement. Rien n'est aussi ‘4
@@ -6557,16 +6132,12 @@ _ aux vieillés mains de toutes ces vieilles hontes. +4 CU
 À . Nous demandons qu'ils aillent se reposer. Et qu'on ne 6
 les remplace pas par des pareils. Nous demandons 4
 à qu'on ne garde pas les mêmes, et qu'on ne recommence
-pas.
 Même mercredi 9 avril 1913. — I'n'y a pas seulement des jours heureux. Il y a des jours doubles. Dans
 1 le Matin de ce matin, toujours sous cette rubrique N
 Mouvement littéraire, les idées d'hier et de demain, et De,
 toujours sous les mêmes fioritures de typographie, ‘
 M. Lanson vient de publier, à propos du même livré, 4
 
-St CATE EE uUR VAN af de $ NP OES sui) ROMA
-
-Su ‘ANS nn Rad La FR FHR
 Po qui est Quatre ans à la cour de Saxe, (1904-1908), … à
 2 par M. Guy Balignac, (pourquoi pas aussi Péguy L
 té Balignac, vraiment ces amateurs ne se refusent rien), T0
@@ -6670,7 +6241,6 @@ passé, demeurer allemande. Cette remarque ne diminue pas
 l'intérêt qu'offre pour nous la question d'Alsace-Lorraine. .
 4 Elle en découvre, au contraire, toute la profondeur.
 
-À 5 NC cahiers de la quinsaine
 | . .
 Le” $. — Je ne fermerai point ce cahier sans direunmot
 NS au parti des hommes de quarante ans, (mais tout à fait -4]
@@ -6682,7 +6252,6 @@ FN jeunes gens font bien du bruit. Ces gamins de quinze 0
 hs ans, dit-on encore. Mes enfants, mes enfants il faut 4
 KE nous babituer à ce qu'il y ait des gamins de quinze A
 vw: ans et même au-dessous, Tout ce que l'on peut dire Ut
-ne c'est qu'il n'y en a pas assez. Un gamin a le droit 4
 ne _ de parler, pourvu qu'il ait l'âge de Viala, et de faire 4
 ee. un hussard de la République. EL nous savons très bien à
 __ qu'à quinze ans nous savions que nous étions des D
@@ -6698,7 +6267,6 @@ nu seulement le prix d'une vie, le prix d'une âme, le prix ds
 AT d'un salut demeure éternellement le même, mais dans à "M
 R le calcul temporel même il est permis de dire en par- J ü
 
-OS VAT Epdaeehe sont "2 Que Re
 F0" jant objectivement, comme ils disent, que dans l'histoire np
 
 pe de tout le monde on trouverait difficilement une époque à "1 \
@@ -6721,7 +6289,6 @@ Le Depuis que nous sommes sous la menace allemande, 2
 ne. payons toujours. Ou si l'on veut encore nous avons w
 Ée de la tension mais nous l'avons en extension et nous mn
 hi l'avons en étendue. Nous sommes priés de nous mettre Je
-ES à un haut potentiel et d'y rester tout le temps et qu'il o
 - sérve toujours ét qu'il né diminue jamais. hi
 s Je ne dirai pas que nous allons, où que nous arrivons 7:44 si
 
@@ -6738,7 +6305,6 @@ s Je ne dirai pas que nous allons, où que nous arrivons 7:44 si
 bien le coup depuis 1905 et il va falloir se rassembler
 M ct le tenir encore mieux et le tenir parfaitement jusqu'au Es
 
-cahiers de la quinzaine ga A+
 d $. — Nous sommes tenus de nous mettre, ou plutôt ;
 J de nous être mis à un point d'exaspération maximum ÿ
 et de nous y tenir ferme, et pour ainsi dire commodé- Ë
@@ -6761,7 +6327,6 @@ Une guerre a tout de même des détentes et pour ainsi
 dire des coups partis et des chutes de potentiel. Je ne
 veux parler de la guerre qu'avec d'extrêmes précautions. Mais enfin j'imagine qu'une guerre a des surve232
 
-#\ VER PR É cT: à M AT LAC S'RE CHAT avr QUE
 Be nues, des incidences. Des événements. Nous sommes "et
 % depuis 1905 à ce régime que l'événement même est res
 4 suspendu. Nous cumulons la crise de la guerre et la me
@@ -6785,11 +6350,9 @@ s pour la guerre, au sens où un fusil est chargé; et être 24
 | 4 constamment chargé des travaux dits de la paix, au su
 | 4 sens où un âne est chargé, tel est le double sort k
 auxquels il faut que nous fournissions. |
-| {
 , $- — J'admire ici à quel point tout ceci est contre le d
 4 laudettisme. Tout ce qui se passe. Tout ce que nous
 s voyons. Loin que notre temps soit d'un moindre prix
-|] D. 233
 
 Aus qu'aucun des anciens temps, je vois au contraire qu'on HPAR à
 nous à fait une situation entièrement unique, entière
@@ -6824,19 +6387,15 @@ planes de la paix et en même temps d'être constam- FOR
 ? ment tendus, d'être constamment prêts pour les misères EM
 éminentes de la guerre. ete.
 
-| ® M À ci Le
-
 4 $. — La guerre est la guerre et la paix est la paix. 14
 Si affreuses que puissent devenir les misères de la È
 | guerre, au moins elles peuvent être compensées. Il y a à
-' l'honneur de la guerre. Et il y a la grandeur de la ne
 guerre. Mais nous cette fois-ci c'est réellement et litté- k
 ralement la guerre et la paix. Nous avons toutes les +
 
 charges de la paix et pour ainsi dire toutes les charges nee
 de la guerre. Et nous n'avons ni l'honneur ni la gran- PRE
 
-deur de la guerre ni le repos et au moins la détente de ;
 , la paix. On nous demande les vertus de la tension et FU.
 . cumulativement les vertus de la détente. Je ne crois ;
 ÿ pas que jamais un peuple ait été soumis à un pareil ÿ
@@ -6859,7 +6418,6 @@ te vieille querelle du monde antique contre les barbares et pi.
 è mais par une espèce d'accroissement peut-être infini en NS j
 : _ profondeur le monde antique est devenu le monde latin 4 E
 et le monde romain et le monde chrétien et le monde Hé
-Se catholique. Mais ce qu'il y a certainement de tout à 4
 ET fait nouveau dans cette situation que l'on nous a faite, ‘4
 4 dans cette situation dont on nous a honorés, c'est son 5 è #
 amplitude, et c'est sa nouveauté même. AS: ‘14
@@ -6919,8 +6477,6 @@ qui devenaient les règles mêmes du salut. On demande ao
 
 _ des disciplines : en voilà une. Jamais un monde ne 176
 
-Pres SEE à RE à RAT TON dt
-Ë PA: La ARE à cahiers de la quir zaine Win rt
 était insurgé à ce point contre les règles volontaires
 du salut. Et jamais un monde n'avait été aussi étroite
 s AS: ment placé dans ces mêmes règles involontaires. Tout

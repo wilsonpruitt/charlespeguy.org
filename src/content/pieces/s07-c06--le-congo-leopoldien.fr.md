@@ -7,27 +7,13 @@ author: morel-et-pierre-mille
 isAvertissement: false
 wordCount: 58378
 ---
-ns | SIXIÈME CAHIER DE LA SEPTIÈME SERIE
-
-_ Je Congo léopoldie
-
-be CAHIERS DE LA QUINZAINE
-
 : 4 paraissant vingt fois par an
 
 … 8, rue de la Sorbonne, au rez-de-chaussée
 
-DES D AA RAS Le HN L'E non
-
-+188 De Crus el she 2 LA QE RE N'ES Æ Lu 1e s Ai
-LIN ÉSARAEINERTESSS KE L î € PERTE A on
-Fos LAVER ETS CE
-RO Dei Prin È "2" SANS
-
 Nous avons publié dans nos éditions antérieures et 4
 dans nos cinq premières séries, 1900-1904, un si e À $
 grand nombre de documents, de textes formant dos- È
-siers, de renseignements et de commentaires; — un x
 si grand nombre de cahiers de lettres, — nouvelles, À
 
 e. romans, drames, dialogues, poèmes et contes; — un a.
@@ -52,7 +38,6 @@ place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de XI1+/408 pages très denses, marqué cinq :
 
-be RU D ROM ee LA ea Ml UNE ou
 francs; ce cahier comptait comme premier cahier de la
 n'es ième série et nos abonnés l'ont reçu à sa date, le
 | 2 octobre 1904, comme premier cahier de la sixième
@@ -88,17 +73,9 @@ sions de campagne avril-mai 1897,— avec 16 gravures.
 PIERRE Mie. — Au Congo belge, — avec des notes
 et des documents récents relatifs au Congo français,
 
-PA seau TARA PR ta
-SE ta PAS UE " CNE Let VER LEA
-Se Le RS Congo ou
 nie TRS À le lla. |
 s. a us { pas que lle Monga à
-na A me CE Il ne fau ne nouve le Savorsi At ER ds Gr |
-RUE Ne Er Félicien CH
-| #0 RU. 3 | 4e à
 
-RS ES ee SRE Un AN pce ne : fé
-Ÿ RS É SRE ne Se ia me Haies F4 AUTRES de SD D PS TIME CON DE à
 | Simple extrait de ce premier petit index alphabétique:
 ; Bernard-Lazare, — l'oppression des Juifs dans l'Eu 52
 rope orientale, — les Juifs en Roumanie, deux francs TA A 14
@@ -111,13 +88,8 @@ André Bourgeois, — quatre jours à Montceau, — un RE
 n'est plus mis en vente que dans les collections com- RES |
 plètes de la troisième série. ....:7..04. 2 RP RS
 : — — la Russie vue de Vladivostock, journal È 4
-d'un. expulsé... TOO NAS AR ER ERREE ï
 — — impressions sur la pie japonaise......... A %
-un franc 149 ne.
 _  — Second courrier d''Indo-Chine, un franc 205 4
-
-FES AR PET NE A ne nue LAN 4 Er ee
-CU ©  ‘PpETIT INDEX ALPHABÉTIQUE : ne
 
 | Kélicien Challaye, — impressions sur Java, — fragments d
 
@@ -138,8 +110,6 @@ Dee EIRE 2.1... deux francst-26 » Lionel Landry, — courrier de Chine, du temp
 be _ l'expédition de Chine, — un cahier en voie d'épuise-
 
 __  —  — courrier de Chine, même temps.........
-
-PE à $ un franc 36
 
 & ñ _ Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
 
@@ -163,7 +133,6 @@ j —  — une lettre inédite, adressée à Romain DE
 
 cahiers par les soins de Romain Rolland, dans le
 
-\ LR Per Ft d 1 HR AT Etes dore ce
 ._ Et simple extrait de cette première table analytique
 ' très sommaire :
 TS Sixième cahier de la sixième série, un cahier jaune de
@@ -176,7 +145,6 @@ __ morales du mouvement révolutionnaire parmi les Juifs
 n russes; le mouvement ouvrier juif avant la création du
 nr  « Bund »; le « Bund » et son activité, ses rapports avec le
 Re. parti Social-Démocratique russe ; le Sionisme ; conclusion ;
-ne. GEORGES DELAHACHE. — Un voyage d'études;
 5 f VzapimIR KoroLENKo.— La maison numéro 13; — traduit
 Ft: par Elie Éberlin ; Elie Éberlin, Vladimir Korolenko ;
 4 Treisième cahier de la sixième série, un cahier jaune de
@@ -187,14 +155,6 @@ F en Russie ; — traduction J.-W. Bienstock; le premier, in-
 à troduit par P. Birukov ;
 …._ dans le même cahier :
 00 Cahiers de la Quinzaine, — les œuvres de Tolstoi.
-
-EN 874 PES RME AR re MAR ARR MC Ra ete! Le À f
-de € toi L'ETAT SN POELE “à :
-DAY z ; L Vs TEE tu RUE
-PAR 4 3 ss SR ARIANE
-| NET HET ER CUS
-
-Fe Re Ut) me M un ee
 
 De Le cahier que l'on va lire fait une contribution de plus
 
@@ -257,11 +217,9 @@ déjà le sixième cahier de cette septième série. Nos
 abonnés nous pardonneront cette hâte, et ce redoublement. Nous finirons plus tôt. Nos cahiers s'organisent
 de plus en plus daps leurs séries comme un cours d'enseignement supérieur, dont la préparation immédiate
 
-sé DR 7 As 7 MA Fee ne re Ge
 commence au commencement d'octobre, dont la publi2 cation s'achève au commencement de l'été. Et à mesure
 | que nos séries deviennent plus fortes, il faut aussi que
 le temps de les porter soit mieux ménagé.
-|
 4 Nous avons mis partout Cong'o léopoldien, et non pas
 # Congo belge, d'un mot que M. Pierre Mille introduisit
 :4 il y a plusieurs années. Il ne faut point confondre un
@@ -277,38 +235,9 @@ E. les situations, nous les avons au contraire supprimés
 4 typographiques empêchent de voir clair. Le mieux,
 x dans ces cas de chevauchement, est de faire confiance
 1 au sens lui-même, qui se défend, qui porte sa ponctuan: tion, plutôt qu'elle ne le distingue.
-#8
-
-Le ec 2% À era FR « KV “ a RDA Res x L é
-ISA MAR de +
-
-por OS DURS LE ECS RTE EUR ns AR es
-|: SR l'es Pare ee
-ce Sr Frs et à
-Le à je
-> UE J ; k ‘Re
-LS HAT « are Ni
-
-LT EIRE Re" Sr de
-mn né SE \EE Le PA
-SON * rap
-
-# 3 201 CN 2 CRE QUE TES ES MRO ES RUE VS SUR TUE NUQUE ae MR
-2 M Ie EE RER Re rh FR PAGES OU VRNE
-| Pat 5 FN RAR MOT TE & À IA SAPIN AA
-we a È Van l PARU
-| EAN Î : 1
-AE et FR In ÿ le Congo. NE a ua
-
-MERS de DU FM ANAL RS
-
-ERA DD NAT LUN FETE ne :]
-
-NE da ; JTABTE RER
 
 hi A monsieur Pierre Mille, aux Cahiers de la Quinzaine
 E. Hawarden, le 20 octobre 1905
-4 Mon cher ami, :
 D Voici déjà de longues années que je lutte contre
 * le régime institué, dans l'Afrique centrale, par le
 4 souverain de l'État du Congo, et appliqué par ses agents
@@ -388,9 +317,7 @@ M Congo depuis de longues années, Scivener, Howell, Kempton,
 D. en 1903 et 1904 ; les jugements des tribunaux de Boma dans les
 #1 . affaires Caudron et Van Caelcken, 1904 ; le rapport Baccari en 1905,
 | _ et ainsi de suite.
-| #4 À L:
 
-| E. D. Morel AIR
 questions congolaises. La Société Anglaise pour la pro- :
 tection des indigènes possède, heureusement, un secré- 1
 taire dévoué et zélé dans la personne de mon ami Ë
@@ -451,8 +378,6 @@ h M. Émile Vandervelde et ses amis font un effet vraiment pitoyable. (1)
 (A Père chrétienne le premier ministre d'un pays civilisé déclarer que
 ‘14 les indigènes « n'ont droit à rien; ce qu'on leur donne est une
 2 tn véritable gratification » : M. de Smet de Naeyer, dans les débats
-
-# de 1903.
 
 rapport du docteur Baccari, le refus du gouvernementita- 4
 lien de permettre de nouveaux engagements pour la force 4
@@ -584,7 +509,6 @@ notre tâche; la plus facile, étant donné les preuves
 …._  saires, fatals, d'un régime spécifique ; que toutes les
 4 enquêtes, toutes les mesures législatives, toutes les
 
-jh Du TN j ÿ: ju A # es a ja Né : AGO à FAEs FA MATE DRE VA CA
 $ règles, lois, ordonnances, voire tout l'appareil juridique À
 du monde entier, ne sauront mettre un terme à ces abus Ÿ
 sans un changement profond et radical de la politique 4
@@ -625,7 +549,6 @@ L suprêmes de l'État, qui de temps en temps ont été arra-
 ï chées aux ténèbres congolaises (telles les circulaires
 ù citées textuellement dans les Livres Bleus anglais,
 è Africa n° 1, 1904; Africa n° 9, 1904; celles qui furent
-1 citées en 1903 et en 1905 par M. Vandervelde à la
 M Chambre belge, etc.), et d'autre part les lois publiées
 à dans le Recueil ou le Code congolais, pour se convaincre l
 à que toute connexion de fait entre eux est impossible.
@@ -642,7 +565,6 @@ du Il ne m'est possible ici que d'indiquer brièvement le
 1 vice fondamental du système responsable des atrocités
 4 révélées devant la Commission d'enquête, (dont les traVi vaux ont été limités à une partie infime de l'énorme terM. ritoire congolais), et des hécatombes humaines qui s'en-
 | D … tassent depuis le décret du 21 séptembre 1897, décret qui
-oi : peurs, — se 1e ds M. A.-J. ue Fa « une por
 | à Patne cHproNidne den opposée à celle qui
 ‘4 avait prévalu jusqu'alors ».
 
@@ -761,7 +683,6 @@ k la Belgique a prêté ses millions, est « un état étranger »,
 ‘4 droït à rien » (1) et bien d'autres encore sont compa1 rables à celles dont se servaient les défenseurs de l'an-
 À cienne traite. Tout ceci je l'ai dit, et je le répète au4 jourd'hui. Mais de là à attaquer le peuple belge, il y a
 $ s (1) M. de Smet de Naeyer. Annales parlementaires de la Belgique
-| en juillet 1905.
 
 loin, Cette nation a un bandeau posé étroitement sur %
 les yeux. Il tombera un jour sans doute. Je pense qu'il L.
@@ -790,8 +711,6 @@ constitue la traite moderne. Et si cette suprême consolation m'est refusée, j'
 Magna est veritas et praevalebit.
 Cordialement et avec reconnaissance vôtre.
 
-‘À NE CALE Er SERIE RER RENE LS SU ra
-
 | Hawarden, le 5 novembre 1905
 
 1 Depuis que j'ai écrit les lignes ci-dessus, le rapport
@@ -815,8 +734,6 @@ BE an Congo, — par suite de la pression exercée par l'opi-
 4 présentons aujourd'hui au public français. Ces témoi-
 
 4 gnages sont les seuls, je me hâte d'ajouter, que nous
-
-| possédons.
 
 } Le rapport est la justification complète de la lutte que
 
@@ -897,7 +814,6 @@ td Commission a laissé partir pour l'Europe M. Spéllier,
 ‘que des atrocités sans nom ont été également commises
 par ses agents blancs ou noirs contre les indigènes. Il
 omet d'expliquer comment il se fait que M. Hannotte,
-agent de l'A. B. I. R., l'associé et le protégé de
 M. Longtain, a pu s'embarquer pour l'Europe alors
 qu'une instruction était ouverte contre ses agissements,
 et sur les lieux mêmes, par l'officier judiciaire Voght.
@@ -935,7 +851,6 @@ b - cette politique à laquelle il a été forcé depuis l'inaugu-
 N' déclarer droits et justes, les procédés employés par la
 É Société anonyme belge dans la haute Bousira et ailleurs
 #4 pendant ces dernières années. Quoiqu''ils n'aient jamais
-. atteint la criminalité excessive de l'A. B. I. R. et de
 il l'Anversoise ; mais en se déclarant pour la politique
 L économique commerciale, contre la politique écono-
 | mique de contrainte, le colonel Thys a cent fois raison.
@@ -982,8 +897,6 @@ que si, — comme le disent ses adversaires, — il dépensait ces revenus en fa
 et en spéculant dans des chemins de fer chinois. Le
 rapport glisse aussi, complètement, sur ce fait que les
 
-à, di 02e Ce RE k nil
-ne Ne POST-SCRIPTUM
 comptes administratifs eux-mêmes ne sont jamais
 publiés sauf en forme de prévisions, et que le monde
 ignore aujourd'hui la véritable situation financière du
@@ -1003,22 +916,7 @@ sciemment sacrifiées au Moloch de la cupidité cynique,
 | — nous sommes invités aujourd'hui à donner carte
 _ blanche sans contrôle aucun aux coupables eux_ mêmes! à
 Pour ma part, je refuse d'admettre une telle argumen-
-| tation.
-|
-|
-| é le Congo. — 2
 
-#7 Sa Ne RAA TNA AN ANTON Rae CPR SERRE]
-à EAUX NA Taie OUT TETE A'RUTOf, QT SES ee + FA AMEL Te te à \
-4 Aa à ne PET IPUNS LUE in TA SS
-L'HSNES th
-
-CUVE AR NE à ER RAR UASS fe 290 LELEEN PART EPA ETS AEE RNCS NEA 7 « es EN « 1
-LL  MIRNENN AE Er NA D 2 de EM A fr A le CL RAT EE UE
-LA ARS , D A DA ARN AU MO EATE Mas
-Que RE it RENAN |
-
-| #
 ( Il ne faut pas que le Congo fran- ÿ
 k çais devienne une nouvelle Mon5 galla. ai
 
@@ -1076,7 +974,6 @@ f guerre, soit pour faire des esclaves, soit pour manger 4
 tent contre une règle qui gêne ces habitudes ; ou quand 4
 30 1
 
-hi” _ L'ENFER DU CONGO LÉOPOLDIEN
 Ë on se trouve en compétition avec un autre État qui dé- |
 { sire également ces terres. Or la guerre extérieure, colo-
 ù niale ou non, absorbant les forces de la nation, réveil-
@@ -1229,7 +1126,6 @@ x . ( ») Au point de vue des rapports entre les deux races en pré-
 
 ie à rétablissement de l'esclavage, a donné, momentanément, des résul- E
 
-(es _ L'ENFER DU CONGO LÉOPOLDIEN ji
 être châtiés, plus ou moins sévèrement, mais de cen
 taines d'agents qui ne peuvent pas faire autrement, qui à #
 | sont automatiquement forcés à l'assassinat par le Hi
@@ -1311,8 +1207,6 @@ les achètent, je dirai tout à l'heure comment. Ce ne sont
 ; plus des Arabes. Cela ne suflit-il pas à notre souci
 | Aujourd'hui, enfin, on tue chaque année, en pleine
 + paix, non pas en état de guerre, plusieurs milliers de
-
-< sa Fe fi 4 l LA
 
 VA | noirs, on en met en prison d'autres milliers ; des régions
 
@@ -1438,7 +1332,6 @@ naviguent, entre Matadi et Anvers, sous le pavillon de
 l'État Indépendant, défend avec beaucoup d'ardeur
 l'administration du Congo belge dans le procès qui lui
 
-pr L'ENFER DU CONGO LÉOPOLDIEN
 | est fait actuellement; et nous n'avons pas à le blâmer ;
 puisque c'est son devoir en même temps que son
 intérêt; d'autre part, des sociétés commerciales, jouis- ;
@@ -1492,8 +1385,6 @@ aucune raison de soupçonner la véracité. Il avait, disait-il, |
 traversé quarante-cinq villages incendiés, vingt-huit aban- \l
 donnés, il avait vu des cadavres flottant au fil de l'eau, ou |
 gisant au bord des chemins, la main droite coupée. C'étaient ï
-
-# | L'ENFER DU CONGO LÉOPOLDIEN PA Ÿ
 
 | les victimes de la levée de l'impôt. En février 1895, tandis E
 
@@ -1624,11 +1515,7 @@ quand ce n'est pas pour rien. |
 Je compte que chacun comprendra l'importance qu'il y a
 à arrêter net ce genre d'opération qui nous cause beaucoup \
 4 de tort auprès de l'indigène.
-Le Directeur en Afrique,
 
-Net EC LS VAN UE SU, DONS NAN EST ORNE
-e Re nn ni. di
-De Pierre Mille
 1 SE Mais ce n'est pas cette forme d'esclavage qui est la
 à plus grave. Je le dis franchement : il serait encore pré- .
 ÿ férable que les blancs, au Congo, possédassent des
@@ -1660,9 +1547,7 @@ Le second est l'internement des femmes et des enfants, |
 58 internées dans notre poste de Bangui ! On verra, par
 4 les témoignages publiés, qu'au Congo léopoldien, de \
 4 pareils « accidents » ne sont plus des accidents, mais ;
-“ un événement de la vie, ou de la mort courante. dl
 
-î L'ENFER DU CONGO LÉOPOLDIEN fi
 Le troisième est l'expédition militaire, avec capture À
 des chefs, massacre des habitants, mutilation des
 femmes ou des enfants à pieds ou mains coupées. ÿ
@@ -1691,8 +1576,6 @@ avaient quitté était à six jours de marche forcée de
 l'endroit où ils se trouvaient. Leurs chefs avaient été
 _ pendus par les blancs. Quant aux simples villageois,
 
-au 4 AE 1 u TERRAIN ON CE AT SR RAIN EEE
-xt Pierre Mille 5 UNE ai
 Ne ils avaient subi un traitement plus affreux. Ici, je dois 4
 4 produire l'interrogatoire même que leur fit subir M. Ca- +4
 is Demande. — Comment savez-vous que ce sont les blancs 4
@@ -1722,7 +1605,6 @@ que 140 paniers de caoutchouc. Vous y verrez comment k
 dans une autre expédition, les cannibalès, soldats au 4
 service d'un blanc, mangèrent les morts, et « parèrent » M
 les cases avec des diaphragmes et des intestins hu- F
-| R.
 
 mains, comme on fait chez les bouchers. Vous y verrez
 comment on tue des femmes en leur enfonçant un épieu
@@ -1818,7 +1700,6 @@ Article 3. — Il est conféré par la présente disposition, aux
 membres de la commission, agissant collectivement ou in- i
 dividuellement, les pouvoirs attribués par la loi aux offi62:
 
-| ê ë : r ü PTS VE
 ciers du Ministère public, à l'effet d'entendre tous les témoi-
 # gnages utiles à la manifestation de la vérité, dresser …
 procès-verbaux des dépositions et saisir, le cas échéant, les
@@ -1833,7 +1714,6 @@ documents administratifs ou judiciaires se rapportant à
 l'objet de sa mission et qu'elle jugerait utiles à ses investi- M
 Article 4. — En cas d'empêchement de l'un des membres,
 l'enquête se continuera valablement par les deux autrés M
-commissaires. L
 : Article 5. — Il sera fait par la Commission à Notre Secré- 1
 taire d'Etat rapport sur ses opérations et les résultats deses »
 travaux, en signalant éventuellement les améliorations
@@ -1851,7 +1731,6 @@ de Belgique, président, et le docteur Schumacher, juriste
 suisse très distingué. Mais on avait essayé de restreindre de telle sorte les pouvoirs de la commission qu'elle“
 fat sans danger. L'enquête « devait être dirigée conformément aux instructions du secrétaire d'État ». Celui-ci
 
-:Afl L'ENFER DU CONGO LÉOPOLDIEN
 pouvait donc la limiter. De plus « les pouvoirs de la
 \ commission étaient ceux conférés par la loi au minis- |
 tère public ». Or, d'après la loi belge du 27 avril 1889, le
@@ -1866,7 +1745,6 @@ la conséquence. Et l'on ne promettait même pas la
 publication de l'enquête!
 Un honnête homme s'émut en Belgique, M. A.-J. Wauters, directeur du Mouvement géographique. Il avait
 rendu de tels services, non seulement à la science, mais
-à la cause de la colonisation et du commerce en Bel- |
 gique, que sa parole avait une autorité incontestable,
 et que ses motifs ne pouvaient guère être soupçonnés.
 Il proteste le 7 août dans le Mouvement géographique.
@@ -1900,7 +1778,6 @@ celles que nous avons d'abord indiquées, d'après des ren
 seignements pourtant autorisés. L'explication de cette diver- |
 | gence est fort simple. Le gouvernement du Congo a, paraît- M
 ; il, jusqu'au dernier moment, hésité entre deux partis à M
-| prendre. |
 Deux projets avaient été préparés. L'un organisait une |
 x enquête large, publique, contradictoire et définitive, des- |
 4 tinée à établir aux yeux du monde la fausseté des accusa- F
@@ -1915,9 +1792,7 @@ deux principes généraux dans lesquels sa nature est enve- à
 | 1° L'enquête se fera conformément aux instructions du #
 2 Les pouvoirs conférés à la commission sont ceux 1
 qui sont attribués par la loi aux officiers du ministère
-| 54 (
 
-fe LENFER DU CONGO LÉOPOLDIEN
 4 Le premier principe a été inscrit au décret pour marquer,
 en termes nets, la dépendance de la commission, sa subor-
 } dination au pouvoir exécutif. Le gouvernement a visible-
@@ -1957,7 +1832,6 @@ _ Le cadre de l'activité de la commission, tel qu'il vient
 | opérations. La publication complète des procès-verbaux de |
 la commission n'est pas ordonnée. La publication du rapport de la commission n'est même pas certaine. Le secré- L
 taire d'État appréciera librement s'il conviendra de le publier
-et ce qu'il conviendra d'en publier.
 L Les observations que nous venons de faire montrent
 clairement que l'enquête sur la situation des indigènes, à
 | décrétée par l'État du Congo, n'est pas destinée à apaiser
@@ -1983,7 +1857,6 @@ Vous y verrez qu'il n'est pas un indigène, dans lester- w
 ; ritoires à caoutchouc, qui ne doive travailler dix jours
 sur quinze pour recueillir le latex, sans recevoir de
 
-NA ù Le LS Éh Lie
 à salaire, et que les gardes-forestiers ne sont jamais punis, 231
 _ quels que soient les vols, rapts, meurtres de femmes A
 _ auxquels ils se livrent. : mt
@@ -2047,15 +1920,12 @@ d'une maladie qu'il lui a donnée.
 Des femmes, à Mampoko, foulaient de l'argile pour
 faire des briques. En présence de l'Européen, les gardes-
 | forestiers les mirent nues, puis leur emplirent les par- "
-#
 
-mr | L'ENFER DU CONGO LÉOPOLDIEN TR
 | ties sexuelles avec l'argile qu'elles avaient battue.
 
 _ Elles allèrent se plaindre au blanc. Il n'en fit que rire
 
 F. et leur dit de s'en aller. |
-|
 Je pourrais allonger indéfiniment ce martyrologe. Je de
 me contenterai de dire que, entre le 8 et le 12 décembre,
 - la Commission d'enquête, dit-on, a reçu témoignage de
@@ -2120,7 +1990,6 @@ Il faut résumer et conclure. Si ces faits sont rares,
 ‘ F ciale du Congo,même en dehors des territoires concédés
 aux sociétés, est sans reproche, alors qu'on réponde
 | aux questions suivantes :
-de _ Depuis le passage de la commission d'enquête, il y a
 eu plus de trente agents incarcérés dans les prisons de
 Boma. Mais la plupart n'ont même pas passé devant les
 tribunaux : on les a laissé fuir. Pourquoi?
@@ -2183,7 +2052,6 @@ un homme, ni une liane à caoutchouc, qu'en fera-t-on ?
 
 3 souillée par le passage des barbares civilisés : la plus
 
-Hs _ L'ENFER DU CONGO LÉOPOLDIEN ne
 _ Je ne parle pas du droit de préemption que possèdela |
 France, sila Belgique, après le roi Léopold, renonçait À
 RP à garder le Congo. Préemption veut dire obligation de
@@ -2242,12 +2110,6 @@ Fo recueillent, même sur ces terres considérées comme
 
 M. « vacantes ». On n'aura pas le droit de les forcer à les
 
-| 4% 63
-
-| à h
-
-|: CFE
-
 ; recueillir. Ils ne devront qu'un impôt en argent, impôt
 À minimum, ne dépassant pas deux francs par tête, et par
 Ti an, comme dans notre Afrique Occidentale française.
@@ -2273,33 +2135,7 @@ intérêt à donner toutes ces garanties, si elle ne veut pas
 voir un jour les puissances signataires de l'acte de
 Berlin instituer au Congo un contrôle international.
 
-L Nx bre;
-# PE Le .! Es
-3 PR le Co Ses SU
-
-Re el x ! ( S' Re PAU: 0) LA ie KE TEA RAT Ex ; à é +
-US RNA LV PNR LE Rs LL), ans
-À ni 1 A TS 0 h (KE? ÿ LUI TOTALE ds.
-PAL A1 hd j 5 CURE ae je
-M se il LE MES
-
-jet MS + Te Wa PE. Nat ZAT L
-AS ne AE UT ATEN AN Re DR AETo2 SL? he À
-LUE de k DAV OI
-|: EN K AL à LES
-
-se “A ira { d té NE s fu F Que a (PE ji FN A 4: Hé À d:
-rt 1 a # AR FUN À de No LA "es 4 PNEU
-
-L ni LTD
-
-Ce ee de |
-
-M do en Un, mob
-: M'A RNA Le TLe Nes rar
-re. « ses : . rt pe Era à
 MM. BzGToNn, de l'Union missionnaire baptiste américaine LA
-4 à Bouembé ; CLARK, GRENFELL et SGRIVENER, à Bolobo. re
 ! Régions : Domaine Privé et Domaine de la Couronne. sat
 9 En remontant le Congo, la Commission d'enquête s'arrêta Ra
 4 à Bouembé, poste de l'Union missionnaire baptiste améri- Les
@@ -2311,7 +2147,6 @@ __ lettre contenant certains détails qu'il avait oubliés en consé- ROUE
 14 femmes amarrés, etc.; confirmant d'une manière générale ce » les rapports qu'il avait déjà envoyés au quartier général de ve
 ' sa mission, aux États-Unis, rapports qui furent incorporés Het
 … dans un mémoire présenté au Congrès des Etats-Unis 14
-| d'Amérique. : Lt
 La Commission arriva à Bolobo le 5 novembre, et quitta à
 … cette localité le 12 novembre, pour remonter le fleuve. Elle
 … tint six séances le matin et une l'après-midi. MM. Scri-
@@ -2358,7 +2193,6 @@ $ envoyés à Boma en décembre 1904. Le 10 mai 1905, ils métaient pas
 4 morts dans l'intervalle. Une telle administration de justice semble
 plutôt devoir contrecarrer que d'aider le fonctionnement de la
 4 (2) Par E. D. Morel. W. Heinemann, éditeur, 20, Bedford Street,
-| : k
 
 un officier judiciaire envoyé à Bolobo par suite des révéla- x
 tions de la West African Mail. “CARE
@@ -2393,7 +2227,6 @@ déclara à M. Scrivener qu'il dénoncerait Massard aussitôt arrivé en L
 __ Belgique. il paraît que Dooms a trouvé dernièrement la mort en
 . chassant l'hippopotame.
 
-MA le Congo léopoldien Et î
 \ cela. Nous avons d'abord causé par l'intermédiaire d'unindi-
 à gène du Bas-Congo; nous nous sommes aperçus qu'il parlait
 9 ‘ en réalité la langue Bangala; nous nous sommes entretenus
@@ -2499,7 +2332,6 @@ ou (x) Toutes ces conclusions ont été acceptées par la Commission
 Le denquête, et sont reproduites presque dans les mêmes termes
 ï | dans le rapport adressé par elle au roi Léopold II.
 
-0 LES DÉPOSITIONS Jar “ee
 … M. Dooms, et je ne puis vous dire où vous trouverez des Le
 . témoins qui soient à même de le certifier. |
 A Lors de mon premier voyage au Lac Léopold II, j'ar- n
@@ -2509,7 +2341,6 @@ A Lors de mon premier voyage au Lac Léopold II, j'ar- n
 … avoir changé de costume, sans que je lui eusse posé la ÿ
 1 moindre question, il me fit une foule de confidences sur
 …_ la situation de la région quand son prédécesseur y com-
-|  mandait.
 Il semblait très ému et très troublé à la suite des récits
 __ que lui avaient faits les soldats, et il me dit qu'un jour, en
 “ entrant dans la prison, il avait été sur le point de défaillir
@@ -2619,7 +2450,6 @@ _ directeur en Afrique de cette compagnie a été prié de se À
 L tantes sur le territoire de la Société de la Loulanga. #
 Gi-dessous une partie de la déposition de M. Gilchrist :
 
-À Déposition de M. Giülchrist à
 … On me demanda de dire tout ce que je savais au sujet de |
 _ la Loulanga, mais avant que je pusse commencer, on me } :
 + (1) Il a depuis été remis en liberté. "a
@@ -2648,7 +2478,6 @@ lamentables que les habitants nous avaient faits, les mas-
 # É sacres commis par les blanes de l'État et des Sociétés qui y
 4 ( avaient été stationnés de temps à autre. Les noms de |
 quelques-uns étaient notoires, — tels que Esejerike, Bosongo,
-# de la S. A. B., et Poloso, de l'État. (1) Je leur fis remarquer
 qu le fait que le bassin de l'Ikélemba était censé être aussi
 A situé dans le « territoire du commerce libre », mais que x
 * partout les tribus des différents districts étaient forcées de
@@ -2659,13 +2488,10 @@ où nous nous trouvions sur la rive sud, deux hommes arri-
 k des marques de la chicotte, qu'ils venaient de recevoir du M
 Blanc à Bossi parce que l'impôt était insuffisant. Je dis au 1
 commissaire, qu'étant données des conditions favorables, À
-|
-il
 | (1) Noms donnés par les indigènes à des Européens. : 4
 
 1 _ la liberté surtout, il y aurait bientôt une grande population À
 4 dans ces villes de l'intérieur, Mgombé et Mongo. mn
-F Causes de la Dépopulation k
 À à Demande. — Quelles sont d'après vous les causes de la
 # Réponse. — 1) La maladie du sommeil. Ce n'est pas une
 ; épidémie dans notre district. Il n'y a que des cas isolés.
@@ -2691,13 +2517,11 @@ perception des impôts de l'Etat, après quoi il ne restait aux
 À indigènes que des feuilles à manger.
 1 D. — Est-ce que le manioc n'est pas suffisant pour les
 ÿ R. — Non, à lui seul, il est insuffisant.
-gi (Ici le président se référa à la lettre de M. Gilchrist,
 k adressée aux autorités à Boma, et demanda si les représen1 tations qui y étaient faites se rapportaient à des cas excep-
 ‘À tionnels ou à toute la région.)
 ‘4 R. — A toute la région.
 ‘4h D. — Est-ce que les impôts sont trop lourds ?
 
-AN SORTE ADR AT ; A M LA AE int es APE ARE
 SACS le Congo léopoldien
 je À? } R. — Oui, par exemple, les quarante heures de travail | n
 is par mois qui sont censées être données à l'État sont une 1
@@ -2733,9 +2557,7 @@ k pas une des causes de la dépopulation? Est-ce qu'il ne ÿ
 ri venait pas plus de monde, de l'autre rive, à l'état d'esclaves, f
 “+ ce qui par cela même augmentait la population ? 4
 4 K (1) Pour les steamers remontant et descendant le fleuve. N
-ny l
 
-Qi we LES DEPOSITIONS Sa PERLE
 . R. — Il faut vous souvenir que s'ils achetaient des 65
 4 esclaves, ils en vendaient aussi, ce qui égalisait les choses. : ce
 _ Quant à Ouala, la peuplade allait autrefois à la chasse, She
@@ -2744,7 +2566,6 @@ là, ils avaient de la chair d'éléphant à manger et à vendre. Y
 F Une autre chose qui peut causer ou expliquer la dépo__ pulation, cest que l'impôt est perpétuel. Cela aigrit le À
 peuple. La population se sent privée de tout intérêt per- ÿ ;
 4 D. — Y a-t-il des villages ou des villes qui soient exemptés :
-_ de l'impôt? .
 ; R. — Pas que je sache. Je n'en connais pas.
 ' D. — Avez-vous d'autres remarques à faire contre le sy-
 } R. — Je désire seulement rappeler au souvenir de ces #
@@ -2757,7 +2578,6 @@ sont pas rendus ! |
 à D. — Si ces faits étaient connus, la justice ferait des \
 …_  R. — Ces amendes ont été imposées depuis mon rapport
 1 D. — C'est absolument illégal. (3)
-” R.— Je me souviens d'un impôt de 200.000 mitakos, ce :
 f qui a appauvri le peuple.
 (1) Monnaie qui a cours dans le pays. ñ
 4 (2) Juillet 1903. — La lettre de M. Gilchrist au Gouverneur-
@@ -2767,9 +2587,6 @@ f qui a appauvri le peuple.
 manière « absolument illégale ». Mais que leur a-t-on fait? M. de "4
  Bauw est l'officier du gouvernement en contrôle suprême de la
 
-‘CEE 1 ANS MONNIER DRM PA DZ LE td NUE
-: TES le Congo léopoldien FA je à
-a PA D. — Pendant le mois dernier ? À
 ñ pie R.— Non, je crois que c'était pendant que M. de Bauw ;
 se ! était responsable. Ce sont de telles choses qui font perdre
 FR à l'État la confiance des populations. |
@@ -2779,7 +2596,6 @@ FR à l'État la confiance des populations. |
 r EN DE vous donner d'autres exemples ?
 
 ë en { R. — Oui, le capitaine Hagstrom imposa à Loulangaune
-SI amende de 45.000 mitakos à l'instigation de M. de Bauw. Si #
 21 vous vous référez à Ouala, seulement, 5.000; 15.000 aupara- à
 Dar vant, et une amende de 5.000 depuis. ,
 Ro D. — Pouvez-vous citer un exemple de villages mis à
@@ -2793,7 +2609,6 @@ Hs R. — Le système est encore en force dans les plantations
 '. U de café, On laisse les graines tomber à terre, ce qui rend le « 3
 A labeur des indigènes inutile. À
 "O0 D. — Savez-vous pourquoi on ne se sert pas du café? 4
-Que R.— Non. &
 > \ D, — Avez-vous connaissance de mauvais traitements M
 Mr autres que ceux mentionnés par Casement? $
 al KE R. — Je ne crois pas pouvoir me souvenir de tous les cas M
@@ -2812,7 +2627,6 @@ entendu hier ceux de Ouala seulement. Je veux toujours que ton
 dont j'aie à me plaindre à cet égard, c'est que les autorités Et
 ajoutent invariablement foi aux témoignages des sentinelles àe
 plutôt qu'à ceux du peuple. Il n'y avait alors pas de tri-
-| bunal. ;
 | D. — Vous ne parlez pas du juge ? |
 R. — Non, je parle des Autorités militaires. Les cas ne |
 sont probablement pas rapportés à l'officier civil de
@@ -2827,13 +2641,11 @@ visité la scène de ces atrocités.
 atrocités commises sur le haut-fleuve, n'ayant pas accompagné M. Bond à cette occasion. Il dit avoir fréquemment
 | entendu les indigènes en parler et cita les noms des vil- 4 ;
 lages et offrit d'envoyer chercher des témoins pour dé-
-|
 Territoire : Concession de la Société A.B.LR. (1)
 ; Comme introduction aux témoignages de MM. Harris et eu
 À Stannard, le lecteur fera bien de se rappeler les faits sui- ;
 r  vants, ainsi que la circonstance que les révélations des |
 | (1) L'administration de l''A.B.LR. a été exposée dans une bro_ chure intitulée Red Rubber, par E. D. Morel, prix 1 schelling, chez <
-4 MM. W. H. Smith et Son, Londres.
 
 A le Congo léopoldien ?
 } atrocités commises par cette société ont commencé en 1901, Û
@@ -2843,7 +2655,6 @@ Congo a exercé une juridiction sur la Société A.B.ILR. Le
 % Gouvernement a; pendant tout ce temps, été porteur de la k
 | moitié des actions de la Société. Le Gouvernement a, au ù
 ; bescin, mis à la disposition de l'A.B.I.R. ses troupes sta- Â
-| tionnées à Bassankousou. 1
 Pendant toutes ces années, le Gouvernement a eu con- {
 naissance du fait que l'A.B.LR. a fait la traite, autrement +
 dit, a forcé les indigènes, — l'A.B.LR. est, de nom, une ;
@@ -2871,7 +2682,6 @@ A prend les personnages suivants : président, M. A. Van den \
 6 en décembre 1904; les témoignages devant la Commission den- #
 | quête; les témoignages de M. Ruskin devant le substitut Rossi
 en 1902, dont le rapport ne fut pas publié par l'Etat; les circulaires d'
-i de M. Albert Longtain, de M. Delvaux, administrateurs de la
 
 ex-Gouverneur Général de l'État du Congo; M. Edmond Si
 ‘4 Van Eetevelde, secrétaire d'État du Congo. ee
@@ -2946,7 +2756,6 @@ J'établis ensuite la responsabilité et soutins que LE sx-
 (1) Manquant par suite au travail incessant réclamé d'eux pour n
 la récolte du caouchouc. “&
 
-STÈME PLUTOT QUE L'INDIVIDU est responsable. Le garde- .
 forestier rejette le blâme sur l'agent, lui à son tour sur le
 directeur, et ainsi de suite. ] +
 Après quoi, j'attirai l'attention sur les difficultés qu'ont
@@ -2983,7 +2792,6 @@ ft indigènes en sont réduits à arracher ces racines pour obteK nir le caoutch
 ! j'ai reçu les détails. — E. D. Morel.
 
 ; le Congo léopoldien
-|
 AS Puis nous affirmâmes que, d'après notre connaissance, 4
 à aucun garde-forestier n'avait été puni par l'État, avant 1904,
 Da pour les nombreux assassinats commis dans ce district.
@@ -3022,7 +2830,6 @@ ce pas ? » A quoi il répondit, « Oui. » Les cadavres furent ke
 À découpés et mangés par les combattants de M. Forcie. IL 10
 | dit aussi qu'il avait reçu la chicotte et avait été emprisonné pot
 
-_ par l'agent de l'A. B. L R., et de plus, forcé par lui de se FR
 . livrer aux travaux les plus serviles. Il parle aussi du nombre ne?
 de femmes volées et ravies, et des nombreux bracelets, des < Û
 lances, des boucliers, etc., qu'il a été forcé de livrer aux
@@ -3036,7 +2843,6 @@ des femmes de son père; et comment ils avaient écrasé la 4
 Il dit encore qu'au retour de l'expédition, M. Forcie avait
 fait donner de la chicotte aux sentinelles parce qu'elles à
 n'avaient pas tué un assez grand nombre des gens de a
-| Bolima.
 | Ensuite Bongoualanga s'approcha et confirma le récit de
 … Borkoko ; ce jeune homme était allé « regarder ». Après
 | quoi un chef apporta dans ses bras la femme mutilée de
@@ -3058,7 +2864,6 @@ Ja table, représentant dix-huit hommes, femmes et enfants,
 Û Tous les témoins parlent de fustigations, de viols, de
 1 mutilations, de meurtres et d'emprisonnement d'hommes,
 
-: jt le Congo léopoldien j | A
 Pl de femmes et d'enfants, d'amendes illégales, d'impôts irré- |
 pu La Commission essaie de traverser cette mare d'iniquités, |
 1: ‘ ; cette rivière de sang, mais trouvant la tâche impossible, |
@@ -3102,9 +2907,6 @@ niers, simplement parce que la Commission trouva que les M
 
 accusations contre l'A. B. I. R. étaient entièrement fondées. Eu
 
-| Le directeur de l'A. B.I. R. eut toute facilité de contredire M ft
-
-“a IE AN ? LES DÉPOSITIONS dé MU
 Fe les témoignages, mais tout ce qu'il put faire fut d'essayer
 de donner de vagues explications, d'invoquer l'ignorance, {
 ce à quoi il ne réussit guère. |
@@ -3181,8 +2983,6 @@ possible cet état de choses. À
 | . Je parlai des rares visites d'un oflicier judiciaire au ter- :#
 92 4
 
-ie ONE ANA dat PA PAR EMEA
-MP IAMOMES LES DÉPOSITIONS + at
 _ ritoire de l'A.B.LR. Les seules dont je puisse me souvenir MT
 furent celles du juge Rossi, vers le commencement de 1902, Ÿ
 et les visites récentes du juge Bosco. (1) Lu
@@ -3213,7 +3013,6 @@ x d'impôt, des choses qu'ils ne possèdent pas, surtout quand
 | des actionnaires d'une société commerciale.
 4 3) Que bien qu'il soit juste que les indigènes travaillent, +
 dl il devrait leur être démontré que le travail leur est profiil table. .
-ki (1) Il n'y en a pas eu d'autres depuis la fondation de la Société
 ke A.B.IR. sous la loi congolaise en 1898, et aucun de ces juges na
 4 visité l'intérieur de la Concession. Tous deux furent les hôtes des
 #4 agents de l'A.B.LR. pendant tout le temps de leur séjour.
@@ -3246,7 +3045,6 @@ ML les gardes-forestiers. Tous avaient à raconter des histoires d
 Fe navrantes sur le meurtre brutal de leurs parents. Les uns *
 1 les avaient vu tuer sous leurs yeux, les autres s'étaient M
 4 ; enfuis dans la brousse, et en revenant avaient trouvé leurs 4
-pr. cadavres gisant çà et là. 1
 "12 On tuait sans distinction les femmes inoffensives et les M
 ee \ enfants, les témoins indiquant ces derniers en mettant la
 À main à peu de hauteur du sol. Tout cela apparemment pour
@@ -3311,7 +3109,6 @@ attaque, on montra à Lontoulou, le chef, les cadavres de ses ;
 attaché par le cou avec des hommes considérés comme s
 esclaves, forcé de faire les travaux les plus serviles et, pour
 
-: é le Congo léopoldien ss PRES
 Va avoir visité une autre ville, un agent lui fit couper la barbe,
 ‘Via qui trainait presque jusqu'à terre. x
 RAS Inounga, d'Ekérongo, arriva avec son paquet de ba3 { guettes, représentant trente-trois personnes tuées par les
@@ -3362,8 +3159,6 @@ A () Boloumboloko fut de nouveau envahi par les soldats de
 
 LE PA.B.LR., en avril 1905. — Voir ci-après la lettre de M. Harris.
 
-METEO UE TONER US AREA AU A de
-RO RME AO RSS PAU, | de
 _ On en cherche, mais il est épuisé, maintenant. Lorsqu'on À te
 apporta ce qu'on pouvait trouver à la station, certains FU
 furent mis en prison, les femmes comme les hommes. Ils AA
@@ -3411,14 +3206,12 @@ ee ait ordonné la détention de ces femmes.
 ; 1895. — J'ai visité la rivière Bolombo avant que l'A. B.I.R. |
 4 ait commencé ses opérations, et y ai trouvé des villes floPs rissantes, un peuple heureux, quantité de vivres, de vo- }
 é lailles, de chèvres, etc. J'y suis retourné quatre fois depuis ÿ
-: l'établissement de l'A. B. L R. À
 À J 1901. — La dernière fois, — octobre 1901, — le changement $
 k était fort remarquable. Les indigènes étaient terrorisés par
 e: les sentinelles, et dans leur frayeur perpétuelle, étaient con- À
 | traints de vivre dans la forêt. À Bosinga et Eala, autrefois k
 villes florissantes, je n'y pus voir une seule hutte; les ha-
 * bitants étaient tous dans la forêt. £
-ñ 1899. — J'ai vu des pieux à la factorerie de l'A. B.LR.
 BY auxquels quatre hommes avaient été attachés, nus, la tête h
 HR rasée, pendant un jour et une nuit sans nourriture et sans M
 F eau. Le matin, les yeux leur sortaient de la tête, ils avaient
@@ -3505,18 +3298,15 @@ pour les faire venir. Wa
 2 et en prison jusqu'à ce qu'une demande exorbitante eût été M
 { accordée. M. Ruskin pourrait leur parler de plusieurs « A femmes ainsi liées à Bavaka, et à mon arrivée à Nsoungam- F]
 
-OU 0  ves péPosrrions SA RES
 __ milles) quatre femmes étaient attachées pour la même rai- At
 son. Lorsque je m'approchai, on les relächa, mais je vis HAE
 l'emplacement où elles avaient été liées, ainsi que la corde t
 employée à cet effet. La sentinelle se nommaït Mbongedza. 4
-On me demanda si j'avais lu le rapport de M. le PA
 consul Casement et ce que j'en pensais. J'expliquai que *ÿ
 j'étais chez moi en congé lors de la visite de M. Casement, AE
 mais je décrivis l'état de choses déplorable que nous trou- 4
 vàmes à notre retour en novembre 1903. ê
 J'expliquai pourquoi nous ne pouvions plus recevoir nos :
-vivres par l'intermédiaire de l'agent de l'A. B. L. R., et que ; n
 nous avions pris cette décision huit jours après notre arri- D:
 vée, c'est-à-dire vers le 20 novembre 1903. (1) Je citai la A
 | ville de Dilangé, comme exemple de l'état de toutes les |
@@ -3527,7 +3317,6 @@ VA. B. IL R., M. Lejeune. Je fis comparaître comme témoins
 | de ces faits Ikamba, chef de Basékoiya; Iyoké, chef de Bosi- |
 léla ; Iséilolé, chef de Bavaka. J'avais d'autres témoins,
 _ mais les commissaires déposèrent qu'ils en avaient entendu A
-| assez. À
 Ces témoins déposèrent clairement ; ils furent honorablement traités, et les Commissaires nous donnèrent leur as- À
 surance, qu'en cas de persécutions à cause de ce témoignage les coupables seraient rigoureusement punis. 2
 Ces dépositions durèrent de huit heures du matin à midi
@@ -3557,7 +3346,6 @@ chef est responsable, et c'est lui qui est le premier à souf- 1
 frir si la quantité de caoutchouc est insuffisante, ou la qua- ÿ
 lité inférieure. » Je donnai des détails sur la mort de trois {
 Un enfant fut saisi par M. Lejeune, contre son gré, pour ÿ
-k le forcer à travailler à la station de l'A. B. L R. Il fut fus- ÿ
 tigé à diverses reprises, et s'échappa. Il fut repris, attaché à_ mn
 un poteau, les mains étendues au-dessus de la tête, au so- N
 leil pendant un jour entier. Quelque temps après, il à |
@@ -3582,7 +3370,6 @@ M. Lejeune fit alors savoir à Iyalika, père de l'enfant, qu'il
 était responsable de la mort de Nkoïmpéci, et devait payer
 à la famille de ce dernier une indemnité de dix mille mitakos, somme énorme pour ce district. Pendant ce temps on %
 
-LH LES DÉPOSITIONS : je
 _ arrêta de nouveau les femmes, et on les jeta en prison. Une Fe
 indemnité de six mille huit cents mitakos fut payée, ainsi Peu
 que des chiens, des lances, etc. de
@@ -3603,7 +3390,6 @@ A nos yeux, ceci fut simplement un cas d'extorsion. Je ; :
 donnai les noms des témoins de ce fait, mais ils ne furent à
 pas appelés. J'informai aussi la Commission que Boloungia Î
 (un des meurtriers) était actuellement employé ici comme
-_ sentinelle de l'A. B. LR. ; £
 Le Président me demanda alors si j'avais une déclaration
 générale- à faire. Je répondis-que je trouvais l'impôt du
 caoutchouc exorbitant. (1) Le caoutchouc des environs
@@ -3618,13 +3404,11 @@ ardue. L'impôt était censé représenter quarante heures de
 ” qui, sous le doux régime congolais (le Gouvernement lui-même |
 & est porteur du 50 o/o des actions de ladite compagnie) obtient le Û
 _ caoutchouc sous forme d'impôt !
-|
 
 le Congo léopoldien FT
 "ACTES requise. Il ne restait donc aux indigènes que quatre jours à #4
 passer chez eux par mois. Je ne connaissais aucun village où .
 j il fallût moins de dix jours sur quinze pour satisfaire aux 1
-demandes de VA. B. I. R. #
 4% En second lieu, la plus grande iniquité était le pouvoir L
 Ê remis aux mains des gardes-forestiers, recrues armées qui k'
 : abusaient de leur position fréquemment et atrocement, et L
@@ -3693,19 +3477,15 @@ vante des assassinats commis dans la concession, faisant
 … les faits.
 30 105
 
-de RAPPORT DE MEURTRES ET D'OUTRA
 dans les districts de Bassanko 1e
 district de à
 maines de pr
-- porter un £
-| sentinelles.
 
 Un peu plus tard | Likoti Bosuma Inconnue : ki
 
 Plus tard Bakungu Lonkeke Battu pa sen
 Bofaka et q
 Peuavant la visite | Bofungi, Mère du témoin Efufola 4
-judiciaire de M. district de M
 , Boo fin de 1903 Nsongo ‘@
 idem idem Personne de tué, | Lokilo (a
 mais femme du me
@@ -3718,7 +3498,6 @@ trois ou quatre 4
 2) Nom indigène d'un agent européen. “R
 
 agé, son avant-poste É
-| #
 o (oncle) Rapporté peu de temps après à M. Bosco. (Qi Battu f
 Lo avec un fusil dans un canot; en mourut le soir *
 | même. Iseambo mis en prison, à Dilange et Bassan- Ç
@@ -3744,28 +3523,19 @@ L Alla avec Lokoka (voir ci-dessus) rapporter l'état de :
 pports ont été supprimés par le Gouvernement du Congo. ÿ
 
 RU = de Congo léopoldien
-ARE ne TE A RTE LT
-| CURE E ASS VILLAGES TUÉS SENTINELI
 LEE avant larrivée district de | Bompolenge (sa | Boembi |
-se LEE ê de Nina à Di- Nsongo femme) Bofio L:
 ‘ATEN Durant le 4 En idem Isokela Nkoi
 RUE de Njunju à Bas- Bataji (Œune seule
 a fl Ayant arrivée de | Nkoi,district | Bokamann Inconnue M
 au ‘ Nina à Dilange de Nsongo j
 aie à Peu de temps | Bomati, Tsosungola de Li- | Deux sentinél
 FPE après larrivée district de fumba noms incon
-NU de Nina à Di- Nsongo É
 ne À lange 1
 nt ; Plus tard Nsongo Bonongo Bôngwala ag: 1
 Ée district de 1
 Le U Pendant le séjour idem Bolombo Efufola
-je de Nina à Di- 3
-PAR lange 7
 ny idem \ idem Mpukulu Bosenga | Joko et \ È
 he (1) Nom indigène de l'agent européen. ME
-#4 108 4
-
-RATE LL Ur) 2 MN Rte ARS ENERS ES ou) AE RQ MR I AT EEE Nr AI EE
 
 to (frère) Indigènes apportèrent du caoutchouc à Bassankusu, +, ETES
 bu (sœur) et retournèrent au village, où, deux jours ee ils De,
@@ -3782,20 +3552,15 @@ ann (frère) Tué dans un arbre bafoli. AN ie
 , blessé au | Sentinelles envoyées de Dilange; le peuple s'enfuit; ÉRRE °1
 5e spa balle mais la victime et le témoin rencontrèrent les senti- "Fi
 mba (frère) Sentinelle réclama la femme de Bonkeji. Sur son Va
-so refus, il fut ESA Ame puis attaché à un poteau et r
 fusillé. Le cadavre fut détaché par Sefoso, témoin. FE
 (sa femme) I fut arrêté et conduit à Nina (1) par la sentinelle, et ñ à
 
 f battu en route avec un fusil; mis en prison, où il L We
 | mourut, poor la nuit, de ses blessures. Enterré A
-pt près de la prison. LL
 Oo (père) La balle, destinée au père, tua le fils. de
-| TUE
 Hintère) Sentinelles envoyées par Nina. qu
 
-EVA ; le Congo léopoldien x hi
 ÿ14 | Pendant le séjour | Bomati Bocindu Inconnue L
-Es de Nina à Di- |
 ‘d trict Ntumba Bocki et deux a
 
 | idem Bokolo, dis- | Inkoma Bôngwalanga
@@ -3803,14 +3568,11 @@ Es de Nina à Di- |
 vers le commen- district de a}
 cement de 1904 Nsongo 3
 ; Pendant la visite idem Impongi Bofala À
-de M. Bosco à +R
 1903-1904 Nsongo Bakungola Likoka L
 ï (@) ‘Il est bon de se souvenir que ces soldats ou gardes-forestiers soniE
 4 vient à manquer. Le système est décrit en détail dans la brochure,
 (2) Chef des sentinelles. Ke
-| IIO (1
 
-pue £44/ 00 Most RNA AT DATE TE Ne,
 (neveu) Nina, trouvant Bocindu dans un autre village, laccusa
 DE de s'être échappé, le fit arrêter et mettre en prison }
 à Dilange. Pendant quinze jours d'incarcération, il ‘
@@ -3847,11 +3609,9 @@ r (voir plus haut).
 NN le Congo: léopoldten | MONNIER
 He ; Novembre- Nsongo Bofijwa Bompongi et Los
 Jp vée dé Nina à district de | Mpulu Iseosekwa
-NS ra et de Nsongo Bôgi ÿ
 FER MM. Demol et |
 Fe 1894-1895 Ilinga, Femme et enfant. | Loposi (actu®]
 AL @ district de Aussi lenfant ment près de
-ue Nsongo Impongi es- ma) F
 ik Autres faits du Ekila (femme) Lofosi À
 AE même palaver 1
 tu Bomindo (femme) | Londombo (ae
@@ -3863,11 +3623,7 @@ po Bolei (femme) Inconnue
 Ar . Mars 1904 Lifumba Isamboyo Bosio (avec
 le Bokokata Bompotong
 AA aussi feu
-f t (1) Nom indigène d'un agent européen. É |
 4 | (2) Nom indigène d'un agent européen. :
-
-PR en R SRE Le à es HU 4e ve
-NN Mes piosrrions |; 1} 7 077017 NUIT INENEES
 
 nkoi (fille) Eut lieu dans le district de Dilange. Bonkongya de- APS dE
 L manda au défunt de lui donner sa fille (témoin). Sur à TP
@@ -3892,12 +3648,10 @@ ze heures après le décès. Corps transporté à l'agent LE AIRE
 1da < Ad, (2) ss le renvoya avec les porteurs. Fait rap- RAGE À
 a porté à M. Bosco peu de temps après. à.
 $ Fe ». Sentinelles menées à Bomati par l'agent Add. M. Lo- A
-Fan wer DU cape blessé à a ps droit et à u {; % ah
 D (capita cuisse droite, et qui mourut quelques jours après EN AER
 DnAnelle) son départ. Rapporté à M. Bosco. Ÿ 2
 
 le Congo léopoldien #4
-| —— | ————— E
 iv 1902-1903 Boswlongi et | Bokôla M |
 (femme) et deux 10
 enfants l:
@@ -3907,10 +3661,7 @@ après district de | Bolefo ne |:
 Bondombi(femme) k:
 Mboyo (enfant) Q
 Ekokola (enfant) J
-il
-(1) Agent européen. Ne |
 
-LOENS NE PAU REMARQUES Lure
 ke Soldats conduits dans le district par M. Hagstrom (1) TON
 de Bassankusu. Les trois adultes furent fusillés et à 2: CIRE
 1 les trois enfants écrasés. |: : 144
@@ -3919,10 +3670,7 @@ ie Lokomba | Agents à Bokokata menèrent combattre les sentinelles. ei 3
 rieur avec ses soldats. Les défunts adultes eurent LT
 la gorge coupée, _— été placés en travers d'un IE
 tronc de bananier. deux enfants furent écrasés. L'HTER Vi à
-| #48R
 
-NS COR DU Scene APN CL dr 0 CA EE PAST RENTE ES RTE
-NAGTAE le Congo léopoldien AT OR
 % Les témoignages concernant ces assassinats furent consi- Ne
 me dérés avec soin par la Commission, et bien des faitscachés, 4}
 ne les uns depuis douze ans, furent révélés. |
@@ -3931,12 +3679,10 @@ ne les uns depuis douze ans, furent révélés. |
 Re à tions contre les missionnaires, mais cet essai de mettre en
 | controverse la nature accablante des témoignages fut aussi M}
 nl futile à Ikau qu'aux autres stations de la Congo Balolo
-| VI n |!
 Territoire : Actuellement contrôlé par la Société La Lulonga 1
 è Ce qui suit est, en substance, le témoignage rendu devant l
 la Commission d'enquête à Bonginda, territoire de la So- M
 fi ciété La Lulonga, par M. Charles Padfield, de la Mission  }
-| Balolo du Congo. Ÿ A |R
 Témoignage de M. Charles Padfield |!
 Vers le mois de juin 1904, l'agent européen (nom indigène
 Ekotolongo) contrôlant la station Boyeka ordonna à sept 1h
@@ -3949,8 +3695,6 @@ pas assez de caoutchouc, et l'on y saisit deux otages. L'un
 pays) dont les sentinelles s'emparèrent, mais un des ra-
 # meurs (5) essaya de rendre les mitakos à leur propriétaire. | ;
 (4) Bolinda et Loleki. 1 k
-| (5) Yambolenga. ÿ .
-| 116 RU 1
 
 Les sentinelles lui ordonnèrent de cesser et le battirent sé- + HEAR
 vèrement avec la chicotte, lui donnant aussi des coups de AL
@@ -4040,7 +3784,6 @@ nombre de corbeilles remplies de caoutchouc. Cest le système
 
 118 4
 
-dé 1 ARE LES DÉPOSITIONS En
 nommé Bosolo, amena le corps à l'agent européen « Ekoto- AU
 longo » et porta plainte. Mais l'agent leur dit que le chef No)
 avait été tué parce que le caoutchouc n'était pas au com- HER
@@ -4078,7 +3821,6 @@ qu'il manquait du caoutchouc.
 Un peu plus tard, il manquait cinq corbeiïlles dans le %
 (:) Ntsombo, Loyeko, Etoko, Yamba et Mpokojimbo.
 
-a Re le Congo léopoldien Ft A
 À à même village, et le garde Mambuso s'empara d'un indiLR gène (1) et l'amena à l'agent blanc à Boyeka. Celui-ci le fit M
 A chicotter en sa présence. La victime de cette brutalité fut 4
 à Lis ensuite conduite à Bassankusu (quartier-général de la Société
@@ -4109,7 +3851,6 @@ attrapèrent un sanglier, mais ils ne reçurent aucune com-
 R Afin de démontrer l'énormité de l'amende, (4) il suffit
 ' d'ajouter que ce village ne comptait que quarante hommes
 
-Re et
 et cinquante femmes, d'après le recensement officiel fait en LITE
 Le Blanc (nom indigène Lokoka) ordonna (date inconnue) : il se :
 aux hommes de Bokenyola de récolter de la gomme copal, *$ Mae “
@@ -4145,8 +3886,6 @@ _ En septembre 1904, les gens de Bojinga allèrent demander È
 (:) Moniongo, Ngombele et Eloko. Hi
 (2) Mbangu, Lolo et Mgalla. # &
 
-À le Congo léopoldien É À
-#
 ÿ à « Ekotolongo », l'agent blanc à Boyeka, pourquoi ilne
 | leur payait pas le caoutchouc. Pour toute réponse le Blane
 fit attaquer la ville par ses gardes, la brüla et s'empara de
@@ -4182,7 +3921,6 @@ G (4) Malongo (chef), Monbo, Buke et Etambanjoko. l.
 (5) Mambalanga et Efasu. 4 ;
 122 4
 
-| LES DÉPOSITIONS
 allèrent porter plainte à l'agent blanc « Bomba » (nom indigène) à Mampoko, emportant avec eux le cadavre d'une des
 victimes. L'agent leur dit de s'en aller et de jeter le cadavre
 Vers la même époque, lorsque les gens de ce village
@@ -4219,7 +3957,6 @@ A une certaine occasion, en automne 1904, les gens du
 | oculaires de cet acte. — Remarque de M. CHARLES PADFIELD.
 | 123
 
-" la É le Congo léopoldien HOMO
  . village de Bokutolo, près de Boyeka, reçurent trois grains “4
 RARE de verre plats, comme prix de leurs corbeilles de caoutqu ri chouc. Ils en demandèrent davantage, n'ayant rien reçu les
 De huit dernières fois qu'ils avaient apporté du caoutchouc. (1)
@@ -4246,9 +3983,7 @@ TE k femmes et jeunes filles), sans défense, des villes de Bon-m |
 (1) Impôt bi-mensuel ! Imposé par une société commerciate !! Î
 (2) Les témoins oculaires de ces morts, ainsi que les veuves des.
 victimes, furent interrogés par la Commission d'enquête. — Re-® !
-. marque de M. CHARLES PADFIELD. ÿ 4 l
 
-AREA | LES DÉPOSITIONS En RE OR Ron
 _ tenant Mazy, dont parle le témoignage, il fut permis à cet MA di
 officier de rentrer en Belgique, bien qu'à ce moment les HA
 accusations de M. Weeks fussent entre les mains des auto- ni
@@ -4321,7 +4056,6 @@ impôt exigeait un voyage de quatre-vingts milles. De plus à
 les gens de Ndobo, qui ne peuvent cultiver la cassave dans
 (n) Ces lettres ont paru dans la West African Mail. ?
 
-là | LES DÉPOSITIONS :
 leur contrée marécageuse, étaient cependant forcés de
 l'acheter à des villes riveraines, à un prix élevé, afin de É
 pouvoir payer les impôts inexorables de l'État. Ils ne (
@@ -4389,7 +4123,6 @@ femmes le transportaient de la pile au bateau. | :
 Les Commissaires demandèrent : « Est-ce que les indigènes w
 Je répondis : « Qui donc aime à travailler ? » ‘4 1:
 
-he FA cut) fi (2 JR AA à A A MP AU À gs TA
 Ils demandèrent s'il fallait forcer les indigènes à travailler.
 Je répondis que non. « Regardez les stations missionnaires, it A
 les steamers, etc., — tout cela est construit sans le secours | Re
@@ -4427,7 +4160,6 @@ M. Weeks est prié de proposer des réformes.
 « Le commerce de l'État est la damnation du pays jUA
 et la ruine des habitants. » se
 Je demandai alors la permission de faire quelques propo- FES
-Ni F F ne
 
 | le Congo léopoldien FA
 | sitions. Elle me fut accordée sans hésitation; on me pria À
@@ -4498,7 +4230,6 @@ sera pas bouleversé de fond en comble, les atrocités continueront,
 et contre ce changement essentiel, tous les intérêts financiers,
 bénéficiant de la misère des indigènes, se dressent. $
 
-fe | le Congo léopoldien 110 ; he: i
 EE Fe 5) La taxe devrait être imposée aux individus ou à leurs 1
 LA Ÿ maisons, et non aux villes collectivement. On ne devrait # 4
 rs et plus faire payer un impôt à un mourant ou à un ouvrier
@@ -4642,10 +4373,8 @@ tu trant abondamment les atrocités commises dans le voisi- !
 nage de Baringa, seul, et que la Commission aurait pucon- M
 1} stater si sont séjour avait eu plus de durée. 54 |
 
-La re Le 5 janvier, après le départ de la Commission de |
 Baringa, mais non pas du Congo, M. Harris communiquait >, » + : + = . *
 au Président les nouveaux faits suivants. Voici un extrait . |
-de sa lettre : n 1
 : Pendant que vous étiez à Baringa, un chef de Boendo
 échappa aux sentinelles gardant son village, traversa le M Î
 Lomako et se fraya un passage dans la forêt afin de pou- en ||
@@ -4668,7 +4397,6 @@ leur propre espoir de l'efficacité de cette visite. Ce fait explique
 devant la Commission. Ce qui arriva plus tard prouve combien +
 cet espoir était vain. La
 
-ne UPS à ÿ
 cependant il cita les noms de beaucoup de victimes, que k4
 vous trouverez à la fin de cette lettre. De plus, il ajouta OUVRE
 qu'après son départ de chez lui, un messager l'avait suivi ï F
@@ -4714,7 +4442,6 @@ son enquête dans la région de l'A. B. I. R., le Gouvernement du District a imm
 nouveau district judiciaire, formé par le bassin des rivières Lopori et Maringa. Le substitut sera domicilié à
 Bassankusu. Le docteur Vogt, un Norvégien, actuellement
 à Nouvelle Anvers, a été nommé (par télégraphe) premier 4
-juge de l'A. B. I. R. Mais il a ordre d'attendre de nouvelles M
 informations, etilne partira pas immédiatement pour Bassankusu. En attendant, le nouveau substitut d'ici, M. Tessa- M
 roli, visitera la région de Baringa; la Commission vous
 prie de lui rapporter tous les cas de cruauté, d'oppression, etc., dont vous avez connaissance. 4
@@ -4814,7 +4541,6 @@ trouve toujours là, enceinte.
 
 Comme dans les autres villes, je trouvai que l'amusement
 des sentinelles était l'inceste publie forcé, les noms donnés |
-étant de : "
 
 Lokugi avec sa sœur Lokomo, :
 Lokilo avec sa fille Efire.
@@ -4868,15 +4594,11 @@ Bofumbo (femme)........ Efulama n
 Boonga (homme)......... Sentinelle inconnue à
 (1) Il est étonnant d'avoir à écrire une pareille phrase au com- À
 mencement du vingtième siècle. % Î
-| 142 |
 
-CAE “ LR qui a commis RP et :
 Ra Nom le meurtre pare 264
-| Eleka (chef).............. Belio D ‘120
 Iyambi (homme)......... Bofolodza | 28 NEA
 Neïkela (homme) ........ Efulama He) 40
 | Eluga (mère et deux en- PAL
-: HAS) ce ee. | connue ut.
 Likongo (homme)........ Boyela 1e 39 a
 Likovata (femme)........ Bateko f Ni
 Linyuka (mère et deux À 4 4
@@ -4884,7 +4606,6 @@ Ifasu, Yakabonga et en- "ALTO
 Bokangu (femme) ....... Isemenga > 41e
 Nkanjambi (femme)...... Nkomboloko | por ÿ
 Mongu (femme).......... Inconnue MA)
-Dornbalae SAN Le Tanya ANS
 Eunai (femme)......... . Inconnue EE
 Botugi (chef de la section ER
 de Bokendi)............ Ntanda Qi ras
@@ -4893,22 +4614,17 @@ Bokeku (femme) ......... Loma Ge
 Elanga (femme).......... Bompengu RENE!
 _ Eleka (femme) ........... Inconnue a
 
-| TA NRC MST SE ODA léopoldien SA “a 1 ns.
-
 É A ; Ekonga (femme)......... Wuti nc.
 
 Es a : Mposo (femme) .......... Inconnue (
 Hdi Bongenga (femme)....... Icoli S
 
-a Hi Ifasa de Bolombo et Ntolo É-
-Fou (enfant) Le EC NOloR À
 TMS Isekayoko (homme)...... Inconnue 4
 
 à HN Botaka (mère et enfant).. — *
 
 SN Bonkomo et enfant....... — 1
 
-Se ANA Botuke Le. Are ER Isekyol0 ne ||
 Ne Ilinga (femme)........... Inconnue à
 
 ee (2) Lwanga (femme) .....'.. Nkangi Ÿ
@@ -4919,14 +4635,10 @@ fe Isekasumbu (enfant) ..... Inconnue . |
 
 ù £ Efunda (homme, femme s; … ||
 ï AS Trois enfants de Bokongi, À |
-LE Mn rat CN NE SR RN ERe 4
 
 : 1 Ces noms me furent donnés sans hésitation et avec toute ;
 
 À apparence de vérité par les indigènes. D'après mon expé- "|
-Are LA
-
-LES DÉPOSITIONS je
 
 rience, il me semble que ce village n'a pas eu autant de tués
 que d'autres dans la région. : }
@@ -4955,9 +4667,7 @@ J'ai l'honneur d'être l'obéissant serviteur de Votre Excellence.
 (1) Les témoins des cas datrocités sont obligés de faire 1.000
 
 milles afin de déposer à Boma. Voir note précédente.
-le Congo. — 9
 
-Fee ER DER Te OT RSR ET EP EM fe ER CNE
 ts Règlements établis par la Commission, visite de ;
 0) M. Malfeyt, Haut Commissaire Royal, et ce qui en L
 ch Le 16 mars 1905, M. Malfeyt, Haut Commissaire Royal, M
@@ -4982,9 +4692,7 @@ pe impôts est évidemment une anomalie et une coutume con-
 lois et les règlements tels qu'ils existent, de même que è
 (:) Contraire aussi au jugement prononcé par la Cour d'Appel de |
 L Boma dans l'affaire Caudron. 4 Î
-> UE
 
-A PO LS LES BÉPOSTTIONS REA ai
 _ la manière dont ces lois et règlements sont exécutés en pa
 Tels étaient donc les règlements établis par la Commis- # in
 Il fut entendu que la visite de M. Malfeyt aurait l'effet de ne
@@ -4993,7 +4701,6 @@ conformer ces « impôts », en particulier celui de la loi de 1
 Maïs M. Malfeyt annonça qu'il « n'avaït aucun pouvoir es
 d'agir, et n'était venu que pour voir et écouter »! dar
 Le « rajustement des impôts » fut donc laissé aux mains LS
-des représentants de PA. B. I. R. ] NN”
 Comment cela fut fait, et se fait actuellement, et jusqu'à ) re
 quel point étaient justifiés les avis envoyés par M. Harris je.
 au Président de la Commission d'enquête après son départ Re
@@ -5001,7 +4708,6 @@ de Baringa, les informations suivantes nous donneront une Dr ee
 
 Extrait d'une lettre de M. Stannard à M. Morel, à la date |
 du 4 avril, décrivant une entrevue avec M. Delvaux, Direc- Fu
-teur en Afrique de l'A. B. L. R.: “A
 « IL parla avec mépris de la Commission d'enquête, et se Mes
 montra fort contrarié de ce que nous avions dit à la Com- Û
 mission. Il déclara que l'A. B. I.R. avait l'autorité et le pou- À
@@ -5010,7 +4716,6 @@ fournir du caoutchouc et de mettre en prison les récalci- - ji
 trants. Il y a quelque temps, les indigènes d'une ville appor- et
 tèrent du caoutchouc ici à l'agent, qui Le refusa parce que la .
 quantité était insuflisante, et les hommes furent fustigés Ée
-‘par les employés de l'A. B. I. R. et chassés. Le Directeur Su
 donna raison à l'agent d'avoir refusé le caoutchouc pour ne
 quantité insuffisante. Les Commissaires avaient déclaré que NU
 . VA. B. I. R. n'avait pas le pouvoir d'envoyer des hommes SE
@@ -5073,7 +4778,6 @@ L'homme Lingendi et les femmes et filles suivantes :
 Lifumbwa et son enfant, Besenda et son enfant, Etongo,
 Besuka, Bongele, Iwawa, Ekila, Ifasu ; les femmes furent
 mises en liberté après avoir travaillé six ou sept jours dans
-la prison. , ;
 
 des le Congo léopoldin VV
 ÿ Le Capita Elisi dit aux indigènes : « Nous vous tuons
@@ -5109,7 +4813,6 @@ dans ce district. Elles sont : nn |!
 1. — Le recensement du peuple. D |:
 2, — La loi de quarante heures. 7
 : 3, — La loi de la taxe alternative au choix des indi- M J
-| 150 D |!
 
 M. Delvaux nia avec emphase que la loi de la taxe alter- AAC
 Ÿ native s'appliquât aux indigènes ; elle signifiait que l'A. B. 6 re
@@ -5147,7 +4850,6 @@ une copie de notre lettre pour votre édification. ; -
 la Commission d'enquête dans une lettre datée du 11 avril 1905.
 
 à le Congo léopoldier 3
-1 : B. — Lettre de M. Stanmard à M. Morel : 4 |
 , : L'œuvre diabolique a de nouveau libre carrière. L'A. B. 1 |
 ; I. R. s'est décidée à récolter son caoutchouc dans ce district |
 à n'importe quel prix de sang et de souffrances humaines.
@@ -5217,8 +4919,6 @@ arriva en effet, mais ce n'était pas celle qu'ils attendaient, —
 toute la troupe des porteurs de caoutchouc avait été mise
 dans la prison de l'A. B. I. R. C'était le redoutable Bompasu,
 
-| 153 le Congo. — 9.
-
 ë le Congo léopoldien 10
 
 a DR armé comme un véritable brigand, — fusil Albini et cartou-
@@ -5257,7 +4957,6 @@ Femmes et filles : Inungo, Longundo, Bokeni, Bompenju, }
 J'ai trouvé là un enfant dont la mère Lolula avait été ;
 | mise en prison. Nous tâchons de lui sauver la vie jusqu'à “1h
 ce que sa mère puisse venir le nourrir à sa sortie de }
-prison. ! ne |!
 : On saisit toutes les volailles, — trente ou quarante, ainsi
 que quatre chiens, pour nourrir la suite de Bompasu, et on
 démolit complètement la maison du chef pour en faire du bois à 4
@@ -5265,8 +4964,6 @@ démolit complètement la maison du chef pour en faire du bois à 4
 ; pris les filets de chasse valant de 200 à 250 francs que Bom- 4
 pasu et ses hommes emportèrent. Cela fut d'autant plus |
 dur, que juste avant l'arrivée et après le départ de la Com- }
-
-LES DÉPOSITIONS ee
 
 mission d'enquête, on avait un peu modéré le rigoureux sd
 traitement infligé par MM. Pilaet et Van Caelcken, ce qui dt
@@ -5293,8 +4990,6 @@ impossible d'avoir des détails véridiques en dehors de notre 4
 Avant de quitter Nsongo, le 19 courant, un jeune homme M
 arriva de Bamo, disant aux gens du village que leurs
 femmes et leurs enfants mouraïient de faim dans la prison 1
-de VA. B. L. R., et que le matin même il avait vu Bompasu |
-et 20 ou 30 sentinelles de l'A. B. I. R., armés d'Albinis et de à
 fusils se chargeant par la bouche, accompagnés de lances et \ FR
 de boucliers, partir pour un certain district, avec ordre de
 livrer bataille aux indigènes. On dit à Bompasu qu'à son à
@@ -5330,7 +5025,6 @@ expédié sur le bas fleuve par l'agent, M. Weyn, parce qu'il
 ne pouvait persuader à ses hommes de ramer dans ces conditions. Il y a près de deux mois qu'il est détenu. Pendant | \
 ce temps, ses affaires se font comme elles peuvent. Tous les
 faits qui précèdent ont été communiqués à M. le lieutenant
-Otterly. L
 Veuillez agréer, Monsieur, l'assurance de mes meilleurs
 P.-S.— Je puis ajouter que la cartouche ramassée à Nsongo 4
 contenait une balle molle fendue, probablement pour blesser grièvement. 4
@@ -5374,18 +5068,6 @@ dernièrement en justice à Boma, a produit dans sa défense
 des circulaires qu'il tenait de son Directeur, qui les tenait
 du Commissaire général M. de Bauw, qui les tenait du Gouverneur général autorisant la contrainte par corps pour le
 
-rt Ent du tt EL CN RES ON DS LOUE
-# Ë a BE 6 |
-| | © ME: :
-| : à. Ft ||
-| a : En |
-| SHARE Fi 4
-| ë + © ‘xl |
-| |
-# “A “2 a É L |
-| ‘NN
-| SE NE : à
-
 Si l'on se réfère au témoignage des missionnaires devant a
 la Commission, on verra l'effet de ces pratiques sur les indi- A AR
 Ces pratiques continuent, même dans le voisinage des sta- ? ;
@@ -5399,7 +5081,6 @@ quemment poursuivis et condamnés à des punitions lé-
 gères lorsque les circonstances de cas déterminés sont
 mises entre les mains des autorités judiciaires, les cireulaires du Gouverneur général et du Commissaire général $
 . n'ont pas été annulées.
-LOIS ET FAITS ; ie
 Sous ce rapport, M. Harris, dans une lettre à M. Morel |
 « Un des traits les plus étranges de l'administration du
 Congo consiste dans les relations qui existent entre les off- d
@@ -5496,11 +5177,8 @@ d'au moins 30.000 récolteurs; que l'on peut évaluer à 3.000
 employés (avec un salaire quasi-fictif) par la Société par an,
 on arrive au résultat que voici : "4 ‘
 soumis à la contrainte 6
-par l'A. B. LR. ne à
-tapes. ie NS RS SES D
 Soit 43.500 indigènes hommes et femmes ! — assujettis à > L |
 un esclavage féroce. |
-Les bénéfices nets de l'A. B. I. R. en 1903 ont été de trois ;
 millions environ. Dans les cinq années 1898-1903 les béné- M Î
 fices nets de la Société se sont élevés à 15.078.505 francs ! nn ||
 Combien de vies humaines ont été immolées dans la pro- » k
@@ -5516,9 +5194,6 @@ corps » pour une autre factorerie de la Société et j'y trouve les w à
 noms de 44 chefs, etc., etc. ne L
 | 162 4
 
-6 RDA US RS RSS He e su AMEN ARGUS LES
-MN Une
-SAT SNA Are LES DÉPOSITIONS NE
 | en aucune façon ce droit ne peut être exercé contre les he
 _ femmes, les enfants et les vieillards. (1) él
 Je prie tous les chefs de factoreries et de postes de me à
@@ -5541,7 +5216,6 @@ Je vous confirme les circulaires numéros 93 et 98 et vous
 prévient que tout agent qui à l'avenir ne tiendra pas çconvenablement ses pièces sera révoqué.
 A chacune de mes visites, les Agents auront à me pré- |
 sentier un cahier de la contrainte par corps. NE
-Le Directeur en Afrique, y
 o Pour les faits, voyez témoignage de la Commission d'ente.
 
 le Congo léopoldien 5
@@ -5552,7 +5226,6 @@ ment des impositions en caoutchouc. il
 Toute contrainte par corps exercée pour un motif autre …
 que la non remise des impositions dues serait considérée
 EC comme une atteinte à la liberté individuelle. D.
-Le Directeur en Afrique, À
 1 26
 Extrait des observations de la Direction d'Europe | À l
 concernant la comptabilité L
@@ -5575,14 +5248,11 @@ intitulée « Manquants de caoutchouc » 4
 Le caoutchouc manquant sera porté au compte personnel à
 de l'agent responsable, au prix d'achat en Afrique aug- 1
 menté du bénéfice net réalisable sur les marchés d'Europe. ;
-Le Directeur en Afrique,
 bassankusu, le 26 janvier 1902
-A messieurs les Agents de l'A. B. I. R.
 Nous sommes très heureux de vous annoncer l'acquitte- 1
 ment pur et simple par la Cour d'Appel de Boma, de notre
 agent M. Lejeune, qui avait été condamné à 6 mois de prison
 et à 1.000 francs d'amende par jugement du tribunal territorial de Coquilhatville en date du 14 novembre 1901. (1)
-Les Directeurs en Afrique,
 (1) Extrait d'une lettre personnelle expliquant cette circulaire :
 Ce M. Lejeune était inculpé d'avoir fait couper des mains et d'avoir
 fait la guerre aux indigènes sans autorisation, alors qu'il était
@@ -5617,7 +5287,6 @@ pris chez eux. Dès qu'un chef de factorerie ou chef de poste
 a constaté d'une façon certaine que des indigènes de son
 L secteur sont passés dans un autre, il doitles réclamer àson M
 confrère qui a pour devoir de les lui renvoyer immédiate- M
-Le Directeur en Afrique, À |
 Bassankusu, le 25 mai 190% g
 ; & Le rapport sur la contrainte par corps adressé au chef à
 de poste de Bassankusu (2) doit me parvenir ouvert. Je ne
@@ -5627,7 +5296,6 @@ passer par mon intermédiaire. {Voir vos contrats) 4 |
 (2) C'est-à-dire au représentant de l'État, qui était eensé le trans
 mettre au commissaire-général, qui le transmettaitÿ plus tard à 1!
 
-HAUTES D à 7 et Men CA le UE te
 Vs ° Je prie M M. les agenis de tenir en mains leurs gardes- Nu MU:
 _ forestiers; presque partout j'ai constaté des abus. Si les 3 HG
 ; _ agents voyageaient plus souvent et visitaient leurs villages, “à ie
@@ -5646,11 +5314,7 @@ jours, dans la limite de ses moyens, su reconnaître le mérite ee a "
 _ aux instructions que je vous donne et que bientôt, grâce à NU
 _ votre travail, nous aurons ramené l'A. B.I. R, à la situation HT
 enviable du passé. 1740
-| Le Directeur en Afrique, SUR
 
-| |
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, À
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men- '
@@ -5683,8 +5347,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 naturellement aux premières inscriptions: c'est ce numéro d'inscription qui deviendra automatiquement le
 numéro du tirage réservé à chacun des souscripteurs ;
 l'édition sur whatman sera strictement limitée au
-
-le Congo. — 10
 
 à Pour tout changement d'adresse envoyer soixante
 … centimes, quatre timbres de quinze centimes.

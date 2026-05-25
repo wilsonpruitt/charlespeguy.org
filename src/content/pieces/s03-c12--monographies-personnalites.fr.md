@@ -7,10 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 19423
 ---
-ñ È et À FA LEE x ; èré
-Te ce
-Pre (CAHIERS DE LA QUINZAINE Le
-ER QE NE # Feat He
 Mie. paraissant vingt fois par an Sem
 8, rue de la Sorbonne, au rez-de-chaussée
 
@@ -607,7 +603,6 @@ au collet de l'assassin, en admettant qu'il ait un collet, ce qui était le cas.
 
 sauter au collét de quelqu'un sans faire à son égard
 quelque personnalité. Nous avons fait la personnalité
-de M. le général Mercier, la personnalité de M. le général de Boisdeffre, et celle de M. du Paty de Clam, et
 celle de M. Deniel. Avons-nous assez fait de personnalités ? En tout cas n'avons-nous pas fait la personnalité
 de M. Alfred Dreyfus, un capitaine jadis ignoré. La personnalité de l'attaque suppose la personnalité de la défense, et inversement. Et quand nous crions encore
 aujourd'hui dans nos processions et dans nos manifestations : au bagne Mercier, au bagne, est-ce que nous
@@ -639,7 +634,6 @@ de personnalités. Tout le monde alors trouvait que j'avais
 — Mais cela ne prouve pas non plus que j'aie eu tort
 d'avoir continué. Tout le monde en ce temps-là trouvait
 que j'avais raison. Je n'étais pas devenu alors un pur
-anarchiste, ni un métaphysicien, ni un esthète. Non
 seulement on m'approuvait hautement et vivement,
 mais on m'eût encouragé si j'avais eu besoin d'un
 encouragement. Je n'en demandai aucun. J'avais raison
@@ -655,7 +649,6 @@ leurs accusateurs, et à leurs accusés : ce sont eux qui
 ont pardonné à tout le monde. Ils ont amnistié. Ils sont
 — Ce que vous m'avez répondu sur la question des
 personnalités, dans l'ordre de l'action, ne me paraît pas
-| 22 l
 
 valoir contre la considération du relèvement moral, que
 vous n'avez pas envisagé: quand même il serait vrai
@@ -713,8 +706,6 @@ vraiment à écrire. Il n'est pas vrai que le moi soit
 haïssable. Rien n'est haïssable d'abord. Le moi n'est
 pas plus haïssable d'abord que les autres, qui sont
 aussi des moi. Cette affectation à ne parler pas de soi
-
-| ! _ 7 .
 
 _ peut avoir deux sens : ou bien elle est sincère, injuste
 envers le moi, favorable aux autres; c'est alors de
@@ -780,7 +771,6 @@ grandes, et votre ami qui parlait sec, l'historien Pierre
 Deloire. Qu'est devenu votre cousin le fumiste, votre
 grand cousin, dont nous avons gardé un si bon souvenir.
 Je ne saurais suffire à tout. Pendant que je m'occupe
-à la gérance et à la fabrication de ces cahiers, je ne
 puis aller voir les docteurs. Mes amis sont occupés aux
 travaux de leurs métiers. Pierre Baudouin fait de la
 philosophie, ce qui est singulier pour un philosophe, en
@@ -1175,7 +1165,6 @@ j'aurai publié, comme je le dois, les réponses de Téry,
 la réponse de Hervé, l'intervention d'Adolphe Landry,
 alors, ei encore ce n'est pas sûr, mais au moins seulement alors on pourra se prononcer en Connaissance
 de cause. Il y a deux questions. J'examine aujourd'hui
-la question générale de savoir si l'on peut et si l'on
 doit faire des personnalités, si l'on fait bien ou mal de
 faire des personnalités. Nous examinerons dans un
 cahier suivant la tout autre question de savoir si dans
@@ -1188,7 +1177,6 @@ de réponse, que je maintiens pour tous dans ces
 cahiers, je le maintiens autant pour moi.
 
 On avait commencé par maltraïter ces cahiers même.
-On a changé de tactique, ou de méthode. On oppose la
 troisième série aux deux premières. Pour justifier en
 arrière larigueur dont on accueillit ces deux premières,
 on feint que je me suis totalement transformé. Je
@@ -1357,9 +1345,7 @@ grandes œuvres. Mais je dois faire ce que je dois,et
 non pas ce que j'aime le mieux. Dans ces cahiers même
 | j'ai dû ajourner les modestes entretiens qui étaient
 comme des dialogues un peu journaliers. Je les continuerai aussitôt que je le pourrai. Mais ce n'est pas ce
-qu'il y a de plus pressé.
 
-Ce qu'il y a de pressé, d'urgent, c'est de barrer la
 route à la démagogie politique et sociale, intitulée
 socialiste, à la démagogie littéraire. En aucun temps le
 public ne fut aussi bête, et aussi abêti. Les artistes,
@@ -1447,7 +1433,6 @@ Lagardelle retournerait aussi rapidement au guesdisme,
 qui fut sa première discipline. Les hommes de mon
 temps, qui ont contribué de toute leur force à linstitution de l'ancien Mouvement, ne prévoyaient pas qu'un
 
-LE À pi
 jour un nouveau Mouvement accueillerait de la littérature banale et complaisante. Je lis dans ce numéro, sur
 Victor Hugo poète, un article de M. A. Ferdinand
 Hérold. Le moins qu'on en puisse dire est que cet article
@@ -1529,7 +1514,6 @@ ainsi : Mon cher Péguy, je ne connais pas Téry, mais...
 — Mon cher Péguy, je n'ai pas lu un mot de Téry depuis
 un an, mais il ne faut pas faire de personnalités. Enfin
 pour qui me prend-on ? Que diraient nos professeurs,
-de lettres si au commencement de la classe un élève se à
 Jlevait et disait : Monsieur, je n'ai jamais lu un mot de
 Pierre Corneille, mais je persiste à croire qu'il était un J
 alcoolique invétéré, — de géométrie si un élève d'abord

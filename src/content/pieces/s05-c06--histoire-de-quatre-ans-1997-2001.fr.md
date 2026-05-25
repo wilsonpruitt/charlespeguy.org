@@ -13,19 +13,6 @@ histoire de quatre à
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussé
 
-Wie c'# 112 Th AT UPINT ne du V2 ee HER SPEARS
-o L Que Le F4 ex
-| Ne
-
-Ê RTE as Ne SUR) à
-PARVE REUR DA FOR A EE le à RTE ANA
-
-1 PER ee RP ntége ARR: PAL T Aat à PRE Le
-
-‘ ATP MPa ee {17 #9 De" hour 8 A SMPENEN ES
-
-r er Le VA k . et
-
 Sur les œuvres, poèmes, drames et romans publiés ï
 dans les éditions des cahiers antérieures à la fondation
 des cahiers et dans les trois premières séries des cahiers,
@@ -37,31 +24,6 @@ romans publiés dans la quatrième série de nos cahiers.
 
 histoire de quatre ans 1
 
-Fa A de us
-
-D Te he LE OO SMS
-
-ve " L pe
-
-Rae. Hermann et Dorothée, IX. Es
-
-# JR à é , 5h
-
-LE RES s Sie ex
-Let CAT Ta
-se Le ii
-es RS ARS, à Le ER
-
-un) ANR re,
-
-LE ia RU AE
-
-RENE EE EE NN FOR" ce
-Der ie L\ÉREPES Lx VE ra Ÿ J
-
-#1 y L RU UT
-
-#
 — Adieu, les camarades, adieu ! nous partons !
 
 Ainsi criaient Jean Schrader et Claude Touron,
@@ -444,7 +406,6 @@ tous nos instincts appellent : la jouissance ? Nous
 affirmons la supériorité de la détente sur la tension,
 de la dissolution sur l'organisation. Nous affirmons |
 que la vie n'a de sens que par la jouissance, c'est- |
-|
 
 à-dire l'épanouissement, — annonciateur de la
 
@@ -775,7 +736,6 @@ appuya d'une voix indignée :
 — Non, il ne le faut pas; ce seraient de nouveaux
 
 ; histoire de quatre ans
-Et Claude reprit :
 — Voyez des hommes comme Benjamin Raband,
 s c'est très dangereux.
 Benjamin Raband était le chef des positivistes
@@ -876,8 +836,6 @@ sur les parcs de la vallée de l'Yères autrefois si
 
 charmante. Les tramways électriques avaient
 
-disséminé la population de la ville et de la
-
 banlieue sur un énorme espace de campagnes
 
 Le wagon croisait des voies spacieuses, solitaires
@@ -945,7 +903,6 @@ tricité, de gaz et de soleil. -
 Jean Schrader, qui marchait à côté de Claire
 Vuillemot, l'entendit murmurer quelques syllabes.
 [1 crut qu'elle lui avait parlé, et, l'interrogeant : ES
-— Vous dites ?
 — Je ne disais rien, répondit-elle, et sa voix
 tait pénétrée de mélancolie. Je pensais : les malneureux !
 — Oui, les malheureux !
@@ -1206,10 +1163,7 @@ gens. Il aimait leurs voix franches, leurs teints 1
 clairs, leurs manières aisées; il aimait à retrouver E
 en eux ces qualités que le vingtième siècle, après 1 |
 le dix-neuvième, avait lentement désapprises : le L |
-goût de l'action et de la politesse, de la décence et
-de la gaieté, de l'énergie et de l'équilibre ; le 1
 goût, en toutes choses, d'une forte et gracieuse 1
-rectitude. Il demanda : j
 — J'ai su qu'on avait essayé de nouvelles |
 
 méthodes pédagogiques à Poligny ; pourriez-vous
@@ -1294,7 +1248,6 @@ Bergougnan leva son visage grave et carré.
 histoire de quatre ans 1
 
 — Je ne crois pas au succès, dit-il. |
-— Et pourquoi non ? k.
 — L'humanité est mal équilibrée; trop d'intelli- à
 gence, trop peu de caractère. Le désaccord ira tou- d
 jours augmentant et il y aura une catastrophe au 1
@@ -1342,7 +1295,6 @@ une carte de visite qu'il remit à Tillier. :
 demande à vous dire un mot.
 
 histoire de quatre ans
-— Que veut-il ?
 — Il parle d'une interview sur cette maladie. À
 : — Ah! cette maladie dont on parlait hier... cela À
 paraissait curieux. Qu'il vienne, il nous en donnera 1
@@ -1402,8 +1354,6 @@ nous traitons dans nos hôpitaux. Un tel événement,
 monsieur, ne serait pas tout à fait un mal. La mort 1
 est une bonne éducatrice, — plus exactement, la
 peur de la mort.
-
-— Vous plaisantez.. “3
 
 — Non, monsieur, je ne plaisante pas, répondit -
 Tillier avec une violence soudaine. Ces morts dont
@@ -1469,16 +1419,7 @@ _ — Mademoiselle, lui dit-il, voudriez-vous passer
 un instant dans mon bureau ? Il faut que nous cau- .
 sions travail. Messieurs, je vous verrai ensuite. 1
 
-de LV a Et MIA EMA ART NTI
 ACER L'ordre poursuit le désordre. FFRUSES
-Je Pre (4e 1 1 Lai a
-ni 49) NS y ge EX
-MU de ar dt w rs fo
-
-| EN tte LYPARE ARR RE OR
-231. ROMAIN NL es ER te (ral RP A CANCER ra M de STE
-5 NE NE DR Re INA PE ONE Vers fa
-PE AT ATEN ANR lle pe SANS EE (TPM ER
 
 Les journaux du soir publièrent d''effrayantes ë
 dépêches. Expédiées de tous les coins de France
@@ -1591,7 +1532,6 @@ inouie, où un fléau d'un autre âge plane sur les
 cœurs et les étreint, on appréciera le message de
 M. Tillier. On n'oubliera pas la façon cavalière
 
-|
 dont il envoie ses semblables à la mort. On prendra
 note. On tirera des conséquences. Où sont-ils donc,
 les temps où les savants voulaient être les serviteurs de l'humanité, où ils étaient Français? »
@@ -1610,7 +1550,6 @@ la haine. Soudain, quelque objet, vigoureusement
 lancé d'en bas, passa juste entre deux têtes. Au
 même instant, un cri s'éleva, un cri furieux et
 — Qu'est-ce donc?
-— Une pierre.
 — Nos silhouettes se détachent sur le ciel clair. ©
 
 histoire de quatre ans 4
@@ -1624,8 +1563,6 @@ suivit une nouvelle et drue volée de projectiles. ]
 Raoul Herdey. A Varsovie, on a cerné et brûlé le ;
 quartier des Juifs. Il y a plus detrois cents vic
 times. On les accusait d'avoir empoisonné les 4
-
-— Ces épidémies affolent.
 
 — Ce fut de même en 1832, dit le docteur Ver- 4
 
@@ -2125,10 +2062,6 @@ vint frapper à la porte de Marie.
 
 — Marie! disait-elle d'une voix bouleversée.
 
-— Mais qu'y a-t-il?
-
-— Les enfants meurent. ,
-
 Trois étaient morts, cinq se mouraient.
 
 Soudain comme une bourrasque, le fléau s'abattit
@@ -2183,7 +2116,6 @@ tête encombrée, ses fonctions difficiles, son haleine |
 fétide. Tillier, renonçant à toute résistance, se laissa
 prendre par le mal. Pendant quelques semaines, sa
 sœur Marie le soigna. Puis elle fut elle-même
-de
 
 Alors le plus inattendu des événements survint. +
 Les centres de l'énergie arienne étant frappés, les
@@ -2232,7 +2164,6 @@ la sonnette carillonna. k
 — Marie! fit-il. k
 Marie, toute somnolente, ouvrit les yeux. À
 
-— Qu'est-ce ?
 l — On a sonné... regarde par la fenêtre.
 
 Marie souleva son corps lassé, jeta un rapide
@@ -2244,7 +2175,6 @@ coup d'œil, et tout aussitôt s'écria :
 ses jambes fléchissantes, il se dirigea vers l'escalier.
 
 | L'instant d'après il remontait, accompagnant Vit-
-| toria.
 
 Elle se portait bien, et la fraîcheur de son teint
 fut une joie pour les malades, qui la firent asseoir
@@ -2254,7 +2184,6 @@ l'envi.
 — D'où venez-vous ? Que devient-on ? Que savezvous ?
 
 — D'où je viens? De la station de Vic-sur-Cère.
-Ce qu'on y devient? On y traîne, on y languit,
 hélas ! on y vit affaissé. Ce que je sais ? Rien, hors
 de mon cercle. Et vous-même, que savez-vous ?
 
@@ -2290,7 +2219,6 @@ fois. C'est une plaie, vous savez, ces juifs ; eux E
 aussi, il faudrait les fusiller. à
 — Enfin, murmura Tillier avec une voix anxieuse, 4
 que dit-on ? Que dites-vous ? Tout est perdu, n'est- 4
-ce pas ?
 — Non ! Moi, j'espère... ce mal de langueur qui 4
 nous abat est guérissable : j'ai été malade comme |
 
@@ -2402,7 +2330,6 @@ __ s'élèvent toutes grises, d'un gris si pur sur le ciel
 si bleu. Puis, ils parlèrent longtemps du site incliné
 d'Agrigente, qui, sur trois kilomètres, parmi les
 | vergers et les ruines, descend de l'antique acropole
-à la mer.
 — Agrigente, dit Vittoria, aujourd'hui les Afri-
 | cains sont là. ,
 
@@ -2584,7 +2511,6 @@ Jura ? il lui sembla qu'il ne pouvait plus utilement
 + servir qu'en rétablissant des liens dans cette huma-
 | nité rompue. Il communiqua son projet à sa sœur et
 L lui dit qu'il voulait partir, malgré sa fatigue per-
-| sistante.
 
 1 — J'irai avec toi, dit Marie.
 
@@ -2640,7 +2566,6 @@ en fleurs, et ils eurent pour se nourrir les meilleurs
 laitages de France. On approuva l'idée de Tillier.
 On décida qu'il fallait briser l'isolement sauvage où
 
-| DEUXIÈME PARTIE
 végétaient les hommes, et un délégué, chargé de
 lettres, reprit le chemin de Paris.
 
@@ -2939,9 +2864,6 @@ colère, et je les ai foulés dans mon indignation ; leur sang a rejailli sur me
 
 : et j'ai souillé tous mes habits.
 
-ta pet 6 ' AUS PME
-Mar. LES SH TRUE et
-
 Claire et Jean demandèrent un congé à Tillier.
 
 — Revenez dans huit jours, leur dit-il. Nous
@@ -3197,7 +3119,6 @@ majorité au Conseil général. Un picard, le docteur
 Chavin, biologiste qui voulait disposer les hommes
 dans la société comme la nature dispose les cellules
 dans les organes, soutenu par les Fédérations de
-l'Auvergne, du Limousin, de la Normandie et du
 Nord, réussissait à imposer ses volontés ordonnatrices. Les socialistes libertaires étaient incapables
 d'entraver ce que l'un d'eux, le jurassien Talobre,
 appelait « une mise en carte de l'humanité ». Ils
@@ -3250,8 +3171,6 @@ elle donnait un avertissement sévère.
 Dans l'Europe entière l'alarme fut extrême. Au
 début de février, toutes les perspectives étaient
 sombres, et les délégués commencèrent d'arriver.
-
-de
 
 Dès lors il y eut affluence à Bellevue : anciens
 élèves français ou étrangers, délégués de tous pays
@@ -3353,7 +3272,6 @@ une complaisance pour la Fédération ouvrière. Le
 baron Gourvitch donna une grande fête en l'honneur
 des congressistes et la baronne eut une gracieuseté
 
-D RE DR ON One ce ETTT ob È ; +
 pour chacun. Elle causa une demi-heure avec les Ë
 deux célèbres anthropologues, Ernest Damm, de
 Heidelberg, et Guglielmo Corradini, de Turin. Les
@@ -3458,8 +3376,6 @@ Italienne, doucement élevé, déroula ses longs replis
 sur la façade du Grand Palais. Le public, un peu
 diminué par l'heure du repas, murmuraïit interrogativement, quand dix, vingt délégués, courant
 sous la colonnade, crièrent :
-
-— L'Italie adhère!
 
 Au bruit du canon qui tirait toujours et des fanfares qui entonnaient l'Hymne Italien, les restaurants se vidèrent, les rues dégorgèrent des foules.
 Les gens se renseignaient : Qu'est-ce donc? — On
@@ -3800,26 +3716,13 @@ yeux d'une sœur, croisant les siens, clorent le cycle
 
 _ étroit de sa vie.
 
-A PAT A LS LT PAS Gui Es ame Ga ART CIANT SR de 4e ETATS
-
 Fini d'imprimer trois mille exemplaires de ce
 _ sixième cahier le jeudi 24 décembre 1903 nn
-# % re
-h: à l'Imprimerie de Suresnes ol
-#1 9, rue du Pont ; D.
-
-te NT en Er A ne ah I CRE TES » Vo RS HR rer NA TS 227
-Det LE SERRE RER
-ne =. « È fs nur 11 PEDCR
-ARS - Frs FORD Ne ER PS DER
-LR ER 9 ce Les ut LE Le "1 CT
-s IT RSS Ma: LES ue a LA TSS
 
 Nos Cahiers sont édités par des souscriptions men-
 + suelles régulières et par des souscriptions extraordi.
 . naires; la souscription ne confère aucune autorité sur
 Ja rédaction ni sur l'administration : ces fonctions
-_ Nous servons :
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;
 4 et des abonnements de propagande à douze francs.
@@ -3844,12 +3747,6 @@ chaque série au plus tard le 3r décembre qui suit
 l'achèvement de cette série ; ainsi du premier juillet au
 .… 31 décembre 1903 on peut encore avoir pour vingt francs
 les vingt-deux cahiers de la quatrième série complète.
-
-FRE ire ie SR FR Re DANS CON SAP PEER 20 -
-FT AC DRASS me STE * : Le ae RER
-AR de 1 FHRRSUE CAS Les
-= TRE ARENA un:
-RATER ss Le RP
 
 ‘ Le dixième cahier de cette série, Romain Rolland,
 | Beethoven, était épuisé depuis plusieurs mois; nous

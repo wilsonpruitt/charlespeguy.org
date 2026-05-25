@@ -37,7 +37,6 @@ a générale des Sciences sociales. en vente à la librairie à
 30 Paur BUREAU. — Le contrat de travail, le rôle rs
 | des syndicats industriels, un volume inoctavo carré
 He de 276 pages, cartonné à l'anglaise 6 francs ”
-"METRE Rae L>
 
 - Vient de paraître chez Schleicher, en vente àla
 librairie des cahiers : Ÿ j
@@ -70,16 +69,9 @@ six cahiers de la deuxième et de la troisième série. 4 il
 | Nous avons donné le bon à tirer après corrections
 pour quatre mille exemplaires de ce huitième cahier le
 
-due CAHIER DE LA RE SÉRIE
-
 } paraissant vingt fois par an
 
 8, rue de la Sorbonne, au rez-de-chaussée
-
-| c A C7 LE Pr
-ne Le ? aa
-
-à Les
 
 Ÿ Les dépêches, pour la seconde fois, nous rassurent
 
@@ -172,7 +164,6 @@ maniaque religieux. Il croit en Dieu, au Dieu chrétien.
 A part cela, ses arguments sont fort bons, et je m'en
 | Mais on ne peut pas ainsi décortiquer un homme. On
 
-# . % À
 | n'a pas le droit de le désosser. Toute la morale et tout *
 le progrès des sciences naturelles va contre un tel jeu
 d'hypothèse. Le christianisme est au fond de Tolstoi.
@@ -198,19 +189,6 @@ le melleur, de la charité chrétienne où de la solidarité -
 À moderne, celle donc qui vaudra le mieux, sera celle N.
 « aussi qui vaudra le plus. h
 
-#0 “A
-pa” VERS : EECE
-DT LES rl
-
-| 21608 5: Se
-PRAN ' > 10 je cl KR: Ch f
-|, RP EEME Ê ne 4 1e ny
-FRE pet L RAR
-
-= LORS RE past RES De à
-# (# 5h g - re
-4 Romain RoLLAnD Re
-
 . La lettre que nous publions ici pour la première fois
 : date d'un temps déjà ancien, où Tolstoy n'avait encore
 4 écrit aucun de ses grands ouvrages sur l'art, ou
@@ -218,7 +196,6 @@ plutôt contre l'art, qu'il considère dans son ensemble
 < comme un vaste système de corruption, un culte du
 | plaisir, une superstition intéressée de l'élite européenne
 | dans la jouissance égoïste.
-Mais si, en 1887, ni {a Sonate à Kreutzer, ni Qu'est- s
 _ ce que l'Art? n'avaient paru, la violente antipathie de
 È Tolstoy pour l'art moderne n'en perçait pas moins au
 É travers de tous ses écrits.
@@ -236,7 +213,6 @@ l'enfance, je me nourrissais d'art, surtout de musique ; £
 k je n'aurais pu m'en passer ; je puis dire que la musique Î
 . me semblait un aliment aussi indispensable à ma vie .
 
-Romain Rolland Se
 que le pain. — Aussi, combien fus-je troublé, en lisant
 chez celui que j'étais habitué à respecter et à croire, i
 
@@ -283,7 +259,6 @@ exceptions près), — ce qui s'explique d'ailleurs par
 ; tieux et de leurs revues malsaines, — en revanche, je
 trouve son jugement général sur l'art d'une vérité
 
-| absolue.
 | Oui, « Les produits de la vraie science et du vrai art sont les produits du sacrifice et non des avantages
 
 | matériels ». — Et ce n'est pas seulement la morale,
@@ -312,7 +287,6 @@ clientèle corrompue qui paye ses pourvoyeurs de
 débauches intellectuelles, En supprimant les privilèges
 de l'art, en augmentant les difficultés de son accès, il
 
-Romain Rolland
 n'est donc pas à craindre qu'on fasse souffrir davantage les vrais artistes ; on n'écartera que la multitude
 des fainéants qui se font intellectuels pour s'éloigner
 du peuple, et pour éviter des travaux plus pénibles.
@@ -375,7 +349,6 @@ d'entre eux disparaîtrait, quand il y aurait moins de
 L mais un très grand bonheur. Et même quand l'art y
 perdrait en correction, en style, en perfection technique, je ne m'en soucierais guère s'il gagnait en énergie
 
-Romain Rolland
 morale et en santé. — Il y a des jours où je songe sans
 aucune indignation à l'incendie de la bibliothèque
 d'Alexandrie. Que nous fait ce passé mort qui nous
@@ -385,10 +358,6 @@ civilisations, entassés sur la vie? Qui nous en débar4 rassera ?
 vivre de manière à faire le moins de mal possible et Le
 ge plus de bien possible. Le premier art du monde est l'art
 de savoir éviter le mal et de produire le bien avec le
-| Roma Rozranp ts EE ot RER 2 CAN EE ou he À PT
-f Ai 4 ENTER OR ee DS rR tar vas On
-et | nt
-M Le à PAR dal ti
 
 Nous avons conservé scrupuleusement l'orthographe
 de la lettre, écrite en français par Tolstoy. J'espère
@@ -399,21 +368,11 @@ grand homme, qui s'applique laborieusement pour À
 répondre, dans une langue étrangère, à un petit Français dans la détresse. Pour moi, voici bien longtemps
 que j'ai reçu cette lettre; mais j'en garde à celui qui
 l'écrivit, aussi vive qu'au premier jour, ma reconnaissance de tout cœur pour sa bonté paternelle.
-Romain Rolland fl
-
-Re se Ét PRE à 1$ ED MIE MEAleS Les à # Ÿ, Bet né NP
-LES HAN À rt
-PR US nl L"ds
-
-HE /n UN hd vd
-‘F2 L t4 nl C'te pe Me L.
-en L H | A at | ES EUR
 
 A monsieur Romain Rolland
 Cher frère!
 J'ai reçu votre première lettre. Elle m'a touchée
 le cœur. Je l'ai lue les larmes aux yeux. J'avais
-l'intention d'y répondre, mais je n'en ai pas éu le à
 temps, et d'autant plus, qu'outre la difliculté que
 j'éprouve à écrire en français, il m'aurait fallu
 écrire très longuement pour répondre à vos
@@ -689,7 +648,6 @@ tient à une certaine croyance, ne fût-ce que sur un
 | ment libre, il aura beau discuter, il aura beau
 raisonner, il n'approchera pas d'un pas de la vérité.
 
-à x. EE CR ARDTINS 2 + 4 pus NÉ À vi L #" ns Ness L
 Son point fixe arrêtera tous les raisonnements et
 les faussera tous. Il y a la foi religieuse, il y a la foi -%
 de notre civilisation. Elles sont tout à fait analo- FE
@@ -773,7 +731,6 @@ en jour, — qui, ne pouvant résoudre cette difficulté, À
 
 : se brûlent la cervelle, en se disant que la vie n'est À
 qu'une tromperie.
-E ; UNE LETTRE fr
 
 Et cependant, la solution du problème est plus
 | que simple, et s'impose de soi-même. Je ne peux
@@ -803,7 +760,6 @@ de plus en plus claire et l'application de cet unique
 principe de la solidarité de tous les êtres. Le
 raisonnement se trouve corroboré par l'expérience f (1) Raturé : « la réciprocité de l'amour des êtres »
 
-ss | Tolstoy NS LE
 se de l'histoire et par l'expérience personelle. Mais
 à outre le raisonnement, l'homme trouve la preuve
 46 la plus convaincante de la vérité de ce rai
@@ -818,20 +774,6 @@ X ne vous paraissent pas claires, ne les jugez pas trop +:
 exposées d'une manière plus claire et précise. J'ai
 : voulu vous donner seulement une idée de ma ma- Fi
 je * nière de voir, \a
-
-#0 Le
-
-HA ASC + ses » Le Eve
-Mes CHAR ne. L LIVES
-TU te x r Core H Ê 2 FE, TOR
-
-1e le mardi 25 février 1902 eu L
-Dee à l'Imprimerie de Suresnes Re
-
-#4 tt ; f LE ER
-
-Fr r ve #j JR À L dE : à * pes, TEE
-À ES AE L pe
 
 Nous mettons ce cahier dans le commerce; nous le
 

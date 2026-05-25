@@ -10,10 +10,8 @@ wordCount: 3348
 K5 Le samedi 9 février dernier, quelques instants avant
 - le moment où je me décidai enfin à fonder une librairie
 pour subvenir aux besoins des cahiers, je reçus la convocation suivante :
-DE LIBRAIRIE ET D'ÉDITION 8 février 1907
 Téléphone 801-04 extraordinaire le dimanche
 février à 10 heures à la librairie.
-Le secrétaire
 Le dimanche 17 février, au commencement de la
 séance, un ami que j'avais dans la Société remit au pré-
 sident de séance une lettre que je reproduis de mé-

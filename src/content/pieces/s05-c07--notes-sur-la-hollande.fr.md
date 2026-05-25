@@ -9,31 +9,19 @@ wordCount: 20605
 ocrSource: "Trimmed 2026-05-25; original conflated file held three pieces (Notes sur la Hollande + Moines de l'Athos + Bulletin Tisseurs d'Armentières) plus publisher back-matter."
 translationNotes: "La portion Moines de l'Athos (lignes 1125-3019 de l'OCR original) a été extraite vers s05-c07--moines-de-l-athos.fr.md. Le bulletin sur la grève des tisseurs d'Armentières et la matière administrative de fin de cahier restent ici comme back-matter."
 ---
-| MOINES DE L'ATHOS
-| LA GRÈVE DES TISSEURS D'ARMENTIÈRES
-| CHARLES PÉGUY
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-2384 Le VERT DE tes PEN Dire ete D JR AT E
 Res Pour savoir c cé ue sont les Cal ers de la Cuers
 + il suffit d'envoyer un mandat de trois francs cinquante AA
 . à M. André Bourgeois, administrateur des cahiers,
 D ruse la Sorbonne, reae chaussée, Paris, CHARME #
 ù 24 _ arrondissement. On recevra en spécimens six cahiers |
-| di deuxième, de la troisième et de la quatrième
 FE Nous mettons ce cahier dans le commerce; nous le.
 _ vendons deux francs. S LE
 CRE Nous avons fait tirer à dix mille exemplaires sur
 +408 quatre pages pour ce septième cahier an vient de
 4 ss paraître constitué par la table sommaire et par …
-
-1 SLR VAR AUIERS ae 4 Pre EU SA EE 2
-1 EN sr en ERA ES FN T LE (LE PH EMA
-MT DE qe © ET fr: HER
-jui NS RARE CT" :h A Ce Ci © Han
-AUTE re res S + { L HE
-À LED ne AU ua £. de SOU te lai À
 
 Ke pi , Sur les courriers des cahiers, courriers de Chine,
 _ courriers d'Indo-Chine, courriers du Japon, courriers
@@ -52,7 +40,6 @@ mon V quatrième série de nos cahiers.
 notes sur la Holland 4
 et sur l'intimité +10
 
-4 las 5 je à SRE 2e is ne PUR MOMENT LT RE FT
 M CL Nos abonnés ne confondront pas avec notre collabo_ rateur M. Henry Michel, qui fait en Sorbonne le cours
 4 ie d'histoire des doctrines politiques, et dont nous avons
 TER reproduit une leçon d'ouverture, Edgar Quinet, en téte
@@ -60,8 +47,6 @@ Dre de notre cahier Edgar Quinet, vingt-et-unième cahier,
 premier cahier supplémentaire de la quatrième série,
 2 de — notre nouveau collaborateur M. Henri Michel,
 “r conservateur de la bibliothèque d'Amiens :
-
-> :
 
 Le goût de l'aventure et celui de l'intimité sont peut-
 être les deux sentiments primitifs dont les alternances
@@ -83,7 +68,6 @@ J'y suis allé voir cette nature hollandaise dont le charme
 est si spécial et si rare. Promeneur oisif dégagé de
 toute préoccupation d'affaires ou d'étude, je m'y suis
 
-ne
 je Henri Michel
 6 simplement mêlé dans les villes à la vie des rues,
 L autant qu'on le peut en des courses hâtives; jy ai par-
@@ -149,7 +133,6 @@ interversion d'un charme étrange, de grandes barques
 avec leurs mâts et leur voilure y traversent des prairies
 dans les étroites rainures de canaux qu'on ne voit pas,
 
-Est Henri Michel
 et parfois des troupeaux de bœufs, les pieds dans l'eau
 basse où le ciel se reflète, y paraissent brouter une
 pâture de nuages.
@@ -229,7 +212,6 @@ poudré d'or. Cette sensibilité du paysage, d'un paysage
 fait de rien, est le grand charme de ce pays. C'est
 comme un délicat visage pâle, où le sang est pourtant
 
-SVERR Re Mal LE
 | à fleur de peau, qu'un sourire des yeux transfigure et
 où se reflètent les plus fugitives impressions.
 | Deux ou trois fois, au cours de sa brève navigation,
@@ -276,7 +258,6 @@ toutes deux une main sur la hanche, d'un geste
 arrondi de leur bras nu, et je me retournai pour voir
 de loin sur le ciel très doux leur double silhouette gra-
 
-En approchant de Dordrecht, la campagne et le
 fleuve, jusque-là plutôt vides et solitaires, prennent un
 caractère de vie et d'animation. Le Dordsche-Kil,
 petit bras très étroit de la Meuse, est tout encom-
@@ -292,10 +273,6 @@ d'une belle couleur brune, fraîche et profonde,
 qu'adoucit encore l'ombre des grands arbres, hommes
 et femmes vont sans hâte et tournent la tête ou s'arrêtent un moment pour nous voir passer. Le hennissement d'un cheval ou le beuglement d'une vache répond
 par instants au sifflet du vapeur ; mais ces rares bruits
-
-| II
-
-|
 
 | 4
 
@@ -613,7 +590,6 @@ faire fleurir sur un sol nouveau l'âme rajeunie de la
 métropole. Ce sont, avant tout, des colonies d'exploitation; les richesses qu'on en tire sont amenées à la
 mère-patrie pour entretenir à son foyer la bonne chaleur de la vie. Les anciennes mœurs populaires, le
 ‘respectable décor des vieilles demeures bourgeoises,
-s'en compliquent d'un exotisme charmant qu'on a su
 rendre familier. Mais si, de la possession à l'usage,
 l'assimilation est parfaite à la Haye, elle ne l'est point
 encore à Amsterdam. Les richesses qui s'y accumulent font une impression de dépouilles. On y a le
@@ -751,7 +727,6 @@ cours en a brisé la force. Son glissement invisible ne
 fait qu'accumuler de nouveaux sables au long des ;
 dunes. La mer est plus redoutable, et l'on a dû, de ce
 
-# Henri Michel
 côté, élever contre elle la plus robuste digue des PaysBas. Dunes et digues encerclent l'ile tout entière et la
 ÿ séparent des autres terres. Une haute clôture barre
 IE partout l'horizon comme les bords d'une large coupe.
@@ -886,7 +861,6 @@ Steen, des scènes bourgeoises de Metzu, de Terbug, de
 À L Gaspard Netscher. Le sujet, ici, n'est rien, et peu
 É importe qu'il soit le plus souvent d'une familiarité qui
 # touche à l'insignifiance et quelquefois à la grossièreté.
-F Ce qu'il y faut admirer, c'est l'amour et le sens de la
 1 vie, cette pénétration de la réalité qui atteint à travers
 fs les formes l'âme intérieure qu'elles rendent visible. La
 F4 poésie et la pensée, l'impression morale, pour tout dire,
@@ -914,7 +888,6 @@ k table carrée, une chaise ; contre le mur, une vieille pein-
 ÿ est peu de chose à dire ; mais ce qu'on ne peut dire, c'est
 h à l'ndéfinissable quiétude répandue partout dans le petit
 ' tableau lumineux ; c'est la transparence et la circulation
-$ de l'air, le recueillement du jardin et le mystère de sa
 110 30
 
 perspective ; le sentiment de calme et de paix qui enve- l
@@ -944,7 +917,6 @@ un champ trop vaste pour ce dessein, il cantonne sa vie
 dans un système clos où rien ne se perdra de sa chaleur et de son expansion. Il se crée un empire dans un
 empire avec le secret espoir d'y trouver le terme deses
 
-| > à
 1 désirs et le refuge où il pourra tenir enfin le repos et la
 i Que cette espérance soit vaine, la Hollande le nie,
 ne. non par des mots qu'on peut toujours soupçonner de
@@ -983,7 +955,6 @@ vie est aussi une émigration et une exode. Le sentiment né
 de l'aventure n'ÿ-.est pas moins essentiel que celui de
 l'intimité. L'aventure, c'est-à-dire le besoin de progrès
 et de changement, l'incapacité d'être satisfait de ce /
-qu'on possède et de ce qu'on tient, le goût de l'inconnu,
 du mystère, du risque, l'aspiration vers ce qu'on n'atteint pas et qu'on ne saurait atteindre ; enfin, le sentiment de ce qu'il y a d'incomplet et de précaire dans
 toute réalité possédée. Si l'intimité fait la douceur des
 affections humaines, l'aventure en est le sel qui les
@@ -1025,17 +996,14 @@ de nouveauté, cette inquiétude et cet attrait d'un
 dans l'obscure réalité que l'on voudrait vainement
 x enfermer et tenir? Comme le bruit de la mer se re-
 É trouve tout entier dans le coquillage qu'on approche
-ë de l'oreille, il n'est pas de maison si étroite où l'on ne
 l puisse, sans en franchir le seuil, si l'on a le cœur
 ; attentif, écouter un murmure infini. Rien n'est si connu
 | qui ne soit encore à connaître; rien n'est si sûr qui ne
 | 3
 
-LATE PTS de - ad k ER
 soit fragile et précaire; rien n'est si proche qui ne soit À
 lointain; rien n'est dit qui ne demeure à dire; rien Le
 n'est si familier qui ne puisse étonner par son mys- à
-tère. Le
 Voilà ce que n'imaginaient guère tous ces vieux
 maîtres hollandais, artistes scrupuleux et délicats,
 âmes exquises dans la joie ou dans le silence, mais
@@ -1062,7 +1030,6 @@ la table un frugal repas d'auberge. Comme les deux
 disciples tiennent près d'eux, entre eux, l'ami divin :
 qu'ils ont rencontré sur la route! Qui pourrait le leur
 
-|
 | enlever dans l'abri secret où ils l'ont conduit, sous la
 protection des épaisses murailles et de la porte massive? N'est-il pas d'ailleurs l'un d'entre eux, un homme
 l comme ils sont? Il rompt le pain qu'ils vont manger
@@ -1104,14 +1071,6 @@ toujours blottis dans leur refuge comme de petits robinsons; puis, comme l'heure
 quitter l'île le soir même, je regagnai, pour leretour,
 la voiture qui m'attendait.
 
-fa 2ÿES de $ DORE \
-Le y e SIDE ed
-F ni À
-
-vie FT. LÉ the É u
-
-Tél ie M e (St RAT * PES ù L
-re ET RE UMTE STE fon Ha ani NOT NH RE TN
 A Sur les œuvres et les travaux de Jérôme et Jean :
 nu raud, — romans et contes, — publiés dans les édit
 RSC) des cahiers antérieures à la fondation des cahier
@@ -1122,16 +1081,6 @@ M: forme de catalogue, un cahier de 72 pages, un fi
 :S = Nous publierons dans un cahier de la cinquième s
 2e le relevé sommaire des romans et des contes pu
 |. 758 dans la quatrième série de nos cahiers.
-
-#
-ne RU NE EU à HN TRS
-ou x} | qi ve ? L “ K. M PAT Frs é
-| CARE re { LS CAPE CEE
-FAO ut « ti L Es TN
-| | "ne X Ÿ
-FMI de te
-
-|
 
 Dans le neuvième cahier de la quatrième série, almanach des cahiers pour l'an 1903, nous avons publié,
 | d'après le Bulletin de l'Office du travail de novembre
@@ -1146,8 +1095,6 @@ il nous a indiqué récemment ce nouveau compte rendu.
 Le Bulletin de l'Office du travail de novembre 1903
 publiait le compte rendu suivant, sous le titre : la grève
 des tisseurs d'Armentières et de la région:
-
-BuLLETIN DE L'Orrice pu TRAVAIL
 
 Le salaire des tisseurs de toile d'Armentières et de la
 région avait été fixé par un tarif établi, en 1889, à la
@@ -1462,7 +1409,6 @@ filature et des tissages de la banlieue.
 
 é ÿ 10e année. — Ke 11 Prix du numéro : 20 centimes . Novembre 1993
 M 1 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
-É Revue du travail en octobre 4 21. LME RER en
 | Conciliation et arbitrage en octobre. . . . . . . . . 886
 Bordereaux de salaire et de durée du travail en 1902 . 888
 $ ; La grève des tisseurs d'Armentières et de la région. . 892
@@ -1475,39 +1421,23 @@ Allemagne : Revue du travail. — Placement. — Grèves.
 Autriche : Placement. — Grèves. — L'inspection du
 Belgique : Revue du travail. — Placement. — Grèves. 920
 
-| Pages À
 Chine : Salaire et conditions du travail des ouvriers
 indigènes à Shanghaï et Hong-Kong. . . . . . . . . 922
 Grande-Bretagne : Revue du travail. — Grèves. — La
 Actes et documents officiels
 Circulaire du 23 octobre 1903 relative aux déclarations
-LE TETE OT ARE RER PAS LORS Pme A 7
 Chronique législative : Bureaux de placement. — Le
 budget du commerce. — L'interpellation sur la grève
-HR R TERESA Le ne HA RENE ESS que)
 Analyse, par département, des renseignements fournis : 1° par les associations patronales, etc.; 2° par
-Eirorsespondants "02. CAMES IST UNE Ne
 Analyse, par département, des renseignements fourmis par les associations ouvrières. : . . . .. 1.5.0
 rieur; transports; faillites; autorisations de bâtir. . 947
-Monvementesyndical.:,. er. des A DEN ST
-BERGER-LEVRAULT et Cie, éditeurs LIBRAIRIE ARMAND COLIN
 5, rue des Beaux-Arts (6° arr‘) 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
 dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas reçus au Ministère du Commerce.
-PRIX DE ( POUR LA FRANCE . . . 2fr. 5o par an
 
-L'ETAT PR A | CE CO ES rs En ECS Aaron FU A (AT TN
-el Le / xs
-
-Je ANR M pate À] J IS AR ï SRE: F2 di
 cahiers de la guinzai 5
-ne - or F4
-
-nn f ce SE NE de
-Dre 1 DES RARE PA ARE
-FER ONR LE NPAT en sut
 
 Nos Cahiers sont édités par des souscriptions men-
 - suelles régulières et par des souscriptions extraordi-
@@ -1561,7 +1491,6 @@ croire que si les souscriptions mensuelles régulières que
 nous recevons sont aussi peu nombreuses encore au
 commencement de cette cinquième série, c'est unique-
 
-# CAHIERS DE LA QUINZAINE
 ment parce que l'attention de nos amis ne s'est pas
 4 portée assez fermement sur ce moyen et sur son eflica-
 … cité. Nous ne saurions donc trop demander à nos amis
@@ -1693,7 +1622,6 @@ serait nullement supérieure à la capacité financière de
 | nos abonnés; je pensais qu'elle resterait inférieure à
 | leur bonne volonté; j'espérais, je comptais que cet
 ; emprunt serait facilement, immédiatement couvert. Je
-| me trompais.
 | Un cinquième de l'emprunt fut couvert par les soins
 ê de Bernard-Lazare; deux cinquièmes furent couverts,
 ou avaient été couverts directement ; puis le mouvei ment s'arrêta net; non seulement je m'étais trompé
@@ -1806,7 +1734,6 @@ quoi le gouvernement des parlementaires politiques
 à radicaux et radicaux-socialistes, qui est éminemment
 un gouvernement de demi-bourgeoïis demi-capitalistes,
 
-| CAHIERS DE LA QUINZAINE
 À est aussi, de tous les gouvernements, le gouvernement
 Ë le plus éloigné d'un gouvernement populaire.
 4 Quand vous allez trouver un capitaliste entrepreneur
@@ -1990,7 +1917,6 @@ vigoureusement participé à des actions publiques,
 ayant publié, signé des livres, au moins des articles.
 
 Quand nous nous interdirions de les prononcer, respectueusement, des journalistes les publient, sans
-ménagement. On me communique un article du Gil
 Blas, numéro du 6 décembre 1903, intitulé la presse
 d'aujourd'hui, la Dépêche de Toulouse, signé Louis
 Vauxcelles, Paul Pottier, où je lis cette fin de phrase :
@@ -2055,8 +1981,6 @@ pauvres contre de tels errements autoritaires, la réa-
 lité de leur vie économique, politique et sociale, suffi-
 
 rait à les garder; une telle idée vient à ceux qui
-
-| CAHIERS DE LA QUINZAINE
 
 | touchent au pouvoir, aux tentations autoritaires du
 gouvernement parlementaire et politique; mais celui
@@ -2126,7 +2050,6 @@ que des biens temporels, des trésors, et des situations
 de ia patrie; des traités, conclus à temps, peuvent
 assurer la mutation des biens temporels; aucun
 
-| CAHIERS DE LA QUINZAINE
 traité ne peut assurer la mutation de l'âme et de
 l'amour de la patrie; il y avait dans l'ancienne École
 normale, celle à qui désormais nous serons contraints
@@ -2181,8 +2104,6 @@ droite, catholiques de gouvernement; — ceux-là se sont
 évanouis; mais les autres, on vit les autres, la masse du
 prolétariat soudain devenu conscient, sous le nomde
 
-> . -
-
 comme des furieux à la défense de la République, un
 peu de temps toutefois après qu'ils se furent assurés
 qu'elle ne courait plus aucun danger; on ne pouvait pas
@@ -2204,9 +2125,6 @@ subissent ; dans la mentalité, dans la sentimentalité de
 
 ceux qui le subissent il y a des vertus et des vices, des
 bonnes et des mauvaises qualités, du dévouement, de
-
-la bonté, du sacrifice, de la solidarité, de la charité, de
-| la vaillance, du courage, et aussi de la faiblesse, de la
 
 | paresse; du don, et aussi de l'abandon; mais que
 dirons-nous de ceux qui font profession d'exercer un
@@ -2290,43 +2208,22 @@ Heureux l'homme qui sait bafouiller quelquefois, qui
 ne connaît pas toujours la fin de sa phrase, et qui
 n'est pas le maître impeccable de sa péroraison.
 
-Aù PAR He AA AE clé CAE " À
-#4 & PNA ù = À + ENT £ | Va TA OR ES
-
-NUS CE Ty et2I0 MEN CET QNE LT PNA ES E P4 Pei A A 4
-#4 TE
-
 Cahier de courriers.
 Henr: Micuer. — Notes sur la Hollande et sur l'intiRÉEL 0 ESANSRAMET N ANEREPREN e n 3
-Henr: LEBEAU, JÉROME ET JEAN THArAuD ». — Moines
-HERATROSN NL EU BRU ere An AT RC A Et
 Bulletin de l'Office du travail. — La grève des tisseurs
-HAementicres ebidé la rériont NN TN ARE on
 Bulletin de l'Ofjice du travail. — Couverture et sommaire d'un numéro, novembre 1903. . . . . . . . . 108
 Gers tdela Quinzaine Ne 42 eee Ce CPE
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce septième cahier
 le mardi 5 janvier 1904.
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
-IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8372
-
-ee 0 2 RP POE PAS ATLPRN DE RRT
-MR eo DO D RCONE DNA SANT VOS
-| | FAIRE | Ein PA IÉ OURRS
-à L DA È re SAS Es s€ ren
-DES Dre. è AIMER nue #
-25: et URLTS ti EE E ne,
 
 | Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi.
 à naires ; la souscription ne confère aucune autorité sur '
 la rédaction ni sur l'administration : ces fonctions :
-| demeurent libres.
-Nous servons :
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;
 et des abonnements de propagande à douze francs.
-l Il va de soi qu'il n'y a pas une seule différence de
 l service entre ces différents abonnements. Nous voulons
 seulement que nos cahiers soient accessibles à tout le
 monde également.

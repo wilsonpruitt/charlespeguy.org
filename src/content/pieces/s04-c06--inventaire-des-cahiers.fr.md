@@ -22,27 +22,8 @@ vendons un franc 55
 
 2 0
 5-4
-CA TA ee Es
-
-TT L pe PE MURS sa “2 Te
-
-2 Vogrt VIN 1 HAER AC LE fe
-
-Cite Î w I 4 ; Con #4 M" 41 TON ET ANNE au A OT pm)
-
-à % + F4) AO do Hate PRADA QUE CEE NA ee cs ANA ire
-
-nu ! ge RON NUE LE SAUT ARE
-
-| “4 - ji ARRET y, Es JAPON
 
 Courrier de Paris
-
-fuM D A HS EE LA tD PURES NUE Rare
-| LIENS Er ee A
-HI RP gai Nr tt D ch are NE cet
-‘is FUEL de
-DT A QE 54 À des NE CR de
 
 Les cahiers possédaient, le 31 août 1902, les valeurs
 un bougeoir ;
@@ -90,7 +71,6 @@ pour mémoire
 
 antérieures à la fondation des cahiers
 
-MARCEL ET PIERRE BAUDOUIN. — Jeanne d'Arc,
 drame en trois pièces : Domremy, les batailles, Rouen,
 décembre 1897, un volume grand in octavo de 752 pages,
 
@@ -98,13 +78,11 @@ Pierre Baupoux. — Marcel, premier dialogue de la
 cité harmonieuse, un volume grand in octavo, 228 pages,
 juin 1898, éditions de Georges Bellais,
 
-JÉROME ET JEAN THaArAuD. — Le Coltineur débile,
 un beau volume in-12, carré, de 116 pages, avec une
 lithographie de HENRY DE Groux, dédié à Lucile de
 Châteaubriand, qui mourut d'avoir aimé son frère, épisodes l'Échafaudage, la Merveille, sur les routes, la
 Détresse ; éditions de Georges Bellais, Paris, hiver 1898,
 
-JÉROME ET JEAN THARAUD.— La Lumière, un cahier
 de 96 pages; épigraphe : Qui perd les yeux perd la
 beauté de l'Univers et reste semblable à un homme qui
 serait enfermé vivant dans un sépulcre où il y aurait
@@ -164,8 +142,6 @@ L'Idéal de Justice;
 
 L'esprit des paysans;
 
-Les Universités régionales ;
-
 La réforme du baccalauréat;
 
 L'action cléricale et l'Enseignement ;
@@ -180,8 +156,6 @@ Néant du Catholicisme social;
 
 L'Instruction morale à l'école;
 
-La Question religieuse ;
-
 La Laïcité de l'Enseignement ;
 
 Les libertés du personnel enseignant. — Znterpellation
@@ -192,12 +166,9 @@ Inventaire des cahiers Li
 L'Enseignement laïque et l'enseignement clérical; ji
 La crise de l'Université ; \
 Le Socialisme et les Peuples :
-Les Alliances européennes ;
-Les Écoles militaires;
 La Loi militaire égale pour tous; |
 En revenant du régiment ;
 Paix et revanche;
-Un discours de M. de Bismarck ;
 La Démocratie française en Europe;
 Nos camarades les socialistes allemands ;
 La Conférence de Berlin;
@@ -206,15 +177,10 @@ La France et le Socialisme;
 Armée et diplomatie ;
 Les marins russes à Paris ; |
 Aux pays annexés ; j
-L'armée démocratique;
-Les compétitions coloniales ;
-Le tsar à Paris:
-Les massacres d'Arménie ;
 La guerre de l'Indépendance crétoise ;
 L'alliance russe et la réaction;
 La guerre hispano-américaine ;
 Fashoda, l'Angleterre et la paix; |
-L'action internationale;
 
 Premier cahier, du 5 janvier 1900, un cahier de
 
@@ -262,8 +228,6 @@ cahier marqué un franc cinquante ; en dehors des
 collections complètes il n'en reste que
 
 Deuxième cahier, du 20 Janvier 1900, un cahier de
-
-Du second Provincial ;
 
 La préparation du congrès socialiste national : un
 article de Jaurès dans /a Petite République du samedi
@@ -718,8 +682,6 @@ cahier de 72 pages, bon à tirer du vendredi 16 novembre 1900 :
 cahier marqué un franc ; en dehors des collections
 complètes, il n'en reste que
 
-| IL.
-
 Premier cahier de la deuxième série, un cahier de
 56 pages, bon à tirer du jeudi 29 novembre 1900 :
 
@@ -852,20 +814,11 @@ universitaire en faveur des étudiants russes ; la crise
 des universités russes ;
 
 Aulard, Histoire politique de la Révolution française,
-Origines et Développement de la Démocratie et de la
 République, 1789-1804, extraits de l'avertissement ;
-
-Nos annonces ;
 
 Les Journaux pour tous;
 
-La Propagande socialiste;
-
 Société des Visiteurs ;
-
-Le Mouvement Socialiste ;
-
-La Revue d'Art dramatique ;
 
 Société nouvelle de librairie et d'édition :
 
@@ -1091,7 +1044,6 @@ de classe pour la liberté; l'Église et les U. P.; l'U. P.
 Les intellectuels dans les U. P.; l'enseignement;
 l'éducation artistique ;
 
-Vie et fonctionnement de l'U. P.; organisation inté-
 rieure; lecercle et l'U. P.;
 
 L'avenir des U. P.;
@@ -1136,8 +1088,6 @@ Préface, république et socialisme, datée du 13 octobre 1901 ;
 Évolution révolutionnaire: en cinquante ans; majorités révolutionnaires ; paroles de Liebknecht; Liebknecht et la tactique ; « élargir, non resserrer »; le
 socialisme et les privilégiés; les raisons de majorité ;
 grève générale et révolution;
-
-Le but;
 
 Le socialisme et la vie;
 
@@ -1224,8 +1174,6 @@ du samedi 14 décembre 1901 ;
 
 Félicien Challaye, Courrier d'Indo-Chine; un courrier
 daté de novembre 1901; un deuxième courrier daté de
-
-La Grève ;
 
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste aucun exemplaire ;
@@ -1347,15 +1295,11 @@ Quinzième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du mardi 29 avril, fini d'imprimer
 du jeudi premier mai 1902 pour la première édition :
 
-ANATOLE FRANCE. — Cahiers de la Quinzaine:
-
 4 La liberté par l'étude. discours prononcé par Anatole
 France à l'inauguration de l'Emancipation, université
 populaire du quinzième arrondissement, texte reproduit d'après les journaux du jeudi 23 novembre 1899;
 
 La loi est morte, mais le juge est vivant;
-
-Les juges intègres ;
 
 Pensées de Riquet;
 
@@ -1384,8 +1328,6 @@ tirer du mardi 13 mai, fini d'imprimer du jeudi
 
 Seisième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du samedi 24 mai 1902 :
-
-Les élections ;
 
 Emprunt des cahiers;
 
@@ -1571,8 +1513,6 @@ complètes, il en reste
 Vingtième cahier de la troisième série, un cahier de
 156 pages, bon à tirer du mardi 22 juillet 1902 :
 
-Les Universités populaires 4900-4904. — II.
-
 dant l'hiver 1900-1901 l'œuvre commencée l'année pré-
 
 Angers, 3 septembre 1901, Mercier, fondée du mois
@@ -1582,8 +1522,6 @@ comité de l'U. P., professeur de philosophie au lycée,
 fondée et organisée dans le courant du mois de novembre
 
 Annecy, la Solidarité, 6 avril 1901, G. Martin ;
-
-Bar-le-Duc, la Société populaire de Bar-le-Duc, constituée en janvier 1900, 30 avril 1901, L. L. L. ;
 
 Inventaire des cahiers
 
@@ -1606,10 +1544,8 @@ dernier, a inauguré ses conférences le 19 novembre sui-
 secrétaire général de l'U. P. d'Épernay (Marne) ;
 
 Firminy, 19 avril 1901, fondée au mois de novembre,
-L. Laporte, bibliothécaire ;
 
 Le Cateau, réunion en décembre dernier, cours ouverts
-le 10 janvier;
 
 Le Mans, inaugurée le 31 octobre 1900;
 
@@ -1662,7 +1598,6 @@ deux mois ; compte ouvrir son local au mois d'octobre,
 le vice-secrétaire Maurice Gerson ;
 
 Tulle, 8 avril 1901, les Veillées populaires, fondées en
-trésorier de VU. P. à Tulle ;
 
 Vannes, 12 mars 1901, monsieur et cher collègue,concours assurés dans le courant de l'année 1900, intention
 annoncée le 29 juillet dernier, conférences commencées
@@ -1706,8 +1641,6 @@ Paris, premier juillet 1902 ; je répondrai à ces rectifications aussitôt que 
 cahier marqué deux francs ; en dehors des collections
 complètes, il en reste
 
-|
-
 Inventaire des cahiers
 
 Vingt-et-unième cahier de la troisième série, un cahier
@@ -1718,8 +1651,6 @@ JEAN DECK. — Pour la Finlande, mémoire et documents :
 Notes bibliographiques ; généralités; le conflit finlandais ;
 
 Conquête de la Finlande ;
-La Finlande jusqu'en 1890 ;
-La Question finlandaise :
 
 De 1890 à 1898 ; les premières tentatives contre la constitution finlandaise ;
 
@@ -1727,14 +1658,9 @@ La question militaire ; le manifeste de février 1899;
 
 La promulgation du manifeste ; la grande adresse;
 
-La diète de 1899 ;
-
 L'administration intérieure de 1898 à 1900 ;
 
-Les manifestes de 1900 ; l'administration en 1900 et
 1901; la loi militaire de 1907 ;
-
-a). — La restriction de la liberté de la presse et de
 
 b). — Larussification des administrations finlandaises;
 
@@ -1747,8 +1673,6 @@ Les derniers événements ; les questions prochaines ;
 a) la question scolaire ;
 
 b) la question douanière ;
-
-c) la réforme de la diète;
 
 Dans le même cahier, Le Livre pour tous, Émile Boivin secrétaire administrateur, 8, rue de la Sorbonne,
 Paris, cinquième arrondissement, une circulaire datée
@@ -1804,24 +1728,8 @@ vingt-et-unième cahiers de la troisième série,
 Volumes de librairie en magasin, total des prix forts
 de ces valeurs marchandes au 31 août 1902 :
 
-RTE ur A AAA V AN Ab RE ou A pou AD à CM NT { e
-
-Au pet (CAE SEE A & RETENU ALES FAR AL BR EE LE RSS SIENNE + 3 ONE pis
-RS APN ( RAD S so AE TVR A ne RO
-An nt SE ANNE TMENEENS D et Mr Aa
-ta MR YA Date OMAN one A PA HU
-ROSE UN St ATEN EE , x Ÿ L PARU nr ee | MOMENT Se us TS A:
-Ten AL AAC me L (RE AA UT SU PR AIOT
-AS PANON ee UHAL tr NUE h rh ALU UN RES MNT ee, NA PASSES Art PAT EU SUR
-À ASENEE PURE \ INA NME QAE SM sa ge k NET FN RE (|
-D 0 nn) on us
-
-di An A TE AO MANN JEUNE AU Les 1
-
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-
-Nous servons :
 
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
@@ -1853,13 +1761,6 @@ chaque série au plus tard le 31 décembre qui-suit
 l'achèvement de cette série ; ainsi du premier août au
 31 décembre 1902 on peut encore avoir pour vingt francs
 les vingt et un cahiers de la troisième série énoncés cidessus.
-
-HE NASA JA Ë AAA TARMES MON RSR Lu ot
-PEN CH 5 AT EU A COR SANT Vita UNE AL
-È [au PO ai WANT } RE LINTNLAN ANR RES Le Ut b
-PA Ho CRT NE ji NANTES FE RE
-POP ANS DANS Ur POELE ANUS \ ji RPM LITE M ENGIN ; Free NAN
-[Me A Does LAPAUEU DU pe SE) ANTENNES Due je ox as
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins au

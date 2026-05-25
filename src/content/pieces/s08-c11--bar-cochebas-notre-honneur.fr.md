@@ -8,18 +8,8 @@ isAvertissement: false
 wordCount: 20495
 ---
 139928
-| CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-“ à PE MER RENE ENTRE ee MR te D tt
-Ÿ LATE rx L RAT PE os à Là ER AE PR « à } Ç * À D. FA œr HIT PEN 2 7 1 We
-
-| % ;
-
-> L. L x. C4 1
-
-: # DC LA 4 PAU re, Ér FA * are sp ; fr:
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-190f, un Si
@@ -44,7 +34,6 @@ place, les références demandées.
 . Ce catalogue, in-18 grand jésus, forme un cahier *
 ‘ très épais de XI1+408 pages très denses, marqué cinq ;.
 
-| A PR TE ANIMALE RON ARE PRG PARA PA LS NON NES
 0 He _ francs ; ce cahier comptait comme premier cahier de la
 Ke _ sixième série et nos abonnés l'ont reçu à sa date, le HA
 ‘ire 2 octobre 1904, comme premier cahier de la sixième
@@ -66,19 +55,10 @@ LL pe dans notre premier catalogue analytique sommaire, con1e: à) sulter le pet
 | 18 tique sommaire dans l'index total de nos éditions anté- 4
 Ù  rieures et de nos sept premières séries, même premier 4
 1 Re cahier de la huitième série. # WE
-| a à : w)
 
-FX ER a set Whé ES LA ) D:
-PACE ON et FÉRAAN 24e et 7e PHLEQ
-
-de DT MS SA NE Dr ESS A AE ML és D RER Re
-| ‘4 DU MEME AUTEUR LT
 | aux Cahiers de la Quinzaine î
-| 100 *
 ; g pe: y Le présent petit index donne automati- 4:
 Î 4 4] , quement pour tout volume et pour tout
-| HOT cahier indiqué : |
-| Î ï LÉ à a) le numéro d'ordre de ce cahier dans ' j
 |. in le classement général de nos collections « | 7 13 complètes, le numéro d'ordre de la série .
 | « 00 ‘10 étant naturellement composé en grandes K
 1 LA 1 capitales de romain et le numéro d'ordre a
@@ -86,20 +66,15 @@ de DT MS SA NE Dr ESS A AE ML és D RER Re
 | de fs déterminée, en chiffres arabes, de sorte CM
 | 1 que V-r7 par exemple doit évidemment se 4:
 | 144 Yi: lire dix-septième cahier de la cinquième Ra
-i | fi dr) à b) la date du bon à tirer, ou, à son dé- ' ;
 ; “es faut, la date du fini d'imprimer, ou, à son | Ya
 { L 10 : défaut, la date du cahier même; ÿ %
-Î s Ke me ; c) le prix actuel; | :
 LM à d) quand il y a lieu, c'est-à-dire pour nos Hi
 ; 6 j éditions antérieures et pour nos cinq pre- sITAUSS
 l De mières séries, la page du catalogue ana- 0
 JÉNON lytique sommaire où ce cahier se trouve \
 | par | catalogué. x +
-| ( TT * F st
 Fi Jérôme et Jean Tharaud, — le Coltineur débile : l'Écha- Ur r:
 | 40 _ faudage, la Merveille, sur les routes, la Détresse, août 1898 4
-| LAS | deux franes 1 {A
-| (Ni % UT He
 | : 40 AU — — la Lumière : le navire, le magicien, Timor, les :}
 M0 — a Dingley, V'illustre écrivain (Ul-13, samedi 12 avril QUE
 | Dai 1902, un cahier épuisé, n'est plus mis en vente que dans les un
@@ -153,33 +128,8 @@ _ Les Cahiers de la Quinzaine sont composés à la main, #
 _  derie Mayeur (Allainguillaume et compagnie succes- Ke
 _  seurs) 21, rue du Montparnasse, à Paris, sixième
 
-di 1 de NOR ER Rat LV AU EEE RS de dd te (OS ñ 4
-MD HE , TT MENT ENS THEME de CA
-pe PAS CRAN A RU Te 1 RAT Te
-LE PORTE RER APN AE NU ch 4e VÉPAES
-
-nn" à ' LA si
-UN pie NN
-
-ABVUE AL \ ri D 4 À L f me AP
-
-a tn AU A NS Le a as
-
 N « à la mémoire du grand Bernard-Lazare ne fi
-MU ; Tharaud et Péguy L Fa Ne
-| CERN 1), a
-| TRS | d À à MA: f
-ne. NIV 1 4 Ait r EM
 
-RNA TL : rm chi: APE VE ENORME et
-| APS F E Ke? OR 178 15h
-
-# 164 LL J k S EX Li ! F. 1680
-
-116 A ‘ge D LANTA Va Et ne OT THON 15, nr y
-
-É te L . L ul
-js | h 1 1 La vieille Palestine, sacrifiant J N
 _ FOI ÿ des” brebis à Yahveh, quelle
 il Jeu < figure de granit, comparée à
 ‘1 lui, si subtil, si mobile!
@@ -189,7 +139,6 @@ AVR exotiques. J'appris à connaître la vanité d'une D.
 « A lité de lecteur à l'Université d'une de ces tristes
 FR capitales des régions du Moyen-Danube où la vie est
 108 si terne qu'on n'y peut que choisir entre les femmes €.
-1 et le désespoir. À Le
 00 Certes ce n'étaient pas mes compatriotes qui "4
 0 auraient pu, là-bas, me défendre de l'ennui! Un
 À ‘à Français à l'étranger, c'est un Français défleuri.
@@ -223,7 +172,6 @@ changer de lieu et de maison, un instinct de gyrovague, et, pour tout dire, l'â
 
 4 jouent là-bas dans la vie intellectuelle leur rôle his- :
 à torique d'intermédiaires entre l'Occident et l'Orient, 4
-\ de colporteurs de sentiments et de pensées. Je di- :
 à . stinguai l'un d'entre eux comme le type le plus
 É achevé de cette brocante spirituelle. '
 4 Sa curiosité s'étendait des tragédies de Racine k
@@ -240,8 +188,6 @@ où il habitait une chambre misérable meublée d'un it
 | pour lui toute l'histoire d'Israël depuis la disper- |
 sion : « Nous ne subirons pas. » Nulle part je n'ai k
 % ressenti pareille impression d'exotisme, de dépayse- 4
-hi ment, de lointain... Sur un ton où il était difficile de ! . À
-À départager le plaisant et le sérieux, il me disait A h
 ‘ qu'il avait choisi ce quartier sordide, bien qu'il eût ïe
 un palais à Venise et un hôtel à Vienne, dans le : À
 À quartier de la Burg, pour y vivre comme avaient hé
@@ -249,7 +195,6 @@ pi “vécu à travers les siècles d'innombrables gens de sa …
 | race, dans la suspicion et d'immondes odeurs. i
 | | Il éprouvait à écouter la musique de notre langue fi.
 
-dl nr De (ul ù Li FA sd: ÿ te à 7 Fe AE fi Mb Eur FT si) Ma je %
 ) #00 | Jérôme et Jean Tharaud à PPT ASITONEES
 ‘1 _ une sorte de volupté. Un jour il me confia, avecun x
 enthousiasme puéril, le plaisir qu'il aurait d'en
@@ -469,12 +414,10 @@ b _ un soir entrer mon ami, un revolver à la main
 2 I1 le braqua sur l'un d'eux, mais au moment de à
 _ faire feu, saisi d'on ne savait quel scrupule, tour
 nant son arme contre lui-même, il s'était fait sauter 14
-104 la cervelle. SA
 Je _ L'aimable consul ajoutait : non:
 _ « La fin de votre ami ne me surprend pas. Quand
 ces Juifs ne sont pas les plus abominables coquins,
 
-8 MEN AN PAN Ne Aer Sn nt M AE DRE OA TOR AU PNA SALES TANNER
 ‘4 ils atteignent ces hautes régions où le bourgeois
 | transi n'inscrit plus ses maximes. Il y avait sans 1
 doute dans votre ami Bar-Cochebas une étincelle du
@@ -482,10 +425,7 @@ _ feu qui animaiït les Prophètes, mais le pauvre diable
 est mort pour avoir voulu jeter sur sa souquenille
 |_ de Juif la livrée de notre honneur. » :
 
-#4 \ : \ RAS Dee
-
 Rue Mardi 11 décembre 1906. — De la situation faite à (14
-l'histoire et à la sociologie et de la situation faite au Va
 parti intellectuel dans le monde moderne. — Les re- À a:
 | cherches que nous avons commencées sous cetitresont à |
 Li: si difficiles par elles-mêmes et si longues, la réalité où 1e
@@ -532,7 +472,6 @@ k. beaucoup de métaphysique, je le crois, de tout excepté
 #0 justement ce cahier des Poisons industriels à qui j'ai
 i à réservé une place pour la neuvième série dans le
 # programme de cette neuvième série avant qu'il ne fût
-# définitivement clos.
 
 : #4 Notre collaborateur, —et je crois en effet me rappeler
 a 11 qu'à la fin de l'un des précédents cahiers je lui avais
@@ -585,7 +524,6 @@ nn. Ù de la déclaration des droits de l'homme et du citoyen.
 1 pour avoir sa métaphysique, — et même sa religion, #
 110 — que dans la mesure où cette métaphysique elle.
 Du même, — où cette religion, — a pour ainsi dire de 1e à
-:10N capacité. Du contenu. 4:14
 “4 Faire de la métaphysique, avoir une métaphysique, L D:
 TAN avoir sa métaphysique, — sa religion, — n'est pas en
 ë 162 soi-même et par le fait une opération supérieure, de je 38
@@ -594,12 +532,9 @@ TAN avoir sa métaphysique, — sa religion, — n'est pas en
 _ ficielle, forte ou faible, bonne ou mauvaise, grossière #3
 14 ‘4 ou fine, ou déliée. Rien n'est aussi commun que la mr
 
-{à or CAHIERS DE LA QUINZAINE is
 “à physique. Tout le monde en fait. Tout le monde en a. |
 pe Rien n'est aussi répandu. Seulement, non seulement 0
 F tout le monde n'a pas la même, ce qui n'est que trop 1
-ÿ évident, mais tout le monde n'en a ni de la même de
-Ki sorte, ni du même degré, ni de la même nature, ni de Ni
 | la même qualité. 4
 ji : Rien n'est aussi portatif, si l'on veut, que la métaphy- À ÿ
 ‘1 sique. Tout le monde a la sienne, inconsciente ou con- 4
@@ -607,14 +542,11 @@ ji : Rien n'est aussi portatif, si l'on veut, que la métaphy- À ÿ
 ‘#4 qui serait difficile, et ce qui est même rigoureusement 17
 L impossible, ce serait de n'avoir pas, ce serait que quel- 4
 "4 qu'un n'eût pas sa métaphysique ou du moins de la. (4
-# métaphysique. dl
-4 Tout le monde a sa métaphysique ou au moins de la A
 | métaphysique. La métaphysique est comme ces vieilles ja
 L gens disaient qu'était le vin. On porte sa métaphysique N à
 | tout de même qu'on disait sous l'ancien régime et dans vil
 4 1] l'ancien langage que les vignerons portaient le vin. Je x
 1 dis l'ancien régime et l'ancien langage, car de même nu
-1 qu'il y a un monde moderne et qu'il y avait un monde a
 3 ancien précédent, tout de même, ou plutôt par une “1
 | Ki application particulière, en un cas particulier, il y avait . (
 _ une ancienne ivresse, qui était l'ivresse du vin de la 1
@@ -627,7 +559,6 @@ di. Les autorités et les autoritaires l'ont autoritaire. Les 008
 4 politiques l'ont politique. Les politiciens l'ont politi- ÿ
 1 cienne. Les parlementaires l'ont parlementaire. Les 1
 _ imbéciles l'ont imbécile. sut 13
-qu ru on
 
 ‘18 Tout le monde a sa métaphysique. Mais les métaphy-
 (à siciens l'ont seuls métaphysique, ou si l'on préfère, et
@@ -637,7 +568,6 @@ ES Ce qu'est la métaphysique des intellectuels, je ne pré-
 À tends point le dire en deux mots, ni dans cette conver-
 % k sation écrite amicale avec notre collaborateur. Je ne
 ‘#3 puis procéder que par demandes et réponses. (Encore
-De un catéchisme ? ô M. M. Mangasarian.) Je ne veux donc
 F ' procéder que par indications très brèves. Et ce qu'est
 & ‘ en effet la métaphysique officielle gouvernementale du
 11 bloc, ce qu'est la métaphysique sournoise du parti
@@ -660,7 +590,6 @@ D. Mais laissons cette antithèse. Notre thèse naturelle1 Da ment sera au contr
 ‘4 tuelle moderne, ainsi définie, ainsi entreprise, au preD: mier degré dans l'histoire, au deuxième degré dans la
 sociologie, qu'une telle tentative de connaissance intel- ‘
 
-1 aus CAHIERS DE LA QUINZAINE Mn NU
 M lectuelle n'aboutit pas, qu'elle ne rend pas, dans cet
 
 Le ordre, en ce sens, qu'elle ne donne et qu'elle n'apporte
@@ -687,20 +616,17 @@ ne nous l'imposer. Seulement on a toujours la métaphy- 1h
 4 sique, — et la religion, — que l'on mérite. Parce que l'on fl
 4 n'a que la métaphysique, — la religion, — de ce que +}
 NW: l'on est, ou, pour parler tout à fait exactement, que l'on us ÿ
-È est. i il
 4 Mais êtes-vous F
 p sérieux quand vous accusez le bloc d'avoir une méta- À à
 “3 physique officielle? Hélas il Jen] est bien incapable! :
 4 Je n'accuse pas le bloc ni le parti moderne intellec- A
 14 tuel d'être capable. J'accuse le bloc et nommément dans |
 
-Un ET 4 AE SUN ep POI TEEN
 4 le bloc le parti intellectuel moderne récemment agglo78 méré d'avoir une métaphysique, de la vouloir imposerà
 x 14 tout le monde par les moyens de la force gouvernemen4 1 _ tale,en matière d'histoire et dans la matière de la socio
 RC logie, par un abus de l'histoire et par un usage de la
 173 sociologie, pour assurer leur domination dans le tem- a
 F F S porel en l'ayant assurée dans le spirituel. + EE
-Ne En un mot et en définitive j'accuse en effet le bloc, et
 y: # à dans le bloc j'accuse capitalement le parti intellectuel
 Ÿ 1 moderne assez récemment aggloméré de vouloir assurer ‘4
 7100 et d'avoir commencé d'assurer par les moyens de la
@@ -746,7 +672,6 @@ b: Moi je ris (en moi-même), non point de me voir si : !
 Le sieurs belles propositions bien alignées, qui nous servi- 1}
 4 _ ront toute la vie de vis-à-vis et qui sauront bien entre- dj
 | tenir la conversation. ù
-à .il y en a je pense 14
 1 plusieurs qui admettent les propositions suivantes : 1
 De. 1° les métaphysiques des diverses religions sont des 5h
 _ contes de fées pour bébés sauvages [:] 1
@@ -784,8 +709,6 @@ D: anciennes mythologies physiques et métaphysiques. Je
 5 dis les articles et les fractions d'articles qui nous sont
 à 1 directement apportés non point par les savants les plus 4
 
-égale done elLe à à
-La Niue RE CAHIERS DE LA QUINZAINE b “à
 1 notoires, je ne dis pas par les savants les plus renom- 1
 ; més, les plus célèbres, les plus glorieux : cela ne prouve : é
 l généralement rien, sinon que généralement ce ne sont L
@@ -831,7 +754,6 @@ comme ils disent, intégralement, c'est qu'ils ne se
 méfient pas des transpositions et qu'ils ne connaissent
 bi ‘point les langages et qu'ils n'ont pas appris à distinguer
 ï ce qui vient, dans une différence, totale, de la différence |
-dx de langage, et de la différence de la réalité.
 tu Pour moi personnellement je me fais fort et je me
 chargerais, pourvu que j'eusse trente ou quarante ans
 N devant moi, et que l'on voulût bien me rendre mon pre-
@@ -915,7 +837,6 @@ cinquante ans que je n'y ai pas goûté. Il se trompe. IL
 « + en pense très exactement ceci. IL en a très exactement w
 À cette opinion : Qu'il y a cinquante ans qu'il n'y a pas
 ÿ goûté. Cela me suffit. Ce monsieur est un végétarien |
-Ale endurci. Et il en va de même de la métaphysique. 1
 
 : Y, Ce qui résulte au contraire des admirables travaux de a
 ir M. Duhem publiés dans la même Revue générale \|
@@ -929,13 +850,10 @@ L des métaphysiques au sens et dans la mesure où elles M}
 Ke nous la représenter. En somme on nous dit qu'il y
 A aurait eu dans l'histoire du monde, au seuil du monde"
 
-dl DEN UE CAHIERS DE LA QUINZAINE ut a it
 È moderne, et constituant comme l'introduction de ce, 14
 | monde, une sorte d'explosion qui aurait été l'invention, (Ye ‘1
 _ l'imagination, réalisée, de la science moderne. Soudai- ‘4
 | nement. Tout à coup. Et tout d'un coup. Disons le mot : à
-|  miraculeusement. i
-Car ce qu'il y a de plus fort, je ne dirai point dans ce à
 | débat, qui est si vaste, mais dans cette partie du débat, | É
 ce qu'il y a de plus singulier et soi-même de plus pro- : Ni
 __ digieux, c'est que l'idée moderne, exposée, affichée, r4
@@ -995,7 +913,6 @@ nous puissions seulement reconnaître des théories antiques transposées, à la
 | avons reçue si souvent de lui, qui est essentielle dans . À l:
 _ son système d'idées, qui nous paraît en eflet essentielle, 4)
 ; dans tout système d'idées : que la technique a une im- pu
-Ÿ portance capitale, en tout, et que s'il y a eu, au com- +
 _  mencement et depuis le commencement dü monde Fi
 . moderne, cette explosion d'industrie, scientifique, autant 4
 et plus que de science, industrielle, ce n'est point qu'au ‘a À
@@ -1077,7 +994,6 @@ traiterait très exactement comme elle-même aurait traité 7 do
 | sa précédente. j De:
 | Ce serait commettre l'erreur la plus grossière et pro- a
 _  prement la plus barbare que de s'imaginer que, en 18
-| matière de métaphysiques, il y aurait, et il n'y aurait ‘A
 ! que, une succession linéaire des métaphysiques ainsi pet
 définie, soit linéaire discontinue en ce sens que chaque 4
 ‘ métaphysique précédente, la mettrait à zéro, elle-même nu
@@ -1120,7 +1036,6 @@ ne serait pas diflicile de démontrer que leurs méca- f
 veulent bien le paraître, et nous aurons sans doute à le à
 4 démontrer quelque jour, et à un autre point de vue ces 4
 
-nn js M AN NE CEA HIERS DE LA QUINZAINE FT ns
 À ; deux hypothèses, ces deux imaginations, font sensible- il "1
 À ment même figure dans le monde. Ce sont deux sœurs D
 ( qui se chamaillent, mais ce sont deux sœurs, également ‘4
@@ -1284,8 +1199,6 @@ apparence, de l'ascension dialectique et de la symboli- ne. ÿ
 sation mythique, et de l'insertion des esprits ou des DU.
 R âmes dans les corps devra parler un langage de nt ni
 
-LE DL ee
-
 l'ancienne Grèce hellénique, un de ces langages nommés |
 
 la philosophie platonicienne et la philosophie ploti- ‘à
@@ -1303,8 +1216,6 @@ peuple, et de la destination d'un homme et d'un peuple, ‘1
 d'Israël. Quiconque voudra parler de dieux et de beauté 44
 
 temporelle, de sagesse et de santé, d'harmonie et de 1
-
-divine intelligence, de la destination de la fatalité, de la h É
 
 ; cité, temporelle, éternellement il faudra qu'il parle le il
 
@@ -1340,14 +1251,9 @@ repos, et de la relation du mouvement au repos, et #4
 de la réalité du mouvement, de durée et de liberté 7
 réelle, de temps et d'espace, de leur non homogénéité tt
 
-D: du Lo CAHIERS DE LA QUINZAINE CHR pis
-hi et de leur non parallélisme et de la fabrication, secon- N À
 1 daire, d'un temps spatial, des données immédiates
 f de la conscience, — généralement de toute réalité, —, +
-d'action et de contemplation et de la relation de l'une A
-f à l'autre, de matière et de mémoire et de la relation de à
 s) l'une à l'autre, particulièrement du corps et de l'esprit .
-R et de la relation de l'un à l'autre, de l'effort enfin, et Ÿ
 particulièrement de leffort musculaire, pour m'en
 1, référer au cours de cette année même, et aux leçons de l
 ‘ces semaines mêmes, et aux leçons qui paraîtront pour 14
@@ -1512,7 +1418,6 @@ fe essaie de regarder un peu derrière lui, quand regardant À
 
 Fe quelquefois en arrière il essaie de faire monter un re- à
 
-| 18 CAHIERS DE LA QUINZAINE F
 | À gard insuffisant vers de plus nobles, vers de plus hautes ;
 4 anciennes humanités, répétons le mot : c'est une des
 IA erreurs les plus graves de la métaphysique honteuse, i
@@ -1574,7 +1479,6 @@ encore de ce langage, la distinction du théorique et du (
 | pratique a généralement échappé aux modernes, Et ils |
 ‘1 y ont généralement mis de la complaisance. Car nous
 
-x CAHIERS DE LA QUINZAINE jou ‘4
 montrerons tout au courant de ces recherches que nulle it
 distinction réelle n'est aussi redoutable, — n'est aussi. 14
 redoutée, plus ou moins confusément, plus ou moins #4
@@ -1635,15 +1539,12 @@ ss : Ce qui revient à dire que nous montrerons et que nous
 ‘El qui à pris particulièrement un sens tout particulier dans :
 Pa 1e un jeu, et dans le jeu qui est devenu comme le représen-
 +0 tant éminent et comme le symbole essentiel du jeu,
-Fe 9 comme le symbole même de la passion et de la tenta- k
 14 tion du jeu, ce même jeu y étant appliqué, n'y servant
 C8 à souvent que d'instrament à des superstitions de devine- h
 ‘44 resse et à des essais de calculs de la destination, iln'y \
 3 A “ a qu'un mot à dire : une métaphysique, une philosophie, 344
 412408 un art, une race, un peuple, une œuvre est une réussite.
 
-D A D dt eme Un
-Ü ù CAHIERS DE LA QUINZAINE eus \ 6
 Je n'emploie pas seulement ce mot dans son sens de i
 4 jeu. Maïs je l'emploie dans son sens de jeu. Et ce n'est
 | pas seulement une réussite. Maïs c'est inéluctablement 1
@@ -1673,7 +1574,6 @@ IL série, linéaire, nous eussions inventé, imaginé, décou- L
 JL ou un ensemble d'arguments, un raisonnement qui dé- Ve
 | passant le raisonnement, l'argument éléatique l'ait pour À
 | ainsi dire effacé comme un chaïînon aboli de la même À
-| 1 61 Bar-Cochebas. — 4 464
 
 Fr série linéaire. Nous n'avons pas dépassé l'argument
 
@@ -1727,7 +1627,6 @@ d'un progrès, comme il y en a dans la science. 1
 science. Il s'agit de la science nommée psychologie. Il ï
 | est vrai qu'une partie notable de l'Esthétique a été
 1 ruinée, surprise, déboutée, dépassée par une partie no-
-| table de l'Essai sur les données, et qu'il y a eu, qu'il y |
 a en ce sens un fait acquis. Mais ce dépassement est un
 |) dépassement scientifique. C'est presque un dépassement
 | . technique. Ce progrès linéaire est un progrès linéaire
@@ -1803,7 +1702,6 @@ pas le droit de tabler sur elles pour précipiter les Mr:
 chutes, pour précipiter, pour souffrir, pour souhaiter k
 les ruines et les pertes ni les morts. On sait ce que ï ï
 l'on perd. On ne sait jamais ce que l'on rattrapera. Ou # f.
-plutôt on sait de certain premièrement qu'il y a un \Au
 risque et que l'on n'est jamais assuré de retrouver rien, j Ÿ
 deuxièmement que ce que l'on retrouvera, que ce que +
 
@@ -1818,8 +1716,6 @@ fois, si cette voix, si le langage nommé la philosophie d:
 : platonicienne et plotinienne une fois, cette fois, n'avait ; U à
 
 | point résonné, généralement si le peuple et la race, les . k pa
-
-L 65 Bar-Cochebas. — 4. à
 
 ‘ hommes et les dieux, si la Grèce antique elle-même ï
 L n'était point née, une fois, si elle n'était pas vente, au
@@ -1851,7 +1747,6 @@ la grandeür et la force et la moelle de l'humanité, aura 4
 , commencé de ruinér dans les consciences un christia- |
 \ nisme quinze et vingt fois séculaire (on peut compter
 : sommairement vingt siècles, parce que s'il y à eu la &
-À ne
 7 1 30
 
 1 préparation de l'établissement, il y avait eu aussi une
@@ -1887,8 +1782,6 @@ IL les lampions vraiment laïques des électorales réjouis-
 | ! sances nationalés. Qu'ils 8e rassurent, pourtant. Quand e
 | 1 une métaphysique et une religion, quand une philoso-
 | phie disparaît de l'humanité, c'est tout autant, c'ést \
-| AN
-| 4 67 À
 
 1 peut-être bien plus l'humanité qui disparaît de cette L
 | métaphysique et de cette religion, de cette philosophie. 4
@@ -1932,7 +1825,6 @@ tendresse de vers la sévérité de notre prose, nous obtiendrons d'un poète, c
 plus belle que le grec, la formule française et Renaissance française, et qui porte son âge avec une admi- k
 rable justesse, une formule de la Pléiade enfin, la for- |
 mule je ne dirai pas autant définitive qu'initiale :
-Le temps s'en va, le temps s'en va, ma Dame, É
 ï Las! le temps, non, mais nous, nous en allons. }
 ï Quand les métaphysiques et les religions, quand les
 philosophies nous quittent, nous nous flattons de la
@@ -1947,7 +1839,6 @@ quand nous commençons à nous déprendre d'une mé- fé,
 taphysique et d'une religion, d'une philosophie, et quand in
 nous voyons que nous en sommes dépris, ne nous van- a
 1 tons pas, et surtout ne faisons pas les malins, ne nous je
-# LA à
 
 4 gonflons pas et ne faisons pas les sots, et ne disons pas À
 que nous l'avons dépassée. Car il n'y a pas de quoi à.
@@ -1978,9 +1869,6 @@ k de malheur suprême, et non plus seulement d'infortune 5%
 En catastrophe allant jusqu'à une espèce d'anéantissement 44
 d peut-être total, ce n'est point seulement parce que cette 4
 
-| NS AN a
-| PUS CAHIERS DE LA QUINZAINE
-
 | | fidélité au malheur est peut-être le plus beau spectacle
 | 1 que la pure humanité ait pu jamais présenter. C'est }
 4 peut-être, encore plus, et techniquement, ceci : Ce que
@@ -1988,7 +1876,6 @@ Le nous admirons, et ce que nous aimons, ce que nous
 | Î honorons, c'est ce miracle de fidélité, mais de fidélité
 D. entendue autrement, en un sens peut-être infiniment
 14 plus profond, en un sens et musical et plastique, en
-ï un sens harmonieux, en un sens de résonance et de *
 Ï ligne, ce miracle et cette fidélité, qu'une âme fût si
 | parfaitement accordée à l'âme platonicienne, et à sa
 } | filiale l'âme plotinienne, et généralement à l'âme hel-
@@ -2000,6 +1887,3 @@ un monde, quand tout le monde se désaccordait, pour
 £ toute la vie temporelle du monde et peut-être pour
 F1 l'éternité, seule elle soit demeurée accordée jusque dans
 À la mort.
-| CHARLES PÉGUY
-|
-|

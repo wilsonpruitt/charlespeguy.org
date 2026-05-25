@@ -1772,7 +1772,6 @@ surtout que cet enfant ne soit point mon enfant. Je
 hais celle dont l'amour divin ferait fleurir pour son
 bonheur des roses sans épines. La plus sotte des.
 mères a des intuitions profondes, des délicatesses
-de fée.
 
 Malgré tout, Jacques, à la douceur de ta présence,
 je perds la force de m''accuser, et mon angoisse
@@ -2550,7 +2549,6 @@ draps. Les yeux mi-clos regardent en dedans. Il
 répond des oui et des non si bas qu'on les entend
 peine. Le front brûle comme du feu. Le médecin a
 secoué la tête.
-Sans date
 Une méningite. Trois nuits de veillée dans l''horreur. Sa figure a fondu. On me parlait, je n'entendais rien. Delbove a voulu m'entraîner; lutte. Voix -
 sourdes, chuchotements. Tout à l'heure je me suis
 assoupie comme une brute, sur ma chaise longue.

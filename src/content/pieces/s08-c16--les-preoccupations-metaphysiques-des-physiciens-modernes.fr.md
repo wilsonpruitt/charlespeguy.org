@@ -7,7 +7,6 @@ author: georges-sorel
 isAvertissement: false
 wordCount: 27289
 ---
-: Hs YABLE K il
 CXLII. — L'amour est mon péché, ta vertu c'est la haine. ......../168 5 0 à
 CXLIII. — Voit-elle un volatile emplumé s'échapper................ 183 L
 CXLIV. — J'ai deux Amours qui font mon heur et mon tourment!.. 184 |
@@ -25,29 +24,18 @@ CLI. — L'Amour, trop jeune enfant, n'a point de conscience.... 191 We
 CLII. — En taimant tu sais bien que je suis un parjure.......... 192 te f
 CL. — Deux versions d'une même épigramme de ? deux sonnets k F
 CLIV. — ( l'anthologie grecque sur Cupidon......... Ÿ non insérés 1
-D DIe de'ce Cahier rent ne CINE REA TES ji
 
 Nous avons donné le bon à tirer après corrections pour pe
 dix-sept cents exemplaires de ce quinzième cahier et pour k.
 l quinze exemplaires sur whatman le mardi 26 mars 1907. *
-l Le gérant : CuarLes Péeuy À fl
-OO ON ER ODR GT COR TR ER PTS le à
 à Ce cahier a été composé et tiré par des ouvriers syndiqués pr 4
 H Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont, — 1656 i je
-
-TER nee ; PAR AT Ets SE RAT AU dl NE
-HA ni A SNS A ARR aE AE
-2 NME ER ER ON ETS AE LOT AMAUTE ANA NOUS Te (RUE as Are
-ke SCRAU TAN ie PARA D FL SA LI PQ CH TN ONE
-"ROSES #1! ares RAY, 5 he A PRIS PME DRUR LE Sur ES ARE SOUPE À #
-(ru Dites MORE EE * on re RO A
 
 Pour savoir ce que sont les Cahiers de la Quinzaine, Ÿ Le:
 * il suffit d'envoyer un mandat de trois francs cinquante np - ‘1
 à M. André Bourgeois, administrateur des cahiers, 5
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième 4
 arrondissement. On recevra en spécimens six cahiers . 1
-de la deuxième, de la troisième, de la quatrième, de la 4
 cinquième ou de la sixième série. 4
 | Pour savoir ce qui a paru dans les cinq premières D.
 séries des cahiers, 1900-1904, envoyer un mandat de 1 4
@@ -62,7 +50,6 @@ est la série en cours, envoyer en un mandat à M. André 4
 | recevra les cahiers parus, et de quinzaine en quinzaine, 1
 à leur date, les cahiers à paraître de cette huitième
 | Voir à l'intérieur en fin de ce cahier les conditions k re
-et le prix de l'abonnement. |! Re
 Nous mettons le présent cahier dans le commerce;
 ; quinzième cahier de la huitième série; un cahier vert 7
 | de 108 pages; in-18 grand jésus; nous le vendons :
@@ -74,15 +61,6 @@ _ des physiciens modernes
 É paraissant seize fois par an :
 | 8, rue de la Sorbonne, au rez-de-chaussée
 
-AR LT EE TS 2 CCE TANT SÉRIE AE FE A Sépnbng t ts
-er € LE L'ÉTRST OR
-pe {4 FAT PE RE Le MAR DR ORAAE"
-nu OUTRE PER Fe dis DANS RES
-
-au Le"
-| ee 1 62
-
-PP AN A AE NE VIRE ARE MAS Sete ROPAOOLEOT OUEN Nana PAR
 + Nous avons publié dans nos éditions antérieures et
 108 dans nos cinq premières séries, 1900-1904, un #6)0
 fe grand nombre de documents, de textes formant dos1 siers, de renseignements et de commentaires; — u n PRE
@@ -109,7 +87,6 @@ ni 5 place, les références demandées. 4 #5 JA
 nt: Ce catalogue, in-18 grand jésus, forme un case
 400 très épais de XII+/08 pages très denses, marqué cinq
 
-EAN LA à pl À YU
 _ francs ; ce cahier comptait comme premier cahier de la VA
 _ sixième série et nos abonnés l'ont reçu à sa date, le ni
 2 octobre 1904, comme premier cahier de la sixième
@@ -124,7 +101,6 @@ _ maire de nos deuxièmes cinq séries, 1904-1909, on 3
 | peut consulter, — provisoirement, — la petite table RAL
 0 analytique très sommaire que nous en avons établie et 7 4e
 _ que nous avons publiée en fin du premier cahier de la Gal
-| huitième série. n
 Pour amorcer tout travail que l'on aurait à commencer ‘10
 Ji dans notre premier catalogue analytique sommaire, con- 1 "4
 wi sulter le petit index alphabétique provisoire que nous 11
@@ -132,25 +108,8 @@ wi sulter le petit index alphabétique provisoire que nous 11
 _ tique sommaire dans l'index total de nos éditions anté- ‘LR
 | rieures et de nos sept premières séries, même premier \
 _ cahier de la huitième série. à 00
-| FL ISRE 14
 
-(mar HAT ON ILTE “af PERRIN AU PAT NAAT
-
-nn L: FAN PE ACTE
-
-EAN (RSS ni AU
-
-PAS ru ! ‘ji 4
-
-VhU ave { 1 de ROUTE
-
-en UE AN ni AREA EN AA CNRS EUCR OMAN RCERS NN ES
-
-| k AVANT-PROPOS |
-Î D I. — Des correspondances. je
-K IL — Des correspondances logiques. “1
 | III. — Les phénomènes naturels et les correspondances logiques. N
-| + &
 Considérons les espaces parcourus par un corps en N.
 mouvement, ces espaces étant comptés à partir d'un 4
 J point fixe dit origine; et supposons que chacun de ces W'
@@ -179,7 +138,6 @@ CNE C'est ce qui se fait, par exemple, dans la science dite
 10 indépendant du temps : cela ne veut pas dire, évidem4 ment, que cet espace — ou ce travail — n'a pas exigé, |
 18 pour se produire, un certain temps bien déterminé; i
 © cela veut dire que, dans le phénomène considéré, ce À
-‘4 temps n'est Es Dee en D pre ot ; qe: ME HU 4
 "8 termes, ce phénomène sera dit identique à lui-même à
 de ; la seule condition que l'espace — ou le travail — consi- 4
 . 1 | déré demeurera identique à lui-même, nonobstant quele
@@ -214,7 +172,6 @@ Considérons une correspondance et un certain nombre : Re 1
 
 de ses couples connus, quatre par exemple : : 4
 
-| a, et son correspondant b, ‘4 h
 Et supposons que l'on ait déterminé (la mathématique 1
 enseigne à le faire) une certaine propriété commune à Ë 14
 
@@ -251,7 +208,6 @@ di que l'espace est égal au carré du temps multiplié par « se un certain nom
 É } persiste, il ne sera plus nécessaire, pour savoir quel »
 1 espace correspond au temps 3 par exemple, de déter- 1
 fé miner expérimentalement cet espace (opération difficile M
-Ÿ en raison de la rapidité de la chute du corps); il suffira 1
 k k de déterminer mathématiquement un nombre tel qu'il 4
 à soit égal au carré de 3 multiplié par la moitié de 9,8088 ; à |
 î | si (autre exemple) entre la température d'une barre
@@ -269,8 +225,6 @@ de 1",04 par exemple, de déterminer expérimentalement
 cette température (opération longue, coûteuse, sujette \
 | à erreurs et à recommencements); il suffira de détermi- |
 ner mathématiquement (à coup sûr) un nombre tel que
-; si on le multiplie par De et qu'on ajoute à ce produit
-À le nombre 1 on trouve le nombre 1,04. — En un mot, si
 : la relation existant pour les couples connus persiste
 pour les couples inconnus et seulement alors, voir n'est
 plus nécessaire pour savoir : prévoir est devenu possible. :
@@ -278,7 +232,6 @@ On cherchera donc si la relation persiste. A cet effet, ‘A
 on formera — expérimentalement encore — quelques il
 | couples inconnus, par exemple le couple (a, b,), et l'on pi
 | regardera si la relation existant entre à, et b,, entre M
-a, et b,, etc….., entre a, et b,, existe aussi entre a, et b.. N.
 Ici deux suppositions sont possibles : 1° Supposons 4
 d'abord qu'on ait vérifié que la relation existe entre #
 a, et b, et qu'on ait vérifié qu'elle existe pour un grand 1
@@ -299,7 +252,6 @@ carrés des temps, c'est une chose qu'on ne prouvera ni
 2 ici, selon le mot de l'apôtre, « l'argument des choses |
 ; invisibles et la substance (1) des choses espérées ». Et |
 # la persistance d'une relation est encore l'objet d'un M
-ur Le À se A Di
 4 préjugé, (2) plus exactement du préjugé de la coutume, 4 |
 ï puisque la seule raison qu'on ait de croire que la rela- À
 tion sera, c'est qu'elle a été. — Mais cette foi, comme à
@@ -309,7 +261,6 @@ de lière : elle est révocable : si ce qu'elle croyait vrai vient 1
 j plus, elle se sait révocable : elle sait que ce qu''élle croit
 ue vrai peut cesser de l'être et que la durée d'une chose, à
 £. si longue soit-elle, n'implique en rien sa nécessité.] (3)
-#4 “ t #
 " (1) « Sub-stance » c'est mot à mot le grec « hypo-thèse » (ou +4
 “1 (2) Voir, sur la nécessité des idées préconçues, Henri Poincaré f
 24 (Science et Hypothèse, page 1390). i
@@ -328,12 +279,9 @@ a ki M. Bergson, heureux de leur absence. Voir une critique du bergPH sonisme pa
 "M dune relation n'implique pas sa nécessité; que, par exemple, cette 1e
 ct vérité : « entre la masse d'un corps quelconque et son poidsilya
 x proportionnalité » est d'un tout autre ordre que celle-ci : « entre
-4: un rayon d'un cercle et la tangente à l'extrémité de ce rayon Üy
 Nr: a perpendicularité. » — Pourtant la différence est peu subtile. —
 5308 7 8
-# k ÿ fi ps
 
-| RSS AVANT-PROPOS RES hi
 We. 2° Supposons maintenant que la relation n'existe pas if
 1 entre a, et b,. (Ou bien que, existant entre a, et b, elle ;
 à cesse d'exister pour un couple très proche (a,, b,) par Ne
@@ -376,8 +324,6 @@ varient énormément avec la nature des substances. Seul, le phé- |
 L © PAstronomie, soit par le maniement journalier des corps, pour que 1
 ‘ nous lenregistrions sans un sentiment de surprise et d'admiration. » ” |
 
-MURAT } è 20 is Der TR EE AT LE N L'ETE COIN 4 EUR {
-DE | Julien Benda UNS
 e posant au premier.) On cherchera alors et on trou- 40e
 F vera (nous avons dit que la mathématique enseigne à D :
 À le faire) une nouvelle relation telle qu'elle existe à la "À
@@ -386,12 +332,10 @@ termes du couple réfractaire, disons entre à, et b,. On 1
 ! cherchera alors si cette nouvelle relation n'existe pas ‘4
 : aussi entre a, et b,. Supposons qu'elle n'existe pas. On ‘4
 changera encore cette nouvelle relation en une autre U
-qui existe à la fois entre a, et b,, a, et b,, etc..., a, et b,; vi
 et l'on cherchera si cette nouvelle relation n'existe pas ; ‘4
 aussi entre a, et b.. Et alors, de deux choses l'une : ‘4
 Î ou bien, après un certain nombre d'essais, on trouvera “VA
 | une relation valable pour un grand nombre de couples À
-et autorisant à croire à sa persistance, ou bien on ne k
 | trouvera jamais une telle relation. |
 | . D'où la distinction suivante entre les correspondances : à
 Étant donné une correspondance, il est ou il n'est pas 4
@@ -411,10 +355,7 @@ peut prêter au malentendu : En effet, ce n'est pas entre deux phé- “1
 k nomènes qu'a lieu la relation, c'est entre deux éléments de chacun 54
 d d'eux (entre le temps d'aujourd'hui, par exemple, et l'espace d'au- Al
 1 jourd'hui); ce qui a lieu entre les deux phénomènes, c'est la V2
-pe constance de la relation. , : N'
-| 14 | ‘4
 
-WU ( dt: à & à we à LTÉE pra FAN L ot ME à à A
 | M. Poincaré, importe : peu importe l'idée qu'on se fait, #5 sn
 suivant les époques, des choses entre lesquelles elles
 ont lieu. (1) Ré.
@@ -444,7 +385,6 @@ images que nous sommes forcés de mettre à leur place. Si ces +400
 rapports nous sont connus, qu'importe si nous jugeons commode
 de remplacer une image par une autre. » (Science et Hypothèse,
 
-Julien Benda L: ‘1tER
 logiques. [On prétendit même ensuite ramener ces cor- pi |
 respondances logiques à un type unique, dit « équations ‘4 |
 de Lagrange ». Représenter tout phénomène naturel par 1 |
@@ -532,9 +472,6 @@ Poincaré, Thermodynamique, préface, page x. Voir aussi idem, 7 nu,
 
 | et aussi E. Picard, Quelques réflexions sur la mécanique, page 2.) Î Ni
 
-LOT QUER SR ar nt à TES NN DE: dit cad à à |
-À qu'il cherche à connaître — et, par là, d'observateur il UM
-
 — c'est un monde extérieur modifié par ses soins de
 à manière à être capable de lois (par la suppression des f |
 j frottements, comme dans la chimie des hautes tempéra- A
@@ -551,29 +488,6 @@ tueuse à l'homme et même suflisante.. Il abandonne la ;.
 
 M. Poincaré (Science et Hypothèse, pages 181 et suivantes). 3
 
-# n s: LA NI PO HECEETES
-
-1 1 RE A TOR # LA KA sis qu FR dis di d EU (AY es ji te A Le
-4) | \HITSS RARE AN RETURN RTE rte JAN du
-; (Eu ÿ : DD AH D EIRE ) Faire Aus j'a 1 A
-CN WAne que À fait PE ‘M LE
-nu: dei ï i Fe ; 5 on HRSLAATTA TU | RAA
-|, AEATE et \ à ç } 4 MD k « NAT
-:\ TAPER the RS ATEL te SA AQU An TNT (RAR GA A : 4 RENAN D ( M4 TE
-(fl En ATEN ot, TA PR ATIE DAS APRQE EN QU (Aa Ho) Ah.
-
-: | L'ÉONMEAS ESP 6e: / FRE bo SAN à: hi À LARGE : prit 4
-de À
-#0 . #
-sa) sl
-# 4 he
-de aie là À FA » TU ET
-
-# LES PRÉOCCUPATIONS MÉTAPHYSIQUES
-él DES PHYSICIENS MODERNES QE
-Ne ni
-
-HS) t } PNR AN LE RS LUE EN lo 4 70 ie Et
 58 aux Cahiers de la Quinzaine el
 4 1
 ÿ el Le présent petit index donne automati- DA
@@ -586,15 +500,12 @@ N du cahier lui-même, dans la série ainsi - NA
 \( déterminée, en chiffres arabes, de sorte , FA
 1 que V-17 par efemple doit évidemment se ri
 0 lire dix-septième cahier de la cinquième « #4
-vi à b) la date du bon à tirer, ou, à son dé- #° 10
 1 faut, la date du fini d'imprimer, où, à son à k it
 4 défaut, la date du cahier même; 10
-1h # c) le prix actuel; i 74h
 EC d) quand il y a lieu, c'est-à-dire pour nos D:
 RAT, éditions antérieures et pour nos cinq pre- "4 LY
 TA mières séries, la page du catalogue ana- ‘Es
 22 SR lytique sommaire où ce cahier se trouve 11
-#00 _ catalogué. at:
 À Georges Sorel, — quelques mots sur Proudhon; références
 54 ©— — delÉglise et de l'État, — fragments (I-3, samedi 4
 
@@ -617,7 +528,6 @@ l'esprit des géomètres; mais il faut procéder à une dis
 cussion spéciale pour chacune des branches, eticijene
 veux m'occuper que de la physique, c'est-à-dire de la ne Û
 possibilité d'appliquer la mathématique à la connais- A
-À sance de la nature. ” 3h
 
 F Les conclusions sur lesquelles sont d'accord les F
 ù savants contemporains ressemblent fort à la conclusion |
@@ -640,7 +550,6 @@ oi: et jamais aucune détermination propre à un instant
 fe J la question de savoir comment les choses sont consti- ]
 3 ; tuées, question qui, aux yeux des anciens, devait
 % découler de la mathématique.
-de
 4 ( » I me paraît extrêmement vraisemblable que cette technique
 # ; a eu, d'ailleurs, une influence considérable sur la pensée de Kant.
 J La Critique n'aurait pu être écrite avant le temps où elle le fut,
@@ -697,7 +606,6 @@ couche. Cest ce qui représente, à proprement parler, ce que les ! Le
 
 \ Grecs appelaient du terme Te de phénomènes ». (Paul Tan- à
 \ nery, Recherches sur l'histoire de l'astronomie ancienne, page 10) Ni
-\ Re L fl at
 
 elle n'avait cherché que la construction des tables nautiques. « Le but de la mécanique céleste, dit M. Poin-
 
@@ -763,7 +671,6 @@ avait cru pouvoir l'établir, on verrait toutes ces orbites A
 couvrir de légères bandes autour de positions moyennes. (4
 C'est sur l'existence d'un tel mode de succession À 10
 que l'on discute et non sur une prévision de phéno- wi à
-mènes. je 4
 
 Tandis que l'astronomie se préoccupait ainsi de péné- “ 1
 trer la nature du système planétaire, les physiciens NU
@@ -882,7 +789,6 @@ bonnes, c'est l'essentiel, puisque c'est au moyen de ces b
 à (1) Thomson, Conférences scientifiques et allocutions (traduction !
 È (2) Poincaré, Optique et électricité, tome I, page 61 et page 9. 4
 (3) Poincaré, la Science et l'hypothèse, page 247. |
-| (4) Loc. cit., pages 250-251. ‘UE
 
 à entre les objets réels, [c'est-à-dire] la seule réalité que 16
 nous puissions atteindre ». (1) | 13
@@ -967,7 +873,6 @@ Ce savant se demande même quelle voie auraient suivie ‘À nt
 
 les physiciens, s'ils avaient voulu construire toute leur ÿ: à
 
-ï science en partant de l'hypothèse de l'immobilité de la ne \é
 terre; il semble, au premier abord, que l'expérience du or:
 pendule de Foucault aurait dû les avertir qu'ils faisaient je
 5 fausse route: M. Poincaré estime (3) qu'avec de l'ingé- Hi) ni
@@ -980,7 +885,6 @@ que les sphères de verre de Ptolémée et on irait ‘4
 , ainsi accumulant les complications jusqu'à ce que le à
 i Copernic attendu les balaye toutes d'un seul coup en Re
 
-mn TU » Georges Sorel" 14000
 ‘à disant : Il est bien plus simple d'admettre que la terre M
 ; Grâce à M. Poincaré, il ne sera plus permis de dire 4
 que la chose la plus admirable que présente la science, À
@@ -991,10 +895,6 @@ que la chose la plus admirable que présente la science, À
 ï fragile et il ne me paraît pas inutile de revenir une fois
 re de plus sur les questions qu'il a traitées. 7
 4 1
-
-#3 À
-
-ni
 
 Je crois que pour résoudre les difficultés que présente =
 
@@ -1026,7 +926,6 @@ seraient ces images dont parle M. Poincaré et qui 4
 À servent à aider les mathématiciens; avant de tomber €
 au rang de fossiles ou de figures du langage, elles ont été \} à
 
-L _ Georges Sorel RESTE
 Fr la chair de la science. Auguste Comte avait jadis décrété 1
 ïs qu'il fallait se garder des hypothèses et prétendu que À
 4 leur emploi appartenait aux âges théologique et métaPi physique; tout progrès eût été arrêté si ses contempo- |
@@ -1055,8 +954,6 @@ Be, dans la genèse d'une nouvelle science. Aujourd'hui on
 
 1 n'examine plus de très près les preuves expérimentales
 
-jh qu'on en donne. Il y a soixante ans, au contraire, On ?
-
 ‘4 n'attachait qu'une attention médiocre aux faits, assez
 1 nombreux, qui étaient en contradiction avec la théorie |
 
@@ -1066,11 +963,8 @@ hi tendue science d'Auguste Comte qui n'était plus prise au sérieux …
 FA maintenant que par M. Brunetière (Reoue des Deux Mondes, premier |
 (2) Auguste Comte, Cours de philosophie positive (édition Littré),
 
-# 36 PEN
-
 du fluide calorique, dont la réalité paraissait évidente ; ï n
 on pensait qu'une science plus avancée expliquerait les qu
-du 3 “ane
 exceptions apparentes. C'est en 1842 et 1843 que Mayer Ne
 
 et Joule formulèrent la nouvelle doctrine et il fallut VA NL
@@ -1111,7 +1005,6 @@ sur les parois une pression par leur percussion. (2
 À _ Conférez un article de lui dans la Revue générale des Sciences du a
 à 30 juillet 1894 sur les difficultés que présente le postulat de Maxwell. I
 
-Le bi : Georges Sorel LUEUR
 rien dans l'enseigmement, occupe une place considérable
 dans l'histoire ; il paraît certain qu'elle détermina la !
 vocation de Clausius et cela seul suffirait pour la sauver
@@ -1165,7 +1058,6 @@ Il énonça, lui-même, un principe qui a une remarquable analogie
 
 } n'avait pas pour appui une représentation mécanique. 1°" 0
 
-ÿ LES PRÉOCCUPATIONS MÉTAPHYSIQUES $ nn.
 encore faire dériver des représentations mécaniques. ‘ 1
 
 Le principe de Carnot lui semblait boiteux et il fit de ‘ ‘i
@@ -1242,7 +1134,6 @@ que renferme le corps (Exposition du système du monde, page 198). .
 Les points matériels ne sont pas autre chose que les centres de
 gravité des atomes. C4
 
-a LES PRÉOCCUPATIONS MÉTAPHYSIQUES he “4
 | mouvements et raisonner sur des forces analogues à la 1 (à
 pesanteur. Les corps électrisés s'attirent ou se repous- Ke
 sent; il faut donc qu'il y ait des masses électriques : à
@@ -1285,18 +1176,14 @@ stèmes articulés. (1) Nous sommes ainsi amenés à conce- : ‘ hs
 
 j voir les hypothèses d'une manière nouvelle et bien plus à
 
-e An VEN ARE fie de céne LL te: DUR A ee | pee Le |
 4 déterminée qu''autrefois : elles auraient pour but de
 remplacer la nature par des combinaisons analogues à
 |. celles que nous employons dans nos appareils. C'est
-| “ . A À |
 cette idée qu'il faudrait approfondir, pour comprendre
 ) vraiment le rôle légitime des. hypothèses dans la 14
 + science; mais avant de faire cette recherche, nous
 | devons encore signaler un service éminent qu'elles
 1 rendent à la science, d'où les géomètres actuels vouLe: draient les exclure. 41
-
-Jen : LA TQUE UE
 
 À Les hypothèses présentent quelque chose de para- : 19
 _ doxal : il est, de plus en plus, évident qu'elles sont tout A
@@ -1321,8 +1208,6 @@ _ que l'on ne tarderait pas à découvrir le mécanisme qui est caché Den.
 _ sous la loi d'attraction newtonienne. (Annuaire du Bureau des “#41
 longitudes pour l'an 1896, A, 35} 1
 
-A PA UNre A A AR ne de
-4 Georges Sorel PAS
 4 Il est douteux qu'avant le dix-sepiième siècle on eût "M
 ï l'idée parfaitement claire de lois Ciernelles et immuables; M s
 | les philosophes avaient toujours eu quelques hésitations M
@@ -1400,8 +1285,6 @@ notre esprit est conduit à admettre que nous atteignons D
 un degré supérieur d'exactitude : c'est en cela que l'uni- 4
 fication des explications (par l'élasticité) est intéres- . ‘ |
 
-| sante. | }
-
 Je citerai encore la thermodynamique comme un ;
 exemple de l'influence des hypothèses sur l'idée de loi
 absolue. A l'époque où Mayer et Joule firent connaître 4
@@ -1426,7 +1309,6 @@ rationnelle : « On allègue le principe des forces vives,
 1 1 dit J. Bertrand, (2) et l'on passe outre »; la conviction À
 28 , 2
 
-|! LES PRÉOGCUPATIONS MÉTAPHYSIQUES A
 | est devenue tellement forte que certaines personnes
 __ « traitent volontiers d'ignorants ceux que de sérieuses ‘111
 M: études conduisent à faire des réserves ». ven
@@ -1439,9 +1321,6 @@ pose toujours que l'on peut appliquer les formules pu 4
 ) construites en vue de ces cas particulièrement simples | SE
 4 et on transporte à la physique l'idée d'absolu qui appar- 1
 f. tient aux mouvements de la mécanique rationnelle. 1 1708
-| “ R 3 a,
-| RAT
-| He:
 
 4 \ L'examen des hypothèses nous amène toujours à
 à considérer, à la place de la réalité, des appareils 4
@@ -1541,7 +1420,6 @@ cette identification croissante de l'atelier, de la fabrique ::2000
 automatique, et du laboratoire du physicien. C'est 40
 de ce grand fait qu'il faut partir pour reviser les prin-: | ‘1
 cipes qui sont demeurés jusqu'ici encore obscurs dans 1 0
-la science. H +. 704 b
 Il s'en faut cependant de beaucoup que l'automatisme | 4 ti
 ait encore autant dominé le laboratoire que l'atelier; EC
 mais c'est en raisonnant sur l'outillage le plus perfec- 10
@@ -1555,8 +1433,6 @@ produisait des mouvements plus rapides et plus précis M:
 que les mécanismes; la division du travail a disparu Dx.
 quand on sut tailler des appareils suivant des principes ‘40
 1 (1) Le très ancien laboratoire a été souvent caractérisé par ce LT
-RE pe ne QR  , 4
-| riences. AE ‘14
 
 l Georges Sorel +1 3 1
 géométriques. Lorsque nous voyons aujourd'hui un M
@@ -1591,7 +1467,6 @@ ke (1) Reuleaux prend comme exemple un rémouleur qui fait tourner ! À
 | mécanisme et le noter dans sa nomenclature. (Cinématique, tra-
 | 42
 
-| Les PRÉOCCUPATIONS MÉTAPHYSIQUES no
 un corps englobé dans sa combinaison de mouvements; A
 | c'est ce corps que Reuleaux appelle la pièce d'œuvre; (1) L
 | quelquefois l'outil façonne cette pièce et la force à 4
@@ -1674,7 +1549,6 @@ _ forces naturelles. » (Loc. cit., pages 934-236, page 256) Cette On
 
 4 remarque a une grande importance pour Fhistoire. à 4
 
-D UP oi A NAS AL LU CE DA LENS vtr Men ct LS ON EP à
 1 destinés à l'observation du ciel et les artisans ont a.
 longtemps construit, avec beaucoup de luxe, ces appa- ne
 4  reils. Les artistes grecs étaient persuadés que la perfec
@@ -1687,12 +1561,7 @@ EL tion des sphères armillaires au moyen desquelles on 1
 assez adroïits pour résoudre le problème pratique qui 0
 ‘à leur était proposé. C'est donc sur l'industrie d'art que se “ii
 K: fonda tout d'abord la science. 4040
-#3) { EVA
 
-# y ; 14 ||
-| Û w On |
-| VI L
-| à
 Le constructeur moderne s'efforce de disposer les
 appareils de telle sorte qu'il puisse raisonner sur eux
 comme fait le théoricien; les dispositifs qu'étudie la mé- 4
@@ -1720,7 +1589,6 @@ telle loi, ce n'est jamais que par approximation, et sal
 
 Ï parce qu'ils ont substitué un corps fictif au corps réel; 4
 — et ce corps fictif est choisi de manière à ce que ses f
-tiques. (1) ni)
 
 Il y aurait complète indétermination dans la science ÿ
 
@@ -1799,7 +1667,6 @@ En choquer une sphère ; Faye montre comment cette considération Er
 pour se représenter les mouvements des planètes, suivant qu'elles Ai, 14
 4 sont extérieures (Mars et Jupiter) ou intérieures (Vénus et Mercure). 1} à
 1% (3) On serait ainsi conduit à abandonner complètement le mode
-à d'exposition classique de la mécanique et à supprimer la LS 1/00
 it mique du point ; cette réforme a été proposée (Picard, Quelques :
 1e réflexions sur la mécanique, page 14) ; mais elle paraît présenter de À #8
 CAN bien grandes difficultés pédagogiques. +240
@@ -1865,7 +1732,6 @@ _ pas à passer dans le domaine de la pratique. Le laminoir, dontle
 24 4 “4 dans une forte mesure, à développer la production du fer. Certains FX te
 _ moulins dans lesquels on avait cherché à imiter les fonctions des nn
 AA dents de l'homme ont eu un insuccès complet. » ‘un pe
-#4 La n Se, #
 
 , _: était en état de former toutes ces définitions. Dans la (0h
 | réalité il fallait se contenter d'approximations, bien que ni.
@@ -1899,9 +1765,7 @@ A () Ce sont là deux conclusions très singulières que les fonda- N Le
 \ rature. La science du dix-septième siècle supposait le monde infini EU
 À ; et éternel; les évolutionnistes modernes ne se sont pas encore nt ;7 \
 Ait bien rendu compte de Pétat de la question. j ,
-vd Sorel Le
 
-| Georges Sorel NP
 nique misérable du dix-septième siècle, plus aussi nous
 | avons acquis le sentiment de notre ignorance; nos pères
 | avaient, au contraire, un sentiment singulier de leur Ë
@@ -1942,14 +1806,11 @@ Il semble que la doctrine exposée ici devrait conduire A
 | à une solution paradoxale : les lois expérimentales ( ‘4
 dépendraient de l'outillage expérimental employé, alors UE
 | qu'on admet toujours le contraire. Maïs sur quoi se 4
-È (x) De là vient l'extraordinaire naïveté de la théorie du progrès H 4
 ê chez Condorcet. 04
 
-ne. LES PRÉOCGUPATIONS MÉTAPHYSIQUES
 4 .. fonde-t-on pour admettre l'indépendance qui existerait 4 ‘à
 * entre les lois et le mécanisme expérimental ? Sur le 11
 | postulat parfaitement faux de l'identité de la science et
-4 de la nature. H ; i ne
 L'influence de l'outillage ressemble fort à celle des +74
 | hypothèses : on peut arriver aux mêmes résultats avec ne
 ee des combinaisons assez dissemblables; il faut aussi 3
@@ -2001,8 +1862,6 @@ Les lois de l'énergie pourraient bien appartenir à la .°#i
 
 science et ne pas être des lois de la nature. | 4
 
-SGA UE tt M GA R  LA M P  LÉAE LA D AN LA nl
-# VIl 1 ECIRS
 La mécanique rationnelle sait fort bien qu'elle ne ‘1
 _ saurait identifier ses résultats avec les faits; depuis 01008
 | longtemps on a pris l'habitude de distinguer entre 15
@@ -2059,7 +1918,6 @@ Ainsi il est possible de construire des machines excel- th k
 E minées et il faut se concéder une large marge; chaque nouveau
 F paquebot réalise un progrès aux essais sur le programme donné >2i)
 4 au constructeur. Les vitesses vont ainsi toujours en Me 4
-#4 ‘4
 
 nl lentes sans posséder des données physiques exactes et ne
 à . sans avoir à résoudre des équations analogues à celles 5
@@ -2118,7 +1976,6 @@ identique à la mécanique rationnelle. Mais on voit que °4
 cette identité de la nature et de la science tient à L
 un accident et ne saurait constituer une présomption be
 en faveur d'une identité analogue existant sur la, e
-terre. L
 Dans la physique terrestre, il existe un autre phéno- ; 1
 mène qui a fait croire à l'identité de la science et de la ‘4
 nature : l'acoustique s'explique très bien par la théorie : 4
@@ -2178,7 +2035,6 @@ g phénomènes irréversibles qui ne comportent aucune loi D
 de leur appliquer, en toute rigueur, les principes de
 | l'équivalence; il n'est point possible de faire des expé- Et
 riences bien précises pour prouver l'exactitude de la loi |
-| de Mayer et de Joule, et si on l'a admise si facilement ÿ 1
 à c'est parce qu'on a cru que la nier équivaudrait à
 è admettre le mouvement perpétuel; mais M. Poincaré 10
 observe que (1) « l'impossibilité du mouvement perpé- 14
@@ -2188,7 +2044,6 @@ Det, très grand nombre de cas, de rendre tout à fait négli4] geable l'influen
 Fe, ainsi des contacts plus ou moins parfaits entre la science, M" |
 x ; et la nature; ce sont ces contacts qui se traduisent par 1
 à des lois qui font croire à la possibilité d'une identificae tion permanente et universelle entre la science et la EL
-k nature. À vraiment parler, il n'y a pas de loi de la
 4 2 nature, mais seulement des lois du mécanisme au moyen
 0 duquel nous reproduisons, dans certaines circonstanees, 14
 1 très particulières, certaines déterminations voisines de
@@ -2201,7 +2056,6 @@ Lil d'une manière bien explicite, que la science et'la nature ne
 | forment deux mondes séparés par les phénomènes irré- Î
 Ki} versibles; ils oscillent entre un scepticisme exagéré ‘3
 4 et une confiance trop grande dans les résultats de la Ÿ
-fe science. L
 EX La doctrine exposée nous conduit à placer à part cer-' :10
 je tains groupes de phénomènes et notamment ceux de ‘à
 Ur l'astronomie, Pour le ciel la science et la nature seraient 1
@@ -2217,7 +2071,6 @@ d'opérer de la sorte parce qu'elle opère sur des méca- Eu
 nismes qu'elle se donne, qui sont analogues aux mé- À ‘à
 
 canismes expérimentaux et comme eux parfaitement : ‘à :
-| . . DRE
 isolables de la nature. (1) S'isoler de la nature dans une À
 
 | (à) L'expérience suppose que cet isolement est pratiquement LR
@@ -2227,12 +2080,10 @@ tn possible : s'il en était autrement la nature ressemblerait à un être M
 15 ë connaissance de l'être malade. ; x 4 »
 
 ‘4 construction artificielle c'est créer le repos absolu et e
-#9 à mouvement absolu. L
 ki: Ce sont les principes du déterminisme qui se trouvent,
 k : surtout éclaircis par cette doctrine de la science; je”
 2 vais indiquer sommairement sous quels aspects ils sew
 N: présentent. On peut distinguer dans le déterminisme.
-J NE trois axiomes : 4
 * 1° Si tous les phénomènes ne sont pas susceptibles
 ‘4 d'explications mécaniques, ils se produisent cependant
 18 dans le temps avec une connexité entre leurs états suc4 cessifs identique à celle qui existerait si une explication |
@@ -2279,11 +2130,7 @@ doctrine' qui correspond à leur pratique scientifique. . Se
 | Peut-être ce modeste travail aurait-il pour résultat de
 provoquer quelques réflexions utiles et d'amener les
 savants à mieux mettre en lumière les principes de la
-| GEORGES SOREL
 | (1) Revue de Métaphysique et de Morale, novembre 1903, page 727. b
-
-du d ANA
-LE [ RER Lan
 
 _ L'article que l'on vient de lire avait été publié pour _
 jt la première fois dans la Revue de Métaphysique et de 1
@@ -2291,7 +2138,6 @@ _ Morale. M. Sorel a relu les épreuves de ce cahier. Les ‘0
 À ‘4 autres articles de M. Sorel publiés dans la méme Revue f 1
 _ sont dans l'ordre chronologique : “ À
 ) 1899 mars Y a-t-il de l'utopie dans le marxisme? 1 :
-EPA ne ci RAA Ut
 D traduit dans les Saggi di critica). a
 (11 1899 mai L'éthique du socialisme. ‘10
 1900 juillet Le système des mathématiques. C4
@@ -2305,10 +2151,6 @@ _ Comme annexe à cet article, nous reproduisons ci- 1
 après le compte rendu que M. Sorel fit du livre de 170
 M. Poincaré à l'apparition de ce livre : ‘tue
 
-| F or
-
-| AN Hi AN te te EU GTINIE LR
-10 PorncaRÉ (Henri). — La valeur de la science. In-12, A de
 #08 M. Poincaré- semble avoir voulu marquer, d'une manière 14
 11 _ définitive, la frontière qui le sépare de l'école de M. Le Roy; he k » mais je crois qu'il y aurait quelque chose à ajouter à ses + 1
 _ explications pour permettre au lecteur de comprendre la 11e
@@ -2334,7 +2176,6 @@ MR: construit. M. Poincaré ne paraît pas disposé à les admettre : 10 (a
 que net il cherche à se dégager des liens qui le rattachent à cette (4
 _ nouvelle philosophie. Il me semble qu'il n'y parvientqu'en
 _  prêtant parfois à son adversaire des exagérations qui ne | 1e
-F3 correspondent pas, à mon avis, à la pensée de M. Le Roy, nn,
 
 ‘ ie Georges Sorel de 10
 Ke: mais que l'on peut seulement inférer d'une terminologie ns
@@ -2414,7 +2255,6 @@ pur moins une fois sur trois quand ils abordent des terres nou- mi
 Lo velles; quand ils ne se trompent pas complètement, ils LA
 ‘4 _ voient les choses sous un aspect qui ne sera pas celui qu'on. 60) ‘à
 
-ie ne à 4 Georges Sore PISRMCE st ad APM |
 1 leur reconnaîtra plus tard; toute exploration a débuté par ri
 ñ une description de monstres que n'ont pas retrouvés les. \"4
 # voyageurs ultérieurs. Je crois donc qu'il serait bon de faire
@@ -2439,7 +2279,6 @@ M. j'avais essayé, il y a dix ans, d'appeler l'attention sur ce … Le
 à mon sens, la science n'est pas tant dans le laboratoire que
 10 dans les arts usuels et il n'y a vraiment science que de ce Ê
 \s qui est utilisé journellement par l'industrie. É n
-2 Il me semble que M. Poincaré et M. Le Roy pourraient se {
 F - mettre d'accord sur un point : le discours parfait que la
 KL W science emploie gêne les vues sur la nature et il est un Li
 58 obstacle pour l'introduction des progrès scientifiques; c'est à ”
@@ -2450,9 +2289,7 @@ FA de peine à s'orienter aujourd'hui. Mais n'y at-il point
 0 quelque chose qui est l'objet même de la science et l'organe
 Re de la recherche scientifique ? Ce quelque chose est le méca- a ét:
 2 (1) Dans un article intitulé : Ancienne et Nouvelle Métaphysique.
-# ‘4 à ; 4 ne
 
-dis AA ALL NE NA A
 * nisme qui revêt trois formes : dans les arts usuels, dans
 ; l'expérience de laboratoire, dans les hypothèses modernes.
 Il me semble qu'il y aurait moyen de résoudre bien des
@@ -2470,11 +2307,6 @@ science et le monde.
 G) Approximation qui est d'autant plus grande qu'il entre moins
 de la nature dans nos appareils ; les sciences ne s'appliquant rigou- 4
 reusement qu'aux mécanismes entièrement créés par nous. \
-| Sorel, — 5.
-
-|! Se à ANAL CTP LT ET OR NEC TE TEE
-
-#0 0 à 1.14
 
 Le compte rendu que l'on vient de lire est emprunté
 ; à la Revue générale de Bibliographie française, numéro
@@ -2486,7 +2318,6 @@ l'année : France, Algérie, Tunisie, dix francs, Étranger
 librairie des cahiers.
 Les ouvrages de M. Sorel qui se trouvent en librairie
 sont aussi en vente à la librairie des cahiers; notam-
-| ment :
 1901 L'avenir socialiste des syndicats. ;
 1901 La ruine du monde antique.
 1903 /ntroduction à l'économie moderne. .
@@ -2498,17 +2329,9 @@ sont aussi en vente à la librairie des cahiers; notam-
 _ 1906 Le système historique de Renan. 3 s
 | 4
 _ 1903 Saggi di critica del marxismo (traduction et pré- Mer.
-face de M. V. Racca). ARGUS
 | 1906 Insegnamenti sociali della economia contempo- | 4
 * ranea (traduction et préface de M. V. Racca). 14
 
-MP (on A Xe ta DATA) jus TE
-AU an vie 4 ÿ nie SONANC ER (ETES AURAIENT
-| 80 t L fiers Done
-| LTONRRES + LAN Pen 0
-# CLONE vi DANNY LU CP D'ISNE
-
-AE A ET it LS A A ER CR LE cd CE DE GUN un ce
 Al Il a été tiré de ce cahier treize exemplaires sur ' ="
 
 } whatman ainsi distribués : EM
@@ -2516,7 +2339,6 @@ h premier exemplaire de souche, exemplaire du gérant;
 
 pl deuxième exemplaire de souche, exemplaire de l'ad1 ministrateur; i 4
 | troisième exemplaire de souche, exemplaire de l'im-
-| primeur ; À 4
 b dix exemplaires d'abonnement, numérotés de 1 à 10
 s Tous nos exemplaires sur whatman sont numérotés 1
 AE à la presse et imprimés au nom du souscripteur ; nos \
@@ -2532,16 +2354,6 @@ KL Les Cahiers de la Quinzaine sont composés à. la main,
 71 en caractères fin dix-huitième siècle (Didot) de la fon- ‘40
 As derie Mayeur (Allainguillaume et compagnie succesMan seurs) 21, rue du Montparnasse, à Paris, sixième M
 
-sai LEE PAT HA EuRrt NORTON DÉAUNT Qui ta (RDA HA RNCS \ Qu sd À
-Ki De : ENT Re el) £ Î Dan
-: DÉÉRNESSS t Î D ON isa
-DO dt £ TV ft \ k LA RCEAR TRIE Li NLAIEIES
-« . SPA RIT DS } 4h) Fi Les, V Lan QUE ANTES IE + NAISUSE
-AS tes DR, ut CRUE NRC MAL ALA TA AUE pui ANRT SE YU AECHONE ANNE
-VAT suit BA jp AL re VS ACL ART LT Ve L …
-HUE ie FA \ SCORE SENEATT Le
-
-nue CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 À l rez-de-chaussée, Paris, cinquième arrondissement. ‘4
 ‘ Nos Cahiers sont édités par des souscriptions men4 suelles régulières et par des souscriptions extraordi- C8
 à naires ; la souscription ne confère aucune autorité sur 14
@@ -2570,12 +2382,6 @@ D. dans l'ordre de l'arrivée, les numéros les plus bas venant Fa
 à D numéro du tirage réservé à chacun des souscripteurs ;\
 ‘ia l'édition sur whatman est strictement limitée au
 
-100 20 AU ARS OE OT Ps D ALé nu LU SE LED a GAS ne Qi OA de AAA dRchS fo MON ELU ”
-SE cAGAN VASE DLL Du DATA UE ses CA at à A dt ot su CNE }
-ra RE ART AN le: NPA NUE METRE SAR \ a A.
-LASER l _ LEA eee
-| ni * 4 CF HIER n
-
 | Pour tout changement d'adresse envoyer soixante D |
 | centimes, six timbres de dix centimes. a h
 Nous engageons nos abonnés de certains pays à nous
@@ -2597,6 +2403,4 @@ ro A partir du premier janvier qui suit l'achèvement de
 __ d'une série, le prix de cette série est porté au moins 1
 É au total des prix marqués; ainsi depuis le premier Li
 à janvier 1907 la septième série complète se vend quarante- ‘1°
-| trois francs. 5
-# : *
 4

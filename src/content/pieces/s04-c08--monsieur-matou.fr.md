@@ -10,101 +10,14 @@ wordCount: 18475
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-| | Ménn 4
 ‘ dans le comm TR
-4 ns ce JTE TER Aa
-, Nous vendo MAR RS
 
-Ne) PATES E ARS AE 7e EU De Re LE ee RAA
-ROUE EN f fus Un PSP
-| SARA JT Fa ML:
-Là nr SUR ru ÿ age ù de
-ne AL to “Os Lys W na , #1 } ACIER
-
-AUTRE NEO ne ot pl RENE \
-l pi Hi At qe y : L } AA (0e LAS RU
-EN CQU EAIRE L APENT p YTEN tre À Hat | ARNCAEN NENNE EI | ARCS
-NPA MN RAS ni FOR PEAEN
-A | ji NN ne AN ane
-LA CNORE IP RON EN x x k 1 RE AE VTSUR KA NO ns À oh AS
-VUE SAULT (EU qe NU ne june EU à RCA
-RO ATANIAnnte | ' nent, RAR EE ne
-tu HAT ] LU Ne NN ART nan
-(IE RONA di 4 jh LEA AA Ann de PA EVE)
-Le NOTA AIO : DR AE AE de dr RAA ERA
-
-JT (4e Ne CT ns e S PS ER ké. 4 rt
-À ie Hire mA TR LHSETA MTS RÉRMPETE 1e 6 À pa 1
-1 5e (AFIN nt (à ne mnt jus FX %s DRE C#E x es rh? k FAUTe
-RE PAR hace LIL À : FE
 4 He De avec les bons souhaits des cahiers LT
 D REPRe SE, pour cette nouvelle année de travail ;
-RER "A di = on
-APR 0 de. On re
 
-Te QUR N LAN (se # SES ne AE NAS AE etc D
-MAS pri 1 ï + p y 4, . de a As, NEA ARE [M } dei
-|: SNA EEE : Se ee ar
-FAR cs sara HAN S LA TRUE UE TN ds AE
-OR TT ni € ù To Le Pau Ne
-LORIE < A te te ET HAE LE A
-RU f Ne ee Er DRE. ARS NE re
-
-h SEA NC RENTE i 4 RE HIATE HOT de ma wa A US
-ERA gp PAU | à à À au vi it Ne AN LAN
-CNRS HAINE : te (in Ne RACUE Mi
-
-Late PROS TRE L à à St aile WA Ln Ke a Ke Rene EN ‘g
-RUE) Wan | A L'ANPE te ei FALL NES RARE
-
-y FO AU ï ) We 1 NCA Ke Lee FA } de È
-
-Robe] É AN AVR UT HAS Mr De no
-AAA ce TS RAR ae FN
-
-sn na Du À ÿ qu ME NU HAE DANS AE
-MES DRE ru RC ONE tt 44 KE ;
-LEE HE RE pan ET ART ARE (y AE AR
-
-2 LÉ CN En CPAM NE LE ns er
-| L'ART A sf) Qt MN NE PPT Er TARA 0 ET F
-| qu à ire Le ALCS PAR E \P 48 Fan œ. B (rire f . A Ni 4 We
-MA EN De “ al Ait
-AU un APRÈS L''IMAGE ‘2
-se De D K Rxee AE k
-|'AXVIIE EEE moi" À TON TE
-
-AO sh W Ê HAS \o vin LE RATE QU OAI
-VU NARNIA) RENNES 19 A ire AE NTOE
-nn on (EN EE Rat
-ES UNE Fa 4 us 4 han RU SAN ï # ï es
-
-| | CE
-| S' OS
-” LT de DT ou
-
-d NE ue res es CU PA dat K As Le Ée M : CA \
-MEET re ADS SOL ONE 3 ne ah) RS L
-: A nl Tete « ‘y ÉPA SUR
 }ÉEPNER Pour nos petits +.
 \ 488 Pour nos petites Eu
 Di M ru Pour Marianne Mayer iv
-pt Le (4 ON TE EP 1 ie L
-| RE oo 2 x Pie)
-l'HTEATE nt 1 k
-
-D RE RNA EU NE (A HALL Lu pe RAT EU
-fi HQE Ni ñ £ AC q re OA ee A MIO
-4 LAS Fe £ 4 FN , sa Ne nes fe PE
-ci de sy HR \ | LR a '
-ji RE LA ON de ne METRE
-NEA 4 nr OR Le RE SA
-
-PARTOUT LU be VAN TOME AU La
-AS eur LE “ ARE PLATE MON
-| 1 MR EUR Re
-h RAA Ki: à ui JE NT A UARES Me RS St ARE Aer
-A Ne | is xt ' È JP RTE TA “4 î x
 
 Monsieur Matou est dans la dixième année de son
 âge. C'est dire qu'il devrait être un chat sérieux.
@@ -297,7 +210,6 @@ Cependant la table à ouvrage, qui est un peu boîiteuse, — c'est une vieille 
 elle a longtemps habité Paris, — la table, ébranlée
 par les secousses de monsieur Matou, bat une
 mesure en trois temps sur les carreaux du palier :
-Par, pan, pan — pan, pan, pan.
 
 — Monsieur Matou ne connaît ni le respect ni la
 pitié, soupire la table à ouvrage, ainsi contrainte à
@@ -486,7 +398,6 @@ laine est un être malicieux qui veut prendre part
 aux jeux ordinaires de monsieur Matou. Et pourquoi veut-il prendre part aux jeux ordinaires de
 monsieur Matou, sinon pour gagner toutes les
 parties ? C'est ce que monsieur Matou ne soufirira
-pas.
 
 Monsieur Matou est fort de cette erreur et, persuadé que mieux vaut ne pas se laisser surprendre
 par une manœuvre perfide du gros peloton de laine,
@@ -712,8 +623,6 @@ langue rose qui gratte en léchant,. |
 
 Après tout, comme dit Noémi avec beaucoup |
 de sagesse, chacun a sa façon de Lire la musique. |
-
-de AE at ON PEER
 
 : Le Dictionnaire grec entretient la Grammaire
 comparée de l'anglais et de l'allemand. L'entretien roule sur la civilisation dite mycénienne. Le
@@ -1108,8 +1017,6 @@ Voyez-vous, les murs lui auront dit:
 
 — Monsieur Matou, vous êtes ici chez vous, et
 
-|
-
 les chats du dehors, s'ils entraient ici, ne seraient
 pas chez eux, mais chez vous. Qu'ils viennent par
 invitation, passe encore, bien que nous n'aimions
@@ -1190,8 +1097,6 @@ comme un être qu'on aurait mis là pour amuser
 
 ses regards de propriétaire : oui, pour amuser ses
 regards. Les yeux sont comme les pattes : il faut que
-
-où
 
 Le chat du dehors est un pauvre chat maigre qui
 ne porte ni fourrures, ni pantalons à la turque, mais
@@ -1294,7 +1199,6 @@ Ce petit bagage est sans doute peu de chose au
 sentiment de la Grammaire comparée, laquelle est
 un répertoire imposant de phénomènes linguistiques
 et qui n'ignore rien des grandes hypothèses biologiques non plus que des bonnes méthodes expérimentales. Mais, de ce qu'on est fermé aux choses
-de la linguistique, de la biologie et de la méthodologie, s'ensuit-il qu'on est un ignorant et un
 
 Comment monsieur Matou n'aurait-il pas acquis
 des connaïissances utiles ou même superflues, lui
@@ -1335,7 +1239,6 @@ et du tien. Il surgit du bourrelet circulaire de poils
 que forme autour de lui le panache de sa queue.
 Son nez couleur d'anémone s'abaisse vers la rue
 tranquille ; sa nuque fait une grosse pelote fourrée.
-Il observe.
 
 La rue est bien tranquille en effet, bordée de
 vieilles maisons à deux étages et de murs par dessus
@@ -1552,7 +1455,6 @@ que monsieur Matou ne revint pas.
 
 | — Car s'il revenait, disaient-ils, monsieur Matou
 introduirait dans cette honorable cour et dans cet
-| Le
 
 honorable logis la mauvaise tenue, les mauvaises
 _ manières et le mauvais esprit des chats du dehors.
@@ -1646,7 +1548,6 @@ sont tellement faites à la vie contemplative et
 sédentaire qu'elles ne saisissent pas du tout la
 nécessité des déplacements.
 -
-|
 
 IL pleut ennuyeusement, d'une pluie dense et
 menue qui brouille les lointains. Voici que les maisons ne sont plus que des taches grises, les bonshommes des ombres grises, les arbres des silhouettes
@@ -1873,8 +1774,6 @@ vous êtes tout bonnement grotesque.
 Monsieur Matou ne parait ni se réjouir ni
 s'offenser de ces réflexions et observations.
 
-Il continue.
-
 entre deux barreaux. Il regarde bien devant lui.
 Comme l'escalier tourne, il y a devant lui un mur
 et, en baïssant la tête, il voit d'autres marches,
@@ -1895,7 +1794,6 @@ Jadis vivait chez nous mademoiselle Fédora, dite
 Petit Loup, chienne griffonne de menue taille qui |
 ayant ioujours été rageuse, criarde et vindicative, |
 devint en sus obèse et sourde avant l'âge, par l'effet |
-de l'inaction et de la goinfrerie. 1
 Monsieur Matou et mademoiselle Petit Loup se
 
 souffraient l'un l'autre. Après quelques rares conflits où mademoiselle Petit Loup eut tous les torts,
@@ -2114,7 +2012,3 @@ besoin d'un nouveau portrait se fait sentir, car
 monsieur Matou a maintenant plus d'ampleur qu'autrefois, et sa physionomie est moins distraite.
 
 Malheureusement, monsieur Matou a peur des
-
-t AR | ax MoN ; D MER UE la Pet 1 ; PA AT. lt
-
-|

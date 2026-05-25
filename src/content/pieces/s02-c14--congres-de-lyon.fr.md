@@ -40,9 +40,7 @@ traiter les questions de principe, mais il demande qu'on
 respecte l'ordre du jour, et il pense que les points touchés
 par Joindy seront mieux à leur place lors du débat sur la
 Wizzm lit la déclaration émanée du secrétariat du
-P. O. S. R. après consultation de tous les groupes. Ce ma- è
 nifeste affirme que le projet d'unification du Comité général
-a l'approbation de tous les groupes du P. O. S. R. Il appuie
 la création de fédérations autonomes régionales, mais
 demande qu'il n'y ait pas une fédération unique pour le
 département de la Seine, et déclare, d'autre part, que l'uni-
@@ -57,7 +55,6 @@ demandons qu'on nous le fasse savoir, afin que nous "à
 jugions ses actes ». Enfin, le P. O.S. R. réclame la création
 d'un journal socialiste qui soit l'organe attitré du Parti.
 La proposition Joindy est renvoyée à la commission. : -
-GAUTHIER lit une déclaration au nom du P. S.R., de l'A.C., “3
 - des fédérations du Doubs et du Haut-Rhin. Cette déclaration condamne la méthode dite « d'action nouvelle ». Pré-
 sentement, l'unification n'est pas possible, mais le P. S.
 demande, dans l'intérêt du Parti socialiste, que le Congrès
@@ -321,7 +318,6 @@ rapport sur la proposition du P. S. R. viendront en tête.
 MoxaGixoT rappelle que la mission essentielle du Congrès
 est le projet d'unification. IL demande que le rapport su
 cette question vienne le premier en discussion.
-z BAGxoL se rallie à la proposition Landrin.
 Viviani déclare qu'il est prêt à se rallier à la proposition Landrin à la condition que la commission soit en
 mesure dans une heure ou une heure et demie de venir
 donner un rapport sur les différentes questions. /Cris du
@@ -380,7 +376,6 @@ deux propositions, l'une de discuter l'entrée des syndicats
 et des coopératives dans le Parti socialiste et les conditions
 de cette entrée, la deuxième de suspendre la séance. La
 
-Le P. S. R. demande au milieu d'un grand tumulte la
 priorité pour l'ordre du jour Landrin.
 
 La majorité du Congrès s'étant prononcée en faveur de
@@ -873,10 +868,8 @@ Porte puisqu'elle a repris les termes de celle-ci. — La déclaration porte les
 RENAUDEL : € Je me suis rallié à la proposition Briand,
 parce que nous pensions qu'elle forcerait enfin tous les
 socialistes à s'incliner devant les décisions des Congrès. »
-Un grand nombre de citoyens du P. S. R. réclament la
 priorité pour la proposition De la Porte et le vote par ,
 Le P. 0.5. R. réclame vivement la priorité pour sa déclaration.
-BrraAND appuie la priorité en faveur de la motion du k
 P. O.S.R., puis il demande qu'on vote après sur celle de j
 De la Porte. {(Tumulte) “à
 Le président déclare que la première proposition parvenue
@@ -969,7 +962,6 @@ reçu mandat d'établir l'unité. D'autres délégués delamême
 organisation aflirment au contraire qu'ils ont mandat de
 maintenir les anciennes organisations sans faire une unité
 
-ee CONGRÈS DE LYON
 prématurée, mais en recherchant les moyens propres
 resserrer le plus possible les liens d'amitié entre organi- ‘
 JauRÈs voulant monter à la tribune, les guesdistes des
@@ -1019,7 +1011,6 @@ ARTICLE 11. — « Lorsque le nombre des groupes d'un dé- « partement est inf�
 Du fédération distincte et ils doivent se faire admettre à la
 fédération d'un département voisin.Cette disposition n'aura
 pas d'effet rétroactif. »
-ARTICLE 12.— « Les décisions du Congrès de la fédération,
 du Comité fédéral, de la section et de l'union des groupes
 sont prises à la majorité. »
 ARTICLE 13. — « Les élections des délégués du Comité
@@ -1107,7 +1098,6 @@ La séance est reprise à neuf heures. Re:
 È Une motion est présentée demandant d'interdire à tout
 socialiste de solliciter la Légion d'honneur. Renvoyé à Sa
 
-Pre” CONGRÈS DE LYON
 l'examen du Comité général, ainsi que tous ies amendements présentés sur les différents articles.
 On adopte sans discussion tout le reste du projet d'unilication.
 ARTICLE 26. — « Le Comité général reçoit les cotisations
@@ -1188,7 +1178,6 @@ Congrès de Lyon.
 « Chaque fédération ou organisation nationale aura un
 délégué pour vingt-cinq mandats, ou par fraction égale ou
 
-ions CONGRÈS DE LYON
 « Toutes les fédérations qui ont été représentées au
 Congrès de Lyon, quel que soit le nombre de leurs man-
 -dats, auront droit à un délégué au moins. »
@@ -1233,7 +1222,6 @@ Des délégués du P. O.S. R. déclarent qu'ils sont pour
 l'union et non pour l'unité.
 Jaurès demande alors d'accorder quelques minutes pour
 que la commission trouve une formule qui permette aux
-délégués du P. O.S.R. de signer le manifeste.
 Pendant cette délibération, une déclaration signée Jean
 Longuet, Buré, etc., est lue à la tribune. Les signataires
 refusent de s'associer au blâme adressé aux camarades qui
@@ -1331,43 +1319,28 @@ socialistes à collaborer à notre œuvre d'une utilité incon-
 La Bibliothèque Ouvrière Socialiste contiendra quatre
 catégories de brochures qui traiteront : 1 À
 
-1) Les principes socialistes. F à
-
-2) Les questions ouvrières.
 3) L'histoire du mouvenient et des idées socialistes.
 4) Les questions d'actualité intéressant le Parti socialiste.
 
 La Bibliothèque Ouvrière Socialiste publiera les brochures
-1. Les Principes socialistes. . . , JEAN JAURÈS
 2. Les Moyens pratiques du So-
 
-3. La Législation ouvrière. . . . GusTAVE ROUANET
-6. Les Coopératives en France. . A. HAMELIN
 9. La Réaction nationaliste. . . . Joixpx
-10. Le Crime dans la Société capiCN ai ee," ENRIGOFERRE
 12. La Question militaire, . . . . Gasrox Mocn
-13. Le Principe fédéraliste . . . . GEORGES SOREL
 14. Action ministérielle et Législation ouvrière . . . . . . . . PAUL DRAMAS
-15. La Coopération socialiste. . . NAVIER GUILLEMIN
 16, La Lutte politique et la Lutte
-17. Le Socialisme et la petite Pro- r:
-20, La Banque de France, . . . . RENÉ VIVIANI
 Nous ont promis également leur concours
-J.-L. Breton, Louis DupreuiLn, E. FAUQUET, ANATOLE
 
 quatorzième cahier de la deuxième série
 La Bibliothèque Ouvrière Socialiste se propose en outre ne
 d'éditer les brochures suivantes : E.
-POUR LA CATÉGORIE I Principes socialistes)
 Évolution et révolution. — Lutte des classes. — Action
 parlementaire et gouvernementale. — Socialisme et religion. 2.
 — Lesocialisme et les paysans. — Le socialisme et l''anar- #4
 chie. — Le socialisme et l'action municipale. — Les syndi- à
 cats. — L'unité socialiste, ete., etc.
-“2 POUR LA CATÉGORIE H (Questions ouvrières) : ES .
 La journée de huit heures. — Les grèves. — Boycottage.
 5 — Bureaux de placement. — Caisses de retraite et assurances, etc., etc.
-Pour LA CATÉGORIE III /Histoire du socialisme) : De
 Biographies socialistes : Thomas Morus et Campanella, 4
 Lassalle, Pierre Lavroff, Michel Bakounine, César de
 Paepe, etc., etc. De:
@@ -1477,7 +1450,6 @@ Ses réunions sont ouvertes à tous les sociétaires et
 aux personnes présentées par les sociétaires.
 Ressources annuelles et Fonds de réserve De.
 ARTICLE 17. — Les recettes de l'Association sont les sui- 3 Evanies : à
-1° Les cotisations annuelles ; Se
 2° Le produit des fêtes, conférences, représentations, etc.,
 données au profit de la Société ; CS
 3° Le revenu des fonds disponibles et constituant le capital

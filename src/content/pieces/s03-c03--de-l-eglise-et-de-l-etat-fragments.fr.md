@@ -31,8 +31,6 @@ risque d'y périr, les diverses U. P. jouent leur rôle;
 4 qu'au moment où il a fallu maintenir les principes de justice et de liberté individuelle, les intellectuels sont sortis de leur « tour d'ivoire », et l'on
 4 a conçu de grandes espérances de leur participation
 
-4 Charles Guieysse L AR.
-
 5 à la vie publique: il ne faudrait pas que les U. P.
 È” devinssent des tours nouvelles où des hommes de
 
@@ -123,10 +121,7 @@ h peuvent et doivent s'établir sans créer de nouvelles
 celle-ci perd un seul instant le souci de la liberté, le
 hi mouvement n'aboutira pas.
 
-‘1 Le Le Gérant : CuARLes PéGuy
-
 20 ! Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-E x # JMPRIMERIE DE SURESNES (G. guar| administrateur), 9, rue du Pont. — 5028 à
 
 Ve || Guieys$ë me pardonnera d'employer à ce témoignage
 personnel quelques morceaux d'un cahier'qui lui reve- Re.
@@ -140,7 +135,6 @@ D s'agit d'un guet-apens vulgaire et d'un ‘assassinat
 _ concerté. On dit dans les salles de rédaction, mauvais re
 - lieux, et on répète qu'on le tient cette fois, qu'on
 “ lattendait là, qu'on va lui casser les reins, qu'il faut ‘202
-—_ qu'il en crève, et qu'il n'en revienne pas, et qu'on se
 … n'entende plus parler de lui. Et devant les gueulements LS F.
 de tous les chiens de toutes les meutes certains amis
 É se taisent, attendent, écoutent la voix de la sagesse. è
@@ -166,7 +160,6 @@ talent presque unique. J'ajoute qu'il a eu très souvent
 
 À raison. Il peut redevenir un des soutiens de la Répue
 blique. Mais s'il se met sur le pied de nous mener dans”
-F la dénrence par la terréur de la dénonciation, je ne
 marche pas.
 re Je ne veux pas engager les cahiers dansune aussi grave
 déclaration personnelle. Mais on admettra qu'ayant
@@ -190,17 +183,14 @@ Pages libres est administré par Édouard Dujardin,
 Demander un specimen à M. Georges Moreau, 8, rue
 de la Sorbonne.
 L'abonnement normal à Pages libres est de huit francs
-par an.
 
 Je prie ceux de nos abonnés qui connaîtraïent à Paris
 des leçons de' sciences — mathématiques; physiques,
 chimiques — à donner dès la rentrée de novembre,
 de vouloir bien nrécrire pour me les indiquer.
-TE ne SANT PP EE ES
 
 É Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce deuxième cahier le
-LVL et
 
 rue de la Sorbonne, au rez-de-chaussée
 
@@ -232,7 +222,6 @@ la Valeur sociale de l'art, un volume à 1 franc.
 Elle va publier du même auteur
 la Ruine du monde antique, un volume à
 
-Elle a publié
 Karz Marx. — La Commune de Paris, traduction nouvelle et préface de Charles Longuet, un volume
 
 Épouarp BerrH. — Dialogues socialistes, un volume
@@ -263,7 +252,6 @@ faire exécuter les jugements. La question est de
 —_ savoir si, en fait, nos représentants donnent toute
 — garantie aux gens qui peuvent avoir à plaider contre q
 
-‘os « hr Sos 2 RE À de
 24 nous. (1) Nous sommes exposés à étre quelquefois
 44 trompés par nos hommes de confiance ; mais nous
 2 nous contentons de cette situation. »
@@ -361,8 +349,6 @@ semble absurde de se lancer avec tant d'audace sur
 des routes inconnues. Sa notion de la propriété si
 vague , sa conception d'un simple droit d'usage
 accordé par Dieu à l'homme, son idée d'une communauté humaine régie par la Providence, voilà autant
-
-“ nl MUR, x . . Ac : . cet APRES
 
 *i de raisons qui lui rendent difficile de saisir cette déchirure complète pratiquée par l'homme dans
 
@@ -549,7 +535,6 @@ soient parvenus à comprendre, encore à l'heure
 actuelle, les raisons qui ont rendu le divorce néces-
 : 2 saire. L'Église a raison quand elle dit que le
 1 à mariage n'est pas un contrat de louage de services
-A A: ou un contrat de société et qu'ainsi il ne saurait être
 rompu pour les motifs qui amènent la rupture
 _ d'obligations civiles; mais elle ne voit pas que,
 —
@@ -607,7 +592,6 @@ _ condamnations ordinaires. Le type le plus parfait
 de cette législation se trouve dans la loi du 22 prai_ rial an IL, que j'ai déjà citée : « La règle des juge_ ments est la conscience des jurés éclairés par d
 l'amour de la patrie; leur but, le triomphe de la j
 NT _ République et la ruine de ses ennemis » (article 8).
-3 (Doll n'y a de constitution, dit Aristote, qu'à la condition de la î
 souveraineté des lois. Si donc la démocratie est une des deux
 JA Fa espèces principales de gouvernement, l'État où tout se fait à coup
 _ de décrets populaires n'est pas une démocratie, » {Politique, o
@@ -814,7 +798,6 @@ _ servant des acquisitions les plus anciennes de
 …_ notre mémoire. Les hommes qui ont reçu l'ensei-
 | gnement primaire dans les écoles publiques créées
 _ depuis la guerre ne peuvent parler d'histoire et de
-Date si Et 4
 12e politique sans utiliser le vocabulaire extrêmement
 2°106 restreint qu'on leur a appris à manier, et ce voca_ bulaire est républicain et nationaliste. Ils sont
 + (1) M. Buisson a pu s'en apercevoir quand les patriotes l'ont honni à
@@ -1029,7 +1012,6 @@ _ * page 177). Le problème est, au contraire, de trouver les raisons qui
 __ ont relativementdissous la force pontificale dans les temps modernes
 RE jusqu'à la renaissance ultramontaine actuelle.
 
-Lao NE ÉRNEL AT ü
 civilisés, ne laissera après lui aucune religion nouvelle. Ceux qui, désormais, ne seront pas chrétiens,
 seront irréligieux.. Les matérialistes de l'histoire
 pensent, quant à eux, et en dehors de toute appréciation subjective, que les hommes de l'avenir
@@ -1161,7 +1143,6 @@ Dr fait des lois conformes à la raison et ils croyaient
 qu'il était réellement semblable à cette image; ils en e faisaient un être possédant des qualités empruntées
 à la psychologie individuelle ; il y a encore même
 des philosophes parlant de conscience sociale, de Ï
-| #4] ; Ê
 |__ pensée sociale, etc.
 Ce qu'il y a de vrai dans cette fantasmagorie di,
 __ philosophique c'est que certaines ‘ressemblances
@@ -1263,7 +1244,6 @@ assez voisines de celles des primitifs et dominées
 par des superstitions. Tandis que la classe des h
 juristes représente ce qu'il y a de plus intellectuel À
 dans l'état pensant, la classe militaire représente ce
-qu'il y a de plus instinctif. (x)
 On sait que les opinions dans lesquelles domine
 l'instinct, sur lesquelles la logique agit faiblement,
 sont celles qui présentent le plus de stabilité ; aussi
@@ -1452,7 +1432,6 @@ que dans une grande partie de l'Italie les catho_ liques respectent fort peu les
 4 pontificales et qu'ils votent; mais ils s'arrangent ne ù
 avec les candidats au mieux de leurs intérêts
 - locaux et ils évitent d'avoir des députés à eux.)
-E _ En Allemagne il y a un parti catholique presque Ne AL
 _ pur; mais cela tient à ce que l'État moderne n'a ‘1
 … pas encore pris possession de l'Allemagne. Les
 4 mœurs du pays ne sont pas favorables à la ‘1e
@@ -1488,7 +1467,6 @@ k () I1 serait impossible, par exemple, de comprendre en France
 
 [s que les députés socialistes votassent pour le rappel des Jésuites.
 
-et ei)
 _ Une grande difficulté pratique pour la formation
 _ d'un parti clérical en France résultera désormais
 _ de la nouvelle législation sur les congrégations; le D.
@@ -1523,7 +1501,6 @@ Ce que l'Église offre de plus tentant à ses clercs, c'est la domination; c'est
 pas assez mis en évidence. On s'étonne parfois de voir des prêtres anglicans venir au catholicisme, À
 L en abandonnant de belles situations ; mais existe: t-il un corps religieux où les plus hauts dignitaires,
 5 eux-mêmes, aient si peu de pouvoir réel que chez les anglicans? Un simple curé de village a, dans sa petite sphère, avec ses confréries et ses œuvres, un pouvoir plein de charmes pour ceux qui aiment
-j le commandement. L'expérience de la politique et
 de l'Église montre qu'il y a peu de passions qui
 su soient plus fortes que celle qui nous fait désirer le
 40 pouvoir sur nos semblables. (1)
@@ -1818,7 +1795,6 @@ cinquante ans et les chefs officiels de l'Église sont
 obligés de compter avec elle.
 La grande presse n'est pas, en général, hostile à
 l'Église : les journaux sont de puissantes entreMP PRET #4
-# { K nt
 _ prises qui sont conduites en vue de procurer des
 bénéfices à leurs actionnaires; les directeurs
 cherchent quels sont les courants de la mode et ils
@@ -2061,7 +2037,6 @@ leur attitude les éloigne des considérations écono-
 _ miques. Les socialistes ont aussi à lutter contre les AM
 
 _ mêmes ennemis que les démocrates et ils partiD #3 (1) Marx. La lutte des classes, page 231.
-| # RAS ok, CAPI
 cipent à toutes les luttes pour la liberté, comme
 s'ils étaient, ainsi que les démocrates, affranchis du
 sentiment spécifique de classe. É:
@@ -2083,7 +2058,6 @@ Pour qu'on puisse agir efficacement contre le Î
 3 militarisme, il faut qu'il se présente des circonstances vraiment extraordinaires : l'affaire Dreyfus j
 se trouvait dans ce cas; mais on ne trouve pas
 :: toujours deux circonstances pareilles dans un siècle. À
-W Par suite de la rencontre de beaucoup de hasards, ê
 des hommes appartenant à toutes les classes de la Ÿ
 société et à des partis très opposés s'étaient réunis
 4 en vue de poursuivre une œuvre qui pouvait produire de très grands résultats pratiques et démocratiques. Les socialistes qui ont cru que le dogme de
@@ -2103,7 +2077,6 @@ prendre l'allure d'un mouvement antipatriotique; \
 Fr aux souvenirs démocratiques de la Révolution que l
 les campagnes les mieux menées échouent dès qu'on ‘1
 É peut leur opposer une campagne pour la défense f 1)
-h de la patrie. à
 L Vouloir attaquer le militarisme avec les seules î
 4 forces du socialisme, c'est marcher à un échec certain "
 et rendre le socialisme impopulaire. Dans l'affaire
@@ -2133,14 +2106,11 @@ d'action plus importante pour activer la propagation
 du socialisme dans les campagnes que l'action anti- fil
 eléricale ; qu'on lise, d'ailleurs, les journaux socialistes de province, on verra que leur principal moyen
 d'influence est la guerre contre les curés.
-eut Le Gérant : CuArRLEs PÉGUY \
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués ‘4
-j IMPRIMERIE DE SURESNES (G. RicmAr », administrateur), 9, rue du Pont. — 5056 $ pi
 Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi-
 
 _ naires; la souscription ne confère aucune autorité sur
 La rédaction ni sur l'administration : ces fonctions demeurent libres.
-_ Nous servons:
 
 AT des abonnements de souscription à cent francs; e
 TER des abonnements ordinaires à vingt francs; è

@@ -27,7 +27,6 @@ b. édition complète, un volume in-octavo de 64 pages Vi
 — Cnarres GUIEYSSE. — Les Universités populaires _
 Ee et le mouvement ouvrier 1 franc RE
 je Les cahiers ont publié dans leur deuxième série
-ÿ ANTONIN LAVERGNE. — Jean Coste ou l''Instituteur FACE
 É de village, un roman 3 francs 50 154
 ‘4 Dans ses deux premiers numéros hebdomadaires le Q
 : nouveau Mouvement Socialiste a publié de M. Maxime ER
@@ -51,7 +50,6 @@ premier janvier, ajouté les livres suivants, Ces livres
 sont en vente à la librairie des cahiers.
 
 Docteur L. AzouLAY.— Oh! les jolies histoires d'ani- maux, album de planches en couleurs 3 francs
-5 FRreD Isry. — Les petits ab, ag de la reine
 | Ortie, illustrations de BENIAMIN RABIER, album
 Dickexs. — L''Ami commun, 2 volumes
 Miss Cummixs. — L'Allumeur de réverbères
@@ -72,7 +70,6 @@ pour deux mille exemplaires de ce septième cahier le
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-Le Fa be ue à '
 “ Nous organisons patiemment notre service de libraiÉ rie. Ayant remarqué depuis quelques mois que l'on nous
 commandait souvent des Kuentsler-Monographien de ee
 ut Knackfuss, nous avons commencé à en avoir d'avance. F
@@ -87,8 +84,6 @@ _ librairie des cahiers : Û '
 Le Burne-jones Hals, Franz Rubens :
 $ und Jan Murillo Walleau L
 
-= 10 SERRE le Sa rt.
-
 Du même auteur, en vente à la librairie des cahiers
 Le Miroir des Légendes, 1892. — Lemerre, chez
 P.-V. Stock, un volume 3 francs
@@ -102,17 +97,13 @@ En collaboration avec Ephraïm Mikhael :
 La Fiancée de Corinthe, légende dramatique en trois
 actes, 1888. — Camille Dalou, chez Stock, un volume
 
-4 # te ce HA
 1 Du méme auteur de
 _ LUTION, mars 1895. — Réimprimé chez Stock, une bro- Duc
-Ho chure fs o franc 10 MES
 _ GONTRE L'ANTISÉMITISME. — Histoire d'une polémique,
 1896. — Stock, une brochure o franc) 50, 1
 _ d'ouverture faite le 16 décembre 1895 au Collège libre des RES
 _ Sciences sociales, extrait du Devenir Social, numéro de Der:
 # janvier 1896. — Giard et Brière, un tirage à part o franc 50 À % k
-
-ê L Du même auteur ne: UNE ERREUR JUDICIAIRE x
 
 # AE Bruxelles, deux premières éditions aujourd'hui épuisées.
 NE: Réimprimé chez Stock, 1897, une brochure 0 france 50
@@ -125,49 +116,21 @@ DU - Gustave Bridier, A. de Rougemont, Paul Moriaud, à Ne Ed. de Marneffe, Walt
 
 de: etc. Octobre 1897. — Stock, un volume 3francs5o
 
-1 COMMENT ON CONDAMNE UN INNOCENT. — L'acte d'accu-
-
 4104 sation contre le capitaine Dreyfus. Janvier 1898. — Stock,
 
 F 4 une brochure o franc
 
 Le pour les Cahiers de la Quinzaine RS
-_ Sionisme et Assimilation 2 à: {es À CARS EEE
-KT Le Fumier de Job, un volume à 3‘francs:50 M0 %
 À La Superstition chrétienne du meurtre rituel
 _ Une histoire économique des Juifs FDA
-Me ie: for ‘ L : , re Fe
 Un des tout prochains cahiers sera du même auteur A va
 _ L'Oppression des Juifs dans l'Europe orientale —
 
-nr. Le : Fr ti FAR ; RO k r
-
-#0 FR . : j:
-FAI à ne
-
-"HS sa (FANS ma # a.
-% ms, ue FE os QE CAR
-+ Éd ee CT ANR de RE RS
-
 . 8, rue de la Sorbonne, au rez-de-chaussée
-
-Mes. "À LA CINE ARE ice
-
-ARR Le" èt tie "6 Ÿ LE
-
-TAN Fa + et ue)
-Pb: K Le soie CA Leger TL LS
-17 le à * As on Les
 
 L'oppression des Juifs
 dans l'Europe orientale
 
-M fu ”. me Caux ne der sen a: ES s
-18 + à ENS Lee T0 et r * Er ANNEE ne RE: AR
-
-b F: Ai sa we
-
-En Date un : à ; EL
 Il y a seulement trente-cinq ans que, dans l'Europe
 occidentale, les Juifs ont été émancipés complètement.
 Si, la première, en France, l'Assemblée Constituante Ë
@@ -282,7 +245,6 @@ _ Yearbook, 1901-1902 (Philadelphie, 1901). On peut aussi consulter le
 LL Der travail de M. J. Plotke : Les Juifs roumains sous le prince et roi
 qu Fa Charles (une traduction française en a été publiée par l'Aurore, D
 _ octobre-novembre 1901) et le Mémoire de l'Association générale des e
-_ Israélites indigènes, présenté à S. M. le Roi, au Gouvernement et au
 , ke” Parlement, en avril 1893 (une traduction française a paru dans le A+
 
 Le sentiment antisémite en Roumanie se fondant en ,
@@ -641,7 +603,6 @@ et celle du sens que l'on attache à ce mot vaut d'être traitée spécialement.
 plutôt trop que pas assez et la seule chose qui semble le maintenir
 dans les nations est la religion, même quand il ne la pratique pas.
 
-> : Bernard Lazare
 tien. (1) Dans les campagnes de Moldavie et de Valachie,
 l'usurier juif fit concurrence à l'usurier grec et à l'usurier J
 - arménien, mais son usure fut comparativement bénigne,
@@ -779,13 +740,11 @@ perpétrés sans aucun motif raisonnable ou même
 roumain envoya une note aux Puissances, s'engageant
 à résoudre la question juive, « à l'honneur de notre
 siècle, disait-il, et sans que les intérêts nationaux
-soient lésés ». L
 Une période de calme suivit, les démocrates redoutaient les interventions étrangères et la consigne
 fut donnée par eux : plus d'éclats publics, plus
 d'émeutes ; on se borna à des mesures administratives
 | vexatoires. Cependant, pendant l'été de 1870, les
 
-| LES JUIFS EN ROUMANIE
 les maisons et les magasins juifs furent démolis et
 pillés, leurs propriétaires frappés et blessés; en 1871 et
 
@@ -847,7 +806,6 @@ Après la promulgation de cet article, les Juifs rou-
 h et détourné de persécutions, qui devait peser sur eux
 | plus durement que jamais. En annonçant au prince
 ( (1) Article qui disait que seuls les chrétiens pouvaient être natu- J
-# ralisés Roumains.
 © Char es les décisions du congrès, Bratiano et Cogalni- ; ‘+
 _ ceano disaient que : « la signification de cette décision Re:
 #4 ne souffrait aucune équivoque : les droits de citoyens Fe *4
@@ -881,7 +839,6 @@ __ ou par des actes législatifs ». L'Angleterre, la France 5
 4 et l'Allemagne protestèrent, d'autant que le délégué s #34
 roumain, l'ancien démocrate émancipateur Rosetti, con- ne à
 _ sidérait les Juifs comme étrangers. Le prince Charles Eu
-| Bernard Lazare
 4 intervint alors. Il demanda au métropolite de Jassy s de prêcher la tolérance — ce qui montre bien, malgré
 
 : les dénégations ultérieures, que les raisons religieuses de l'antisémitisme existaient toujours (1) — et, à l'in- k stigation d'un des rares conservateurs moldaves qui
@@ -923,7 +880,6 @@ question juive en Roumanie était le baptême des Juifs, la religion
 
 % la vertu du baptême! i
 
-| ; 2 LR
 È jamais existé, mais bien des Israélites étrangers, qui
 À sont, en effet, nés dans le pays, mais ne se sont assimilés ni par leur langue, ni par leurs mœurs, à la ù
 nation roumaine et même n'y aspirent pas;
@@ -1038,7 +994,6 @@ Pour donner à l'Europe la mesure de sa sincérité, la
 L être naturalisé sans que sa femme le soit. Un Juif peut être Rouà main, et ses enfants nés avant la naturalisation sont « étrangers
 “ non soumis à une protection étrangère », a
 
-_ ie LES JUIFS EN ROUMANIE
 Roumanie naturalisa immédiatement 900 Juifs qui
 D avaient pris part à la guerre d'indépendance. Comme
 la plupart étaient morts sur le champ de bataille,
@@ -1079,12 +1034,10 @@ tendance fut de le rejudaïser en le mettant dans l'im-
 f On a à peu près résolu le premier des problèmes,
 Ë pas encore le second : le Juif est toujours soldat. Comment et pourquoi l'est-il, en vertu de quelle doctrine A
 a veut-on l'empêcher de le rester? Il l'est en vertu de la
-1 Constitution et de la loi. On voudrait qu'il ne le fût
 p: plus, parce que tant qu'il le sera l'interprétation même
 ‘À littérale des différentes lois militaires ne permettra
 ë pas de lui appliquer légitimement la législation contre
 ” les étrangers, et on ne la lui fera subir que par un
-L scandaleux arbitraire.
 Us L'article 118 de la Constitution roumaine porte que :
 À « Chaque Roumain fait partie de l'armée régulière, ou j
 f de la milice, ou de la garde civique, conformément aux
@@ -1115,7 +1068,6 @@ leur enjoindre d'exclure les Juifs. De plus, on fit signer N
 lire, et on contraignit les autres à signer, une déclara- A
 tion par laquelle ils se reconnaissaient fils d'étrangers à
 | non naturalisés et « demandaient à ne pas être soumis
-| à la loi de recrutement ». Mais, en 1882, le gouvernement, ne ne L
 peu sûr de ce système, fit modifier et rédiger comme
 suit les articles 1 et 2 de la loi de 1896 :
 Article premier. — Tous les habitants du pays doivent …
@@ -1182,11 +1134,9 @@ __ décréta l'instruction obligatoire, et une circulaire de'. #
 ; jeunesse juive à la jeunesse roumaine. « Que les Juifs, a “
 ajoutait-elle, ne souhaitent pas des écoles séparées, PA
 à car la séparation des écoles perpétuera leur séparation
-de la nation. » Ve ‘
 £ L'article 13 de la Constitution de 1866 confirma ces
 _ dispositions. En 1867, au milieu même des persécu- #4
 
-LANTA TE av ne ” Te Si RTE + = Ne
 ni tions contre les Juifs, M. Bratiano envoya aux préfets i
 38 une nouvelle circulaire concernant les communautés
 Le israélites et prescrivant d''infliger une amende aux .
@@ -1361,7 +1311,6 @@ une communauté religieuse et de payer à celle-ci un
 impôt sur le culte. L'État prêtera son concours aux
 communautés religieuses pour l'encaissement des
 taxes. » (3) Pour les catholiques ou les protestants, une
-| B'hone en".
 ; (2) Notez que, toujours d'après les antisémites, la question reli-
 | gieuse n'existe pas en Roumanie.
 4 (3) Cette loi était en préparation lorsque tomba le ministère Carp;
@@ -1384,7 +1333,6 @@ qui leur était imposé. On a pensé la satisfaire en décrétant qu'on peut pay
 ce qui est faux : on peut servir un pays dont on n'est
 pas le citoyen, on peut le servir librement, mais sitôt
 qu'on le sert obligatoirement, c'est qu'on est membre
-de la cité et qu'on en a les droits. (1)
 La deuxième préoccupation était de dégrader le Juif;
 de diminuer pour lui la possibilité de participer à la vie
 moderne; de le rendre moins apte à s'assimiler; de
@@ -1393,13 +1341,11 @@ justifier ainsi les répugnances qu'on témoignait à en
 ke (1) Le gouvernement roumain comprend si bien cela, et que sa L
 1 théorie n'est pas défendable, qu'en 1897 il prépara un projet de loi
 ÿ qui n'aboutit pas, d'ailleurs, pour exclure complètement les Juifs du
-L service militaire,
 
 | des conditions moins bonnes pour supporter la concurrence. L'éviction scolaire répondit à ce souci. Mais
 À cette méthode n'était pas susceptible d'amener un
 résultat rapide, et des raisons politiques et économiques, liées les unes aux autres, exigeaient que le
 Juif fat placé le plus tôt possible dans l'impossibilité
-4 de nuire.
 La bourgeoisie roumaine — petite et moyenne —
 demandait à ses représentants de lui permettre de se
 développer sans craindre des adversaires redoutables.
@@ -1481,7 +1427,6 @@ F1 (2) C'est en 1882 que M. Bratiano l'imagina.
 
 _ législative suflisait, puisqu'elle frappait toutes les catéÀ gories, et que bientôt, sur le sol de la Moldavie et de la !
 É Valachie, le Juif ne pourrait exercer ni une fonction, ni
-É un état, ni un art, ni un métier.
 1 Ces soi-disant usuriers, aptes seulement à l'usure, à
 étaient en effet représentés dans toutes les professions, fi
 É et il fallut travailler activement à les déloger. On y nn.
@@ -1509,7 +1454,6 @@ sans que l'occupant pût prétendre à une indemnité. “4
 On retenait même au Juif, pendant le temps qu'il était
 en exercice, un tantième pour la retraite, bien qu'il n'y "0
 eût aucun droit. Le médecin ainsi évincé n'avait pas Bi.
-es 57 sa
 
 la ressource de se faire pharmacien, la loi de 1893
 n'accordant qu'aux seuls Roumains et naturalisés le à
@@ -1537,7 +1481,6 @@ f faire respecter leurs droits. Des banquiers et des
 * exigés par les agents et courtiers roumains, qui, ayant
 8 tarifs : il était trop tard. Une loi du 24 juin 1886
 
-| RS LES JUIFS EN ROUMANIE
 p' aggrava même les défenses, en interdisant aux non_ Roumains l'exercice des métiers de courtiers en céréa-
 …._ Jleset en vins dansles foires et marchés. Pour satisfaire
 … les électeurs, on créa un corps de dragomans, ignorants
@@ -1594,7 +1537,6 @@ d. préfectoraux, pourchassait les colporteurs juifs dans …
 à arrêtés illégaux que le gouvernement déposa une loi, …
 L promulguée le 17 mars 1884, après avoir suscité de vio-
 
-L: . A EE Fe Votre De PAS M ri cut NA F . | VA
 _ lentes discussions à la Chambre et au Sénat, etmalgré À
 _ les pétitions désespérées des intéressés. (1) L'article premier ordonnait :
 « Le commerce ambulant de toute nature est entière- “à
@@ -1845,7 +1787,6 @@ Ni mais les vexations reprirent en 1891 et durèrent jus-
 # différait peu du précédent, mais le ministre de l'intéà rieur, M. Olanesco, l'accompagna d'une circulaire
 spécifiant qu'il était applicable aux étrangers, mais non er + *”.+ NT
 
-ne LES JUIFS EN ROUMANIE à
 | aux Juifs « autochtones ». C'était en réalité remettre le
 1 sort du Juif entre les mains de la police, qui le consi_ dérait ou non, à sa guise, comme autochtone. D'ailleurs,
 | une autre circulaire fut lancée aussitôt, recommandant
@@ -2001,8 +1942,6 @@ les petites villes du pays depuis leur fondation ou depuis une époque reculée,
 ayant fait un stage légal dans l'armée étaient également
 | autorisés à s'établir « dans les villages et bourgs où
 
-è ù RE Er aie DES
-# Bernard Lazare 8) 2e,
 : ils avaient été recrutés ». (1) On tolérait aussi ceux qui J
 ÿ venaient provisoirement avec leurs femmes et leurs enfants pendant la période des travaux agricoles — quand
 on ne pouvait se passer de leur concours — mais seu-
@@ -2035,8 +1974,6 @@ Mer: les bourgs furent transformés en communes rurales, on enleva
 ni! ces privilèges aux Juifs, sauf le droit de posséder des propriétés
 Re: qu'ils peuvent transmettre par succession, mais non pas vendre.
 
-A He je
-Ron LES JUIFS EN ROUMANIE £
 _ Aprèsla chute du ministère, comme avant, les autorités
 _ blämaient les conseils communaux qui n'expulsaient Re:
 _ pas les Juifs, dont ils avaient besoin comme ouvriers. + ESS
@@ -2119,8 +2056,6 @@ V que du consentement du conseil de district. Aucune charge, aucune à impositio
 
 Ç (2) Dans la Dobroudja par exemple en octobre 1890,
 
-#3 ; LES JUIFS EN ROUMANIE
-
 4 _ usent des mêmes procédés pour se faire ouvrir un
 
 É crédit chez les banquiers juifs, et ces mêmes banquiers
@@ -2164,8 +2099,6 @@ depuis vingt ans c'est le flot constant des expulsés et des rappelés qui va et
 À moins taillable que le Juif, pour lequel il ne ressent
 
 4 aucune haine, qui est pour lui un frère de misère, mais
-
-| (1) Adverul, 15 octobre 1899.
 
 de. il n'a pas plus de sensibilité pour le malheur des
 À autres que pour le sien. Quant à la classe dirigeante,
@@ -2259,10 +2192,8 @@ roumain par les Roumains et la diminution de l'influence
 | financière que les Juifs ont acquise
 d) La lutte contre l'usure juive et la spéculation
 dans toutes les branches de l'agriculture, principale-
-e) La sauvegarde et le développement du sentiment
 (1) L'Adverul, de M. Mille, député, par exemple. !
 
-% is LES JUIFS EN ROUMANIE
 j religieux, la lutte contre l'action corruptrice des Juifs
 à et contre la démoralisation causée par une mauvaise
 | interprétation des services humanitaires ; Ë
@@ -2438,7 +2369,6 @@ Re partants n'ayant pas été remplacés par des ouvriers
 À cherché à retenir leurs locataires et le sentiment
 A public, en quelques endroits, s'est amélioré sous l'inrt fluence des intérêts. Les Juifs ont un instant respiré.
 + Mais les politiciens roumains n'ont pas abandonné leur
-LE dj
 _ œuvre, nous l'avons montré en exposant les projets de Ù
 _ loi Aurélian et Filipesco. S'ils sont votés, ce qui paraît FFE
 & probable, que feront ces désespérés auxquels on en- D:
@@ -2452,17 +2382,6 @@ situation du pays même, situation déjà précaire et
 É que le protectionnisme outrancier et barbare de ses je
 _ législateurs ne pourra pas améliorer? En un mot, a
 1 quelles sont les solutions possibles; seront-elles im_ posées par une pression extérieure ou par des néces- à
-
-ri x , Que E
-
-# i FE
-
-# - RE
-
-| sé F
-
-Fa Len, RES ET à à re ”
-cs 44 L où QT
 
 Il faut d'abord nous demander si une intervention
 étrangère est possible, légitime, et de quelle façon elle
@@ -2573,8 +2492,6 @@ cause de toutes les restrictions édictées contre les étrangers et don
 
 7 la mise en vigueur eût provoqué l'abstention du capital inter=
 
-| national. j
-
 ; (2) Le cas semble se produire dès maintenant, Pour attirer les.
 
 gi capitaux étrangers en Roumanie, une loi sur l'industrie suerièr
@@ -2666,8 +2583,6 @@ prescrites par la présente loi...
 ARTICLE 4. — Les étrangers qui voudront exercer un
 métier, devront prouver qu'il existe dans leur pays le droit
 de réciprocité pour les Roumains. ,
-Faute de pouvoir fournir cette preuve, ils devront obte94 V » sd Fr: f, AE Mr Ar RP ANTE Fe Ta é 2 è Re Ÿ Fe a
-LAGEr SES CONCLUSION. ge
 Se Vinfiltration se tourneront fatalement vers la Roumanie.
 a Is lui demanderont si une nation peut créer de toutes
 _ pièces une classe de parias qualifiés d'« étrangers non Sie
@@ -2684,7 +2599,6 @@ La présente loi ne déroge en rien aux conventions internationales qui régisse
 ARTICLE 8. — Personne n'est admis à exercer un métier
 pour son propre compte ou à faire de l'exercice de son
 métier sa principale occupation, s'il n'a pas le Brevet de
-ARTICLE 9. — Les personnes étrangères à la localité et
 . inconnues au Comité de la corporation, devront présenter
 des documents prouvant leur identité et leur moralité,
 \ documents délivrés par les autorités compétentes.
@@ -2698,8 +2612,6 @@ ARTICLE 45. — Tout artisan de la commune fait partie
 ARTICLE 70. — Seuls les Roumains qui jouissent des droits
 politiques, peuvent être admis dans le Comité de la Corporation.
 À Par exception seront admis les étrangers ayant le droit
-
-L F our. cer)
 
 Puissances y seront intéressées. Elles obligeront alors
 les Roumains à donner au moins aux Juifs l'indigénat
@@ -2917,7 +2829,6 @@ encore, quitte, comme en 1880, à lui faire remise des L.
 É moyens nécessaires, le paysan est contraint de la mor- Le
 k celer sans cesse et de l'hypothéquer. Finalement, quand
 
-ne MES CONCLUSION
 da la terre sera aliénable, elle reviendra aux grands pro-
 $ priétaires, auxquels l'État sera forcé de la racheter un
 _ jour, quand son propre domaine sera épuisé, pour la
@@ -2943,22 +2854,8 @@ Mais même s'il ne se joint pas à lui, c'est un jour le
 paysan roumain révolté qui, directement ou indirectement, résoudra en Roumanie l'actuelle question juive,
 en se libérant lui-même et en libérant le Juif.
 
-| 4 Ha
-
-4 ru De re bn
-ne Te OS Et
-à Pate ln 13 L à Mi As
-
 le samedi 15 février 1902 Re.
 21348 à l'Imprimerie de Suresnes 3 Fa
-| 140 ; (E. PAYEN, administrateur) DONC,
-
-Fes ne EU TEMR OCR SE
-2 je inter LM Fu PA ES ti PE A ue Et LIRE
-ice ve De LS +$ Tee LA
-| MES x +” "
-# “#nrOdU N' + RE
-MT J pe TS ne we
 
 4 Je formeune entreprise quin'eut jamais d'exemple
 | et dont l'exécution n'aura. pas d''imitateur. Je pais
@@ -3210,8 +3107,6 @@ Je n'ai jamais dit que Coste fût aimable. J'ai dit qu'il
 
 | La place me manque aujourd'hui. Je veux dire tout
 ce que j'ai à dire de ce roman. J'y reviendrai dans le
-
-| prochain cahier.
 
 Quelqu'un de particulièrement bien situé nous prépare. un cahier des Poisons industriels.
 Un des tout prochains cahiers sera : Monographies

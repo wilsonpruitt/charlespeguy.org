@@ -9,10 +9,6 @@ wordCount: 1888
 ocrSource: "Extracted 2026-05-25 from conflated s07-c07--les-suppliants-paralleles.fr.md (lines 2965-3175 — Porché's poem, which appeared at the end of the cahier following Péguy's commentary)."
 translationNotes: "OCR garble remains. La portion poétique de Porché (Les suppliants) figurait à la fin du cahier après l'essai commentaire de Péguy (Les suppliants parallèles). Cette extraction préserve les sauts de ligne du poème."
 ---
-
-| LES SUPPLIANTS à
-Le ef C
-
 “40 en vente à la librairie des cahiers YA
 de. A chaque jour, — poèmes, — dix-septième cahier = |
 
@@ -22,9 +18,6 @@ Here ne Ë À
 Met À ma grand mère, — un poème, — dans le deuxième
 AT Cahier de Noël, septième cahier de la sixième série
 
-| APR 6160
-
-| è
 110 -
 Rien au dehors : la nuït et le froid sur la pierre. |
 Eux, dans l'ombre entassés, ils rêvaient : leur paupière
@@ -66,7 +59,6 @@ Sur les outils de l'établi, laisse en nos âmes | L A!
 Un peu de clair-obscur divin. Nous avons foi : |
 C'est l'attente, au réveil, toujours, d'on ne sait quoi, 1
 
-D EE UNE EVA Le EN M AT on 1 Ne RTE D APE en EE TE ER
 Puis le recommencement du malheur, l'usure
 De l'espérance au long du jour gris, à mesure
 Que du fond de l'échoppe au bord du toit en face
@@ -86,7 +78,6 @@ Comme elle brille aux vitres d'or ! la sainte messe
 ; N'est pas plus belle. O joie ! est-ce pour aujourd'hui ?
 Vois, soleil, nous croyons quand même en ta promesse.
 Les femmes, on entend leur silence :
-: Nous sommes
 Où le ruisseau de fange aboutit et, si bas
 Dans l'asservissement que soient courbés les hommes,
 Plus bas encore. Ils vont, le soir, disputer, boire.
@@ -121,7 +112,6 @@ Paraît confusément grandir, embrasser l'ombre. :
 Crépuscule du soir, heure, en toute saison,
 Complice : la fatigue obscurcit la raison; , i
 
-ee AU Ne on NE
 E _ Une voix s'insinue, entraîne dans la brume n.
 ER. Les cœurs faibles, les pieds hésitants, bientôt lâches.
 F. _ L'oubli, promet la voix, l'oubli des lourdes tâches #
@@ -173,7 +163,6 @@ A son piétinement innombrable, à sa horde À ;
 Errante, à son flot noir qui monte et qui déborde, À
 De l'espace, dans toute sa largeur la rue. E
 
-| FE LR T ER PR LES SUPPLIANTS æ È
 131 Elle rit des cloisons, de ces petits carrés 3
 & . Où, voisins, entendant leurs voix sans se connaître,
 F Le _ Des frères malheureux ont vécu séparés ;
@@ -219,5 +208,3 @@ _ C'est elle, elle toujours, qui supplie et pardonne. F4 |
 ; Vivante se dresse. Un ordre bref la secoue : 3
 Trois rangs, l'un à genoux, les deux autres derrière "4
 Debout, tous bien d'aplomb, attentifs, l'arme en joue. Le:
-
-| LHAURNSNIERSSS 14

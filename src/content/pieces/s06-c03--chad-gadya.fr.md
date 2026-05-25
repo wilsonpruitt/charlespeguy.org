@@ -8,11 +8,6 @@ isAvertissement: false
 wordCount: 6900
 ocrSource: "Wikisource ws-export 2026-05-25"
 ---
-
-Israël Zangwill
-
-CHAD GADYA !
-
 Et il arrivera, quand ton fils te questionnera, dans les temps à venir, disant : « Qu’est ceci ? » que tu lui répondras : « Par la force de sa main le Seigneur nous a tirés d’Égypte, de la maison d’esclavage ; et… le Seigneur frappa tous les premiers nés dans le pays d’Égypte… Mais tous les premiers nés de mes enfants, je les ai sauvés. » Exode, XIII, 14, 15.
 
 Chad Gadya ! Chad Gadya ! un seul chevreau de la chèvre !
@@ -83,8 +78,6 @@ Nox est perpetua una dormienda.
 
 Puis il pensa encore à Virgile évoquant un paysage toscan où se peint le poète, — et des rangées de cyprès majestueuses, comme des hexamètres. Il vit la terrasse d’un antique palais, les animaux fantastiques sculptés sur la balustrade, le verdoiement des lézards sur le mur du jardin endormi et le frais reflet vert du bosquet de cyprès avec son délicieux mouvement d’ombre. Un rossignol invisible chantait au-dessus de sa tête. Il suivait la longue promenade sous les yeux de pierre des dieux sculptés, et, contemplant le brûlant paysage, se reposait sous l’ardent ciel bleu, — près des vertes collines ensoleillées, des blanches villas nichées dans la verdure, des oliviers gris. Qui avait foulé ces terrasses aux légères colonnettes ? Des princesses du Moyen-Âge, dédaigneuses et passionnées, s’avançant délicatement avec leurs traînes de soie et leurs parfums légers. Il en ferait un poème. Oh ! le charme exquis de la vie ! Que chantait donc un poète dans le cher et doux dialecte vénitien
 
-Bellissimo xe el mondo
-
 perché l’é molto vario
 
 ni omo che xe profondo
@@ -140,7 +133,5 @@ Comme il plongeait pour la dernière fois, le mystère de la nuit, des étoiles,
 Par la porte ouverte flottaient les derniers mots de l’hymne et du service :
 
 Et le Saint des Saints vint, que son nom soit béni, et tua l’ange de la mort, qui avait tué le boucher, qui avait tué le bœuf, qui avait bu l’eau, qui avait éteint le feu, qui avait brûlé le bâton, qui avait frappé le chien, qui avait mordu le chat, qui avait dévoré le chevreau que mon père avait acheté pour deux zuzim. Chad Gadya ! Chad Gadya !
-
-Israël Zangwill
 
 ↑ En français dans le texte.

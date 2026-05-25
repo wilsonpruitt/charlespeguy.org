@@ -11,15 +11,6 @@ la paix et la guerre
 ASCRTARE paraissant vingt fois par an 7 5e)
 8, rue de la Sorbonne, au rez-de-chaussée F
 
-SAP CÉREATE SUR ABLE PARA ii ÉTAPE |
-Fee LPS l
-MR SE Et de
-mes « RUE “ei
-+ ÉCPRE KE Des
-
-à ln tee SA A
-Ya pa N CFA OM ETE À GAL AO TA YA
-
 % Nous avons publié dans nos éditions antérieures et |
 3 dans nos cinq premières séries, 1900-1904, un Si à
 grand nombre de documents, de textes formant dos- +4
@@ -44,7 +35,6 @@ dans l'ordre ; il suffit de le lire pour trouver, à leur 4
 place, les références demandées. 0
 Ce catalogue, in-18 grand jésus, forme un cahier $
 très épais de XII+408 pages très denses, marqué cinq k
-> Es
 
 francs ; ce cahier comptait comme premier cahier de la j
 sixième série et nos abonnés l'ont reçu à sa date, le
@@ -93,7 +83,6 @@ bureau de la Revue, 108, boulevard Saint-Germain, » \
 
 On peut s'abonner à la librairie des cahiers. ;
 
-| HN Me:
 La paix et la guerre ; 50
 
 Nous devons remercier M. Th. Ribot, directeur de la
@@ -135,7 +124,6 @@ Mais aujourd'hui que la question de la paix et de la
 guerre, dans les sociétés humaines, se pose avec tant
 de force qu'il apparaît comme le plus grave des pro-
 
-Charles Richet De ||
 blèmes sociaux, il convient d'examiner quelles sont les 4 |
 bases scientifiques sur lesquelles se peut établir une
 
@@ -183,7 +171,6 @@ La conciusion nécessaire, c'est qu'il faut tendre à la
 formation de cette société heureuse. Tel doit être le
 programme de tout citoyen, l'espérance de tout gouvernement.
 
-Jusqu'ici il n'y a pas de désaccord, et il ne peut y en
 avoir, puisque ces vérités sont par elles-mêmes évidentes. Il n'est pas de théoricien qui prétende à cet
 étrange idéal du malheur du plus grand nombre. Où
 l'incertitude commence, c'est quand il s'agit de pré-
@@ -234,7 +221,6 @@ de la guerre pendant la paix. Il n'est pas moins
 Mais on peut prétendre que c'est là un jugement 1
 superficiel, de sorte que, pour n'être pas injuste, il faudrait mettre en face de tous ces maux de la guerre, que
 personne ne songe à nier, les biens qui peuvent en
-| résulter.
 | A côté de la douleur du vaincu il faut mettre la joie
 du vainqueur. |
 C'est quelque chose, assurément, mais c'est peu de |
@@ -385,16 +371,10 @@ sobriété, de vérité et de désintéressement. J'en appelle
 | au témoignage de tous ceux qui ont passé par là.”
 
 | On ne peut donc pas défendre le principe du milita-
-| II
-
-|
-
-|
 
 risme, en alléguant la nécessité d'une grande école de
 moralité et de discipline ; car dans la pratique le régi- f
 ment est tout autre chose : et en fait, qu'il s'agisse de À
-la France ou de l'Allemagne, de l'Angleterre ou de pr
 l'Italie, du vingtième siècle ou des siècles précédents, "
 
 . l'armée est plus près d'être une école de dégradation 7
@@ -408,7 +388,6 @@ tenir le principe d'une armée exclusivement pacifique ? à
 Une armée est une machine organisée pour la guerre.
 Autrement, c'est un non-sens, et personne ne songe à ;
 défendre la cause d'une armée qui n'aurait jamais à se jh
-#l
 Reste alors la période de guerre. Est-il vrai que la É ;
 guerre exalte les plus hautes vertus de l'homme? #
 Très résolument je ne le crois pas. En ce moment Gil
@@ -641,7 +620,6 @@ que d'attribuer leur corruption à leur tresse natée et à
 1 les Européens guerriers ; et c'est une preuve de plus, à
 ajouter à beaucoup d'autres, pour établir qu'il n'est pas
 besoin d'être guerrier et militaire pour mépriser la
-| mort.
 | Les Romains ont été un peuple guerrier; et la gran-
 | deur de Rome s'est fondée sur la guerre. Mais d'abord
 on peut ne pas professer une admiration sans réserve
@@ -682,8 +660,6 @@ Si l'on voulait chercher une comparaison entre des &
 peuples pacifiques et des peuples guerriers, il faudrait 4
 mettre en parallèle des nations de civilisation compa- ï
 rable. Voici la Suisse, par exemple, dont les habitants 4
-
-|
 
 mont l'esprit ni guerrier, ni agressif. Ils n'ont pas, ou
 presque pas, d'armée permanente; et la menace perpé-
@@ -830,7 +806,6 @@ d'énergie dans les enseignements d'un empereur, c'est s
 Marc-Aurèle et non Napoléon qu'il faut choisir. Ils ne |
 sont efféminés ni l'un ni l'autre; tous deux sont également apôtres d'énergie, mais chez l'un l'énergie tend
 
-# LA PAIX ET LA GUERRE
 | à la satisfaction de l'égoïsme et de la vanité, chez
 l'autre elle se propose pour fin le bonheur des autres
 \ A entretenir dans une nation cette vieille idée, que le
@@ -889,7 +864,6 @@ ils prétendent que toute notre organisation guerrière ne &
 doit avoir qu'un seul but; la défense du territoire. ï
 Mais il y a là, je m'imagine, une singulière faute de \
 En effet, de toute nécessité, quand il y a une guerre, à
-il y a un agresseur. Si chacun était toujours réduit à la ti
 
 défensive, il n'y aurait jamais de bataille. La guerre de
 défense n'existe que s'il y a eu auparavant invasion,
@@ -909,7 +883,6 @@ li organisation toute pacifique, résisterait fièrement à un
 1 envahisseur. On a vu comment deux cent mille paysans
 boers ont pu, pendant plus de deux ans, tenir en échec
 toute la puissance anglaise. La très pacifique Hollande
-ÿ a triomphé successivement de Philippe II et de
 Plus un peuple est attaché à la paix, plus il montre
 : d'énergie à défendre ses libertés. Il regarde la guerre
 comme un mal; mais il n'en est que plus résolu à combattre, quand il est attaqué. On n'a donc pas droit de
@@ -954,8 +927,6 @@ partant que les nations peuvent, dans une certaine
 mesure, disposer de leur sort, et que chaque citoyen
 exerce sa petite influence sur la direction des destinées
 
-| nationales.
-
 | Nous nous en tiendrons là, car l'hypothèse d'une fata-
 
 … lité historique inéluctable nous enlèverait toute respon-
@@ -991,7 +962,6 @@ cela est bien différent.
 
 Dans un duel, le plus fort n'est pas celui qui a raison ;
 
-#
 ce n'est même pas le plus habile, ou le plus courageux, 1
 qui est assuré de vaincre. Le hasard a un grand rôle. IL
 a un plus grand rôle encore, effrayant, dans les batailles. 4
@@ -1056,7 +1026,6 @@ une civilisation très récente. L'exemple de la guerre
 entre la Russie et le Japon est là pour le prouver. Les
 Japonais ont mis moins d'un demi-siècle à prendre tous
 
-| |
 les dehors de nos civilisations européennes. Ils ont
 adopté nos armes, et alors ils sont devenus une puissance militaire formidable. Pourtant on ne me fera
 pas avouer que ces triomphes des Japonais constituent
@@ -1076,7 +1045,6 @@ les faibles ; ce sont les plus courageux, les plus vigou- £
 reux qui persistent pour perpétuer la race des courageux et des vigoureux. Mais l'état de guerre entre les è
 hommes, au lieu de faire survivre les braves, fait sur- È
 vivre les poltrons ; il produit donc de la sélection
-à rebours, et il conduit à l'appauvrissement de la
 D'abord les malades et les débiles sont exemptés de |
 service. Ceux qui ont une infirmité, les sourds-muets, M
 les borgnes, les aveugles, les manchots, les culs-de- « jatte, les becs-de-lièvres, les rachitiques, les scrofuleux,
@@ -1088,7 +1056,6 @@ le champ de bataille. Ceux qu'on a choisis pour disparaître, ce sont les plus d
 Les jeunes gens robustes, qui sont l'espoir des géné-
 | rations futrves, voilà ceux qu'on déclare bons pour le
 
-| service.
 Sur le champ de bataille, ce sont toujours les mêmes
 qui se font tuer, suivant une parole célèbre. De fait, les
 | poltrons se dissimulent au moment du danger ; et, pour
@@ -1132,7 +1099,6 @@ tures, pour savoir comment eût évolué une humanité Ha
 non belliqueuse. Car l'humanité a toujours été belli- ‘4
 Pourtant il paraît absolument évident que, si l'huma- 4 ï
 nité a progressé, ee n'est pas par la guerre, mais malgré 10
-la guerre. k: ]
 Les progrès humains sont ceux que les sciences, les sa
 industries, les lettres et les arts ont apportés. Les
 principales conquêtes intellectuelles du monde moderne, 44
@@ -1250,7 +1216,6 @@ Européens, quand la civilisation est la même, et que le
 résultat de ces grandes tueries est de déplacer des frontières.
 Si parfois la guerre a pu sembler un instrument de
 progrès, c'est que les ennemis du progrès se sont armés
-contre lui, et qu'il a dû se défendre. La
 Personne n'a jamais pensé à dire que les progrès |
 n'ont pas eu de lutte armée à soutenir. Maïs dans ce |
 cas la guerre est défensive, car on dirige contre un pro- |
@@ -1260,7 +1225,6 @@ sous peine d'être écrasée, l'idée nouvelle doit, elle aussi, {
 s'armer et se défendre. Mais est-ce là la justification de
 la guerre? N'est-ce pas plutôt sa condamnation ? Le %
 progrès ne résulte pas de la guerre; maïs il lui a fallu En
-résister à la guerre, et il n'a pu le faire que par la {
 guerre elle-même. D
 Du reste le plus souvent il ne s'est pas agi, dans ces y
 guerres, de savoir qui triompherait, la vérité ou l'erreur, k
@@ -1310,7 +1274,6 @@ venir. Dans les autres pays, quoique la disproportion .
 entre les dépenses civiles et les dépenses militaires soit |
 un peu moindre, les chiffres sont à peu près les mêmes. |
 Admettons que les citoyens européens payent en impôt |
-à l'État la somme annuelle de 20 milliards; il y a en
 chiffres ronds 5 milliards pour le paiement de la dette;
 
 10 milliards pour les dépenses militaires; et 5 milliards, c'est-à-dire un quart seulement, pour les dépenses
@@ -1340,7 +1303,6 @@ k Peut-être cette opinion serait-elle défendable si une
 \ vité des laboureurs, des vignerons, des pêcheurs,
 ee des ouvriers, des bûcherons et des artisans, à monter
 b la garde le long de leurs factices frontières départe- »_ mentales. N'est-il pas plus simple de vivre en bonne
-| harmonie ?
 Nous verrons tout à l'heure si ce régime de bonne
 “ harmonie est possible. Constatons ici qu'il est désirable.
 ( Car vraiment le régime économique actuel de nos socié-
@@ -1432,7 +1394,6 @@ pourront rien. Il y a lutte perpétuelle entre tous les K
 êtres vivants; de même il doit y avoir lutte entre les 4
 hommes. La théorie de la guerre nécessaire est une {
 théorie scientifique ; car la guerre est la loi même de
-la vie. » L
 Il n'est pas difficile de montrer qu'il s'agit là d'un
 sophisme, car la constitution des sociétés humaïnes a :
 précisément pour objet de modifier les iniquités de À
@@ -1504,7 +1465,6 @@ Bruyère, dans un passage célèbre, parle des milliers ki
 de chats qui se réunissent en une grande plaine pour 4
 46 4
 
-bi LA PAIX ET LA GUERRE
 VA se déchirer à coups de griffe et à coups de dent.
 fe Mais c'est une fiction (admirable d'ailleurs, et dont
 | ‘1 l'énergie ne peut être dépassée). En tout cas ce n'est
@@ -1623,7 +1583,6 @@ c'est probable; mais elle sera entrevue sans doute par x
 les très jeunes gens d'aujourd'hui; c'est-à-dire que, dans 3
 une cinquantaine d'années, et peut-être même plus tôt, %
 il n'y aura plus, pesant sur tous les citoyens d'un pays, L
-| $ 4
 
 14 la menace d'une grande guerre internationale, abpe surde. (1)
 We La raison qui me fait croire au rapide avènement
@@ -1664,7 +1623,6 @@ dans la justice civile une cour dépourvue d'agents de
 police et de gendarmes.
 Résumons très brièvement les raisons pour lesquelles
 cette objection du défaut de sanction est peu admissible.
-|
 1° Si réellement une institution pacifique générale
 venait à être établie, avec traités d'arbitrage permanents
 et obligatoires, avec une cour suprême d'arbitrage, les
@@ -1687,7 +1645,6 @@ reconnaître qu'on est dans son tort. L'opinion, aussi ;
 bien celle des peuples que celle des gouvernements, est, f
 par ce refus d'adhésion à la justice, directement offen- à
 sée. On ne peut plus prétendre qu'on soutient une cause À
-|
 
 juste, et il faut être sûr de sa force pour affronter ainsi ‘
 pi les hasards de la guerre en violant ouvertement tous les
@@ -1715,11 +1672,8 @@ plus ou moins, viendraient à être réveillés, et que ces
 que cette grande machine de paix aurait pour effet de
 provoquer de terribles conflits. Quel serait le sort
 de l'Alsace-Lorraine, et du Schleswig, et de la Pologne,
-et de Trieste, et de la Transylvanie, et de l'Arménie, et
 de la Finlande ? Faudrait-il maintenir les États dans
 leurs possessions actuelles (Beati possidentes, comme
-
-|
 
 disaït Bismark), même quand ces possessions consacrent à
 de flagrantes violations du droit ? ou bien faudrait-il “24
@@ -1815,7 +1769,6 @@ De même, lorsqu'on veut pousser les peuples à se ruer {
 les uns contre les autres, on leur dit, de l'un et de :
 l'autre côté du Rhin, tantôt : « Souvenez-vous que vous à
 
-| j |
 êtes Allemands! » tantôt : « Souvenez-vous que vous |
 De fait les races européennes sont tellement mélan- |
 | gées et confondues qu'il est impossible d'établir une
@@ -1948,8 +1901,6 @@ ments humains, entre les classes sociales, et peut-être
 les races humaines. Hélas non! les luttes sociales et
 ethniques ne seront pas bénignes et inoffensives. Mais Î
 
-he LA PAIX ET LA GUERRE
-
 À qu'au moins elles ne se décident pas par la guerre; car
 
 A de toutes les solutions la guerre est la plus absurde, la
@@ -2039,7 +1990,6 @@ rique ; car en fait le nombre de ces jeunes gens, réfractaires au 4
 service par scrupule de conscience, est assez faible. :
 Peut-être quelque jour aurons-nous l'occasion de traiter ce redoutable problème de morale sociale. ‘* 1402
 
-is LA PAIX ET LA GUERRE
 +  barie que nous portons tous en nous; car une courte
 … distance de temps nous sépare des âges où l'homme
 était un animal féroce. Notre civilisation, qui a la
@@ -2062,27 +2012,14 @@ __ moraliste et le philosophe ne puissent guère s'en propoDh ser de plus belle.
 4 Notre catalogue analytique sommaire, notre pelil
 DE. index alphabétique provisoire du catalogue anaby1 tique sommaire; notre petite table analytique provi-
 | : soire três sommaire de notre sixième série......... il
-1 CnarLes Ricuer. — La paix et la guerre....... I
 Hi L'étude que l'on va lire; la Revue philosophique. ...... IV
 WU Nous degons remercier... 4220600. 2
-Ne on OZhers sontiédités). MR EE ee 69
 
 (A Nous avons donné le bon à tirer après corrections
 \'A pour trois mille exemplaires de ce deuxième cahier le
 
-| Le gérant : CHARLES PÉGUY
-
 ji Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-de ESS
-
-h Ar nd Le
-
-#x8 r: JP FRNSCAEENESS
-
-| "TE ae
-
-‘f CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 ‘ rez-de-chaussée, Paris, cinquième arrondissement. k
 1 Nos Cahiers sont édités par des souscriptions men-
 ÿ suelles régulières et par des souscriptions extraordi-

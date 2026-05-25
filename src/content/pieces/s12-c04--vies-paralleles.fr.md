@@ -12,45 +12,9 @@ De: et d'un écolier
 | périodique paraissant tous les deux dimanches !
 | 8, rue de le Sorbonne, au rez-de-chaussée
 
-4 ps Fe PR AO NSET DRE LS SES SÉRIE :
-rl TÈr 4 Ë 51 REA TRE ASE NE Mae
-# ; ES ETS EN
-| è “HAUTS FR FA. RTE
-JA MER! | w: RU ere EPS "ont
-
-Dre Ê : de
-
-LR | de ne.
-
-D Les Milliet He
-NES IN UN HET 4 ra 17, L'ACRMRIRFIENS)
-
-mr. ni Rs
-
 d'un soldat et d'un écolier
 
-| a
-Rare c ii « TES
-Des 2 RCE: Cet
-#4 FN
-AE Des JV ee Ce
-
-RE pe L'E VAS HUE TEE ee ra ARE
-AE RASE te HR ARE STATE Ce Ru DT:
-RÉ Fr es PRE UE AS SA D La LME A TEE CORES fs
-LÉ ÉSS > : # ke RARE ne.
-| è LUS
-LES ER RRESR ÉR ER x Le PRET + ra
-
-ne TS
-Non + L É er
-
 1858-1859
-
-rat PRO RSR # Se Dr IN Ne de En: Se
-L'ARPSENES 4 ee PC
-se ee ? S MA
-#} 4e Mat?
 
 5 1858-1859 2
 4 Le Collège. — Meû culpä. — Le choix d'un avenir. DER |
@@ -69,8 +33,6 @@ rivales; mon père ne voulut pas se mêler de ces
 _ mesquines querelles, et c'est ainsi que mon frère etmoi “3 ;
 nous perdîimes l'occasion d'être admis dans cette
 
-ER ne À PRESENT Te PAL PEN V ie "
-HN ire te CE
 + vies parallèles d'un soldat et d'un écolier |
 Société, dont le but reste très beau, malgré ce qu'il y …
 a d'un peu suranné dans quelques-uns de ses rites. UE
@@ -120,9 +82,7 @@ f que vous faites. Je ne t'en dis pas plus long, parce que
 Louise me tourmente pour aller chez les petits Silly. à
 Portez-vous bien et revenez vite.
 Paul à M. de Tucé
-Mon cher oncle,
 
-Où es-tu? Que fais-tu? Que deviens-tu? Où vas-tu?
 Comment vas-tu ?.. Pour nous, nous nous plaisons beaucoup à Genève, où nous sommes très bien accueillis.
 
 Papa s'est remis à la peinture ; il fait mon portrait. Je profite de mes vacances, qui durent tout le mois de juillet, pour
@@ -169,7 +129,6 @@ qu'à maman qui la gâte un peu moins que nous tous. Je Ée
 voudrais bien commencer la peinture avec Alix, mais tant |
 que je suis au collège le temps me manque. Je m'en console :
 en faisant parfois des vers.
-M. de Tucé à Paul j
 .… Les prix que tu as obtenus à la distribution me font
 À voir que tu sais faire marcher de front les sciences et les s J
 4 lettres. Je suis maintenant fort occupé; nous sommes en 75
@@ -195,8 +154,6 @@ pour moi. Ajoute à cela qu'on est très bien payé, et juge si 1 ‘à
 
 je suis pressé d'y arriver. Ce qui me gâte un peu cette ei à
 perspective, c'est qu'il faudra aller dans un autre régiment, Rte
-
-où je ne connaîtrai personne, et quitter le 7°° Lanciers, où Es 13e
 
 _ j'ai de bien bons camarades, avec lesquels je vis depuis 2-37
 près de vingt ans. 2
@@ -226,7 +183,6 @@ Mes. leur inspirer l'horreur de l'ivresse. Je compris alors de |
 __ l'efficacité de cette odieuse leçon de choses, et je m'en
 je __ J'étais d'ordinaire un élève consciencieux; cependant 7
 % 4e de j'eus à me reprocher une faute dont je tiens à me con
-De: fesser. D
 ÈS La mémoire m'a toujours fait défaut, et plus d'une
 fois M. Oltramare, régent de première latine, inserivit
 A sur mon livret : « mémorisation faible ». Un jour, un A =
@@ -238,7 +194,6 @@ Es. ingénieuse qu'honnèête d'écrire sur mes ongles quelques . À *
 520 récitions par écrit, méthode excellente, adoptée par les
 _ : maîtres qui veulent bien consacrer leurs veilles à la
 “Æ fastidieuse correction des copies. Peu expert dans l'art.
-L. de tromper, je fus pincé, et la gravité de ma faut e
 Pit, m'apparut aussitôt. Elle était préméditée; je pouvais
 : CN enlever un prix à un camarade à la fin de l'année. 5
 Ta Voler une place n'est pas plus beau que voler eee
@@ -276,7 +231,6 @@ jeu très amusant. Un autre exercice excellent consistait
 du bulletin qu'il me donna à la fin de l'année scolaire 1858-59 :
 
 « Milliet est du nombre des élèves qui rendent à un maître la |
-tâche douce et dont il a regret de se séparer. Je n'ai eu qu'à me
 louer de sa bonne volonté et de son excellent esprit. Quant à
 l'état de son instruction, je l'exhorte à se mettre sérieusement à
 
@@ -349,7 +303,6 @@ _ mesquines et les accoutrements ridicules ne sont pas EL
 'HÉSRNSE vies parallèles d'un soldat et d'u écolier
 RAR de mon goût. (1) Puis cette justice humaine qui pun es
 2 le crime, ne sait pas le prévenir et ne récompense
-De jamais la vertu. » s7 10 si %
 K “. AE Fonctionnaire ? « Il faudrait savoir flatter le pouvoir
 he” et mettre à sa disposition son honneur et sa conscience. »
 jee. Prêtre? « Je n'ai pas foi dans les pratiques de la re
@@ -376,12 +329,10 @@ Je voleur. (2) Ce que je veux, c'est être commerçant en
 2% (1) La considération du êostume tient une place souvent EXCesETS sive dans l'esprit des jeunes gens au moment de choisir une pro
 F3 (2) Fernand avait lu cette anecdote racontée par Ch. Fourier: 5
 Lac « Je remarquai, dès l'âge de six ans, le contraste qui existe entre FE
-6 le commerce et la vérité. On m'enseignait au catéchisme et FLE 2
 70 l'école qu'il ne fallait jamais mentir; puis on me conduisait au
 ue : magasin pour m'y façonner de bonne heure au noble métier du Le Eà
 RE mensonge ou art de vente. Choqué des tricheries et PS
 
-É RO RATE ER de nl Ve en. 007 —iel à A
 + grand. D'abord, il faut de l'activité et de l'intelligence; » le corps et l'esprit sont toujours occupés; le négociant RÉ ES
 est libre, il ne dépend que de son honnêteté. Cette car
 _  rière exige des connaissances variées; plus le commers Ë ”
@@ -399,7 +350,6 @@ _ besoin. Nous admirons ces bateaux à vapeur qui si
 _ Jonnent les mers, mais ce ne sont que les instruments, as
 les corps; le négociant est l'âme les fait mouvoir.  .
 | des PS; 8 qui ECS
-__ Les révolutions peuvent se succéder, le commerce subCS : : LE Es PRES
 Mie: les peuples auront toujours besoin d'échange
 _ leurs produits; c'est lui qui pousse les hommes à faire
 _ la conquête de leur planète par l'industrie. L' REPRISE
@@ -413,7 +363,6 @@ A Lun d'eux, dans sa plainte, eut la maladresse de me déceler, ce
 4 _ qui me valut une ample fessée. Mes parents, voyant que j'avais du
 Eee. goût pour la vérité, s'écrièrent d'un ton de réprobation : @ Cet
 - enfant ne vaudra jamais rien pour le commerce. » DR de. -
-F5 Ê La Phalange, janvier 1848. ed
 
 vies parallèles d'un soldat et d'un écolier
 m'auras tracé la voie, je ferai tout ce qui dépendra de … ;
@@ -432,11 +381,6 @@ sont proportionnelles aux destinées ». Un beau jour,
 sans prévenir personne, Fernand disparut. Il était parti
 pour Turin, afin de s'engager comme volontaire dans |
 larmée de Garibaldi. -
-
-ETAPE PR er MON A NE QE =
-ee HR ie ie 68 es r Fe CES
-RS Se Le rs Re
-Ne DR ne
 
 Solférino. — Armistice. — Le Mont Tonale. — Chasse à
 l'ours. — Le retour. S
@@ -458,23 +402,10 @@ sincérité de l'émotion en fait le seul intérêt. C'en est un à mon ë
 … sens. Il est regrettable seulement que le jeune soldat wait pas
 —_ conservé les lettres de sa mère.
 
-| Re
-| i 1 li
-
 - -
 
-|
-|
-|
-| |
-
-de v'éc ‘ « prier de 14
-Wagé i e 1 inmtile de à f
-
 re aucur r, IL serait tro ù :
-D Je à = re, mais dus mt Y
 
-eus à Fes coariams, le à
 Hervé le ; cts nu pee 1)
 
 vies parallèles d'un soldat et d'un écolier
@@ -529,7 +460,6 @@ absolument manger un peu de vache enragée. Ce métier de
 
 "7 gratte-papier ne me valait rien, je ne suis bon qu'à faire un
 -. soldat. C'est moi seul qui ai pris cette résolution, personne
-N. ne m'y a entraîné; je n'en ai parlé à aucun de mes amis,
 4 ils m'auraient retenu.
 8 _ Maintenant, cher père et chère mère, il me reste à vous |
 - demander pardon du tourment et du chagrin que je vous
@@ -591,10 +521,8 @@ DE. Municipalité. Tout est terminé. Malgré ces deux nuitsetun.
 sr j'en suis fàché pour eux, mais c'est comme ça! 6% “4
 4 Je suis avec Michel (Rey) qui n'a pas encore terminé ses ne
 
-D D nt him NU ni EE
 examens de droit, Il m'a appris qu'Émile (Reynaud) n'était
 pas avec Garibaldi à Côme, mais que sa Légion allait le
-| rejoindre. IL à fait des masses de conquêtes à Turin. @ Get » ÉNE « i . . dE : « + RE. a
 _ Je voudrais bien rejoindre aussi Garibaldi; je ferai plus
 probablement partie des Chasseurs des Apennins. LT CEE
 … Adieu cher père, adieu ma bonne mère, adieu Paul, Alix, "23
@@ -605,7 +533,6 @@ _ Encore adieu et au revoir, mon père et ma mère. : She
 …_ Votre fils qui vous aimera toujours, Vie
 _ Chère mère, surtout je t'en supplie, ne te crée pas de
 _ Ton enfant chéri, (2) ASE
-Re T. : Cher père, T VRETEEORS su
 _ Je trouve enfin un petit moment de libre pour t'écrire. Je 7e
 = suis à la citadelle, où l'on n'est pas mal du tout. Je fais 4
 | l'exercice toute la journée. Hier, j'ai vu entrer ici cinq cents 7
@@ -639,7 +566,6 @@ du maire de Genève. Si je présente cela aux chefs, ils auront
 plus d'égards pour moi... (1) Ma bonne mère chérie n'a rien ;
 à craindre, je ne serai pas envoyé au feu avant quelque 2
 Adieu, cher père, ton fils qui t'aime et te chérit. 4
-M. À. de Tucé à sa sœur . Ÿ
 Ma chère amie, ne.
 J'ai été bien surpris en apprenant le coup de tête de F,
 Fernand, et je prends bien part à tes angoisses. Cependant, à:
@@ -688,9 +614,7 @@ _ Les officiers sont mis comme nous, sauf qu'ils portent un
 _ Alpes, avait battu une seconde fois les Autrichiens $
 | devant Varèse. Ce fut un grand regret pour Fernand
 - de n'avoir pas pris part à cette bataille, ni à celle de
-> Côme.
 - Le 4 juin 1859, l'armée française avait remporté à
-| " . .
 - Magenta une grande victoire. Napoléon III comman-
 É  dait; son plan, qui avait pour objectif Milan, échoua
 54 (1) Les militaires sont presque aussi coquets que les jolies
@@ -727,10 +651,7 @@ gante, cache-nez jeté en écharpe, manteau de drap gris, drapé à |
 $, + front intelligent, on y voyait resplendir le calme de la vraie bra:
 LE voure, la sérénité d'une conscience droite, avec une expression de « NS
 ss ._ franchise et de bonté si puissante, qu'elle attirait irrésistiblement
-REA © la sympathie et le respect. ÈS:
-ve La TNA
 
-LE. APN art AM EURE TT Le RSR EE ARE ET
 1150 Chère mère, ;
 …. Le bruit court que nous partons samedi pour Milan ou Fe
 _ pour rejoindre Garibaldi. Nous sommes ici, à Alexandrie,
@@ -762,7 +683,6 @@ LE tu veux m'envoyer de l'argent, tu peux m'en envoyer par Fe “
 _ lettres ou autrement, si tu trouves quelque moyen plus GS # re
 ©. venable. Tu comprendras que, quand on est depuis cinq
 _ heures du matin jusqu'à huit.et demie à l'exercice, et que : Se
-re S l'on n'a rien dans le ventre, l'on est bien aise de se payer un se ve
 petit verre pendant un repos. Pendant la journée, si je ne SE DR
 prenais pas quelque chose à la cantine, je tomberais vite __.
 * malade; notre soupe est du riz, et toujours du riz, aveeun
@@ -808,9 +728,7 @@ départ, et encore pas comme je l'aurais voulu. Je me ÿ
 cache chaque fois que je lis vos lettres pour pleurer, et
 maintenant que je vous écris, les larmes me viennent aux ‘à
 | ù Mais, allons, point de tristesse, nous nous reverrons E
-| : £
 
-PE D ton Todd D : Er
 _ tous. Quelle joie! oh, quel jour de fête pour moi quand je
 _ pourrai vous serrer Sur MOn CŒUr...
 Ton fils affectionné,
@@ -847,12 +765,9 @@ _ plus de six millions de matériel de guerre, des convois .
 _ le Pô. C'est un grand beau fleuve, l'eau est trouble comme
 . celle de lArve et assez froide. Il fait ici une chaleur épou-
 
-ARR en AND ARE TRE RE Se MES DÉS ee à
 vies parallèles d'un soldat et d'un écolier
-ÈS 1 je Be # ARS SRE NA La Là PRE ta
  vantable, aussi tout le monde ne sort-il que le soir. a voit
 MS des toilettes superbes, portées par des femmes qui méritent e
-Be bien ce luxe. Je n'ai jamais vu de pays où il y aittantde
 25 belles femmes! C'est maintenant que je regrette de ne
 tre pas savoir l'italien, j'aurais donné des leçons de français
 re Vous devez avoir entendu parler de la grande bataille qui
@@ -860,7 +775,6 @@ LÉPIESR Les alliés ont eu trente mille hommes mis hors de combat 1e
 Ex À et les Autrichiens près du double. Ceci, je le tiens d'un em- pee
 _  ployé de l'Intendance française. Ici, on fait évacuer l'hôpital.
 1e Les malades sont dirigés sur Alexandrie, pour faire place
-ee aux blessés qu'on attend. J'ai vu le 3" Zouaves, il na …
 Hour pas été aussi abimé qu'on l'avait dit à Palestro. On remarque …
 pe 110 à que tous les blessés français et piémontais ont des blessures
 res de balles, et les autrichiens de baïonnettes ou de sabre. &
@@ -870,8 +784,6 @@ Pr On vient de nous donner des sacs pris aux Autrichiens. 2e
 La On a aussi créé dans notre régiment des premiers soldats
 ER qui ont le sabre; ce sont tous ceux qui ont déjà servi autre
 Te fois. Ils ont un sou de plus. Tu dois bien penser que je n'en =>
-E D. suis pas. Pt Re
-Mer K2 DE
 Re: : La bataille de Solférino commença à quatre heures
 ‘3 du matin. D'un côté 170.000 Autrichiens et 500 pièces
 me d'artillerie; de l'autre, 150.000 hommes et 400 pièces. La
@@ -937,7 +849,6 @@ Fr C'est cela qui m'a guéri et m'empêche d'être malade main-
 ‘4e Ne soyez pas inquiets de ma santé. J'ai appris avec plaisir |
 RP que Louise se portait à merveille. Dis-lui de moins blaguer
 LS sur mon compte, car si ce n'est un coup de baïonnette que
-RU © j'ai flanqué en duel à un Italien de ma compagnie, je n'ai
 35e pas fait de grandes prouesses. (1) ee
 ë : Bonneville, le 2 août 1859. |: Ur
 He. « … Fernand est à Edolo; il ne m'écrit rien de précis sur son
@@ -961,7 +872,6 @@ _ 4.500 hommes, les Autrichiens 10.000 prisonniers et 15
 & payer aussi cher. Telle est, je crois, la leçon que l'aïeul SE
 4 devrait tirer de ces événements tragiques, lorsqu'il les …_.
 - raconte à ses petits-enfants. CEE
-LE Chère mère; F VE LE
 … Après avoir écrit ma lettre à Alix avec des ambrunes, (1) Es
 .” j'ai reçu la tienne du 26 juillet. Nous sommes partis ce LP
 - matin de cette maudite montagne et, après huit heures de 5
@@ -1085,12 +995,6 @@ Lo En 1865, il fut nommé grand maître de la franc-maçonnerie. ee
 
 1860-1861
 
-RAC MSP Rd ee UNE
-ACT dj ‘ii LA COR De TER DE
-1 LES fs st # LA 2 XII PSE
-- LE SENR REX ee OR
-| PRESS "Tia
-
 Fernand Chasseur d'Afrique. — Paul étudiant. — La Société
 
 de Belles-Lettres. — Etudes de peinture. — Un Moine,
@@ -1106,9 +1010,7 @@ pu dégoûter Fernand de la vie militaire. Aussitôt que
 sa santé fut un peu rétablie, il s'engagea à Lyon dans
 l'armée française et obtint d'être envoyé en Algérie, où.
 il alla rejoindre son oncle.
-M. de Montal (1) à M. Milliet
 Valence, le 9 février 1860. é
-Mon cher ami,
 
 Hier, vers deux heures de l'après-midi, un grand et beau
 jeune homme est entré dans mon étude. Je l'ai salué et lui
@@ -1117,7 +1019,6 @@ ai demandé à qui j'avais l'honneur de parler. Il a fallu qu'il
 {1) Notaire à Valence, ami d'enfance de M. Milliet.
 
 | vies parallèles d'un soldat et d'un écolier se
-> PAS
 déclinàt le nom de Fernand pour me mettre sur la voies
 alors la connaissance a été bientôt refaite. Chez madame :
 ; Marquet, (1) ça s'est mieux passé; on a dit : « Mais je crois à
@@ -1129,24 +1030,20 @@ s'est engagé. ‘
 Nous avons dîné tous ensemble et passé la soirée jusqu'à
 onze heures très gaiment, parce que Fernand était très gai,
 très causant, très agréable. Je l'ai conduit jusqu'au wagon,
-et il a dù arriver ce matin à Marseille.
 $ Nous avons été très enchantés des bonnes manières, de
 À la tenue, de l'affabilité de ce jeune homme; il est tout à fait ®
 À gentil, et je suis heureux d'en faire compliment à son
-x : père et à sa mère. —
 Ce brave et excellent garçon était malheureusement
 | d'une faiblesse extrême, lorsqu'il s'agissait de lutter
 contre l'attrait du plaisir. Il se laissait trop facilement
 entraîner par ses camarades. d
 7 Fernand à sa mère
-> = x
 Chère mère,
 Ë Tu vas être bien étonnée de recevoir encore une lettre de
 < Marseille, je vais t'expliquer comment cela se fait. A peine |
 \ arrivé ici, j'ai fait viser ma feuille de route à l'intendance; |
 à mais le lendemain matin, jour de l'embarquement, une tem-
 : pête affreuse! Malgré cela, je me suis rendu sur le bateau,
-+ où j'ai payé ma place de secondes, et là, le capitaine m'a
 à dit que l'on ne partirait pas avant demain matin, à huit
 6 heures ; si bien que je suis sorti, accompagné de plus de la
 
@@ -1192,7 +1089,6 @@ moi, car ils veulent absolument me quitter.
 É Û J'oubliais de te dire que les dimanches nous allons à la Se
 à messe et que nous chantons des cantiques. ; ,
 5 Grande nouvelle, je pars aujourd'hui.
-4 M. de Tucé à sa sœur
 à Fernand est enfin arrivé à Constantine par un beau temps
 à et en bonne santé... À Philippeville, on lui a refusé l'autoa risation de prendre la diligence; il a donc été obligé de
 £ faire les étapes à pied. Il est arrivé pas trop fatigué de ses
@@ -1277,7 +1173,6 @@ $ brigadier Lobret, grand gaillard de près de sept pieds de
 haut, ayant recu de l'instruction, parlant très bien anglais,
 oi ex-sous-off. de carabiniers; c'est l'individu le plus drèle ps
 3% le plus jovial du monde, ayant toujours le mot pour rire et
-Rte se moquant de tout le monde. HUE
 de Æ En attendant le départ, nous sommes campés à Bône; Ve
 À S c'est une bien gentille petite ville, surtout pour une ville RE
 — d'Afrique. Tout y est très bon marché, les fruits surtout:
@@ -1307,7 +1202,6 @@ Le et les Anglais suivent en cela leur exemple. Mais,
 _ d'autre part, n'est-il pas regrettable de constater à quel =
 __ point la culture intellectuelle des soldats est négligée.
 ES x . L'existence matérielle étant assurée, l'homme n'a plus 1
-PA eu ve. à LHC EEE tes
 
 6 le souci de l'avenir; l'obéissance passive oblitère en 0
 … Jui le sentiment de la responsabilité; il ne lui reste
@@ -1501,7 +1395,6 @@ _ intime et profonde, quand vous sentez votre cœur % es f.
 battre et vibrer à l'unisson, alors, en serrant la main de pus
 ri vous a touché, vous lui montrez que vous BU
 l'avez compris. » ? ER
-| A €
 
 vies parallèles d'un soldat et d'un écolier
 4 Hélas, ces belles paroles furent impuissantes à déraciner d'anciennes et déplorables traditions. é
@@ -1645,10 +1538,8 @@ de  distinguait déjà par sa vive intelligence, sa précoce Re |
 de pénibles épreuves et il occupe dans ma vie une place
 trop grande pour que je ne lui en fasse pas au moins es
 _ une petite dans ces mémoires. rer
-Tr SA PPS eu PR PES
 
 LES vies parallèles d'un soldat et d'an écolier
-Le # il m'écrivit : * : « er. Le sh a.
 
 D: Voici bien peu de mots, cher Paul, c'est pour te dire... (1).
 Se qu'il faut remballer au plus vite tes peintures et quitter e
@@ -1729,7 +1620,6 @@ a Ê ment de l'Instruction Pubiique. Il ne s'en souvenait plus, le mal- L
 
 _!. vies parallèles d'un sol da et d'un écolier
 |. demandai de copier sur mon album ses Romains en “i A
-SE Ÿ à Let pe A 3 RS RES EU 405. 7 Le
 RU Pourquoi les cris de l'ours au fond de son repaire
 l'OS Troublent-ils des forêts la triste majesté ? er à
 Es Pourquoi l'oiseau de proie, abandonnant son aire A
@@ -1752,7 +1642,6 @@ Dr > La sanglante vapeur qui souillait la prairie ie
 "4 On ne vit plus, quand l'aube éclaira la vallée, RE. #
 14 RE Les soldats du consul pencher leurs étendards +
 ECS Pour saluer le jour; la neige immaculée SR « Ro: Buvait le sang des cadavres épars. a
-FC ne.
 + On épargne le reste, on lui donne la vie, " .
 æ ge Pourvu que, près de là, ces conquérants fameux, HR
 DENT Défilant un par un, courbent leur infamie CELA
@@ -1786,9 +1675,7 @@ Ce serait égaler les buveurs d'ambroisie.
 - (1) Cest le sujet que Gleyre a traité dans son beau tableau du
 … Musée de Lausanne.
 
-> } S Re
 À __ vies parallèles d'un soldat et d'un écolier PR
-| SEIZE ANS +
 Re. Seize ans! C'est l'âge heureux où, sorti de l'enfance,
 3 Le jeune homme, soudain, d'un pas hardi s'élance
 2 Vers le vaste horizon qui rayonne à ses yeux.
@@ -1820,7 +1707,6 @@ L Comme les paysans de Virgile, l'étudiant ne connaît
 Lo Comme ils me plaisantaient, bien doucement pourtant,
 2 sur ma mélancolie, je rêvais d'un ami idéal, sentimental.
 
-di LE FER PURE ve CMS , # NF CSS as RE ct
 . comme moi. À l'âge où l'enfant devient homme, il passe
 _ souvent par une crise douloureuse, et sa sensibilité
 -_ maladive s'exhale en plaintes sans raison. Une précoce - Ê
@@ -1858,7 +1744,6 @@ _ Je voudrais épancher mon âme dans une âme.
 RU _ vies parallèles d'un soldat et d'un écolier …—
 “HER Souvent, quand je suis seul, je rêve à toi, le soir, Re
 ee ; Et sur mon front je sens voltiger mes pensées... | Es tas z
-be Les folâtres petites fées RS NET SEMI à "a
 A Sur leurs ailes d'azur s'élancent pour te voir.
 À FA ï L'une te dit tout bas : C'est à toi que je songe; es F.
 de. Le : L'autre ferme tes yeux par un baiser, et toi, = à
@@ -1948,7 +1833,6 @@ et des phrases à panaches.
 Mes parents étaient abonnés au Rappel, journal où ë
 Vacquerie publiait chaque jour des articles tout étincesd
 
-LL L'ÉTAT MERECERS re 4 j
 _lants du choc des antithèses. Nous lisions aussi son
 curieux volume intitulé : Profils et Grimaces, dans
 lequel il expose avec une verve insolente sa haine du
@@ -1960,7 +1844,6 @@ diversité de leurs génies. æ
 Voici, d'après Vacquerie, la théorie et le code du
 La vie, c'est la perpétuelle rencontre du triste et dugai,
 du sérieux et du ridicule, du beau et du hideux, du grand
-et du médiocre, de l'épique et du trivial, de l'infini et du 4
 matériel. La tragédie sépare la vie en deux lots : dans l'un,
 les héroïsmes, les catastrophes, les crimes ; dans l'autre, les À
 vices, les ridicules, les infirmités, les appétits. Elle s'adjuge
@@ -2013,7 +1896,6 @@ RS Au diable les repus, crétins dormant leurs sommes | "M
 MSN Sur l'oreiller des préjugés! À os
 
 * _ Foin des tristes rhéteurs gourmés, des doctrinaires,
-$ e Des économistes poussifs,
 Des chastes épiciers et des parfaits notaires, |
 De tous les hommes positifs !
 Loin, ces sages rimeurs dont la muse discrète,
@@ -2036,8 +1918,6 @@ Ils y mordent à belles dents.
 
 Ils s'enivrent aux chants des perfides sirènes:
 
-Ces aventureux passagers ù
-
 Volent insoucieux vers ces charmantes reines
 
 Boire la mort dans leurs baisers.
@@ -2059,7 +1939,6 @@ F. ; tr ». Restez, chevaux fourbus, au fond de vos étables, É
 { L'oreille bas, les yeux chagrins, $ 74
 t Tandis que bondiront, faisant voler les sables, 1
 DE: ; Les nobles coursiers à tous crins. à
-| | 8 |
 SS En présence de la jeunesse genevoise, si studieuse et
 3 si puritaine, mon père était plus étonné que charmé. 4
 ee Élevé dans un milieu encore pénétré des idées de \
@@ -2171,9 +2050,6 @@ ee Devenu vieux, j'assiste souvent à la Sorbonne à
 
 quelques-unes de ces brillantes conférences d'agréga- à
 
-toi ÉÉRAR GE SM ES D Re PR Le RE Ve lue
-
-RP Pur Car PERRET : nee = k F4
 lion où, sous la direction de maîtres éminents, de très *
 
 _ jeunes philosophes, déjà étonnamment érudits, agitent ce”
@@ -2195,7 +2071,6 @@ nerfs, il sera temps de vous plonger dans la métaphy- 3 hs
 pour la plupart d'entre vous les hautes spéculations ne
 P euvent pas rester désintéressées, la philosophie est Se
 devenue un métier. ARE
-En - M. de Tucé à sa sœur CR
 Te Saint-Mihiel, 23 août 1859. ne
 …- Je ne vois pas troÿ quel changement l'amnistie peut Es
 apporter dans votre existence, sauf la faculté de venir en MMS.
@@ -2229,17 +2104,6 @@ pardonné. Il fallut donc me remettre au travail, à .
 Genève d'abord, puis à Versailles, où mon ancien professeur, M. Fleury, avait fondé une institution. ;
 (1) Ludovici Magni morientis ad pareum puerum, regni heredem et |
 
-RARE RATS ie LEE EN an “ ES Le, Ê
-ni LUS f me
-ER Ni ne
-Le ALT jee
-Fe Do: ta STARS
-TA À LRO FAT OS ROIS pr Er LS
-
-jo HAN ne: : Nr:
-Re de F ni . = RÉSRSES,
-
-; LRO RU ee PERS SARA Le La ren €
 __ Adrien de Tucé et son neveu. — Baalbeck, Jérusalem, : FE Au
 À Le gouvernement ture avait nommé un Xaïmakan où
 - lieutenant druse (1) pour les districts du sud de la #e
@@ -2326,7 +2190,6 @@ Maronites avec les plus vifs témoignages d'affection et
 de reconnaissance, à la fois comme des coreligionnaires
 et comme de puissants protecteurs.
 
-M. de Tucé (1) à sa sœur
 Depuis le 25 septembre, jour de notre débarquement, je
 n'ai pas aperçu Fernand; il a quitté le vaisseau pour entrer
 x (1) M. Chauvin, maire de Montoire, écrivait, en 1863, la notice
@@ -2361,7 +2224,6 @@ pe î chargée de marcher en première ligne pour châtier les 4
 1817. Il descendait par son père de l'une des familles les plus
 : anciennes et les plus notables du Maine, et, par sa mère, de la
 ; famille Huë de Montaigu, dont un membre, M. Gabriel-NicolasAdrien, ancien major au Royal-Cravattes, fils du maréchal
-x de camp Huë de Montaigu et aïeul de M. Adrien de Tucé,. …
 s'est allié, en 1790, à la famille Fredureau de Villedrouin, l'une des 3
 plus honorables du Bas-Vendômois. — Sorti en 1839 de l'Ecole
 Militaire de Saint-Cyr, il fut, en qualité de sous-lieutenant, incor- #
@@ -2389,7 +2251,6 @@ _ cloisons, faites avec de la boue, de la paille hachée et de la ÿ
 _ ménage sont tout ce qu'on peut imaginer de plus élémen- hr:
 taire; c'est au point que j'ai eu toutes les peines du monde FRE
 pour trouver ici un plat en terre pour le service de ma REA
-| tente. sé Er 4
 : Nous sommes établis pour passer l'hiver à Kab-Elias ES
 (tombeau d'Elie), c'est un village de la force de Saint- x
 Ë . Rimay (1) et de tout autant de ressources; aussi sommes- ' È
@@ -2481,7 +2342,6 @@ que je suis soldat si jeune; aussi les figues, les raisins secs,
 Se zephiri et amachboubé). Elles adorent les Français, et il y
 2 en a beaucoup qui seraient très disposées à venir en France.
 
-= 3 Le Mar - ER ARE HAL à es Re
 t vies parallèles d'un soldat et d'un écolier os
 . Moi, je vais là pour apprendre l'arabe seulement; ma FE 7
 maîtresse de langue s'appelle Basseïa, c'est une belle brune, … =
@@ -2496,7 +2356,6 @@ allé plusieurs fois et m'y suis beaucoup amusé. Je voudrais 750
 bien, comme Louise et comme toi, savoir dessiner, je vous :
 enverrais un croquis du camp et de bien d'autres points de 4
 , » = vue très curieux. k
-M. de Tucé à sa sœur + 4
 * … Nous avions tous l'espoir d'aller faire un voyage à 4
 Damas dont nous ne sommes qu'à deux petites journées de $
 marche, maïs il paraît que la politique s'y oppose. Le général NN
@@ -2518,10 +2377,6 @@ De Baalbeck, l'ancienne Héliopolis ou Cité du Soleil,
 J il ne nous reste que des ruines, mais, avec celles de “ a
 Palmyre, ce sont les plus imposantes du monde : des
 temples de dimensions colossales; celui de Jupiter,
-
-eq oh de in re
-
-LES sa xt EN SYRIE a * Â
 
 construit par Septime Sévère, celui du Soleil, par
 
@@ -2613,7 +2468,6 @@ qu'ils méritent d'ailleurs si bien. Assurément les énormes chapiteaux corinth
 feuilles d'acanthe sont encore d'une exécution large et ferme,
 toute l'ornementation de ces temples est très supérieure à celle À
 
-é Suite de la lettre de M. de Tucé
 Je suis seul chef d'escadron pour les quatre escadrons
 | qui composent la cavalerie de l'expédition. Celui qui la
 commande en chef est M. du Preuil, lieutenant-colonel du
@@ -2687,7 +2541,6 @@ et de souffrance dégrade ces formes si pures; un teint cuivré :
 ._ cache la régularité des traits; en un mot, pour voir ces femmes D.
 x telles que je viens de les peindre, il faut les contempler d'un peu =.
 se . loin, se contenter de l'ensemble, et ne pas entrer dans les détails. » L5 54
-y (Chateaubriand) LE
 
 suis allé dîner chez M. Duchesne; tous les enfants se sont
 | mis à jouer avec moi, l'un traînait mon sabre, l'autre se
@@ -2706,7 +2559,6 @@ pas avec vous; pensez à moi un peu ce jour-là, en vous. &
 amusant, tâchez de le passer gaiement; j'essaierai de mon
 côté avec mes camarades, mais ma pensée sera toujours au .
 - milieu de vous, mes bons parents. ; es
-# SE Fernand à sa mère AS
 À .… Le temps a bien changé depuis ma dernière lettre.
 F Figure-toi qu'à Kab-Elias il est tombé au moins cinq piedsde
 neige. Juge de notre position sous les tentes, dont la plupart
@@ -2764,9 +2616,6 @@ Encore adieu, chère mère, j'espère pouvoir bientôt :
 t'annoncer que je suis brigadier. Toutes les nominations se
 font au mois de mai, à la naissance du petit prince. Tu
 dois savoir que mon oncle est décoré depuis le premier
-de l'an.
-
-ù M. de Tucé à sa sœur
 
 Ma chère amie, je suis rentré le 10 de ce mois-ci d'un
 voyage que je viens de faire en Palestine et à Jérusalem,
@@ -2869,12 +2718,9 @@ une prolongation de trois mois. Je crois que ce sera beau
 &s Adieu, ma chère amie, je voudrais pouvoir vous envoyer .
 : un peu du-beau soleil qui chauffe les palmiers et les orangers de notre jardin, car vous êtes, je pense, à l'époque de És
 4 la bise et des grands froids. ‘ ; PE
-L Maintenant que j'ai vu Baalbeck et la Palestine, je ne
 a serai content que lorsque j'aurai vu Damas... Quant à SE
 ._.  Palmyre, c'est un voyage diflicile et sur lequel nous avons
 __ peu de renseignements. :
-: Fernand à sa mère à vs
-| # Kab-Elias, 4 avril 61. 7
 + ._ … Nous venons de faire une jolie tournée, les deux ;
 É. escadrons de Chasseurs d'Afrique, avec le colonel et mon à
 
@@ -2917,8 +2763,6 @@ donc de m'écrire, pour que je voie si elle a fait bien des !
 progrès. Quant à Alix, j'espère bien la trouver mariée à ;
 mon retour de Syrie.
 
-M. de Tucé à sa sœur
-
 .… Je suis revenu à Kabélias sitôt que les neiges ont
 un peu fondu dans le Liban et ont rendu les sentiers ce
 qu'on appelle praticables dans ce pays-ci, ce qui ne veut Ù
@@ -2957,7 +2801,6 @@ descend jamais de son nid d'aigle et laisse paisiblement
 les Druses révoltés venir rançonner les villages de la
 à Le pacha nous a reçus avec le cérémonial habituel en
 
-Fe _pies parallèles d'où soldat Et d'or ol "à
 Orient. Il était entouré des ofliciers supérieurs de son com-. Ha 4
 Les mandement; ils ont tous l'air de vraies brutes. @)
 De là nous sommes allés à Hasbeya en deux jours. La
@@ -2998,14 +2841,12 @@ soie rouge, remplies de yatagans, coiffés d'un immense turban
 détoffes de diverses couleurs, avec un large pan de soie pourpre
 retombant sur l'épaule; vous croiriez voir un peuple de rois » UN
 
-ae HF SHQeeS DORE Min MODE CONS UN SN
 _ Je m'occupe de faire passer Fernand brigadier, mais il à
 er +1 a pas de place dans l'escadron et d'anciens sous
 E officiers, ayant rendu leurs galons, sont beaucoup plus
 __  méritants que lui. Fernand met dans sa lettre une fleur
 …_ pour Alix, c'est une giroflée du Jardin des Oliviers; ellk a Le
 : _ servi à faire les bouquets qui ornent le tombeau de J.-C. es
-JSCER M. de Tucé à sa sœur ;
 & … Votre lettre nya été remise à mon retour d'un voyage Ç
 : que j'ai fait à Damas, où j'ai passé deux jours entiers. Fer- x
 nand n'a pas trop à se plaindre, je l'avais emmené avec LA
@@ -3143,7 +2984,6 @@ en Syrie jusqu'au 5 juin 1861. Bientôt les Druses con- »
 damnés à mort virent leur peine commuée en une
 déportation à Tripoli. Cinq ans après, ils furent amnis- M
 tiés et rentrèrent dans leur pays. : 4
-? M. de Tucé à sa sœur . ; LT
 .… Nous voici de retour en Afrique. Embarqués sur la + d
 frégate le Canada, nous sommes arrivés le 4 à Stora; notre .
 traversée a été très bonne. Une partie de l'escadron était
@@ -3168,7 +3008,6 @@ croire que je vais recevoir l'ordre du Médjidié. +: 108
 …… Je suis content d'apprendre que vous vous amusez et
 je regrette de ne pas avoir ma part de tous vos plaisirs.
 
-| FESSES SI CENS SERRE ROSE
 - Quant à moi, je ne m'amuse guère, je t'assure : j'ai trouvé
 LT en arrivant une partie de mon escadron tout en désarroi.
 2 Cependant mon arrivée a été une vraie fête. Le soir, mes
@@ -3203,10 +3042,6 @@ di basse, affreux rival de Fernand. — Troisième acte : les
 Dei voudrais faire mourir Basseïa, ton père ne veut pas. Cela
 PT me semble plus dramatique; lui trouve cela trop triste.
 
-MORE R INT 4 PRINCE RL LT PE re Ne
-> LEE Te
-LA . x es val
-
 une famille de républicains fouriéristes ..... 1
 IV. — vies parallèles d'un soldat et d'un
 Le Collège. — Meû culpà. — Le choix d'un avenir.
@@ -3218,8 +3053,6 @@ La Société de Belles-Lettres. — Etudes de pein-
 Seize ans. — Vers contre la moquerie. — Une
 
 SRE quatrième cahier de la douzième série
-: : etre PS TEL LE VS ENV Al ASS SCALE
 mystification littéraire. — Vacquerie et le Ro
 | mantisme. — Carpe diem. — Ascétisme. —_
 | + Adrien de Tucé et son neveu. — Baalbeck, Jéru- » >:
-Table de ce cahier... Re Re 05

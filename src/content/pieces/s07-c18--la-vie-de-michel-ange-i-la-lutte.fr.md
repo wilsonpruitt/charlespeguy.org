@@ -7,13 +7,8 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 31869
 ---
-| à
-| DE A
-| à |
-
 Du même auteur, aux Cahiers de la Quinzaine : 4200
 
-Pages SES
 Romain Rolland, — Aërt, — trois actes, — un volume “1
 —  — le Triomphe de la Raison, —trois actes, ne,
 — un volume en voie d'épuisement...... sept francs 2
@@ -22,19 +17,15 @@ Romain Rolland, — Aërt, — trois actes, — un volume “1
 ; Tolstoi, adressée à Romain Rolland ........ un franc 13 Fe.
 
 —  — Le r4 juillet, action populaire, — trois “4
-aCteSs ..... 2... e.cc.creee -NUTOÏS JPANCS CIDQUAHLENES Le
 _— — Vies des hommes illustres, — Beethoven, +
 avec le masque de Beethoven, — un cahier épuisé, 54
 n'est plus mis en vente que dans les collections com- a
 _— Vies des hommesillusires, — Beethoven, ES
 — deuxième édition, sans le masque ... deux francs 212 “4
 —  — Le temps viendra, — trois actes........ 1
-| LT
 
 S . Romain Rolland, — Jean-Christophe. — I. — L'aube..
-ÿ _— —_ Jean-Christophe. — 1. — L'aube, — édition Ollendorff.…................... trois francs cinquante
 & —  — Jean-Christophe. — II. — Le matin; la
-F —  — Jean-Christophe. — I. — Le matin, —
 : —  — Jean-Christophe. — III. — L'adolescent;
 LE la maison Euler, Sabine, Ada... trois francs cinquante
 L —  — Jean-Christophe. — HI. — L'adolescent,
@@ -43,12 +34,9 @@ L —  — Jean-Christophe. — HI. — L'adolescent,
 « volume que M. Romain Rolland vient de publier à la
 … Libraïrie de l'Art ancien et moderne, dans la collection
 les Maîtres de l'Art, collection de monographies d'arPistes :
-… … Les Maîtres de l'Art. — Romain RorLanp.— Michel- ù
 Ë Ange, un fort volume carré in octavo de 184 pages,
 £ … Le même, avec un cartonnage artistique en toile...
 Û Ce volume est en vente à la librairie des cahiers.
-
-NE \ d ais ts AA RAT
 
 LS Il est, au Museo Nazionale de Florence, une statue de
 . marbre, que Michel-Ange appelait le Vainqueur.
@@ -68,7 +56,6 @@ lui-même, et le symbole de toute sa vie.
 La souffrance est infinie, elle prend toutes les formes. E
 _ Tantôt elle est causée par la tyrannie aveugle des
 
-Romain Rolland ES
 choses : la misère, les maladies, les injustices du sort, 4
 les méchancetés des hommes. Tantôt elle a son foyer à
 dans l'être même. Elle n'est pas alors moins pitoyable, H
@@ -96,7 +83,6 @@ cessibles. Je hais l'idéalisme couard, qui détourne les
 : Jeux des misères de la vie et des faiblesses de l'âme. Il
 faut le dire à un peuple trop sensible aux illusions décevantes des paroles sonores : le mensonge héroïque est
 
-|: 5 É
 F _ une lâcheté. Il n'y a qu'un héroïsme au monde : c'est
 _ de voir le monde tel qu'il est, — et de l'aimer.
 f Le tragique du destin que je présente ici, c'est qu'il
@@ -122,7 +108,6 @@ dans les moments de doute, au vertige du Néant
 qu'un manque de foi dans la vie, un manque de foi dans
 l'avenir, un manque de foi en soi-même, un manque de
 
-Romain Rolland 1
 courage et un manque de joie! Nous savons sur com- 4
 bien de défaites est bâtie votre douloureuse victoire !.….
 Et c'est pour cela que je vous aime, chrétiens, car je
@@ -140,33 +125,6 @@ sont la force, elles sont la vie, elles sont Dieu. Qui ne
 les aime point toutes deux n'aime ni l'une, ni l'autre. à
 | Et qui les a goûtées sait le prix de la vie et la douceur :
 de la quitter. ik
-Romain RoLLAND
-|
-
-NEA es SA An ANS OA ERTAU CURE PERDRE AU
-
-| NNRANEERRS \ 1è7:088
-01e pi han ù JA LES AUD
-| DUO +7 NPA
-da vie de MichekAnge
-| 12 ARS VArE ; C4 DS
-
-EURE La PAPA US NÉ CL, Ge dr
-ci ÿ ji Le F4
-| 107 Ce CTI |
-| RE J
-| 2 ANS OTEES
-| LR MR PEER L
-| 00 ICHEL-ANGE ë
-| AL
-| \SINNNNRSSES |
-
-our à » L ss FE Ua
-ee 1 ag L: FAST
-LUS ke Ÿ 4e FE Le pt
-ni NAS ï ; À + Art 2 RIT ne
-(à fi LS TRATE $ ER | PRE a fe LE Ces UE
-TIRER VEN STE DRE LES OMPT Lus ee PPT ar Ter ESS
 
 [UE { C'était un bourgeois florentin, — de cette Florence
 |: aux palais sombres, aux tours jaillissantes comme des
@@ -254,7 +212,6 @@ $ (3) Lettre à son père, du 19 août 1497. — Il ne fut « émancipé »
 }. par son père, que le 13 mars 1508, à trente-trois ans. (Acte officiel,
 "4 enregistré le 28 mars suivant)
 
-Romain Rolland
 Toutes les superstitions, tous les fanatismes de cette 4
 race dure et forte, il les eut. Ils furent le limon, dont \
 son être fut formé. Mais de ce limon jaillit le feu 4
@@ -287,7 +244,6 @@ forçat. Il ne s'accordait même pas le temps de manger É
 
 44 et de dormir. A chaque instant, dans ses lettres, revient ;
 ‘148 ce lamentable refrain :
-À « J'ai à peine le temps de manger... Je n'ai pas le
 à temps de manger... Depuis douze ans, je ruine mon
 “ corps par les fatigues, je manque du nécessaire... Je
 14 n'ai pas un sou, je suis nu, je souffre de mille peines.
@@ -313,11 +269,9 @@ f. aux hommes; elle nuira à ton âme et à ton corps. Tant que
 # 7-000 écus, et 2,000 à son serviteur Urbino. Il avait de grosses
 \ sommes placées à Florence. La Denunzia de' beni de 1534 montre
 n qu'il possédait alors six maisons et sept terres, à Florence, Settignano, Rovezzano, Stradello, San Stefano de Pozzolatico, etc. Il avait
-À la passion de la terre. Il en achetait constamment : en 1505, 1506,
 4 de paysan. D'ailleurs, s'il amassait, ce n'était pas pour lui : il
 \ dépensait pour les autres, et se privait de tout.
 
-Romain Rolland 1:14
 jour. Evite la misère, vis avec modération, fais attention à “4
 ne pas manquer du nécessaire, garde-toi de l'excès de F
 Mais nuls conseils n'y firent jamais rien. Jamais il L:
@@ -334,7 +288,6 @@ dans ses lettres les traces de quatorze ou quinze maladies graves. (3) Il avait 
 (1) Suivent quelques conseils d'hygiène, qui montrent la barbarie è
 du temps : &« Avant tout, soigne ta tête, tiens-toi modérément ê
 chaud, et ne te lave jamais : fais-toi nettoyer, et ne te lave jamais. » CA:
-6) En septembre 1517, au temps de la façade. de San Lorenzo et
 du Christ de la Minerve, il est « malade, à la mort ». En sep- |
 tembre 1518, aux carrières de Seravezza, il tombe malade de sur- :
 menage et d'ennuis. Nouvelle maladie, en 1520, à l'époque de la :
@@ -386,7 +339,6 @@ h'; atteinte à l'honneur et à la vie... » (Sonnet LXXIV, à son ami
 $ Luigi del Riccio, qui venait de le sauver d'une grave maladie, 1546)
 ; Moir la belle lettre de justification, que lui écrivit, le 15 novembre 1561, son fidèle ami, Tommaso de' Cavalieri, qu'il soup1 23
 
-Romain Rolland
 ses frères, de son fils adoptif; il les soupçonnait
 \ d'attendre impatiemment sa mort.
 Tout l'inquiétait ; (1) les siens eux-mêmes se moquaient
@@ -446,7 +398,6 @@ f joie. Michel-Ange avait en lui la tristesse, qui fait peur
 | aux hommes, et que tous fuient d'instinct. Il faisait le
 N vide autour de lui.
 
-Romain Rolland ok |
 . Ce n'était rien encore. Le pire n'était pas d'être seul. |
 Le pire était d'être seul avec soi, et de ne pouvoir vivre }
 avec soi, de ne pas être maître de soi, de se renier, de si
@@ -454,7 +405,6 @@ se combattre, de se détruire soi-même. Son génie était
 accouplé avec une âme qui le trahissait. On parle quelquefois de la fatalité qui s'acharna contre lui et l''empêcha
 d'exécuter aucun de ses grands desseins. Cette fatalité,
 ce fut lui-même. La clef de son infortune, ce qui
-explique toute la tragédie de sa vie, — et ce qu'on a le
 moins vu ou le moins osé voir, — c'est son manque de |
 volonté et sa faiblesse de caractère. |
 Il était indécis en art, en politique, dans toutes ses
@@ -464,7 +414,6 @@ choisir. L'histoire du monument de Jules II, de la façade
 de Saint-Laurent, des tombeaux des Médicis, en est la
 preuve. Il commençait, commençait, n'arrivait pas au
 bout. Il voulait et ne voulait pas. A peine avait-il fixé
-son choix, qu'il se mettait à en douter. A la fin de sa
 
 à vie, il n'achevait plus rien : il se dégoûtait de tout. On |
 prétend que ses tâches lui étaient imposées ; et l'on fait
@@ -473,7 +422,6 @@ retomber sur ses maîtres la responsabilité de cette fluc-
 À tuation perpétuelle d'un projet à un autre. On oublie ;
 que ses maîtres n'avaient aucun moyen de les Jui
 imposer, s'il avait été décidé à les refuser. Mais il n'osait Re
-pas. M
 
 Il était faible. IL était faible de toute façon, par
 vertu et par timidité. Il était faible par conscience. Il se
@@ -519,7 +467,6 @@ ii accepte, écrit « qu'il ne tient à rien autre au monde qu'à lui plaire ».
 Pal () Voir ses lettres et celles qu'il lui fait écrire par Sebastiano
 En, del Piombo, après la prise de Florence. Il s'inquiète de sa santé, de
 
-Romain Rolland ! h
 Il perdait toute dignité en amour. Il s'humiliaït
 devant des drôles, comme Febo di Poggio. (1) Il traitait de k
 « puissant génie » un être aimable, mais médiocre,
@@ -557,9 +504,6 @@ faire autrement que de répondre amicalement; mais je passe. Si je
 savais qui sont les bannis florentins, je ne répondrais en aucune '
 façon... » (Lettre de Rome, en 1548, à son neveu Lionardo, qui
 
-l'in ft aiut die VS vit du vi à ai PE 14e de MS
-en { à ra je | LÉ À
-… Il a peur. Il à une honte mortelle de sa peur. Il se 8
 _ méprise. Il tombe malade de dégoût de lui-même. Il 4
 _ veut mourir. On croit qu'il va mourir. (1) :
 2 Mais il ne peut pas mourir. Il y a en lui une force ,
@@ -594,7 +538,6 @@ auparavant, avait envoyé Les Deux Esclaves (maintenant au Louvre), ;
 (2) Poésies, XLIX. (Probablement vers 1532) j
 
 15108
-d Romain Rolland
 
 S'il était affamé de la mort, c'est qu'il voyait en elle la ;
 fin de cet esclavage affolant. Avec quelle envie il parle
@@ -615,7 +558,6 @@ De, fate, c'a me Stesso piu non torni! (2)
 
 J'entends ce cri tragique sortir de la face douloureuse,
 dont les yeux inquiets nous regardent encore, au musée !
-du Capitole. (3) i
 
 Il était de grandeur moyenne, large d'épaules, forte- î
 ment charpenté et musclé. Le corps déformé par le travail, il marchait, la tête levée, le dos creusé et le ventre
@@ -663,13 +605,11 @@ k inspirent, appellent la compassion.
 Lee avec des éperons.
 us (2) Condivi. Le portrait de Venusti les représente assez larges.
 
-Romain Rolland Ë:
 connu les plus grands malheurs qui puissent échoir $
 à l'homme. Il vit sa patrie asservie. IL vit l'Italie livrée :
 pour des siècles aux barbares. Il vit mourir la liberté. II Fe
 vit, l'un après l'autre, disparaître ceux qu'il aimait. ?
 Il vit, l'une après l'autre, s'éteindre toutes les lumières <
-de l'art. |
 
 Il resta seul, le dernier, dans la nuit qui tombait. 4
 Et, au seuil de la mort, quand il regardait derrière ?
@@ -686,7 +626,6 @@ le plus, — pas une n'était achevée. Une ironie du sort
 voulut que ce sculpteur (2) ne réussît à mener jusqu'au
 | bout que ses peintures qu'il fit malgré lui. De ses
 grands travaux, qui lui avaient apporté tour à tour
-@ .… L'affectuosa fantasia,
 î Che l'arte mi fece idol e monarca,….
 (Poésies, CXLVII. — Entre 1555 et 1556)
 « … L'illusion passionnée, qui me fit de l'art ure idole et un monarque... »
@@ -737,30 +676,17 @@ F C'aperse a prender noi 'n croce le braccia. (1)
 
 LS Le cri fécond de l'Ode à la Joie ne fut pas poussé. Ce
 
-Romain Rolland PRE C.
 fut, jusqu'au dernier soufile, l'Ode à la Douleur et à la
 Mort qui délivre. Il fut vaincu tout entier. 3
-# % À
 Tel fut un des vainqueurs du monde. Nous qui jouissons des œuvres de son génie, c'est de la mêmefaçon
 que nous jouissons des conquêtes de nos ancêtres :
 nous ne pensons plus au sang versé. : :
 J'ai voulu étaler ce sang aux yeux de tous, j'ai voulu 4
 faire flotter, au-dessus de nos têtes, l'étendard rouge j
 des héros. %
-|
 
-| (10H Nat (e S 11 RE DU }
 pui Portrait de Michel-Ange par Ma 1 A IR
-SUN are « F ENS HAE Ce
 10e du Capitole, Rome
-ji TA ÿ ë LAUSANNE Ve
-ARR se CA De TO
-
-> À ET NE
-L + lt Qt al
-# TRE ET ai >
-
-il
 
 Il naquit, le 6 mars 1475, à Caprese, en Casentin.
 Apre pays, « air fin », (2) rochers et bois de hêtres, que
@@ -804,7 +730,6 @@ ans, il entra, comme apprenti, dans l'atelier de Dome- 4
 nico Ghirlandajo, — le plus grand, le plus sain des M
 peintres florentins. Ses premiers travaux eurent tant de:
 succès, que le maître, dit-on, fut jaloux de l'élève. (2) Ils |
-se séparèrent au bout d'un an.
 Il avait pris le dégoût de la peinture. Il aspiraït à un \
 art plus héroïque. Il passa dans l'école de sculpture,
 se que Laurent de Médicis entretenait, dans les jardins de
@@ -819,7 +744,6 @@ du départ précipité de Michel-Ange. Il conserva, jusque dans sa
 vieillesse, le respect de son premier .maitre.
 (3) Cette école était dirigée par Bertoldo, élève de Donatello. 1e
 
-Lui un ÿ
 teur grec. Guidé par Politien, « qui l'aimait fort », il sculpta 4
 le Combat des Centaures et des Lapithes. (1) :
 Ce bas-relief orgueilleux, où règnent seules la force À
@@ -879,7 +803,6 @@ Il sculpta alors l'Æercule colossal de marbre, qui fut d'abord au palais Strozz
 aussi le Crucifix de bois du couvent San Spirito, pour lequel
 Michel-Ange étudia l'anatomie sur des cadavres, avec un tel acharnement, qu'il en tomba malade (1494).
 
-Een LA FORCE
 4 diere, qui avait peur de Pierre, ne l'osa point. Un des
 _ matins suivants, il revint trouver Michel-Ange et lui
 K: dit, plein d'effroi, que le mort lui était de nouveau
@@ -898,8 +821,6 @@ il larrêta et lui fit son récit. Pierre éclata de rire et
 dl Ce fut le premier accès de ces terreurs supersti-
 “  tieuses qui se reproduisirent plus d'une fois dans la
 dh suite de sa vie, et qui le terrassaient, quelque honte
-3 qu'il en eût.
-| É
 | 4
 | Il fuit jusqu'à Venise.
 A peine sorti de la fournaise de Florence, sa surexci-
@@ -947,8 +868,6 @@ dans ce même temps, le carton d'une Stigmalisation de saint
 
 ÿ François, pour San Pietro in Montorio.
 
-de jt da Ed RES ACCES Fe " PRE de je Es hu do
-
 _ Michel-Ange se tait; mais il sculpte la Pietà : (1) 2%
 
 : (2 Sur les genoux de la Vierge, immortellement jeune, le 4
@@ -981,7 +900,6 @@ juré de vaincre, pour sa gloire et pour celle des siens. (ei
 _ il se serait vendu lui-même, pour envoyer aux siens 5
 …_ l'argent qu'ils réclamaient. Sa santé s'altérait déjà. La
 —.. mauvaise nourriture, le froid, l'humidité, l'excès de tra- ;
-Ê ba? i ou
 
 … (1) La Pietà fut exécutée pour le cardinal français, Jean de Gros-
 
@@ -1035,10 +953,7 @@ avec le cardinal Francesco Piccolomini un contrat, qu'il n'exécuta
 jamais, pour la décoration de l'autel Piccolomini, à la cathédrale de
 Sienne. Ce fut un des remords de toute sa vie.
 
-Par LA FORCE
-|
 4 il était. Puis, se tournant vers le gonfalonier, il
-L « Regardez maintenant.
 — Maintenant, dit Soderini, il me plaît beaucoup
 mieux. Vous lui avez donné la vie. »
 
@@ -1053,7 +968,6 @@ L comme disait Michel-Ange. (2)
 faisaient partie Filippino Lippi, Botticelli, Pérugin, et
 | Léonard de Vinci, délibérèrent sur l'emplacement qu'on
 : assignerait au David. Sur la demande de Michel-Ange,
-É on décida de l'élever devant le Palais de la Sei-
 à gneurie. (3) Le transport de la masse énorme fut confié
 4 aux architectes de la cathédrale. Le 14 mai, au soir, on
 ‘ fit sortir du baraquement en planches, où il était
@@ -1115,7 +1029,6 @@ Jugement Dernier, lui écrivit en 1545 : « Imitez la modestie des
 Florentins, qui cachent sous des feuilles d'or les parties honteuses
 de leur beau Colosse. » :
 
-# à (Cities 8 CES 4 PA) AOL LU và de AAA
 ét absolument seul, était si détaché de la patrie, de la Fe
 ‘1 religion, du monde entier, qu'il ne se trouvait bien I
 qu'auprès des tyrans, libres d'esprit, comme lui. Forcé ; x
@@ -1168,7 +1081,6 @@ Jules II. Alors commença la période héroïque de sa
 (1) Relation d'un contemporain (Anonyme de la Magliabecchiana).
 (2) On lui avait imposé l'humiliation de peindre une victoire des
 Florentins sur ses amis, les Milanais.
-(3) Ou La Guerre de Pise. Î
 (4) Le carton de Michel-Ange, seul exécuté, dès 1505, disparut en |
 1512, lors des émeutes provoquées à Florence par le retour des
 Médicis. L'œuvre mest plus connue que par des copies fragmentaires. La plus fameuse de ces copies est la gravure de MarcAntoine. (Les Grimpeurs) — Quant à la fresque de Léonard,
@@ -1254,7 +1166,6 @@ les dépenses qu'il avait faites pour l'œuvre. (1) Il se :
 - comme il revenait à la charge, Jules II le fit chasser
 du Vatican par un de ses palefreniers.
 | Un évêque de Lucques, qui assistait à la scène, dit au
-| palefrenier: :
 ki — « Vous ne le connaissez donc pas? »
 ie Le palefrenier dit à Michel-Ange : 05
 1 — « Pardonnez-moi, monsieur, mais j'ai reçu cet t
@@ -1493,7 +1404,6 @@ servir. Cette occupation me manquait sans doute! Je n'en avais
 pas assez déjà! Il me rend malheureux comme une bête. »
 (2) Lettre à son père, 27 janvier 1509.
 
-SAUT ANR Ter ‘ LA FORCE pi
 _ vivait à ses crochets, abusait de lui, le pressait à mort. “
 | Ê Son père ne cessait de gémir, de s'inquiéter pour des à
 EC affaires d'argent. Il devait passer son temps à lui É
@@ -1519,7 +1429,6 @@ rl aussi longtemps que je vivrai, à toujours agir de la même 5
 Ses trois frères l'exploitaient. Ils attendaient de lui L
 de l'argent, une position; ils puisaient sans scrupules
 dans le petit capital qu'il avait amassé à Florence; fe)
-| al 7 }
 _ ils venaient se faire héberger chez lui à Rome; ils se À
 faisaient acheter, Buonarroto et Giovan Simone, un
 me fonds de commerce, Gismondo, des terres près de Flo- À
@@ -1570,7 +1479,6 @@ je vous prie de m'en informer : j'obtiendrai un congé du pape et |
 
 je viendrai. » (Printemps 1509)
 
-A TR ne ORNE TC Vaste de
 côté, je te montrerai des choses qui te feront pleurer des
 - larmes brülantes et connaître sur quoi tu fondes ton arrogance. Si tu veux l'appliquer à bien agir, à honorer et à k
 vénérer ton père, je l''aiderai comme les autres, et, sous
@@ -1601,8 +1509,6 @@ pourrais plus supporter une once. (2)
 —. 1509 (dans l'édition Milanesi : juillet 1508.)
 Noter que Giovan Simone était alors un homme de trente ans.
 LA Michel-Ange n'avait que quatre ans de plus que lui.
-# (2) A Gismondo, 17 octobre 1509.
-de.
 
 la vie de Michel-Ange We
 avances d'argent que lui a faites Michel-Ange, le har-
@@ -1637,9 +1543,6 @@ Mais au prix de quels efforts désespérés! Peu s'en k.
 fallut qu'il abandonnât tout et s'enfuît de nouveau. Il à
 croyait qu'il allait mourir. (2) Il l'eût voulu peut-être.
 
-; à tee LH So Lin TT CM ne CAE don Li
-Eh Hs du ju la Re M k MA
-} ANUS ï LA FORCE ki
 1 Le pape s'irritait de ses lenteurs et de son obstination F
 _ à lui cacher son travail. Leurs caractères orgueilleux Li
 1 _ s'entrechoquaient comme des nuées d'orage. « Un N
@@ -1664,12 +1567,6 @@ n: funèbres de la Fête des Morts, convenait bien à l'inau- al
 gr. _ comme un ouragan, toute la force de vivre. (1) $
 (1) J'ai analysé l'œuvre dans le Michel-Ange, de la collection : Les d
 “ Maîtres de l'Art. Je n'y reviens pas ici. h
-
-ANT TARN LE CALE de ART AMIE {
-a Ë - l ETS Ras Had à
-VA L as LULU . , hadr 2e ATP MIN
-1 ne RÉ CRE EAU Durs
-HU l 4 CNE ee en
 
 Roc è l'alta cholonna. (1)
 Michel-Ange sortit de ce travail d'Hercule, glorieux et
@@ -1738,7 +1635,6 @@ be en 1518, le plus grand nombre de ses poésies de jeunesse; 1
 x d'autres furent détruites avant sa mort. Le peu qui nous ,
 É en reste suflit pourtant à évoquer ses passions. (1)
 f _ La plus ancienne poésie semble avoir été écrite à 4
-| Florence, vers 1504 : (2) É
 | É Comme je vivais heureux, tant qu'il m'était accordé, 1
 # Amour, de résister victorieusement à ta rage! Maintenant, |
 We hélas! je baigne ma poitrine de larmes, j'ai éprouvé ta
@@ -1824,7 +1720,6 @@ mon fidèle servage, je laisse mon cœur avec vous : mon cœur
 ; west plus à moi. » (Poésies, XI. — Voir aux Annexes, VI)
 ? Quand el sol de suo razi el mondo spoglia ;
 
-ÿ l PA nu fie ot
 la vie de Michel-Ange “10
 le secret de ce cœur craintif et tendre sous sa rude 3
 enveloppe : ne.
@@ -1930,7 +1825,6 @@ soyiez du parti des Carrarais par intérêt personnel ei que vous
 ne veuillez déprécier les carrières de Pietrasanta... Nous vous faisons savoir, sans entrer en d'autres explications, que Sa Sainteté
 veut que tout le travail entrepris soit exécuté avec les blocs de
 
-di} 24 1 AS DÉS OS LE SN ct el :
 pour avoir dû obéir aux ordres du pape, il fut persé- ‘
 cuté par les Carrarais, qui s'entendirent avec les mari- e
 niers ligures: il ne trouva plus une seule barque, de |
@@ -1989,13 +1883,9 @@ envoyées à Florence, quatre se brisèrent en route, une
 
 A la fin, le pape et le cardinal de Médicis s'impatientèrent de tant de temps précieux, inutilement perdu au
 
-(1) Le Christ de la Minerve, et le tombeau de Jules II.
-
 (2) Lettre du 21 décembre 1518 au cardinal d'Agen. — De ce
 temps semblent être les quatre Statues informes, à peine ébauchées, des grottes Boboli. (Quatre Æ£sclaves, pour le tombeau de
-Jules Il) é
 
-e nt NE MUR
 - milieu des carrières et des chemins boueux. Le 10 mars El
 
 _ 1520, un bref du pape délia Michel-Ange du contrat de |
@@ -2045,8 +1935,6 @@ _ de nouvelles tâches à ajouter à celles qui l'écrasaient, Le 20 oc- ei
 
 & tobre 1519, il signa la requête des Académiciens de Florence à fA
 
-|
-
 la vie de Michel-Ange 4
 
 De 1515 à 1520, dans ces dernières années de la grande is
@@ -2077,13 +1965,11 @@ constant et plus passionné àses travaux. (3) Nuln'a mieux
 Léon X, pour ramener les restes de Dante, de Ravenne à Flo-
 
 : rence; et il s'offrit « à élever au poète divin un monument digne
-de lui ».
 
 (3) En 156, Michel-Ange devait lui écrire, chaque semaine.
 
 | 6
 
-+ hi) 1 Ac PAS bé SALE ÿ
 compris sa faiblesse de volonté, prenant au besoin sa 4
 défense contre lui-même, et l''empêchant de se disperser 1
 en vain. Même après la révolte de Florence et la ae
@@ -2151,20 +2037,17 @@ En même temps, Michel-Ange fut chargé de construire la Bibliothèque de Saint-
 (2) Il s'agissait pour lui de l'ordre des Franciscains. (Lettre de
 Fattucci à Michel-Ange, au nom de Clément VII, le 2 janvier
 
-Lai A6 AU Nik Al dy l Ce NY FAT {
 nt « Je ne travaille plus, je ne vis plus, » écrivait-il, (1) A
 u, 11 suppliait le pape d'intervenir auprès des héritiers 50 L
 de Jules Il, de l'aider à restituer tout ce qu'il leur 4
 4 Je vendrai, je ferai tout ce qu'il faudra pour arriver à cette
 Où bien, qu'on lui permit de se consacrer entièrement #
-l au monument de Jules II : Lt
 ' J'aspire plus à sortir de cette obligation qu'à vivre.
 : A la pensée que, si Clément VII venait à mourir, il "à
 | serait abandonné aux poursuites de ses ennemis, il était }
 comme un enfant, il pleurait et se désespérait : j
 Si le pape me laisse là, je ne pourrai plus rester dans 1
 ce monde... Je ne sais pas ce que j'écris, j'ai la tête com- Xe
-| plètement perdue... (2) KA
 4 Clément VII, qui ne prenait pas très au sérieux ce 4
 … désespoir d'artiste, insistait pour qu'il n'interrompit h
 pas le travail de la chapelle des Médicis. Ses amis ne ‘à
@@ -2208,7 +2091,6 @@ que je n'en puis écrire. Voulez-vous me la donner, en
 (1) Lettre de Lionardo sellajo à Michel-Ange. (24 mars 1524)
 @) Lettre de Michel-Ange à Giovanni Spina. (1524, édition Milanesi, page 425)
 
-ee) ue LA FORCE QUI SE BRISE v
 4 la faisant compter du jour où elle m'a été accordée. f
 _ Dites-moi à quel moment vous aimez mieux que je la 108
 
@@ -2239,7 +2121,6 @@ dont la tête eût été un clocher, et le bras une che- Lee
 4 » (2) Lettre de Michel-Ange à Fattucci. (24 octobre 1525) ï
 Kerr. () Lettre de Pier Paolo Marzi, de la part de Clément VII, à *
 
-Le EMEA OI A CL A dant à te EE ROSE LOT TT ENS
 la vie de Michel-Ange NEO
 minée : (1) Michel-Ange dut s'occuper quelque temps K
 de cette idée baroque. — Il lui fallait aussi être constamment aux prises avec ses ouvriers, ses Maçons, ses
@@ -2271,9 +2152,7 @@ de Michel-Ange.
 2) Lettre de Michel-Ange à Fattucci. (17 juin 1526)
 (3) Henry Thode date cette lettre de 1521 environ. Dans le recueil
 de Milanesi, elle figure (à tort) à la date de 1516. |
-|
 
-_Me TE ana LA FORCE QUI SE BRISE #
 - plus rien à présent, avec mes autres soucis; et tons ces 0
 e soucis, je les ai par amour pour vous! Vous m'en récom- 4
 È _ pensez bien! Mais qu'il en soit ce qui voudra : je veux me $
@@ -2308,8 +2187,6 @@ attendu jusqu'à la veille de la mort pour les faire. Dieu <s
 vous aide! M
 , Tel était le secours qu'il trouvait chez les siens. Re
 
-| RCE DR:
-
 la vie de Michel-Ange LR
 « Patience! soupirait-il dans une lettre à un ami. Que ‘4
 Dieu ne permette point que ce qui ne lui déplaît pas me +
@@ -2325,8 +2202,6 @@ réalisé, depuis plus de dix ans. 4
 (1) Lettre de Michel-Ange à Fattucci. (17 juin 1596)
 (2) La même lettre, de juin 1596, dit qu'une statue de capitaine
 est commencée, ainsi que quatre allégories des sarcophages, et la |
-
-| LE DESESPOIR ï
 
 Oilme, Oilme, ch& son tradito…. (1) ‘14
 
@@ -2350,11 +2225,8 @@ toujours inquiet pour lui et pour les siens, craignant de À
 + se compromettre, démentant les paroles hardies qu'il 1
 | lui arrivait de prononcer, dans un premier mouvement ft K
 || d'indignation contre quelque acte de tyrannie. (2) A tout de
-# S (1) Poésies, XLIX. He
 LA (2) Lettre de septembre 1512, à propos de ce qu'il avait dit sur LR
 le sac de Prato par les Impériaux, alliés des Médicis, à
-
-# " Ni Hf ke
 
 la vie de Michel-Ange ne.
 instant, il écrit aux siens de prendre garde, de se taire,
@@ -2462,7 +2334,6 @@ pouvoir par l'autorité des siècles, ou par la volonté du peuple, et
 qui gouvernent leur ville en parfait accord d'esprit avec le |
 () Expulsion d'Hippolyte et Alexandre de Médicis. (17 mai 1527)
 
-| LE DÉSESPOIR À
 - de Florence. En juin, il alla inspecter la citadelle de na
 Pise, et les bastions d'Arezzo et de Livourne. En juillet
 et en août, il fut envoyé à Ferrare, pour y examiner 4
@@ -2492,7 +2363,6 @@ homme de sa trempe ne reculait devant rien, pour ï
 k (2) Condivi.—« Et certes, ajoute Condivi, il eût mieux fait d'ouvrir )
 Voreille au bon conseil; car lorsque les Médicis rentrèrent, il fut à
 
-DONNER SUR: CRE SEEN LEA Le ei AR EN
 _ la vie de Michel-Ange Fos
 ; sant à Florence, comme généralissime. Michel-Ange se 4 ti
 écrit-il, FR
@@ -2502,7 +2372,6 @@ vint hors la porte San Niccold, où j'étais aux bastions; d
 et il me dit à l'oreille que si je voulais sauver ma vie, je ne 4
 pouvais rester plus longtemps à Florence. Il vint avee moi À
 à ma maison, il mangea avec moi, il m'amena des chevaux, 4
-et il ne me quitta plus qu'il ne m'eût vu hors de Florence. (x) 4
 Varchi, complétant ces renseignements, ajoute que 4
 chemises piquées.en forme de jupons, et qu'il s'enfuit :
 de Florence, non sans difficulté, par la porte de la A
@@ -2570,7 +2439,6 @@ X remit en même temps dix lettres d'amis, qui, tous, À
 le conjuraient de revenir. (1) Entre tous, le généreux 4
 Battista della Palla lui adressait un appel plein d'amour 3
 
-de la patrie : f É
 Tous vos amis, sans distinction d'opinion, sans hésiter, N
 d'une seule voix, vous exhortent à revenir, pour conserver #
 votre vie, votre patrie, vos amis, vos biens et votre hon- #à
@@ -2587,9 +2455,6 @@ Ses paroles décidèrent Michel-Ange. Il revint, — len- j
 tement; car Battista della Palla, qui alla au-devant de
 92 4
 
-4e 1 MAL ANT LA SERA Le Mas au vi,
-10 ut AA Lion JE) NE APTE au AA FA 1) LR
-| KMS LE DÉSESPOIR : Si
 _ Jui à Lucques, l'attendit, de longs jours, et il commen- ÿ
  Çait à désespérer. (1) Enfin, le 20 novembre, Michel- à
 Ange rentra à Florence. (2) Le 23, sa sentence de ban- K
@@ -2625,7 +2490,6 @@ ments de guerre ; elle sert pour donner une forme convenable 3
 aux bombardes et aux arquebuses; elle sert pour jeter des ponts te.
 et confectionner des échelles; elle sert surtout pour les plans et "
 les proportions des forteresses, des bastions, des fossés, des mines UE
-à et contremines.. » !
 (François de Hollande : Dialogue sur la peinture dans la ville de di
 
 la vie de Michel-Ange ra
@@ -2647,7 +2511,6 @@ colère des proscripteurs fut tombée, Clément VII écrivit |
 à Florence; il enjoignait de chercher Michel-Ange, ajou- ;
 tant que s'il voulait continuer à travailler aux tombeaux
 £ des Médicis, il devait être traité avec tous les égards 4
-qu'il méritait. (2) 4
 Michel-Ange sortit de sa cachette et reprit son travail ÿ
 à la gloire de ceux qu'il avait combaïtus. Le malheureux 4
 S homme fit plus : pour Baccio Valori, l'instrument des 3
@@ -2655,13 +2518,10 @@ basses œuvres du pape, le meurtrier de son ami Battista 1
 della Palla, il consentit à sculpter l'Apollon tirant une d
 : flèche de son carquois. (3) Bientôt, il allaït renier les :
 bannis florentins. (4) Lamentable faiblesse d'un grand ;
-|
 (:) Lettre de Sébastien del Piombo à Michel-Ange. (29 avril 1531) |
 (2) Condivi. — Dès le 11 décembre 1530, la pension de Michel- i
 Ange fut rétablie par le pape. Ê
 (3) Automne 1530. — Le statue est au. Museo Nazionale de Flo- PU
-
-D M CN pie CA DA Je be
 
 _ homme, réduit à défendre par des lâchetés la vie de ses Ve À
 _ rêves artistiques contre la brutalité meurtrière de la Cl
@@ -2706,7 +2566,6 @@ c époque. Charles Blanc décrit un d'eux, « où l'on voit les trans- D
 ports d'une femme violée, qui se débat robuste contre un ravisseur De:
 
 ] plus robuste, mais non sans exprimer un involontaire sentiment Ka
-ÿ de bonheur et d'orgueil ». : Ro
 
 la vie de Michel-Ange À
 terminés en 1531. (1) Suprême ironie! Personne ne les
@@ -2748,7 +2607,6 @@ Dormir, fa da un Angelo scolpita
 
 (5) Poésies, CIX, 48. Voir aux Annexes, VII.
 
-su 1 | Ne ét GEL CH CAE: RTS 14 4
 _ Il faut penser à ce que fut le sac de Rome et la chute ci
 _ de Florence pour les âmes d'alors: une faillite effroyable 2
 _  delaraison,un écroulement. Beaucoup ne s'en relevèrent 11
@@ -2760,7 +2618,6 @@ _ Sans que je m'en soucie, et je me ris de toute chose... Il ne uY
 _ avant le sac, je ne puis revenir à moi. (1) (22
 ‘ Si jamais il est permis de se donner la mort, il serait bien FR
 _ juste que ce droit appartint à qui, plein de foi, vit esclave 44
-et misérable. (2) 1
 | Il était dans une convulsion d'esprit. Il tomba malade Pi.
 _ en juin 1531. Clément VII s'efforçait en vain de l'apaiser. Le AS
 _ I] lui faisait dire par son secrétaire et par Sébastien del 130
@@ -2890,8 +2747,6 @@ rappelait plus rien. « La mémoire et l'esprit m'ont devancé, écrivaitil en a
 
 â G) Michel-Ange reçut le droit de bourgeoisie romaine, le 20
 
-LA et le pit 4 à n J ) ' Qt fl
-HAL" j'a EST AS LE DÉSESPOIR \ ve
 4 _ans qu'il l'avait quittée. En ces vingt-et-un ans, il avait QU
 _ fait trois statues du monument inachevé de Jules IL, : 41
 sept statues inachevées du monument inachevé des Médi- 1:08
@@ -2900,7 +2755,6 @@ sept statues inachevées du monument inachevé des Médi- 1:08
 _ pour Baccio Valori. Il avait perdu sa santé, son énergie, 4
 sa foi dans l'artet dans la patrie. Il avait perdu le frère 4
 _ qu'il aimait le mieux. (1) Il avait perdu son père qu'il D |
-Ë adorait. (2) A la mémoire de l'un et de l'autre il avait A
 _ élevé un poème de douleur admirable, inachevé comme A
 __ tout ce qu'il faisait, tout brûlant de la passion de 9 M
 À .…. Le ciel Va arraché à notre misère. Aïe pitié de moi, qui ÿ 11e
@@ -2915,13 +2769,11 @@ votre lumière; la suite des heures ne vous fait pas violence, 4 |
 rehausse point... Par ta mort, j'apprends à mourir, mon cher NE
 _ père... La mort n'est pas, comme on le croit, le pire pour De
 _ celui dont le dernier jour est le premier et le jour éternel, 10
-_ auprès du trône de Dieu. Là j'espère et je crois te re- “CH
 voir, par la grâce de Dieu, si ma raison arrache mon cœur M
 glacé au terrestre limon, et si, comme toute vertu, grandit Ha
 j au ciel entre le père et le fils le très haut amour. (3) +1
 Rien ne le retient donc plus sur terre : ni art, ni ! 1184
 _ ambition, ni tendresse, ni espoir d'aucune sorte. Il a > 140)
-hf (1) Buonarroto, mort de la peste, en 1598. Her 1
 ù (3) Poésies, LVIIL. Voir aux Annexes, IX. ME :
 
 la vie de Michel-Ange :
@@ -2949,13 +2801,6 @@ mal que j'ai fait en connaissant le bien. Et je ne sais plus
 
 ; : () Poésies, XLIX. Voir aux Annexes, X.
 
-> ANT E A iMu7e2 14724 AUS STE a, re TRES Al
-ee ANGES LUE Aa ONE à LA À 3TANTREER
-LR PURE le o i 2 PCI
-s 5? pi LÉ AE la à Fi se.
-| De ii - 1651 En |
-
-| LAC
 Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués : }
 premier exemplaire de souche, exemplaire du gérant;
@@ -2972,15 +2817,8 @@ Les Cahiers de la Quinzaine sont composés à la main.
 | Nous avons donné le bon à tirer après corrections
 pour quatre mille exemplaires de ce dix-huitième |
 cahier et pour treize exemplaires sur whatman le
-Le gérant : CHARLES PÉGUY Û
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 
-A NC A A ANR AS Er NPA NET LA at et Lo
-LU? are CN JE AU
-M PE UT de SE ' RE fi de
-can à. NN PACS EUR DANS
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men
@@ -3013,11 +2851,6 @@ naturellement aux inscriptions les plus anciennes; c'est
 ce numéro d'inscription qui devient automatiquement le »
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
-
-LUE Ne de DR MN TON
-| NICE H \ HS te
-UN Hi Eu sa
-À sk RATS il La
 
 Pour tout changement d'adresse envoyer soixante
 centimes, six timbres de dix centimes. 0

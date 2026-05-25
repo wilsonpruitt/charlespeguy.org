@@ -8,42 +8,14 @@ isAvertissement: false
 wordCount: 11750
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s14-c08-ocr.txt); ingested 2026-05-25"
 ---
-
-[leaf 0381] (blank, inside front matter, show-through)
-[leaf 0382] (blank with signature "Salomé. — 1")
-[leaf 0383] (blank verso)
-[leaf 0384] (blank, pencil "3")
-[leaf 0385] (blank verso)
-[leaf 0386] p.5 (half-title, library seal, pencil "13986 4/10/16")
-
 *les chants*
-
-[leaf 0387] (blank verso with library seal show-through)
-[leaf 0388] p.7 (subtitle)
 
 *de l'âme réveillée*
 
-[leaf 0389] (blank verso)
-[leaf 0390] (blank, signature "Salomé. — 1." visible)
-[leaf 0391] (blank)
-[leaf 0392] p.11 (dedication, signature "II")
-
             A la mémoire de
         Charles Bourgault-Ducoudray
-                    et
-            Henri Strohëker
 
                     ... et lux perpetua luceat eis.
-
-[leaf 0393] (blank verso)
-
-[leaf 0394] p.13 (epigraph/opening)
-
-                    Je te vois...
-
-[leaf 0395] (blank verso)
-
-[leaf 0396] p.15
 
 JE te vois marchant à petits pas au jardin
     Qu'un jardinier sage et méthodique a tracé
@@ -53,8 +25,6 @@ Avec le buis épais qui longe les massifs,
 Avec les carrés de gazon d'où, soudains,
 Les jets d'eau concertés frisent et s'ébouriffent,
 Pendant qu'à petits pas tu vagues au jardin.
-
-[leaf 0397] p.16
 
                     *les chants*
 
@@ -85,14 +55,6 @@ Encore émerveillées de ta voix qui s'est tue,
 Et je sens remonter de leur cœur à mon cœur
 Ton âme parfumée de modestes vertus.
 
-[leaf 0398] p.17 (epigraph)
-
-                    *La route fuit...*
-
-[leaf 0399] (blank verso)
-
-[leaf 0400] p.19
-
 LA route fuit entre deux murs sous cette porte
     Monumentale, que la mousse et le lierre décorent
 Et dont tu entrevois les joints que le temps creuse.
@@ -101,8 +63,6 @@ D'un parc domanial où cheminaient des nonnes
 Jadis, en un jadis taciturne où revolent
 Quelques âmes nourries à l'ombre du passé.
 Là par les oraisons dès le matin bercées,
-
-[leaf 0401] p.20
 
                     *les chants*
 
@@ -137,10 +97,6 @@ Ta pensée ressaisit dans un regret soudain
 Les élévations des âmes innocentes
 Qui méditaient les oraisons le long des sentes
 
-[leaf 0402] p.21
-
-            DE L'AME RÉVEILLÉE
-
 Du parc, où elles oubliaient le commerce du monde.
 Peut-être on y laissait danser et chanter des rondes
 Quelques élèves, demoiselles de qualité,
@@ -153,16 +109,6 @@ Et nous gardons en vain des profanes rumeurs...
 
 Ce n'est plus ici la porte où le siècle meurt.
 
-[leaf 0403] (blank verso with show-through)
-
-[leaf 0404] p.23 (epigraph)
-
-                *Un instant détaché...*
-
-[leaf 0405] (blank verso)
-
-[leaf 0406] p.25 (sig "Salomé. — 2")
-
 UN instant détaché du livre grand ouvert,
     Enfant je pense à toi dans ces heures d'hiver,
 Pendant que la rumeur lointaine de la ville
@@ -172,8 +118,6 @@ Pendant que des clartés baignent mes paperasses
 Qui prennent à mes yeux des airs de parchemin,
 Pendant que luit dans l'ombre un buste de Romain,
 Que la bouillote chante et que craque la bûche...
-
-[leaf 0407] p.26
 
                     *les chants*
 
@@ -206,14 +150,6 @@ Car leur adresse est dans ton âme et dans tes doigts.
 
 Par ces heures d'hiver, enfant, je pense à toi.
 
-[leaf 0408] p.27 (epigraph)
-
-                *Ta voix m'a réveillé...*
-
-[leaf 0409] (blank verso)
-
-[leaf 0410] p.29
-
 TA voix m'a réveillé de l'épaisse torpeur;
 
 Plus douce que l'haleine innombrable des fleurs
@@ -221,8 +157,6 @@ De la prairie connue où je courais enfant
 Parmi les bêtes assoupies et ruminant
 Et parmi l'air où chantaient les cloches lointaines,
 Ta voix, ayant le fin murmure des fontaines
-
-[leaf 0411] p.30
 
                     *les chants*
 
@@ -241,21 +175,13 @@ Les simples chants que nos aïeules ont chéris.
 
 Ta voix est le ruisseau de la jeune prairie...
 
-[leaf 0412] p.31 (epigraph)
-
                 *Dans cette solitude...*
-
-[leaf 0413] (blank verso)
-
-[leaf 0414] p.33
 
 DANS cette solitude et parmi ce silence,
     Dans la buée d'hiver où pointe une espérance,
 Des âmes sont venues des lointaines années,
 Elles ont murmuré des chants graves et tendres
 Et depuis je ne cesse plus de les entendre;
-
-[leaf 0415] p.34
 
                     *les chants*
 
@@ -289,10 +215,6 @@ J'ai retrouvé les bonnes âmes d'autrefois :
 Elles m'ont conté la patience éternelle
 De ceux qui pourvoient aux nourritures charnelles;
 
-[leaf 0416] p.35
-
-                DE L'AME RÉVEILLÉE
-
 Dans la cité de démence et de désarroi,
 En de vieillots quartiers perdus sous des cieux cois,
 J'ai rencontré de fortes âmes d'artisans
@@ -319,15 +241,7 @@ Dans la forge qui souffle et dans les blés qui penchent,
 
 Nous avons retrouvé les âmes de la Race.
 
-[leaf 0417] (blank verso)
-
-[leaf 0418] p.37 (epigraph, sig "Salomé. — 3")
-
                 *Nous avons aimé...*
-
-[leaf 0419] (blank verso)
-
-[leaf 0420] p.39
 
 NOUS avons aimé le silence de la maison,
     Le défilé calme et régulier des saisons,
@@ -337,8 +251,6 @@ Les songeries du soir, les causeries d'hiver,
 L'intimité des porcelaines et des verres
 D'autrefois, décorant nos murs et nos dressoirs,
 Cette absence de bruit, de tumulte et de gloire
-
-[leaf 0421] p.40
 
                     *les chants*
 
@@ -357,14 +269,6 @@ Et les germes à peine éclos de tant d'espoirs,
 Échappés aux douceurs des rêveries dormantes,
 Nous exerçons notre âme à souffrir les tourmentes.
 
-[leaf 0422] p.41 (epigraph)
-
-                *Tu emploies au foyer...*
-
-[leaf 0423] (blank verso)
-
-[leaf 0424] p.43
-
 TU emploies au foyer tes journées et tes veilles
     Afin que les vieux temps renaissent bien pareils
 En sagesse, en labeurs, en douce gravité,
@@ -373,8 +277,6 @@ Depuis qu'il y a des foyers sur nos terroirs.
 Pendant que tu vis en fourmi, loin de l'Histoire
 Dont un vague murmure à peine entre chez toi,
 Effleurant les meubles dociles de tes doigts
-
-[leaf 0425] p.44
 
                     *les chants*
 
@@ -404,13 +306,7 @@ Et j'ai rêvé qu'un soir en fourbissant mes armes
 Près d'un feu de bois mort fumant dans l'air glacé,
 Je sentais près de moi tes prières glisser.
 
-[leaf 0426] p.45 (epigraph, sig "Salomé. — 3.")
-
                 *Nous avons parlé...*
-
-[leaf 0427] (blank verso)
-
-[leaf 0428] p.47
 
 NOUS avons parlé tous deux près de la bouilloire
     Pendant qu'au loin régnait le silence du soir
@@ -422,8 +318,6 @@ Nous parlions tristement du pays menacé,
 Des malheurs qui pendaient sur nos rares foyers,
 Des quelques âmes qui demeuraient à veiller
 Pendant que les foules s'enfonçaient dans la torpeur.
-
-[leaf 0429] p.48
 
                     *les chants*
 
@@ -437,7 +331,6 @@ Un souffle venu par des forêts matinales,
 Ta voix glissant parmi les ombres de la salle
 Me redit cet aïeul dont nous savions l'histoire,
 Celui qui marcha si obscur dans la gloire
-Des armées de la République et de l'Empire,
 Et dont nos grand mères n'ont jamais pu nous dire
 En quel temps ni en quel pays il était mort.
 Mais nous sentions bien que son âme vivait encore
@@ -457,14 +350,7 @@ Pendant qu'au loin régnait le silence du soir
 Sur le vieux pays dont les âmes vivent en nous
 Et que la lumière filtrée baignait ta joue.
 
-
-[leaf 0430] p.49 (epigraph)
-
                     Dans cette même salle…
-
-[leaf 0431] (blank verso)
-
-[leaf 0432] p.51
 
 Dans cette même salle où nous causons ce soir,
     Le soldat, qui fut un grand oncle, vint s'asseoir
@@ -474,8 +360,6 @@ N'entrevois-tu pas une veillée de naguère,
 Là-bas, au fond de notre histoire de famille,
 Avec un grand cercle de garçons et de filles
 Autour du soldat qui tisonne et grommelle?
-
-[leaf 0433] p.52
 
                     *les chants*
 
@@ -493,13 +377,7 @@ Entrent vainqueurs dans les étranges capitales.
 
 La gloire à larges flots pénètre dans la salle.
 
-[leaf 0434] p.53 (epigraph)
-
                     Jadis nous avons vu…
-
-[leaf 0435] (blank verso)
-
-[leaf 0436] p.55
 
 JADIS nous avons vu sous verre dans des cadres,
     Au mur des chambres où vient le marchand de sable
@@ -511,8 +389,6 @@ Nous en avons demandé l'histoire aux grand mères
 Qui autrefois de leurs yeux de petites filles
 Avaient regardé le héros de la famille,
 Et qui le regardaient encore dans un songe.
-
-[leaf 0437] p.56
 
                     *les chants*
 
@@ -539,13 +415,7 @@ Mais à présent elle a quitté les murs des chambres,
 Car Madame l'a déposée dans sa vitrine
 Parmi des bibelots de l'Inde et de la Chine.
 
-[leaf 0438] p.57 (epigraph)
-
                     Bien d'autres soldats…
-
-[leaf 0439] (blank verso)
-
-[leaf 0440] p.59
 
 BIEN d'autres soldats en des siècles plus lointains,
     En de vieux temps qui semblent des soleils éteints,
@@ -555,8 +425,6 @@ Rien ne te parle d'eux ni de ce qu'ils ont fait,
 Mais ils vivent sur les faïences du buffet
 Et dans les chansons que l'on chante le long des routes.
 Ceux-là n'ont pas connu la vieillesse et la goutte
-
-[leaf 0441] p.60
 
                     *les chants*
 
@@ -592,10 +460,6 @@ Nous nous sentons si bien là où nous sommes nés,
 Et travaillons, aimons, prions d'une âme égale.
 C'est par eux que paisiblement nos bourgs s'étalent
 
-[leaf 0442] p.61 (sig "Salomé. — 4")
-
-            DE L'AME RÉVEILLÉE
-
 Dans les nobles vallées ou sur les douces pentes
 Ou sur les flancs ondulés des plaines dormantes.
 Car c'est eux qui plus loin toujours ont écarté
@@ -614,15 +478,7 @@ De chêne bien lustré s'argente de reflets,
 Et vois se redresser et marcher en cadence
 Les soldats d'autrefois vernis sur les faïences.
 
-[leaf 0443] (blank verso)
-
-[leaf 0444] p.63 (epigraph)
-
                     Vous êtes retournée…
-
-[leaf 0445] (blank verso; manifest sized it as content but image shows blank)
-
-[leaf 0446] p.65 (sig "Salomé. — 4.")
 
 VOUS êtes retournée au poste où Dieu vous mit
     Pour le garder nuit et jour contre l'ennemi
@@ -633,8 +489,6 @@ Au coin du feu craquant, vous regrettez l'air pur
 D'un matin de printemps et la paix de votre âme.
 Vous frissonnez malgré la caresse des flammes,
 Vous hésitez devant les contraintes sévères.
-
-[leaf 0447] p.66
 
                     *les chants*
 
@@ -667,9 +521,6 @@ Les pieds en sang et qui ne peuvent plus aller,
 La blessure heurtée qui se rouvre et qui saigne,
 La mort obscure loin des paroisses chrétiennes
 
-[leaf 0448] p.67
-*DE L'AME RÉVEILLÉE*
-
 Dans quelque fossé noir où la vase croupit...
 Et les oiseaux de proie ont fait de la charpie
 Avec leur pauvre corps de soldats inconnus :
@@ -699,15 +550,7 @@ Poussez la fine aiguille en chantant de vieux airs...
 
 Soyons dignes de ceux qui moururent en guerre.
 
-[leaf 0449] (blank verso)
-
-[leaf 0450] p.71 (section epigraph, centered)
-
         Je prie tous les aïeux...
-
-[leaf 0451] (blank verso)
-
-[leaf 0452] p.71
 
 Je prie tous les aïeux dont les vertus obscures
 Se sont encloses jadis entre d'humbles murs
@@ -719,7 +562,6 @@ Je prie tous nos aïeux qui furent à la guerre
 Et moururent au loin sans gloire et sans éclat
 De nous prêter un peu leur âme de soldats,
 
-[leaf 0453] p.72
 *les chants*
 
 Car nous vivons en proie aux subtils ennemis,
@@ -754,9 +596,6 @@ Arrêtés au milieu de la fatale route,
 Je me tourne vers les aïeux, vers les aïeules
 Qui, dans les cloîtres ajourés, sous les tilleuls
 
-[leaf 0454] p.73 (sig "Salomé. — 5")
-*DE L'AME RÉVEILLÉE*
-
 Conventuels, dans les reflets veloutés des verrières,
 Contemplèrent souvent les êtres de lumière
 Qui ne se laissent voir qu'aux âmes innocentes
@@ -767,15 +606,7 @@ Dans leurs cœurs, pour nos cœurs misérables et seuls...
 
 Je prie tous nos aïeux et toutes nos aïeules.
 
-[leaf 0455] (blank verso)
-
-[leaf 0456] p.75 (section epigraph, centered)
-
         Je songe à vous...
-
-[leaf 0457] (blank verso)
-
-[leaf 0458] p.77
 
 Je songe à vous qui n'êtes plus dans la grand ville.
 Vous avez regagné les tâches difficiles,
@@ -787,7 +618,6 @@ Ici je reste, au seuil de la froide saison
 Et j'essaie de me figurer votre existence.
 En marchant dans les rues, chaque matin, je pense
 
-[leaf 0459] p.78
 *les chants*
 
 Que le ciel est plus pur et le froid plus sévère
@@ -818,9 +648,6 @@ Pourquoi m'en parliez-vous d'une âme indifférente?
 
 *Ayez pitié, mon Dieu, de cette âme lointaine.*
 
-[leaf 0460] p.79
-*DE L'AME RÉVEILLÉE*
-
 Quand vous aurez des cheveux gris et des mitaines
 Et que les jours d'apaisement seront venus,
 Puissiez-vous dans le clair-obscur des avenues
@@ -840,15 +667,7 @@ De ces deux grands enfants purs comme des fontaines...
 
 *Ayez pitié, mon Dieu, de cette âme lointaine!*
 
-[leaf 0461] (blank verso)
-
-[leaf 0462] p.81 (section epigraph, sig "Salomé. — 5.")
-
         A la fin d'un long jour...
-
-[leaf 0463] (blank verso)
-
-[leaf 0464] p.83
 
 A la fin d'un long jour d'ombre et de désespoir
 N'avez-vous pas tiré de votre vieille armoire
@@ -860,7 +679,6 @@ Il est un frais jardin plein d'aube et de rosée
 Où vous semez parfois des graines de sagesse :
 C'est l'âme de la douce enfant qui vous caresse
 
-[leaf 0465] p.84
 *les chants*
 
 Quand elle voit des pleurs briller à vos paupières.
@@ -890,14 +708,6 @@ Vous qui ne pouvez plus ressaisir les espoirs
 De jadis, ni réunir de blanches pensées
 Parmi de frais jardins pleins d'ombre et de rosée.
 
-[leaf 0466] p.85 (section epigraph)
-
-        Me voici revenu...
-
-[leaf 0467] (blank verso)
-
-[leaf 0468] p.87
-
 Me voici revenu dans le pays de France.
 Je passe un mois près des forêts de pins. Je pense
 A tout ce que j'ai vu dans les brumes du Nord
@@ -910,7 +720,6 @@ Me voici revenu sur le sol des aïeux,
 Après avoir vogué parmi les roches noires...
 Les pins et les maïs me chantent des histoires
 
-[leaf 0469] p.88
 *les chants*
 
 Très simples qui trouvent les accès de mon cœur.
@@ -941,14 +750,6 @@ Un coq d'or s'élançant dès l'aube des journées...
 
 Je reviens, mon Seigneur, chez votre fille aînée.
 
-[leaf 0470] p.89 (section epigraph)
-
-        Je retrouve...
-
-[leaf 0471] (blank verso)
-
-[leaf 0472] p.91
-
 Je retrouve dans mes automnales pensées
 Cette église, débris d'un vigoureux passé,
 Qui semble faite pour soutenir un long siège.
@@ -957,7 +758,6 @@ Règne humblement à l'ombre des tours et des murs,
 Et, bordé par la haie toute noire de mûres,
 Le plateau choit en pente douce vers la plaine.
 
-[leaf 0473] p.92
 *les chants*
 
 J'y écoute jaser une proche fontaine
@@ -986,13 +786,7 @@ La campagne se vêt de couleurs toutes neuves,
 L'eau gémit, j'aperçois le rire de la chèvre
 Et j'entends les enfants du bourg chanter les vêpres.
 
-[leaf 0474] p.93 (section epigraph)
-
         Dans le calme du parc...
-
-[leaf 0475] (blank verso; scan is a display/holder shot showing multi-page show-through, no transcribable text)
-
-[leaf 0476] p.95
 
 Dans le calme du parc où la lune pénètre,
 Au bruissement de l'eau qui rôde au pied des hêtres,
@@ -1004,19 +798,6 @@ Nous parlions du bonheur grave d'être fixés
 Au sol de ce pays sous la tuile ou l'ardoise,
 Près d'un champ, d'une vigne, ou du jardin qu'on toise
 
-[leaf 0477] (scan is a display/holder shot; actual content of p.96 obscured — MANUAL REVIEW: refetch or re-OCR for p.96 continuation)
-
-[leaf 0478] (duplicate/display-shot of p.95 — scan artifact, already transcribed at 0476)
-
-[leaf 0479] (blank)
-
-[leaf 0480] (close-up duplicate of p.95 — scan artifact, already transcribed at 0476)
-
-[leaf 0481] p.96 (held-up through-sheet shot — superseded by clean re-scan at leaf 0483)
-
-[leaf 0482] p.97 (held-up through-sheet shot — superseded by clean re-scan at leaf 0484)
-
-[leaf 0483] p.96 (clean re-scan)
 *les chants*
 
 Pour qu'il ait des allées nobles et raisonnables...
@@ -1047,13 +828,7 @@ Les morts nous ont murmuré ces choses tout bas,
 Sortant des brumes du mystère à notre approche,
 Pendant que se mourait le tintement des cloches.
 
-[leaf 0484] p.97 (clean re-scan of section epigraph, sig "Salomé. — 6")
-
         Dans la crypte...
-
-[leaf 0485] (blank verso)
-
-[leaf 0486] p.99
 
 Dans la crypte éclairée de falotes veilleuses
 Où parmi les piliers des abîmes se creusent,
@@ -1064,7 +839,6 @@ Surgit d'un angle où brûle une cire jaunâtre.
 Elle sourit un peu de ses lèvres d'albâtre
 Et joint les mains en levant les yeux vers la voûte.
 
-[leaf 0487] p.100
 *les chants*
 
 Dans le silence épais de la crypte, j'écoute
@@ -1093,9 +867,6 @@ O vous, étoile du matin, reine du ciel,
 Je vous implore pour ces passants du matin,
 Pour ces êtres qui vont sans joie gagner leur pain,
 
-[leaf 0488] p.101 (sig "Salomé. — 6.")
-*DE L'AME RÉVEILLÉE*
-
 Leur gîte et les vêtements dont ils s'enveloppent,
 Afin que dans la crypte aux lumières falotes
 Ils se sentent un jour attirés doucement
@@ -1104,15 +875,7 @@ Et simple comme les artisans d'autrefois :
 
 Et presque tous sauront vous prier mieux que moi.
 
-[leaf 0489] (blank verso)
-
-[leaf 0490] p.103 (section epigraph, centered)
-
         Vous que j'aime...
-
-[leaf 0491] (blank verso)
-
-[leaf 0492] p.105
 
 Vous que j'aime, chers incroyants, chers infidèles,
 Le soir et le matin je supplie l'Éternel
@@ -1122,7 +885,6 @@ Je prie pour vous qui croyez ne plus me comprendre
 Et pensez que mon cœur est un monceau de cendre
 Lorsqu'il ne fut jamais plus brûlant ni plus tendre.
 
-[leaf 0493] p.106
 *les chants*
 
 Je prie pour vous afin que Dieu vienne lui-même
@@ -1157,14 +919,6 @@ Et de faire briller une étoile des cieux
 Pour les guider le long des sentiers tortueux
 Vers le repas du soir qui fume au coin du feu.
 
-[leaf 0494] p.107 (section epigraph, centered)
-
-        Les petites églises...
-
-[leaf 0495] (blank verso)
-
-[leaf 0496] p.109 (sig "Salomé. — 7")
-
 Les petites églises de chez nous s'écroulent
 Sur les dalles où s'agenouillèrent les foules
 Pendant que Monsieur le maire et Monsieur l'adjoint
@@ -1176,7 +930,6 @@ Se lézardent, s'en vont en piteuses guenilles,
 Pendant que les deux ivrognes font leur manille
 En vantant la science et la libre pensée.
 
-[leaf 0497] p.110
 *les chants*
 
 Les petites églises dans les nuits glacées
@@ -1210,13 +963,7 @@ Et ne sonnera plus les heures solennelles
 De joie et de malheur qui partagent la vie...
 Cependant, sirotant quelque vieille eau-de-vie,
 
-[leaf 0499] (blank verso)
-
-[leaf 0500] p.113 (section epigraph, centered)
-
         En marchant par les rues...
-
-[leaf 0502] p.115
 
 En marchant par les rues boueuses ce matin
 Dans le suaire gris tombant du ciel éteint,
@@ -1228,7 +975,6 @@ Et j'ai songé que des quatre coins de l'espace
 Alors s'acheminaient vers cette humble cité
 Des hommes saints qui apportaient les vérités
 
-[leaf 0503] p.116
 *les chants*
 
 Enseignées par Notre Seigneur à ses apôtres...
@@ -1263,7 +1009,6 @@ O pauvres vieux patrons, pour nos âmes lépreuses
 Vous faudra-t-il sans fin supplier à genoux,
 Sans fin vous engager et vous offrir pour nous,
 
-[leaf 0505] p.118
 *les chants*
 
 Et qui reviendrait un jour, modeste et soumise,
@@ -1278,13 +1023,7 @@ Qui portèrent les premiers feux de la grand ville
 Sur le fleuve passant d'un train de bête lasse,
 Lorsque les premiers saints cheminaient dans l'espace.
 
-[leaf 0506] p.119 (section epigraph, centered)
-
         Nous avons parlé..
-
-[leaf 0507] (blank verso)
-
-[leaf 0508] p.121
 
 Nous avons parlé de ces bons saints, nés du sol,
 Qui furent autrefois de petits dieux champêtres
@@ -1294,7 +1033,6 @@ Dans les rochers, dans les saules et dans les hêtres,
 Dans la source qui luit, dans les vases d'argile,
 Dans la prairie en fleurs où les vaches vont paître,
 
-[leaf 0509] p.122
 *les chants*
 
 Ces esprits de nos champs, soit lourdauds, soit agiles,
@@ -1324,9 +1062,6 @@ Le charpentier chantant dans l'or de ses copeaux,
 L'abeille déposant le miel en sa cellule,
 Le tisserand tissant la toile des chemises,
 Le meunier cheminant dès l'aube sur sa mule,
-
-[leaf 0510] p.123
-*DE L'AME RÉVEILLÉE*
 
 Tous ceux qu'on voit gratter la terre noire et grise,
 Tous ceux qu'on voit mener les bêtes aux pâtures,
@@ -1358,15 +1093,7 @@ Les vignobles tordus et la glèbe mouvante...
 
 Et le Seigneur sourit à leur humilité.
 
-[leaf 0511] (blank verso)
-
-[leaf 0512] p.125 (section epigraph, centered)
-
         C'est un vieux curé de...
-
-[leaf 0513] (blank verso)
-
-[leaf 0514] p.127
 
 C'est un vieux curé de la France d'autrefois,
 Un vieux curé du vieux Paris : je le revois
@@ -1380,7 +1107,6 @@ C'est le soir; la chandelle est allumée; la bise
 D'hiver se plaint; le chat près du foyer somnole;
 La bouilloire crachote un peu : sur la console
 
-[leaf 0515] p.128
 *les chants*
 
 Fleurit dans la paix onctueuse une tulipe
@@ -1415,9 +1141,6 @@ Dans les égarements, dans les aveuglements,
 Dans la molle stupeur, dans l'orgueil endurci,
 Dans le relâchement, dans les fiévreux soucis,
 
-[leaf 0516] p.129
-*DE L'AME RÉVEILLÉE*
-
 Dans une complaisante et fade lâcheté,
 Dans une impie et sacrilège dureté,
 Dans tous ces maux qui se soulèvent en flots noirs...
@@ -1450,7 +1173,6 @@ Les fureurs et les engourdissements des foules,
 Les crimes violents, les obscurs maléfices...
 Et connurent les vieux curés du temps jadis.
 
-[leaf 0517] p.130
 *les chants*
 
 L'église est là qui se rappelle par sa voix
@@ -1465,7 +1187,6 @@ Avec le corps et le sang de Notre-Seigneur
 Dans un mystère où ne défilent point les heures,
 Avec son long passé de vêpres et de messes,
 Avec son long passé de vœux et de promesses
-Et de confessions et de communions,
 Avec son long passé de supplications,
 D'offrandes, de bénédictions et d'absoutes,
 Avec tous les fidèles défunts qui écoutent
@@ -1484,13 +1205,7 @@ Pour que meure le doute et que vive la foi.
 
 C'est un vieux curé de la France d'autrefois.
 
-[leaf 0518] p.131 (section epigraph, centered)
-
         Les prophètes, les saints...
-
-[leaf 0519] (blank verso)
-
-[leaf 0520] p.133 (sig "Salomé. — 8")
 
 Les prophètes, les saints, les saintes et les rois,
 Immobiles depuis des siècles et sans voix,
@@ -1501,7 +1216,6 @@ Sans vaciller jamais, sans être jamais las,
 Fixés aux galeries de cette cathédrale,
 Tout debout, parmi les ondées et les rafales,
 
-[leaf 0521] p.134
 *les chants*
 
 Sous les coups de soleil et la neige et la grêle,
@@ -1533,9 +1247,6 @@ S'étager au-dessus de la porte centrale.
 
 Le long des galeries de cette cathédrale,
 
-[leaf 0522] p.135
-*DE L'AME RÉVEILLÉE*
-
 Les prophètes, les saints, les saintes et les rois
 Regardent à leurs pieds l'immense désarroi
 Moderne de la ville et de ses alentours,
@@ -1564,7 +1275,6 @@ Leurs fidèles murés au noir isolement,
 Leurs pauvres, leurs souffrants, leurs veuves, leurs déments
 Dépouillés par des lois et par des règlements,
 
-[leaf 0523] p.136
 *les chants*
 
 Les trognes avinées et les ventres fumants
@@ -1594,9 +1304,6 @@ Les saints et les aïeux traités de vieux fantoches.
 
 Ils ont connu les beaux chefs-d'œuvre des métiers,
 L'artisan qui offrait à Dieu des jours entiers,
-
-[leaf 0524] p.137 (sig "Salomé. — 8.")
-*DE L'AME RÉVEILLÉE*
 
 Les doigts fins ciseleurs, orfèvres, argentiers,
 Les jeunes et longs doigts des vieux doigts héritiers,
@@ -1628,7 +1335,6 @@ Du foyer, du métier, sous la vaste arcature
 De la maison assise et bâtie à la dure...
 Et l'archange guerrier planant sur la toiture;
 
-[leaf 0525] p.138
 *les chants*
 
 Ils connaissent les maîtres pillards et sournois,
@@ -1662,9 +1368,6 @@ Jusqu'au grand jugement rendu dans la lumière,
 En passant par les patriarches, les prophètes,
 Jésus crucifié, Jésus domptant la Bête,
 
-[leaf 0526] p.139
-*DE L'AME RÉVEILLÉE*
-
 Les Apôtres, les Saints, les Saintes, les Martyrs,
 Les nouveaux convertis ivres de convertir,
 Et la belle moisson faite en âme infidèle,
@@ -1679,16 +1382,6 @@ Le roi saint qui vit cette église enfin bâtie
 Et qui fit gardiens des temps que nul ne voit
 Les prophètes, les saints, les saintes et les rois.
 
-[leaf 0527] (blank verso)
-
-[leaf 0528] p.141 (section epigraph, centered)
-
-        Au cloître d'autrefois...
-
-[leaf 0529] (blank verso)
-
-[leaf 0530] p.143
-
 Au cloître d'autrefois où songe la novice,
 Sur la toile des jours et des nuits, que l'on tisse
 Avec de longs fils blancs, avec de longs fils purs,
@@ -1698,7 +1391,6 @@ Le murmure de l'espérance qui fait route
 Parmi les cœurs toujours enfants de ces recluses,
 Le murmure léger des âmes qui s'amusent
 
-[leaf 0531] p.144
 *les chants*
 
 A des jeux innocents de crochet et d'aiguilles,
@@ -1733,9 +1425,6 @@ Le glissement des voiles et des sandales
 Le long des corridors qui ne finissent pas,
 Le glissement discret et puéril des pas
 
-[leaf 0532] p.145 (sig "Salomé. — 9")
-*DE L'AME RÉVEILLÉE*
-
 De l'innocence dans les cœurs et les cellules,
 Le glissement de tout le passé qui circule
 Dans la cour, dans les murs et dans les boiseries,
@@ -1760,14 +1449,12 @@ Que les astres des nuits se penchent vers matines,
 Les voix avec un bruit d'abeilles au labeur,
 Modulent doucement, sans hâte ni langueur,
 Les psaumes de ce mois, de ce jour, de cette heure,
-Les psaumes de l'inquiétude et de la crainte,
 Les psaumes douloureux qui se traînent en plaintes,
 Les psaumes de l'amour qui montent à coups d'ailes,
 Les psaumes de la joie au fond des cœurs fidèles,
 Les psaumes des bergers et les psaumes des rois,
 Les psaumes du prophète accablé sous le poids
 
-[leaf 0533] p.146
 *les chants*
 
 Des péchés de son peuple idolâtre et frivole...
@@ -1794,13 +1481,7 @@ Les heures psalmodient, murmurent et se glissent,
 
 Au cloître d'autrefois où songe la novice.
 
-[leaf 0534] p.147 (section epigraph, centered)
-
         Toutes deux près de moi...
-
-[leaf 0535] (blank verso)
-
-[leaf 0536] p.149
 
 Toutes deux près de moi dans la maison de Dieu,
 Tout debout près de moi, priant, baissant les yeux,
@@ -1812,7 +1493,6 @@ Vers la première foi de nos premières saintes,
 Vous m'avez doucement soulagé de l'étreinte
 Qui m'étouffait le cœur et le tenait gisant.
 
-[leaf 0537] p.150
 *les chants*
 
 Je me suis cru loin des ténèbres du présent,
@@ -1841,13 +1521,7 @@ Dans un bosquet sacré vierge de visiteurs...
 
 Et mon âme altérée en sentait la fraîcheur.
 
-[leaf 0538] p.151 (section epigraph, centered)
-
         Vous m'avez toutes trois...
-
-[leaf 0539] (blank verso)
-
-[leaf 0540] p.153 (sig "Salomé. — 9.")
 
 Vous m'avez toutes trois, le long des vieilles rues
 Qui chuchotent sans fin des âmes disparues,
@@ -1858,7 +1532,6 @@ Des aïeux et de votre enfance, bien assise
 Dans la brume tenace où les âmes s'égarent,
 Attendant le déclin de notre âge barbare
 
-[leaf 0541] p.154
 *les chants*
 
 Avec la patience et la force des pierres...
@@ -1892,9 +1565,6 @@ Parlant à Jeanne au bord des forêts et des chaumes,
 De la grande pitié qui est en ce royaume,
 Et du saint qui cueillait les petits corps glacés
 
-[leaf 0542] p.155
-*DE L'AME RÉVEILLÉE*
-
 Des enfants qu'on abandonne au bord des fossés,
 Dans les ruisseaux ou sous le porche des églises...
 
@@ -1915,15 +1585,7 @@ De leur âme émergeant à peine de la nuit,
 Si pour les engager à suivre l'Évangile
 Vous leur parlez de l'évolution des styles.
 
-[leaf 0543] (blank verso; show-through from p.154)
-
-[leaf 0544] p.157 (section epigraph, centered)
-
         Vous passez toutes trois...
-
-[leaf 0545] (blank verso)
-
-[leaf 0546] p.159 (poem opening; large block of blank space above)
 
 *Vous passez toutes trois au jardin que traverse
     La rivière... Bientôt par des routes diverses
@@ -1940,8 +1602,6 @@ Des majestés, des voluptés, des charités...
 Vous passez toutes trois dans vos robes d'été
 Au jardin que traverse l'eau chantante et vive.
 Gardez le souvenir précieux de ces rives,*
-
-[leaf 0547] p.160 (running header "les chants")
 
 *Car l'inconnu s'approche et l'heure des départs...
 Vous partirez bientôt vers d'étranges hasards;
@@ -1969,69 +1629,11 @@ Où vos âmes pourtant à Dieu se sont promises,
 Vous n'avez pas cherché de vos yeux cois et doux
 La lourde croix de fer qui se tourne vers vous.*
 
-                                René Salomé
 1911-1912
-
-[leaf 0548] (blank verso)
-
-[leaf 0549] (blank verso)
-
-[leaf 0550] p.163 (half-title)
-
-**TABLE DE CE CAHIER**
-
-[leaf 0551] (blank verso, show-through of TABLE DE CE CAHIER from 0550)
-
-[leaf 0552] p.165 (TABLE DE CE CAHIER, first column)
-
-**TABLE DE CE CAHIER**
-
-                                                                    PAGES
-*les chants* ........................................................   5
-*de l'âme réveillée* ................................................   7
-A la mémoire .......................................................  11
-    Je te vois .....................................................  13
-    La route fuit ..................................................  17
-    Un instant détaché .............................................  23
-    Ta voix m'a réveillé ...........................................  27
-    Dans cette solitude ............................................  31
-    Nous avons aimé ................................................  37
-    Tu emploies au foyer ...........................................  41
-    Nous avons parlé ...............................................  45
-    Dans cette même salle ..........................................  49
-    Jadis nous avons vu ............................................  53
-    Bien d'autres soldats ..........................................  57
-    Vous êtes retournée ............................................  63
-    Je prie tous les aïeux .........................................  69
-    Je songe à vous ................................................  75
-    A la fin d'un long jour ........................................  81
-    Me voici revenu ................................................  85
-    Je retrouve ....................................................  89
-    Dans le calme du parc ..........................................  93
-    Dans la crypte .................................................  97
-    Vous que j'aime ................................................ 103
-
-[leaf 0553] p.166 (running header "huitième cahier      de la quatorzième série"; TABLE continues, then colophon)
-
-    Les petites églises ............................................ 107
-    En marchant par les rues ....................................... 113
-    Nous avons parlé ............................................... 119
-    C'est un vieux curé de ......................................... 125
-    Les prophètes, les saints ...................................... 131
-    Au cloître d'autrefois ......................................... 141
-    Toutes deux près de moi ........................................ 147
-    Vous m'avez toutes trois ....................................... 151
-    Vous passez toutes trois ....................................... 157
-
-Table de ce cahier ................................................. 163
 
 ---
 
 *Nous avons donné le bon à tirer après corrections pour quinze cents exemplaires de ce huitième cahier et pour seize exemplaires sur whatman le mardi 11 mars 1913.*
 
-                                                Le gérant : CHARLES PÉGUY
-
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 7900
-
-[END OF CAHIER]

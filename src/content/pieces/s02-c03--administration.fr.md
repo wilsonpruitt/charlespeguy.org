@@ -234,7 +234,6 @@ pectable majorité, après quarante ans, sans risque et
 sans violence mauvaise, on est devenu l'humanité même,
 l'humanité enfin sauvée du mal bourgeois, de tout ‘
 le mal, et instituée en cité harmonieuse. Ainsi le veut
-arithmétique. L !
 
 Or il est simple de convertir les générations montantes. Il n'y a pour ainsi parler qu'à les divertir de la
 contamination bourgeoise. L'excellence du socialisme
@@ -549,7 +548,6 @@ parmi les anciens dreyfusards. Ayant communément
 exercé une action puissante pour la réalisation de la
 justice et pour la manifestation publique de la vérité,
 les uns continuêrent à chercher partout la réalisation
-de la justice et la manifestation de la vérité, mais la
 plupart commencèrent à préférer l'action, la puissance,
 la réalisation même et la manifestation. Les premiers,
 Picquart, Zola continuèrent comme ils pouvaient leurs
@@ -798,7 +796,6 @@ sité populaire du quinzième arrondissement. À première » vue cette pièce p
 J'ai reçu de Gérault-Richard la lettre suivante
 
 Paris, le 6 décembre 1900
-Mon cher Péguy,
 
 Votre zèle à dire leurs quatre vérités aux camarades
 vous expose à de dangereuses licences envers la vérité une
@@ -863,14 +860,12 @@ est acquitté. Plusieurs des condamnés bénéficient de la loi
 troisième cahier de la deuxième série
 Je répondis à peu près à Gérault-Richard : >. je n'ai
 pas gardé copie de ma lettre —
-Mon cher Gérault,
 Je communiquerai à Louzon la rectification que vous
 m'avez envoyée. Le premier cahier de la deuxième série
 est parti, je n'aurai pas la parole dans le deuxième,
 la rectification passera dans le troisième.
 Je reste, au fond, un de vos meilleurs amis.
 Gérault-Richard me répondit sur une carte
-Mon cher Péguy,
 Je ne vous reproche pas de communiquer à M. Louzon
 ma rectification. Mais je suis en droit de vous reprocher de
 n'avoir pas usé à mon égard du même procédé. Vous auriez

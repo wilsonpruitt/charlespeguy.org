@@ -7,61 +7,16 @@ author: henry-michel
 isAvertissement: false
 wordCount: 28054
 ---
-L LAN PRET RE à ares PER rs ar] ‘et, à PÉESSSS FTRTN
-LR RER Ten ne A RE Un pra MES
-_u dr, CSS EMERETRRERe En re NS OST PRESS ES es SUV NT TEUE D COMME
-+744 CRT RER a 3 AL D AL Pal NE 7, 0 CREME” se"
-
 | paraissant vingt fois par an Me.
 rue de la Sorbonne, au rez-de-chaussée
-Re Cu FAPONER Ve ne | TRS WT IR DR 1
-ME tx | D SRE à te sa 4. Ta RU 1 s te
 
-MR EE CT PAR VERS Feat Ms nr a tat
-$ ie ME è avon: d'envoyer un mana at de iTOIS fra cs cinquante
 | -M. André Bourgeois, administratew des cahiers,
 k 1e 8, ruede la Sorbonne, rez-de-chaussée, Par s, cinquième
 4e « PRE arrondissement. On recevra en spécimens si cal iers
-de la deuxième, de la troisième et de la quatrième
 11 LACS Nous mettons ce cahier dans le commerce; nous le
 3 mt _ vendons deux francs. à NE
-# se ‘ Pas
-Le. Y art rar at,
 
-| f EC ui a,
-| 02Qr Quinet LRU 3
-
-| à :
-
-% 6 TT AE é FA EE Res px APFATSS ANA EAU AL NE |
-HAE Eat DES DR ee LS D'ÉMEN A
-ATOS te ! LE UDC Te Sie ÉRINNNE is
-Re ee 1. APT ATSRS me L LS RNA FRANS
-
-MR ee qui D Nr
-# ne RE 1 oà F4 +7 NRC PINSERRE
-
-PRET de PS RCE. di / ;
-
-Re: CRE AR RSI ET TR HER Q Pr) sa Care LE CRC:
-JAN CHE A PRO ARE UNE et RO  T RÉ Ne Es es LE ne
-æ 72e a se PR ae Ra 2 ALES RER CN tone DE *
-$ ee 0 4 ANSE ER Se" 53 RE Res ni ce ee ñs Ni 4
-“ER entr UE LE MAR LPS er TONER Ce NS EE
-D C'EST RE ren LV PRE
-Le : Ne Pre Po Ter
-SE ME UME CRPES Ur ne
-Mia Mois LE a è 7 Ur RES Fes
-
-SE pa) CAR
 , 5
-
-Ées MA NE Te te ; CURE RER 0
-
-AR D "y ET GATE A Le Ca MR EUR $ Y D le LL AUS sl is FREE t es PR UT
-# é | de, PNR
-
-} joue PR T0 V'ONCERANEPE TA RinN done Pa VE 20 NS EF ATARI
 
 se Nous reproduisons ci-après la leçon d'ouverture, —
 n 9 décembre 1902, — du cours professé en Sorbonne
@@ -91,14 +46,10 @@ Eh inédits, et qui jettera quelque jour sur la question de la |
 : à liberté d'enseignement, historiquement; c'est une partie |
 
 du du cours sur la réaction de 1849-50. Sauf imprévu, ce M
-|
 
 M. Henry Michel a bien voulu relire pour les cahiers
 : les épreuves de cette leçon. |
 
-de 5e s mn. ni) se d ne “a ut DAS TAE du pa He NE
-; . EDGAR QUINET NU TE TAN dE ne
-La démocratie a célébré, en 1898, le centenairé de |. 58
 Michelet, poète, historien, moraliste, âme plébéienne et “ie io
 _ française, qui, mieux qu'aucune autre, a su parler d mL
 : du peuple de France. La démocratie doit à Edgar HR
@@ -120,11 +71,7 @@ voirs publics, aux militants de l'idée démocratique et | LAIT
 | sont dignes. pe
 (1) Edgar Quinet est né à Bourg, le 17 février 1803 (et non à Stras- Ye ne
 _ bourg, comme l'ont dit les biographes allemands). IL est mort à PAUL à HAN
-… Versailles le 27 mars 1875. | 3] À Ju ge is
-LAN RAR RUE ET CU Jah 5e OO Ur a LE) AN NN RENE EAN Vu Pen ee
 
-“ee LES PNR LT NN ASE CR ss MARNE FRE is
-Là à Que ro FES Le Un TR
 4 | L'homme, je ne le considère pas dans la riche variété
 4 g de ses dons. Je n'entends parler que du philosophe Ê.
 ‘17 politique. Comment s'est-il formé? Quelle est la domide nante de son tempérament moral, la tendance caracté- ;
@@ -164,7 +111,6 @@ vait parfois à ce maître de faire la classe. Alors, ‘le VERS
 temps se passait à « revoir »les manœuvres de cava- 6 AV
 lerie auxquelles il avait pris part. Avec les grammaires La iv
 des tout petits, il figurait des escadrons, desrégiments.… ps #
-Au commencement de 1812, le collège de Charolles f 0
 devint un magasin à fourrages pour les chevaux de la | BL
 Grande Armée. Les classes vaquèrent.. Bientôt, ce fut Ÿ FE
 l'invasion. Encore enfant, à l'âge où la sensibilité est f FE É
@@ -189,7 +135,6 @@ ses mains, dans l'hiver de 1814, sur les routes, à la | ‘50
 _ lisière des bois. \ ee.
 4 Patriote d'abord, et avant tout, Quinet ne pardonne x 144
 . pas à la Restauration les traités de 1815. Il pleure de : 42
-ne. ne
 
 hu, joie à revoir le drapeau tricolore, en juillet. (x) Mais la à
 ee monarchie nouvelle se montre faible et timide, au …
@@ -213,14 +158,12 @@ D: de France. Il écrit l'Avertissement au pays, 1815 et
 À à ceux de 1831 (l'Allemagne et la Révolution, Avertis- |
 1 sement à la monarchie de 1830). Dans la secondepartie M
 14 de sa vie, après le coup d'État, pendant l'exil, on peut »
-; Ÿ se demander ce qu'il pardonne le moins à l'Empire, si …
 pe c'est sa politique intérieure, ou sa politique étrangère ? M
 à La guerre de Crimée et la guerre d'Italie déterminent M
 4 un flottement dans la démocratie. Le canon gronde, le
 drapeau claque au vent. L'instinct militaire s'émeut. Il M
 (1) Correspondance, Lettres à di mère, tome II, page 152. 4
 
-Ne UN ets
 _ semble que la gloire des armes va compenser, en ASE
 quelque mesure, l'ignominie des origines du pouvoir? >: 2
 Quinet, quoique cocardier, n'est pas un instant + 14
@@ -237,19 +180,16 @@ Mexique apparaît à Quinet, dès la première heure, QE
 telle qu'elle devait être, en effet : une aventure crimi- ee de É
 nelle qui va engloutir la richesse, les forces vives du F4
 pays. (3) La guerre de 1866 (4) ne justifie que trop les DS |
-prédictions de 1831. Et il annonce que la Prusse ne s'en 5e
 tiendra pas là, que le conflit est désormais inévitable 134
 entre elle et nous, que ce conflit tournera mal pour ="
 - nous. Si c'est la guerre, c'est la défaite certaine. (5) La A PA
 guerre éclate : quelles angoisses, que de douleur dans Fan
 * la maison de l'exilé, à l'annonce des premiers désas- ; ‘4
 tres! Quoi? pas un sursaut puissant, pas une « idée [Ne
-Au lendemain de la proclamation de la République, Ds.
 {1) Cf. les Lettres d'Exil, aux années 1854 et 1859. + e*
 (2) Cf. France et Italie (1867), tome XXIV des Œuvres complètes. AL
 (3) Cf. L'Expédition du Mexique (1862), tome XXIV des Œuvres , à }
 (4) Cf. France et Allemagne (1867), tome XXIV des Œuvres com- ER
-| LAS
 
 4 Edgar Quinet rentre à Paris; avec Victor Hugo. Ia, bi
 AUS lui aussi, fait le serment de ne revoir la France quele
@@ -265,7 +205,6 @@ A part du deuil de la patrie. Il rédige des manifestes, des ‘4
 fe: secours. Quel désespoir, quand il constate que cet à
 ï ; homme ne comprend pas, et ne veut pas! Quelle explo- TA
 14 | sion de colère, à la nouvelle que Bourbaki se dirige 4
-i J vers l'Est! A l'Assemblée de Bordeaux, où le choix de 4
 re _ Paris vient de l'appeler, Quinet réclame la lutte à 3
 % outrance, repousse de son vote les préliminaires de É
 “ER paix. Le sacrifice une fois consommé, la France 1
@@ -282,7 +221,6 @@ de retrouver la Normandie et la Bretagne, la Touraine Ne
 28 cet air, de contempler cette lumière, qui lui semblent FL
 #84 meilleurs que partout au monde, parce qu'ils viennent ÿ
 à du ciel de France. Il n'y a jamais eu plus grand Fran- ‘4
-| LOC SCENE x
 É24 (1) Ces ‘articles et ces manifestes sont réunis dans Le Siège de Û
 
 < Paris et la Défense nationale, tome XXV des Œuvres complètes. Le
@@ -291,12 +229,10 @@ de retrouver la Normandie et la Bretagne, la Touraine Ne
 
 ] voyages {Sentiers de France, Paris, Dentu, 1875). 4
 
-k e SET Us à Cr . Le ta gts ee nd À à 4
 | çais que ce grand humanitaire. Iln'y apas, dans toute
 | notre langue, un écrivain dont les livres enseignent x #
 
 _ avec plus de force persuasive la patrie, la nationalité. 20
-Revenons maintenant en arrière, à l'enfance et à la 3e ee
 jeunesse de Quinet. Quelles ont été ses premières Su “à À
 impressions intellectuelles, celles qui ont décidé l'orien- $ À
 tation de son esprit? RE à <
@@ -340,14 +276,12 @@ ss à voir clair dans ses propres pensées. Il se promène à 3
 D. briand ; de' l'autre, la voie ouverte par madame ce
 ! de Staël. Chateaubriand, dont le style lui plaît davan-
 *: tage, c'est le passé, c'est le Moyen-Age. Madame de Î
-h Staël, qui n'a ni l'envolée superbe de la phrase, ni la à
 Ne couleur, c'est l'avenir, l'avenir par la liberté. Et le È
 È jeune solitaire, anxieux, frémissant, se dit à lui-même: à
 « C'est là qu'il faut aller, là est le siècle, là est la vie. » (x) “
 ë. A dater de ce jour, Quinet, dépassant, et de fortloin,
 ; madame de Staël, marche droit au but qu'il vient e
 #08 d'apercevoir : l'affranchissement intégral de l'esprit.
-# %
 h Ii reste, pour avoir achevé l'analyse de l'homme, à ÿ
 | rappeler ce que fut son éducation religieuse. |
 ; Le père de Quinet était, de naissance, catholique. Sa À
@@ -386,11 +320,9 @@ Une sorte de conciliation spontanée du protestantisme si, KA
 Es et du catholicisme s'était faite en lui. Le jour où il 4
 É s'approcha des mystères de l'Église, il y porta une âme "1
 ‘à sincèrement, mais librement religieuse. Cette âme-là, « 1
-K il l'a toujours gardée. I1 a été un ennemi résolu de ù
 ei. PÉglise, mais il n'a jamais cru que l'on püût lutter avec À
 5 avantage contre elle, sans offrir un aliment à ces
 À besoins de l'âme, que l'Église travaille depuis tant de )
-i siècles à exciter et à satisfaire. K.
 de L'histoire de la pensée de Quinet, quand on la suit 2
 4 k entre ses années de jeunesse et la période des cours au |
 s: Collège de France, de 1841 à 1846, montre comment
@@ -411,7 +343,6 @@ FES sommeil des autres nations! C'est dans la douleur que "
 la France engendrera le dogme nouveau. Ce dogme À
 | (1) Lettres d'Exil, tome I, page 47. K
 
-O0 een eniner 0 0 AU EU et
 tient en deux mots : démocratie et liberté. La vie civile | 500)
 n'a pas d'autre sens, elle n'a pas d'autre fin. Tous les A : ‘1
 peuples connaîtront un jour la liberté et la démocratie, | 1
@@ -442,14 +373,10 @@ de son œuvre. Si Quinet n'avait été qu'un libre penseur, LES
 il eût paru infiniment moins redoutable à l'Église. 4
 L'Église ne lui a jamais pardonné, elle ne lui pardon- FE
 nera jamais d'avoir été un libre penseur religieux. D.
-| MSENAONIEER SERN AMEN
 
-(1) Cf. l'Ultramontanisme (cours de 1844), le Christianisme et la Ve
 Révolution française (cours de 1845), tomes II et III des Œuvres +498)
 
-ne. Il
 . Nous connaissons l'homme : passons à l'œuvre.
-ie Ici encore, il faut se restreindre. Je ne parlerai ni de
 ee la critique religieuse de Quinet, bien qu'elle ait précédé
 Fe celle de Renan, et lui ait frayé le chemin, (1) ni de sa
 4 critique de la Révolution, (2) bien qu'elle aït, seule,
@@ -458,11 +385,9 @@ false telle qu'elle s'élabore sous nos yeux. De l'œuvre tentée …
 +5 40 par Quinet, je ne retiendrai que les points qui ont
 : 84, exercé, ou qui pourraient exercer une influence directe
 Pt. sur la démocratie contemporaine. Je ne citerai que ses
-#6) . . » .
 Je vues sur l'enseignement populaire et l'éducation du
 x peuple par la morale laïque, ainsi que sa conception
 À de l'esprit laïque.
-À: La gratitude de la démocratie va — et ira de plusen
 14 plus — aux hommes qui ont créé l'école nouvelle et
 4 développé les moyens de culture intellectuelle et morale |
 ! pour la jeunesse, au sortir de l'école, un Jules Ferry,
@@ -470,7 +395,6 @@ x peuple par la morale laïque, ainsi que sa conception
 4 actifs ou les plus grands d'entre les morts. Il y a aussi
 ; des vivants, dont les noms sont dans toutes les ;
 fe bouches. Nous avons raison d'honorer ces morts et « #4 d'aimer ces vivants, mais il ne faut pas oublier celui
-l 4 (1) Cf. en particulier, Examen de la Vie de Jésus (de Strauss), 1838,
 m1 ù tome VIII des Œuvres complètes. :
 À (2) La Révolution, tomes XVIII, XIX et XX des Œuvres com- À
 
@@ -511,8 +435,6 @@ dans une même amilié. Qui fera ce miracle ? Qui réu- * vi
 nira ces trois ennemis acharnés, irréconciliables ? Évi- VA
 demment, un principe supérieur et plus universel, Ce ‘Le
 
-Nr ne en
-# Henry Mi
 principe, qui n'est celui d'aucune église, voilà la pierre bi:
 3% de fondation de l'enseignement laïque. » (1) RER.
 ‘M : Remarquez la formule de Quinet. Il ne dit pas que le 4
@@ -531,7 +453,6 @@ ee à ils ne sont pas les plus forts, les seuls maîtres. Mais
 ” aucun de ces clergés, aucune de ces morales confes4 sionnelles n'enseignera jamais « l'amour » du clergé
 ie rival, de la confession adverse. Seule, l'école laïque,
 Le seule la morale laïque est en mesure de donner cette
-Ë leçon. L
 x Je voudrais savoir dans combien d'écoles cette page N
 ne de Quinet est connue. Combien y a-t-il de maîtres qui
 * : lont lue, méditée, fait comprendre de leurs élèves? Et
@@ -572,7 +493,6 @@ mots : & sans acceplion de dogmes particuliers aux hs
 diverses communions ». Il monte à la tribune pour é ei:
 
 < défendre cet amendement. Voici, en bref, son argu- 4
-et _ mentation. (1) R*
 Ke : . L'État a été sécularisé, le domaine ecclésiastique À
 É séparé partout du domaine laïque : par exemple le
 : 1 mariage civil a été institué, à côté du mariagereligieux.
@@ -613,7 +533,6 @@ et la morale. L'école est le lieu où l'enfant fait ses pre- : ji ‘
 mières expériences ; qu'il y trouve un spectacle de à (
 paix ! Qu'il ne naisse pas à la vie de l'âme « dans la 4
 discorde religieuse, prélude de la discorde civile ». 4
-En 1850, ni l'acte, ni le langage de Quinet ne furent x 4 1
 compris. Il nous dit lui-même que pas un journal ne V0
 mentionna son amendement. Quelques mains se Et t
 levèrent à l'Assemblée, pour l'appuyer, et ce fut tout. En d
@@ -667,7 +586,6 @@ huitième siècle, et ce sont précisément ces qualités que, ie H
 tout jeune encore, il aspire à conquérir, sans doute Si: É£
 parce qu'il les possède déjà. (1) Il creuse la notion de ‘4
 raison, et il y trouve, impliquées, deux autres réalités, Re
-la personnalité, la conscience. F de
 La personnalité : voilà le point lumineux qui, de très LH ‘ À
 bonne heure, éclaire pour lui le monde des choses re DU. |
 morales. Il a écrit, dès 1823, une histoire du développe- 54
@@ -695,7 +613,6 @@ quer le monde civil. Re:
 De même, l'idée de personnalité morale conduit Qui- À HA
 () Lettres à sa mère, tome I, pages 353 et suivantes. 1
 
-| RE Sa ES
 ‘a net à réfuter la thèse de Strauss sur Jésus. Strauss nn
 MAT dans la figure du Christ une création de l'imagination
 . ; et de l'âme des masses. Mais si le Christ n'a pas été En
@@ -749,9 +666,7 @@ Juinet, des semences d'avenir, qui lèveront un jour. 3
 a démocratie lui doit déjà beaucoup; elle lui devra 4
 ncore davantage, quand elle sera pénétrée de tant de ; +.
 >çons si hautes, quand elle aura fait sienne cette notion 7100
-e la conscience, et de l'action de la conscience sur la ee &
 ie, individuelle ou collective. #0
-En attribuant à la conscience un rôle souverain, et en 1e
 1i reconnaissant une capacité illimitée de rajeunis- “14
 ment et de métamorphoses, Quinet substitue au vieil EU
 léal statique des dogmes et de la plupart des philo- ns
@@ -795,7 +710,6 @@ la conscience aura ordonné elle-même et sanctionné “ ‘1
 toutes les relations établies entre les citoyens, les rela- CU
 tions économiques, autant que les relations spiri- 275
 Edgar Quinet a droit à une consécration solennelle. M
-Il y a droit de par son œuvre, et de par sa vie. Il y a 108
 droit aussi à titre de réparation nationale. Quinet est +510
 mort en pleine période de réaction. $es funérailles n'ont MS
 eu aucun caractère officiel. Le bureau de l'Assemblée, NF à PE
@@ -817,7 +731,6 @@ nous demandons. Non pas seulement parce qu'il a déjà Re
 F servi au centenaire de Michelet, au centenaire de Victor | %
 + Hugo, mais parce que Quinet lui-même a défini, dans :
 fe un écrit de 1866, avec son habituelle élévation de pen
-iv sée, la fonction sociale de ce monument, et qu'il ne es
 k devrait plus s'ouvrir à personne, s'il ne s'ouvrait à l'aust teur de ces pages. La Constituante avait voulu que le
 w N Panthéon fût le monument des grands hommes. Quinet
 # se demande comment la Constituante, si elle avait plus
@@ -861,15 +774,10 @@ rent le bienfaït. Il attend de la démocratie française, — ne 4
 de la jeunesse, surtout, qu'il a tant aimée, qu'il a tant 4h
 désiré servir, qu'il a si bien servie, — qu'elles prêtent, si Ê
 le jour du centenaire, un nouveau et inviolable serment ke
-de fidélité à la patrie et à l'humanité, à la liberté poli- “À -
-tique et à la justice sociale, au droit, à la raison, à la à |
 Le centenaire d'Edgar Quinet fut célébré à la date En
 indiquée ; nos abonnés en ont lu le compte rendu dans ‘3
 les journaux; nous traiterons de ce centenaire dans un Ne
 cahier de la cinquième série. Rs.
-
-| AA RENE MC CRE DATES RSR
-ts HEART AMIE L LAINE]
 
 Ils se rencontrèrent chez Cousin, un matin de mai à 3
 825. Michelet, jeune homme de vingt-sept ans, avec Là
@@ -896,12 +804,10 @@ ophie de l'histoire me semble encore tout à fait jeune, ; 34
 crit-il à Michelet, jeune comme nous, et je me réjouis f AU
 le voir combien il nous reste à travailler. » Il lui | 14
 
-|: RES © Daniel Haléoy. : : "NE
 Ë < 0 communique ses découvertes et ravi d'être toujours
 A: | compris par son ami : « Que les liens $e resserrent,
 a E s'écrie-t-il, à mesure que la pensée se développe 13
 Gi Aimons-nous dans la science et nous ne nous perdrons .
-AE |: jamais. » ue:
 S Michelet, cédant aux instances de Quinet, vint à.
 a S Heïdelberg. Ce fut une occasion de conversations infiUs nies, commencées à voix basse dans la bibliothèque,
 A : A continuées en promenade à travers bois et prolongées
@@ -913,7 +819,6 @@ TER bords du Rhin. Il me fallait cela après votre départ. »
 4: Michelet, pris de passion pour l'Allemagne, s'en était
 * ; allé vers Bonn et Francfort. Quinet formait des projets
 Ft. à nouveaux : il voulait voir la Grèce, qui était en révolte
-. |: et où l'on se battait. Son prudent ami cherchaït à l'en
 RC dissuader : « Cela n'est-il pas bien imprudent?... »
 ‘Ya Mais Quinet n'avait nulle peur du danger. Il obtint une
 ; mission, partit, chevaucha dans le Péloponèse dé-
@@ -928,7 +833,6 @@ ne les mondes le fêtèrent. Il fréquenta madame Récamier et.
 ME souvent il diînait chez Michelet qui, mal portant et
 F. *  casanier, sortait peu. « Si je ne te dis rien de lui,
 
-DUMP.) MICHELRT ET. QUINET Sen RTS
 Scrit-il à sa mère d'un trait qui le peint tout entier, ‘5
 c'est que son amitié m'est devenue tellement intime $ h:
 que je n'y songe guère plus qu'à moi-même. » 1 p.
@@ -972,7 +876,6 @@ is ! sa comptabilité avec le soin minutieux qu'il mettait à
 Re $ toutes choses. Les caractères de Michelet et de Quinet …
 #4 divergeaient en mürissant, et leur amitié n'en était pas-_
 Un. diminuée : au contraire, ils semblaient prendre plaisir …
-à j l'un et l'autre à se sentir si divers et si liés. ]
 #4 Enfin, en 1838, le gouvernement alors plus favorable |
 D: au libéralisme offrit à Quinet une chaire à Lyon. :
 DAURE « Acceptez, lui dit Michelet. Lyon est le chemin de 1
@@ -1019,10 +922,8 @@ iéridionales ». Celui-ci refusa, et plutôt que de céder, dl
 uitta cette chaire tant désirée. Touts'apaisa. Michelet ' 2
 devint un professeur pacifique. Il ne fut inquiété que à
 eux années plus tard, en décembre 18/7, à la veille $ 2
-e la Révolution de Février. cé:
 La collaboration des deux amis dura quelque temps 14
 39 4
-| FAN n
 
 L encore. Ils publièrent ensemble leurs cours sur les
 ci Jésuites, puis se dédièrent l'un à l'autre, Michelet son
@@ -1095,7 +996,6 @@ cs frappa douloureusement. Il craignit qu'un abîme ne se
 x ébranlé. Avec cette résolution que l'âge affermissait en
 % lui, il se mit en travers de son temps et désormais
 à chacun de ses actes fut une opposition et une contra-
-# diction.
 va Michelet revint à Paris; il y travailla beaucoup, et
 =/ 1008 d'une manière qui le satisfit. Il composait l'histoire de
 se la Réforme et son imagination lui représentait avec
@@ -1147,7 +1047,6 @@ il annonçait les catastrophes inévitables. Michelet, qui Re.
 _ blämait sa retraite obstinée, prit l'initiative d'une Fi
 _ adresse que trente personnalités signèrent. Au nom 38
 des intérêts mêmes du parti républicain, on priait Quinet ! ma Le
-À de revenir en France. Il refusa, et sentit la solitude Re pe
 
 du comme élargie autour de lui. « Chaque année, écrivaitsic il, augmente la différence d'accent et de langage entre
 + les Français du dedans et nous autres exilés. Ala
@@ -1255,7 +1154,6 @@ qu'il laissait, un regret enfin pour sa popularité et sa
 à de ses peines, non à une œuvre écrite, mais à une
 é œuvre vivante, c'est-à-dire passagère : la pratique dela
 vertu, l'héroïsme. j
-| ma
 
 On se quitta avec, de part et d'autre, plus de soula
 È gement que de regret. Mais l'échange de lettres qui PR.
@@ -1401,16 +1299,6 @@ _ C'est une force simple qui survit à l'intelligence et ‘1
 
 _ relève ses dernières lueurs. SLT
 
-PRE Von un RME OA ie AE à AIN FU VAS el
-2 SEEN EE SN En Re ee) ou ANUS APR SL EL Ko
-à FAN A FAIR THE M PAL LEP A Lt si 5 MAL AN UN NP APTE si (\FRP EE NES *
-LH + HOT EE CARTELS ‘x SAN CAR ne ni HA MA Ve Tes
-| OMIRATEA ENS : A CE LTARQUE ou RUE p 1, LAN OS NSP NEER
-SA tal HEAR RAR AE A LNEGE ne 14 ANT
-| LE MANIA AS DIN a FT A MISE
-FA le NO A RER d'A MR , 1580) au JA où
-LE IUESS ; Vire ARS A) Nous ie 764 EE tk Ka
-
 « J'ai choisi le silence, le monde a choisi le tumulte. 1:68
 « J'ai choisi la justice, et le monde, l'iniquité. J'ai pré- : ke à
 « féré la liberté, et le monde a préféré l'esclavage. J'ai +
@@ -1423,12 +1311,10 @@ LE IUESS ; Vire ARS A) Nous ie 764 EE tk Ka
 Par ce chant de Merlin au sépulcre, Edgar Quinet a 11
 résumé le sens général de sa destinée, le secret de sa ee
 
-force et de sa douleur. < HER
 D'autres ont eu la gloire sonore, la chaude acclama- ge. à
 _ tion des foules, le sourire délicieux du monde. Celui-ci ” AteS
 a fait un effort immense dont jamais il ne fut payé que RARES
 par la joie intérieure. Hanté d'un grand songe d'artiste, Re PA
-il n'a su qu'à demi le réaliser. La lumière hellénique RER
 d'un Chateaubriand, la fièvre païenne d'un Michelet, la ; Re 4
 splendeur verbale d'un Flaubert lui ont trop souvent | # se
 fait défaut. Malgré des pages admirables, ses poèmes, SC Ru
@@ -1469,7 +1355,6 @@ morale du siècle au lendemain de la Révolution. C'est
 ; quand chacun, après tant d'orages, ne songeait plus È
 k qu'à chercher un abri. Là, entre un père démocrate,
 
-Ne nd eur to
 _irréductible ennemi de l'empire, et une mère d'esprit 20
 libre et grave, née dans un milieu calviniste, l'enfant à 118
 connut, pour son éveil, la nature seule, et les livres. 2 10
@@ -1572,7 +1457,6 @@ et Révolution, le divorce désormais est fatal, la lutte M
 décisive et mortelle. Le tort des révolutionnaires est de 4 |
 ne l'avoir pas compris, d'avoir pactisé avec Rome, al
 pacte que l'Italien Bonaparte consacre par le Concordat. AY
-De là un siècle de discordes, de révoltes et de coups de 214$
 force. La paix ne viendra pour la France, et son œuvre < 1
 ne sera couronnée, que si la Révolution épuise toutes 4
 ses conséquences, que si la vie nationale s'affranchit du ,
@@ -1627,20 +1511,6 @@ que honte réchauffer nos désirs d'action. Ce serait ; + 0
 lhommage intérieur qui siérait le mieux à la mémoire 5
 du véridique Edgar Quinet. DE |
 
-HORS RES RE URI de nd
-d: ARS 2 PU NE Eye Mi » ER * CAPE re t cn
-Pron 1 UE Ares 2 LE PEAR k Dr START +4
-PRE LE R DS $e SARA Eos
-ET “HROART SES Lens, À q | ONE LAN
-
-DS te ARE 4 SAS GAS RUPIEE NAIC MR OS PEE ARMES ES ARRET NRAREN ses mure
-| guelqu nn.
-| 4 FA LE D
-| PLANS
-il | EN PEN , que sd lo à
-
-[15 RMOANONNERRTES Mer CORRE LP vw EL \ { L'HERD INSERT
-| INSSIUINAENEONESS Pur \ 1-4" 03 ENORS
 : MESSE M. Daniel Halévy a bien voulu choisir pour a æ
 ‘4 | présenter les textes suivants : Fe FAT ÉRENNS
 
@@ -1695,7 +1565,6 @@ D. La science a sa certitude, son évidence, qui na
 à dogme particulier, c'est l'esprit de secte. Pourquoi faut- à
 44 il que la religion absolue soit placée sous la dépen- 24
 HER dance de l'esprit de secte? Est-ce juste? est-ce pos- 4
-# sible ? 4
 É Supposez qu'il n'y eût d'autre enseignement moral
 $ que celui qui est distribué au nom des Eglises particu- #
 lières; j'ai montré que, dans ce cas, la société actuelle M
@@ -1895,7 +1764,6 @@ par des événements subits, d'être mêlé de près aux
 1 affaires publiques, il ne s'est pas accompli sous mes
 & yeux un fait qui ne n'ait confirmé la vérité de tout ce
 D que j'avais avancé.
-# ;
 
 Non! dans ces deux dernières années, si pleines 144
 d'instructions pour qui sait lire dans les choses, pas un Fa 4
@@ -1914,10 +1782,8 @@ tenais alors pour vrai, je le tiens aujourd'hui pour + }
 de la jeunesse est le bon génie de la vérité; que le ; M!
 salut de la France est dans la voie où nous avions com- 5 f
 mencé d'entrer. Sachons donc y persévérer. 50
-#4
 () Tout ceci est une allusion au cours du. Collège de France. A
 
-FÉERIES { fi 4 L AA RE ONE
 Ru Cette lettre est insérée dans le tome premier ds
 |. 4680 Cher ami. Voici une année nouvelle, et ce que nous …
 __ devons souhaiter à tous, ce sont, il me semble, des”
@@ -1931,15 +1797,12 @@ Brno mais d'une égalité matérielle, servile, dégradée, et cette.
 RE progression, si elle continuait, aurait pour dernier
 RAA ierme un troupeau, un maître. 150
 TRE Voilà sur ce point ce que les événements ont montré:
-‘a SEX ; Je le reconnais, je l'avoue et, non content de cela, je le”
 | ARTE publierai très haut. Mais si telle est ma confession, il
 D. me semble que beaucoup d'autres ont à faire des aveux.
 TE . de ce genre et même beaucoup plus graves. Vous avez
 LS À eu la bonne fortune et le bon esprit de ne pas porter deu
 ae système dans l'Histoire de France et par là vous avez
 
-a ne DAME Tr NOR À
-té LETTRE A HENRI MARTIN de
 moins de péchés sur la conscience qu'aucun autre. : 14
 D'ailleurs, si vous aviez péché, çà et là, vous avez tant ï. È
 de loyauté et de vitalité dans l'esprit, que vous trou- ÿ 4
@@ -2002,7 +1865,6 @@ société française peut aller s'abimer sans retour. Ce à
 mal vient de ce que les historiens se sont fait une idée
 superficielle et fausse de la liberté. Partout où ils ont
 
-LR CÉRLSS de FAR pes * ES EAU fe Ce CASE EN
 vu le progrès dans l'ordre matériel ou même dans Fe
 légalité, ils se sont dit : la Révolution est là ! D'abord ‘il
 laplanissement du sol, la servitude de tous sous un Te
@@ -2171,7 +2033,6 @@ celles-ci : 1° La France peut-elle changer de religion?
 
 2e Quelle religion la France peut-elle adopter ? 3° Les k
 Français peuvent-ils vivre en corps de peuple sans 24
-aucune religion ? Le
 Un des signes étranges de ces temps, c'est qu'aucune RU
 de ces questions, qui contenaient pourtant en substance + |
 tout l'avenir, n'ait été ouvertement posée par le dix- 54
@@ -2231,7 +2092,6 @@ je ne trouve rien de si beau que d'être curé... Je pense « | que solliciter q
 ä né, c'est le solliciter de mal faire, et par conséquent {
 À mal faire soi-même. » ;
 ; Un curé qui dit la messe sans croire ni à l'Évangile,
-; ni à l'Église, ni à la papauté, ni à la tradition, ni même ;
 
 à la divinité de Jésus, et qui se contente de laisser 6 à
 penser qu'il y croit, voilà donc l'idéal de réformation à
@@ -2254,7 +2114,6 @@ choses sans rien changer au dehors? Comme si en lais- à
 sant la surface, l'habit, la cérémonie au vieux culte, on Fes
 ne lui laissait pas ce qu'il y a d'essentiel pour le plus ü
 grand nombre, et avec la surface le moyen de regagner te
-le fond ! 4
 Tout ébranler, pour ne rien changer dans l'ordre d
 moral, telle est la conclusion du Vicaire savoyard, Éi
 projet chimérique s'il en fut jamais au monde. ë 4
@@ -2293,8 +2152,6 @@ Comment comprendront-ils que ce vicaire idéal donne
 Ë terait persuadé que l'ancien dogme est conservé. Le ;
 } prêtre seul aurait le secret des changements qu'il y
 
-OO Te on bte De.
-| VICAIRE SAVOYARD i
 apporte dans son for intérieur; il n'aurait fait de révo- F7 :
 
 _lution que pour lui-même ; le reste du monde n'en ‘es
@@ -2343,19 +2200,6 @@ après avoir essayé vainement de franchir la dernière k
 barrière, rentre à pas lents, la tête baissée, le désespoir “US
 au cœur, dans son cachot. Re
 
-|: RES Nage UN te IR Mon UT TS AUS
-\ Fhs ren LE AT MES } % OL Lo:
-| 1e RE RU RAS.
-FER AA Es APRURE à AS « : Rue CN SA
-Pas f PIS CHIENS 3 « 1 PESON SENS APR
-de SSSR Fi Va, À s VAE LIU ENS
-
-A DR PP oc RQ RE Ur ON PE OPA
-AIS AA NT ARE PS ER AP EE, LS RE Ne res
-5 LE): ' AUS © : DS YF} 4 ke Le À: Pi NPA ET ETS ere
-| 5 « 110
-as LE ?) re on Le
-
 La bibliographie suivante a été relue sur épreuves et
 établie pour la deuxième partie par M. Albert Valès.
 À M. Albert Valès, professeur d'histoire au lycée | » Voltaire, a, pendant les quinze dernières années de la
@@ -2395,7 +2239,6 @@ Enfin M. Valès a entrepris une thèse sur Edgar j
 Tome I. — Le Génie des Religions ; l'Origine des Dieux. sa Fe
 Tome IL. — Les Jésuites ; l'Ultramontanisme. ARE.
 Tome HI. — Le Christianisme et la Révolution française. se
-Tomes IV et V. — Les Révolutions d'Italie. AS
 Tome VI. — Marnix de Sainte-Aldegonde; Philosophie 1140
 de l'Histoire de France. TER
 Tome VII. — Les Roumains; Allemagne et Italie. : 74 Ru
@@ -2408,12 +2251,7 @@ _ Tome X. — Mes vacances en Espagne. PE:
 Tome XIV. — Enseignement du peuple; Œuvres politiques ‘ F3 $
 avant l'Exil. + 0 ÿ
 Tome XV.— Histoire de mes Idées. 5 “3
-Tomes XVI et XVII. — Merlin l'Enchanteur. D à
-Tomes XVIII à XX. — La Révolution. Ris
-Tome XXI. — Histoire de la campagne de 1815. Ÿ ss
- Tomes XXII et XXII. — La Création. DL
 
-se Albert Valès NE
 Tome XXIV. — Le livre de l''Exilé. — La Révolution %
 er pendant l'Exil. ‘ 17
 ns Tome XXV. — Le Siège de Paris. — Œuvres politiques
@@ -2421,7 +2259,6 @@ ns Tome XXV. — Le Siège de Paris. — Œuvres politiques
 “ Tome XX VI. — La République, conditions de la régénération de la France. 1
 ÿ Tome XXVII. — L'Esprit Nouveau. k
 ; Tome XX VII. — Vie et mort du génie grec. — Appendice. à
-0 Tomes XXIX et XXX. — Correspondance : Lettres à sa w
 ss mère. É
 Idées sur la philosophie de l'Histoire de l'Humanité, par-.
 : HERDER, traduit par Edgar Quinet, 3 volumes in octavo,
@@ -2462,16 +2299,13 @@ la publication de certains ouvrages essentiels. x
 
 8) Articles de Revue : 74
 a) SAINTE Beuve. — Napoléon de Quinet /Revue des Deux > 7 Ê
-rains, tome Il, 1836) T0
 .  (Sainte-Beuve, pour Quinet comme pour beaucoup d'autres M
 écrivains de ce temps, a commencé par l'éloge pour de
 
-# Albert Valès ps
 & b) AzexANDRE ViNer. — Études sur la littérature fran
 2. çaise au dix-neuvième siècle, tome III, — Poètes et prosa- Fe
 ‘14 ! . c) CnarRLes MAGnIN. — Ahasvérus {Revue des Deux Mondes, | 4
 Vo CHarLes MAGnIN. — Prométhée {Revue des Deux Mondes,
-QE è d) SAINT-RENÉ TAILLANDIER. — Un fort éloquent et sym- 4
 si pathique article dans la Revue des Deux Mondes du 15 juil- ;
 AE e] FAGuET. — Edgar Quinet {Revue des Deux Mondes, M
 +5 article tendancieux, perfide, d'ailleurs fait à la hâte. 4
@@ -2486,25 +2320,16 @@ qu Nous avons donné le bon à tirer après corrections à
 À pour deux mille exemplaires de ce vingt-et-unième
 à cahier le mardi 21 juillet 1903. “.
 
-. Le Gérant : CHARLES PÉGUY à
 ! Ce cahier a été composé et tiré au tarif des ouvriers syndiqués 3
-IMPRINERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 7755 $
-AV ce Ne.
 
-| RER TEE Fe LEE Er 2 DU SPP AE Or Ne CAS 2204 PAS PA AT TO RSR ITS
-a FE ù # À be U dE: Ê 2” le | | 4 VARIE PA TRS
 2 4
-
-ÿs L
 
 LE Nos Cahiers sont édités par des souscriptions men
 LAS suelles régulières et par des souscriptions extraordiRe + naires; la souscription ne confère aucune autorité sur.
 re la rédaction ni sur l'administration : ces fonctions
-Re ; Nous servons :
 Ho Ÿ des abonnements de souscription à cent francs :
 Qi È des abonnements ordinaires à vingt francs ;
 ps y et des abonnements de propagande à douze francs.
-Re Il va de soi qu'il n'y a pas une seule différence de
 ie service entre ces différents abonnements. Nous voulons
 Pure seulement que nos cahiers soient accessibles à tout le
 ne monde également. æ

@@ -9,9 +9,6 @@ wordCount: 1639
 ocrSource: "Extracted 2026-05-25 from conflated ~/charlespeguy.com/raw/s02-c14-expulsion-de-nicolas-paouli.txt lines 2994–3279; identified by running headers 'Lionel Landry / COURRIER DE CHINE' and Tien-Tsin datelines."
 translationNotes: "OCR garble preserved (e.g. 'fé^Tier' → février, 'Landrj-' → Landry, page-number artifacts). The trailing editorial note (lines 281–286) is Péguy's notice that Landry's letters arrived in time and a full cahier on the expedition will follow in series III. The migration parser had dumped the entire cahier into s02-c14--expulsion-de-nicolas-paouli; this portion is reattributed here."
 ---
-Tien-Tsin, 25 fé^Tier 1901
-Cher ami
-
 Le correspondant spécial des cahiers s'est montré
 bien au-dessous de sa tâche. S'il avait été un peu
 plus courageux, il devait vous envoyer un cahier
@@ -23,12 +20,10 @@ de la façon suivante : quatre ou cinq articles,
 chacun traitant un point déterminé. Je vous en
 avais promis un sur le transport des troupes : je ne
 l'ai pas envoyé, parce que le sujet n'en valait pas la
-peine.
 
 A mon retour de Pékin, je sortais d'un cauchemar
 de destruction, de pillage et de massacre, et je vous
 en ai transmis l'impression — déjà l'aisonnée et
-critiquée d'ailleurs.
 
 Les faits de massacre et de destruction reprochés
 au corps expéditionnaire de Chine appartiennent à
@@ -38,14 +33,8 @@ commises de Tien-Tsin à Pékin.
 
 Je suis moins bien informé sur ce qu'ont fait
 
-65 * IV.
-
-
-Lionel Landry
-
 autour de Pao-Ting les colonnes lancées par le
 général Bailloud. Mon impression néanmoins est
-qu'il y a eu des exagérations dans ce qu'on a raconté
 à la Chambre, et surtout méconnaissance de l'état
 desprit des gens qui se sont rendus coupables de
 CCS massacres. Actuellement je suis placé assez bien
@@ -75,9 +64,6 @@ rentes), l'intelligence des idées des autres. Et je n'ai
 pas été étonné de trouver ces derniers parmi ceux
 
 66
-
-
-COURRIER DE CHINE
 
 qui ont le plus vu et le plus agi. En fait, il y avait
 distinction bien trancliée entre la masse et l'élite,
@@ -112,9 +98,6 @@ ont fait campagne.
 
 67
 
-
-Lionel Landrj'
-
 Je ne parlerai pas de nos amis les Russes, qui
 inspirent ici un dégoût général par leur ivrognerie
 et leur brutalité. Ce sont les pillards les plus enragés
@@ -123,7 +106,6 @@ tête leur programme de pillage lorsqu'ils arrivent à
 un village ; les uns doivent aller aux chevaux, les
 autres aux fourrures, etc. Je crois que leur puissance
 militaire est un grand blufl*: la guerre de 1877 le
-laisserait croire.
 
 Les individualités les plus intéressantes se rencon-
 treraient, je crois, parmi les Américains. C'est aussi
@@ -146,9 +128,6 @@ ancien élève de Polytechnique et de Fontainebleau,
 me montrant le maniement de son sabre à deux
 
 68
-
-
-COURRIER DE CHINE
 
 mains, destiné à couper d'un grand coup de revers
 la tête de l'ennemi, et m' expliquant que le « chic »
@@ -184,9 +163,6 @@ Les missionnaires qui disent, font dire ou laissent
 
 69
 
-
-Lionel Landrj-
-
 dire en France quïls sont à l'étranger de constants
 et actifs propagateurs de Tinfluence française, i^ré-
 tendent ici n'avoir aucun rapport avec les puis-
@@ -215,14 +191,8 @@ Chinois, portent la natte, le costume, parlent la
 langue, apprennent à leurs élèves un latin de cui-
 sine invraisemblable, mais point le français : donc
 leur but n'est pas de développer en Chine l'influence
-occidentale.
-
 
 70
-
-
-COURRIER DE CHINE
-
 
 Ce but, certains le proclament, disant quïls ont été
 parfois près d'y atteindre. C'est la conversion de la
@@ -240,7 +210,6 @@ peut-être même les exactions des Pères ont surexcité
 les Chinois : mais quand les troupes partiront ils
 seront armés. Je me demande s'ils n'ont pas l'inten-
 tion de réaliser la conversion de la Chine par une
-action militaire.
 
 L'exemple du Paraguay est toujours intéressant
 à étudier. Les Jésuites ont formé, d'un peuple qui
@@ -254,11 +223,7 @@ campagne de Chine nous les trouverions sans doute
 contre nous, à la tête des Chinois. Il ne protestait
 pas, mais déclarait que l'intervention des Européens
 
-
-Lionel Landry
-
 leur était très nuisible et qu'ils ne la souhaitaient
-pas.
 
 J'ajoute que je crois la question des missions dif-
 férente à Madagascar, au Soudan, en Chine, en
@@ -276,12 +241,7 @@ Gomme toujours, je vous écrirai au hasard des
 
 circonstances et sur le point qui me paraîtra le plus
 
-intéressant.
-
 Salut et fraternité.
-
-Lionel Landry
-
 
 Depuis que ces lettres nous sont parvenues, nous avons
 lu dans les Journaux que les corps expéditionnaires

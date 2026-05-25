@@ -144,7 +144,6 @@ leurs tâches, pour sa part, autant qu'il pourrait.
 Il les convia à venir prendre le thé chez lui, entre
 quatre et cinq heures, quand l'un d'eux serait libre. Jse
 
-| RÉPÉTITEURS DE COLLÈGE
 mit à songer à ce que l'Université perd, gaspille, gâche
 de force précieuse dans la personne de ses répétiteurs, :
 en les traitant en parias comme elle fait. Répétiteurs
@@ -186,7 +185,6 @@ cinq récréations par mois, une, deux promenades
 seraient pas des corvées, mais même peut-être des ;
 fonctions intéressantes. En tous cas, si fous les par- :
 tageaient, tous auraient conscience de l'équité de cette à
-solution, de la nécessité et de la valeur de l'œuvre, et :
 ils s'y donneraient en toute fierté.
 Mais non! au lieu de cela, du plâtrage. On allait 2
 replâtrer encore, paraît-il! Toujours le vieux, l'antique, 7
@@ -242,7 +240,6 @@ plus haut et plus fort que quiconque, toutes ces fonc-
 …_ tions accomplies jusqu'ici par des jeunes gens qu'elle
 …_ avait prétendu avoir choisis et elle payait ces corvées,
 _ elle les vendait à l'encan, comme un tas de saletés dont
-| 5x
 
 pour sa part, elle était heureuse et fière de se laver les
 
@@ -377,7 +374,6 @@ ceci, cela... Et au dehors, l'Université Populaire... Il
 s'entendait encore dire, à la nouvelle de sa nomination:
 « Dans quinze jours, il y aura une U. P. à Villetaupier!! »
 
-| SCÈNES D'INTÉRIEUR
 Il ricana.. « Je vis tout bonnement en bourgeois... Je
 suis un menteur et un lâche. » Il haussa les épaules et
 se coucha sur la table, la tête entre les bras. Un chagrin
@@ -457,7 +453,6 @@ R servir comme cela, grand dadais! par une demoiselle!
 A allumette, allumait sa lampe. Il ferma la fenêtre et la
 … porte, et, se frottant les mains, voyant que mademoi2 selle Lina se levait :
 F — Mais non! restez assise! Vous n'êtes pas pressée ?
-. La servantese leva:
 _. — Si, monsieur Madec ! Il faut que je fasse mon
 … diner. Alors vous irez prendre votre eau ?
 - Elle marchait vers la porte.
@@ -467,7 +462,6 @@ _  — C'est-y ça des devoirs ?
 … _— Oui, mon enfant ! c'est ça des devoirs ! répéta-t-il,
 imitant plaisamment le ton de la jeune fille... — Et de
 _ _— C'est-y ça des fautes, toutes ces marques rouges ?
-| :
 
 — Oui, c'est des fautes, vous voyez que ça ne manque
 — C'est-y ça de l'anglais ?
@@ -494,7 +488,6 @@ Eu à moi. C'est toute la journée : @« Lina par ci, Lina
 — Écoutez, mademoiselle Lina. Demain nous en
 reparlerons. Il faut, si vous le voulez, — et vous devez
 
-| SCÈNES D'INTÉRIEUR
 le vouloir, — que vous trouviez ne serait-ce qu'une
 demi-heure par jour... je vous aiderai à travailler, à
 rapprendre peut-être ce que vous ne savez plus... Je...
@@ -515,7 +508,6 @@ chose pour cette petite ! Elle a l'air bien gentille, pas
 . idiote du tout !.. C'est inouï de penser qu'elle ne lit
 … rien, jamais ! que ça n'a pas le temps de penser, de
 | devenir une personne ! Ça reste une chose; une chose !
-« Ja chose des maîtres ! Et il y en a, il y en a comme
 à cela, de par le monde ! Qu'est-ce qu'elle va devenir ?
 _ quelle est sa destinée ?.. La tâche quotidienne, l'éternel balayage, cuisinage, échaudage, époussetage ! Et
 | comme distractions : les commérages aux portes; les
@@ -571,8 +563,6 @@ tout l'avenir, muet et fermé jusque-là, se rouvrit à lui
 … des matins, et il commença cette même semaine à in-
 + terroger sa nouvelle élève.
 
-Chez Têtu À
-
 Ce fut aussi vers ce temps qu'il rencontra un ouvrier %
 chez un de ses collègues : Têtu. Têtu était un ancien L
 instituteur : un brave garçon, rien qu'à le voir, pensait É
@@ -593,7 +583,6 @@ et du Citoyen allait se fonder à Villetaupier, entre bourgeois et ouvriers :
 — Venez donc me voir, ajouta-t-il, je vous présenterai Périer, un des ouvriers les plus sérieux sur qui
 nous comptons.
 
-| CHEZ TÊTU
 Un soir, Madec s'en fut chez Têtu. Têtu était marié.
 
 . Sa femme, grande, mince, d'apparence un peu roide,
@@ -653,7 +642,6 @@ riant. — Madec s'abstenaïit de tout commentaire, surpris d'une muette admirat
 pénible et joyeuse, toute absorbée en la mâle énergie +
 du quotidien labeur. La causerie s'élargissait maïintenant. Madec revint sur la phrase de Périer : s
 — Je ne mets pas les pieds au café. ù :
-Il s'exclamait, soucieux : ; 4
 — Ah! bon Dieu! Si tous étaient comme vous! C'est 4
 66 3
 
@@ -831,8 +819,6 @@ s Têtu, le sourcil froncé, haussa les épaules en mouil-
 
 ._ malaise, et, d'un air plaisant, essaya de donner le
 
-| change.
-
 —. — Parfait, chère madame! vous parlez d'or! Plus de
 
 _ Chambre des Députés, je la supprime!
@@ -845,16 +831,10 @@ A la fin, comme Madec et Périer se levaient pour se
 retirer, on conclut : L:
 __— Alors, dit Tétu, vous consentez? à la Ligue? 4
 — C'est le docteur Pirault qui prendra la présidence
-de la section; et on se réunira ici jusqu'à ce qu'on
 trouve un local? ;
 — Entendu, dit Madec — à bientôt! _ d
 Et il sortit avec Périer. à
-|
-|
 
-|
-
-F Un trimestre
 4 Le mois de décembre fut pluvieux et doux comme en
 _ Bretagne. Yves, déchargé maintenant du gros travail
 _ du début était moins soucieux de la tâche profession_ nelle. Ii s'habituait à ses élèves. Il commençait à les
@@ -1022,8 +1002,6 @@ gamin de treize ans peut-être, s'écria : 4
 dire la vérité, puisque papa est obligé quelquefois de 4
 plaider pour quelqu'un qu'il sait être coupable !
 
-Et le fils d'un marchand de chevaux : À
-
 — M'sieur, comment donc faire alors, puisque papa 1
 fait souvent arranger ses vieux chevaux pour les vendre
 comme s'ils étaient de jeunes étalons! .
@@ -1038,7 +1016,6 @@ pétri d'iniquités. C'est à vous de les juger, partout où
 elles sont, — de vous efforcer avec tout votre cœur et
 
 | 200 2
-> UN TRIMESTRE
 toute votre raison, et toute votre énergie, à les faire
 disparaître, en y employant les moyens les plus dignes
 d'hommes généreux et vaillants, et aimants !
@@ -1102,7 +1079,6 @@ autres, tant qu'il y a un besoin ou un manque quelque |
 part. Et cela durera longtemps; ne craignez pas que le :
 « salaire » dû ne trouve pas d'emploi, allez !.…
 
-# UN TRIMESTRE
 | La bonne madame Têétu se résigna en apparence;
 mais, à la grande désolation de Yves, elle s'obstina à
 | le payer lui-même, qui n'en avait cure ni besoin, en
@@ -1128,21 +1104,6 @@ a chose! Vous figurez-vous que vous allez changer le
 “ lait vraiment à Yves de sa naïveté — et Yves quelque-
 —… fois trouvait que le ricanement d'Arverne avait quelque
 ; | chose de diabolique. Il sortait, meurtri.
-#
-
-PQ SE RME A NE EU DC RE ee De
-nd + ET. _ j d SR € ls à INTER LA.
-> 4 EE L ri * AU + 1 à M
-nes « À : 1 L: 7 SOSRECSRRERERERNES
-
-CN » Lei" TORRES Le
-
-ne ! 2, PES TUE RE ER Re 770 POELE RE re 2
-Fe À Les 7 DES PAP EEE
-> : pi HP RENTE
-| ARE et €
-
-Chez Périer
 
 a Cependant les vacances du jour de l'An étaient arri-
 
@@ -1225,9 +1186,7 @@ fs - Elle s'esclaffait, la moqueuse.
 …—…. — Dites donc en p'tite femme !
 —_ Et on entendait le gloussement de rire de Valentine,
 Ë — Boulon doit venir? Chouette alors !.. Et son
-#
 
-Yves Madec SA He:
 — Y z'ont dit qui viendraient, toujours, déclara : k
 Périer. Je leur z'ai dit que vous veniez ! Ÿ
 Périer, à demi levé, allumait sa pipe au verre de. 2€

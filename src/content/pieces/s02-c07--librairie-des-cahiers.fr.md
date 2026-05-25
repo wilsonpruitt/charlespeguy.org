@@ -297,8 +297,6 @@ Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
 La série de l'histoire contemporaine est ainsi
 I. — L'Orme du Mail.
-II. — Le Mannequin d'Osier.
-III. — L'Anneau d'Améthyste.
 Les quatre volumes, dans nos bureaux ou franco
 
 Vient de paraître chez Fasquelle, éditeur, dans la
@@ -355,7 +353,6 @@ désintéressée des pièces dont l'immense dossier se
 prépare. Et je voudrais uniquement apporter ma con
 tribution à ce dossier, laisser mon témoignage, dire ce
 
-que j'ai su, ce que j'ai vu et entendu, dans le coin de
 l'affaire où j'ai agi.
 
 En attendant, je me contente donc de réunir dans ce
@@ -380,7 +377,6 @@ Dreyfus, les quelques documents de mon action personnelle, dont j'ai tenu à lai
 
 Paris, le premier février 1901
 
-Ce volume contient
 M. Scheurer-Kestner, article paru dans le Figaro du
 
 Le Syndicat, dans le Figaro du premier décembre

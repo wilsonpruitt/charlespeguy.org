@@ -8,16 +8,10 @@ isAvertissement: false
 wordCount: 19435
 ---
 de la situation faite
-à l'histoire et à la sociologie
 dans les temps modernes
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ND HA TR TRES MR FRA RAR er ni) D MSN À
-
-4 fi ee, (HAN " x L es DA
-
-| Fe RNORES, |
 à Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, I900-1904, un si à
 ; grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un f
@@ -41,34 +35,22 @@ place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de X114+408 pages très denses, marqué cinq
 
-MAUR ee de : |
-
-1211 M TRRANNNSSSS ier cahier de la
-
 3 1e AATTRR 17 ati . remier ca , qui
 
-A it comme p ï HA
 | francs Do pt l'ont reçu à sa date, le 178
 Ltée EEUTS et nos abonnés PSE | AVES
 Meme sente ier cahier de la six 17
-CURE PARA 904 comme prem à b 1905 EL
 NE octobre n904: i jusqu'au 31 décembre à 0
 
 nte personne LS TE NES rie le rece- Qt:
 
 MORE tonte p tivement à la sixième série 1 PAR:
-Le MGR RAR ectiv 4. LULASES
-de Fa D rEros de son abonnement, en tête de la Fee
 js vai. D or contre un mandat de cinq francs Re
 'nsé rie; nous Door ous en fait la demande. MA 38
-5 to te personne qui n gt + a 1
 
-À RTE A F ‘rie, année ouvrière 1905-1906, re
-Ai ANSE la septième série, TROT ANS “08
 LL tee aisse le catalogue analytiq no
 AGE en attendant que p \ ing Séries, I904-1909, on 10
 Doi de nos deuxièmes ie 4 la petite table Hs:
-RÉ — provisoirement, — la LA Liu
 _ peut consulter, gr ue nous en avons établie'et me
 à ve ons ytique très somma pi du premier cahier de la 1148
 : ss ué nous avons publiée e “00
@@ -76,38 +58,11 @@ _ peut consulter, gr ue nous en avons établie'et me
 (Ai Pour ri talogue analytique sommaire, con UE
 da ose 1 ps provisoire que nous 1
 
-4 “a sulter le petit index alp HU Cet Cao ue) an alrs Une
 avons ét ‘index total de nos édi 7 RER
 D lique sommaire dans l'indes qe me premier: 10
 RAP 0 t premières séries, méêm Le
 |  rieures et de nos sep P : ci
-MM de la haitiôme s il
-RTL OR je
 
-ie LE) Fe CAEN CADRE na ui. MARS dns ITA fe \ Re PU
-
-es j'a ET OISE
-
-x ca & ° TES fe In? + L'ANRE 4
-
-TPE L A A fret VAE A RUN és EE MORE
-
-| P' AA Kit QU
-
-no HU HAS UE el NE PE RU
-è NUE NE Es AU AN are ( BEA LR ARC RACE
-( 14 EUX APS "te AUTRE CRT LE MRENÉ pins
-le | 1 Kg A fn MN TE 0 à
-Ÿ AE se Ft LRU (LE AlS Feu
-
-\ Ed nt 4, j i ar Et
-| À L'HISTOIRE ET A LA 50 À
-! : CTI ATENTIONS ; pics e LES
-
-2 ONE ji DS A D NET HAN ANNE La SANS
-
-| DE LA SITUATION FAITE
-! à l'histoire et à la sociologie
 dans les temps modernes
 Je me propose de rechercher jusqu'à un certain point
 quelle est la situation faite à l'histoire et à la sociologie
@@ -125,7 +80,6 @@ son front, car alors elle n'exigerait pas moins que de j
 - ramasser en passant tout le monde, comme en Beauce
 et on voit ces couples attelés et ces équipes de moisson-
 É neuses-lieuses mécaniques sur un même front de biais
-a 9 de la situation. — x.
 
 s'avancer au pas des chevaux, moissonnant, ramassant Fr
 et liant tout le vaste monde sur une grande largeur- 4;
@@ -219,7 +173,6 @@ soit la matière.
 Ainsi en ce qui concerne la certitude l'histoire est
 indépendante de la sociologie et la sociologie est indé-
 pendante de l'histoire; chacune des deux n'a que sa
-certitude à soi, s'il y en a; en ce qui au contraire con-
 
 : cerne l'incertitude, l'histoire est indépendante de la
 sociologie, mais la sociologie est dépendante de l'histoire. :
@@ -231,7 +184,6 @@ En ce qui concerne la certitude et l'incertitude, l'histoire est également ind�
 qui concerne la certitude, la sociologie est encore indé-
 pendante de l'histoire; mais en ce qui concerne l'incer-
 
-eat DE LA SITUATION FAITE
 | titude cette indépendance cesse de fonctionner : la
 sociologie devient dépendante de l'histoire. ÿ
 En ce qui concerne la certitude, la sociologie est
@@ -268,7 +220,6 @@ Toute preuve de certitude administrée pour l'histoire
 n'est valable que pour l'histoire, et tout est à recommencer pour la sociologie superposée; toute preuve
 d'incertitude au contraire administrée contre l'histoire
 est automatiquement valable et rien n'est plus à recommencer contre la sociologie superposée.
-à Par un effet de ce mécanisme même et de ce jeu, |
 toute recherche poursuivie sur l'histoire et sur la sociologie doit se poursuivre séparément sur lhistoire et
 | séparément sur la sociologie, et elle doit commencer ;
 par l'histoire, et n'entreprendre la sociologie que quand
@@ -287,7 +238,6 @@ utilité; mais ce serait se ménager les déceptions les ;
 plus graves que de s''imaginer qu'en général on à
 recevra des historiens beauéoup de secours dans cette W
 
-: GORE DE LA SITUATION FAITE il
 55 _ J'entends des historiens qualifiés ou professionnels. 4
 “ _ Et c'est peut-être parce que Taine et Renan n'étaient |
 ÿ w pas autant qu'on le croit, autant qu'eux-mêmes le À
@@ -346,7 +296,6 @@ c'est-à-dire d'hommes qui recherchent passionnément la |
 vérité des événements passés, particulièrement des
 événements humains, et qui le plus ordinairement la !
 
-| DE LA SITUATION FAITE
 trouvent, dans la mesure où nous verrons qu'il est pos-
 $ sible de la trouver.
 Quand un jeune homme ou quand un homme de
@@ -402,7 +351,6 @@ science un peu moins cinéraires, c'est au personnel actuel
 de l'enseignement secondaire qu'il faudra les demander.
 Ce n'est point en multipliant les internats, les instituts,
 
-| Ne Fe. Fiae DE 1 SITUATION FAITE 1
 eur les vases clos qu'on les obtiendra jamais: nl L.
 ne c'est en donnant honnêtement les moyens de vivre en 1
 travaillant à ceux qui se sont mis dans les conditions a
@@ -467,7 +415,6 @@ ne serait rien; c'est la probité au contraire qui est
 centrale; un homme qui a de la probité, manquant
 d'instruments, a beaucoup plus de chances d'avoir accès
 
-4 mont DE LA SITUATION FAITE
 ' à quelque vérité qu'un homme qui n'a que des instru- )
 ments, manquant de probité.
 De très grandes découvertes scientifiques, les plus
@@ -494,7 +441,6 @@ les professeurs. Pensez donc : s'ils allaient enseigner
 quelque atome de réalité, transmettre quelque atome
 
 de sens de la réalité. A leurs élèves. Il n'y aurait plus 10
-de gouvernement. Il sent bien qu'il y a là un ennemi, et = |
 l'ennemi le plus redoutable. Toute bureaucratie, rasse, à |
 
 a en horreur et tient en persécution ce sentiment, ce.
@@ -530,7 +476,6 @@ des joints hermétiques, une succession de bourses com- ï
 et d'écoles, jusqu'aux tièdes sinécures des secrétariats ÿ
 et des bibliothèques, les conduisent, les font arriver 4
 
-RD ve LA SITUATION FAITE :
 jusqu'à l'enseignement de l'histoire universelle sans 4
 … jamais avoir éprouvé les courants d'air de la vie. nn.
 :te Ce sont enfin des filiformes. 1
@@ -581,7 +526,6 @@ de l'érudition. Les maniaques de l'érudition, comme |
 tels, ont été réglés définitivement par la Bruyère, et, |
 naturellement aussi, ce règlement n'a servi à rien.
 Ces sortes de règlements n'ont jamais servi à rien.
-« Hermagoras », de la société et de la conversation,
 LxxIV, Hermagoras, dit la Bruyère, « ne sait pas qui
 est roi de Hongrie; il s'étonne de n'entendre faire
 aucune mention du roi de Bohême : ne lui parlez pas
@@ -594,9 +538,7 @@ et les moindres détails; rien ne lui est échappé : ül
 débrouille de même l'horrible chaos des deux empires,
 le Babylonien et l'Assyrien; il connaît à fond les
 Égyptiens et leurs dynasties. Il n'a jamais vu Versailles ;
-il ne le verra point : il a presque vu la tour de Babel;
 
-ri La QUES à
 il en compte les degrés; il sait combien d'architectes 4
 ; ont présidé à cet ouvrage; il sait le nom des archi- 3
 tectes. Dirai-je qu'il croit Henri IV (Henri le Grand) fils |
@@ -606,7 +548,6 @@ minuties! dit-il, pendant qu'il récite de mémoire toute e
 | une liste des rois des Mèdes ou de Babylone, et que les k
 noms d'Apronal, d''Hérigebal, de Noesnemordach, de è
 Mardokempad, lui sont aussi familiers qu'à nous ceux ,
-de Varois et de BourBox. Il demande si l'empereur a à
 jamais été marié; mais personne ne lui apprendra que 4
 Ninus a eu deux femmes. On lui dit que le roi jouit
 | d'une santé parfaite; et il se souvient que Thetmosis,
@@ -630,8 +571,6 @@ lautre; et il ajoute qu'il y a des auteurs graves qui J
 
 à Hermag'oras n'est point seulement un maniaque, et il
 ù n'est point seulement ce qui est beaucoup plus, un |
-
-“je 25 de la situation. — 2 |
 
 Na caractère de la Bruyère; cest un don des grands & |
 
@@ -671,8 +610,6 @@ allemandes et françaises. Dans quel sens et dans
 
 h quelle mesure nous-mêmes pouvons dire que nous les
 
-|
-
 | De cette étude, intitulée Zangwill, où pour partir
 
 nous nous étions éclairés de Renan et de Taiïne, et dont
@@ -697,7 +634,6 @@ _ ment désigné pour apercevoir les immenses difficultés De
 E* . point de ces historiens qui ne méditent pas. On pourrait dE.
 24 presque dire au contraire que la méditation était son k #4
 à … état naturel, et en outre son état de prédilection. Qu'elle î A
-“faisait le fond de sa nature et de sa vie mentale et Fe
 “_ sentimentale. Il était breton. Il avait été catholique. Il "5e
 _. était de race catholique. Il était demeuré catholique et Ée
 généralement chrétien un peu plus qu'il ne le croyait, De:
@@ -774,9 +710,7 @@ homme n'arrivera jamais au bout, car il y en aurait 4
 ë pour une éternité. Car au delà des difficultés il y a les M
 impossibilités, et les contrariétés insurmontables. Les 4
 <A autres sont des hommes de facilités, de possibilités 4
-29 de la situation. — 2. x
 
-et de dérivation. Il est un homme de difficultés, d'im- N
 à possibilités, d'inhibitions, un homme d'arrêt. Un homme +} |
 impopulaire et désagréable. Un raté en un certain 4
 s sens, et presque par définition, puisque ce qu'il veut . ;
@@ -795,8 +729,6 @@ le fil de l'eau. Il ne quittera plus ce poste que pour À
 encore, tournant délibérément le dos aux autres qui 4
 descendent le courant, de remonter plus haut encore :
 dans des régions encore plus inaccessibles. Les autres °
-| suivent le fil de l'eau de l'art, et de la science, et de À
-la vie. Lui au contraire il a entrepris de remonter le ;
 courant de l'être. S'il peut. SE:
 Ce Telleest l'association provisoire précaire, plutôt apparente, et aussitôt après telle apparaît la dissociation
 profonde éternelle, réelle, de tout travail humain : au ;
@@ -806,7 +738,6 @@ stallent ensemble, au même point, comme une amicale à
 compagnie. C'est presque ce que nous modernes nommons une coopérative, moins les disputes. Mais apparente association : tout aussitôt après, aux premiers à
 mots de conversation, la scission éternelle intervient ;
 
-58 on lol | DE LA SITUATION FAITE | IS
 ins lantanée ; artistes et savants, toujours ensemble, : k “
 H0 descendent la facilité du fleuve; et leur tournant le dos, A4
 les solitaires philosophes entreprennent de remonter. W
@@ -825,13 +756,11 @@ _ d'aller et de venir en leur entière liberté par-dessus ‘Xe
 4 ce point de fatale divorsion, en leur entière unité par- f À L
 . dessus ce point de démembrement, d'une marche con- à
 à _tinue par-dessus ce point de capitale discontinuité. “4
-| Ainsi Michelet. 20
 ; _ Les autres prennent les occupations ; les philosophes ea
 se réservent, dans toute la force étymologique du mot, +28
 les préoccupations. Un homme comme Michelet cumule ‘13
 dans un courant et dans un tourbillonnement de vie “4
 Pa d'une puissance insurmontable les occupations et la 25
-| préoccupation. :3ù
 au Le jour que l'on voudra bien se demander un peu LA
 . … profondément ce qui fait un de ces hommes essentiels, D.
 un peintre essentiel comme Rembrandt, un musicien dk 4 4
@@ -898,18 +827,15 @@ vont. Et les autres qui viennent. Ce sont les uns qui j 4
 montent. Et les autres qui descendent. Et sans ; #4
 doute vaut-il mieux qu'il en soit ainsi. :
 Nous savons par l'histoire des sciences, des arts et 4
-de la philosophie, surtout en ce que la troisième a eu k
 de connexe aux deux premières, ou plutôt nous savons \
 
 par l'histoire des savants, des artistes et des philosophes, #2
-\ surtout en ce que la troisième a eu de connexe A
 aux deux premières, que les savants et que les artistes il
 professionnels qui ont voulu se mêler de métaphysique n …}
 y ont généralement fort mal réussi, et les savants, il 1
 faut leur faire cette justice, encore beaucoup plus mal, a
 s'il est possible, que les artistes. Il est fort heureux que : 1
 les historiens professionnels n'aient généralement pas ‘à
-eu la pensée de se mêler de métaphysique, et même Ë
 généralement de philosophie, car on ne voit pas de raïi- D:
 son pour qu'ils y eussent réussi davantage. Et ainsi .
 à nous aurions peut-être beaucoup plus de métaphysique ù
@@ -931,7 +857,6 @@ intelligents que nous connaissons, et cette engeance
 à _ pullule à Paris en France, haïssent mortellement le 23
 | génie et les œuvres du génie. C'est même le seul sen- 1
 _  timent sincère qu'on leur connaisse. “40
-ni QU
 PR Tout autre est la situation d'un Renan, et c'est une D
 . situation presque véritablement unique. D'une part en \ 1
 effet il n'est point un de ces hommes essentiels, c'est-à- il
@@ -946,7 +871,6 @@ physiques, philosophiques, religieuses. Mais ses occu- +08
 _ Tantôtilétait d'un côté, tantôt il était de l'autre. Tantôt ni
 Pi il se mouvait dans ses occupations. Tantôt il se mouvaïit ! DRE
 fe: dans ses préoccupations. Il était deux hommes. Mais ne
-ti . jamais il ne passait de l'un à l'autre d'un mouvement UK
 _ continu. Tantôt il était d'un côté de ce point de discon- (oi
 __ tinuité. Tantôt il était d'un autre côté, de l'autre côté. DU s)
 Jamais il n'obtint, jamais il ne réalisa cette suppression fl
@@ -990,7 +914,6 @@ monde. Un Michelet au contraire n'est jamais discernable comme historien de ce q
 ni comme philosophe de ce qu'il est comme historien.
 On ne peut jamais le prendre sur le fait. Il n'est jamais
 
-t& à ra + DE LA SITUATION FAITE ‘à
 Ja coupable. Il n'est jamais saisissable comme l'un ou 14
 4 _ comme l'autre. Son œuvre, en ce sens, défie toute 8
 _ analyse et se présente indissoluble. 10
@@ -1091,7 +1014,6 @@ d'avoir connu le premier livre des Princrres, dans lequel 4
 sont contenues ces [choses] qui tirées des Métaphy- |
 siques pour les Physiques etc. sont nécessaires à savoir. .
 | Telles sont les limites et les conditions imposées par +
-un Descartes à l'adminisiration de la métaphysique A
 dans nos administrations générales. Au moiïns pour le
 temps, l'importance, la relation. Pour l'usage, lutilsation. Mais le souci métaphysique ressort toujours, r
 déborde des limites, brise les conditions. Il est difficile ë
@@ -1110,7 +1032,6 @@ hommes, ce qui domine aujourd'hui, c'est, à beaucoup
 près, ce que nous nommons ici la métaphysique, et 4
 c'est vraiment ce qui en reste. Ainsi Renan. Son histoire 4 |
 
-4e Lu AND) DE LA SITUATION FAITE de
 4 ni passera, elle est déjà passée pour sa plus grande part. 4
 ae Mais ses préoccupations ne passeront point. Que lisons- nn
 ka nous de lui aujourd'hui, sinon, aux deux extrémités de ‘à
@@ -1194,7 +1115,6 @@ comme par hasard, fussent embarrassants, pour lui. 4
 Cela aussi est éminemment moderne. Et comme il À
 annonçait les modernes et les préparait, du même geste 4
 
-nor DE LA SITUATION FAITE 1
 FA il nous les représentait, du même geste il devenait, il 4 )
 af se faisait un de leurs plus éminents, peut-être leur plus h
 \ éminent représentant. Chez les classiques jamais un L:
@@ -1226,7 +1146,6 @@ L _ plus. C'est un immense et perpétuel détournement d'en- 114 À
 | Hs confiance, et il y aurait même dans le langage des tribu- We L
 …_ naux correctionnels un mot technique, le nom d'une ne
 
-| 1 ST SENNON |
 sorte particulière de vol, qui désignerait mieux, et qui . À |
 suffirait à désigner ce genre d'opération. ILestincroyable M]
 déjà qu'un intellectuel ait pu, aussi constamment, Al
@@ -1261,7 +1180,6 @@ monde de feinte. Ce monde vieillard. Ou plutôt ce monde b:.
 vieillot. Cela est contre nature, presque hors nature, et 4
 .. 44
 
-| £ DE LA SITUATION FAITE 4
 vraiment monstrueux. Il fallait aussi qu'il eût gardé,
 1 aggravé la prudence ecclésiastique. Et enfin il y allait 4
 du caractère même de cet homme : ici apparaît déjà, 4
@@ -1290,9 +1208,6 @@ d'une première vieillesse, avait clos une première vie.
 Donc il n'était plus jeune. Et ce n'est pas en vain qu'il
 avait quitté la communion des fidèles pour l'agrégation
 de philosophie.
-| 45 de la situation. — 3.
-|
-|
 
 Je me rangerais volontiers à cette explication, à cette.
 leçon, à cette version, à cette sorte de défense et de 3
@@ -1356,8 +1271,6 @@ le chemin de nos recherches, fit semblant de dépar- +
 tager les anciens partis et les départagea réellement, :
 - _ maïs ne les départagea, réellement, que pour instituer ;
 
-DR dE te RD
-
 des partis nouveaux; et non pas, comme on lPavait |
 
 espéré, comme on nous l'avait dit, et formellement pro- |
@@ -1372,7 +1285,6 @@ antidreyfusiste. Et le peuple naturellement les suivit. ù
 Parce que le peuple naturellement va du côté de la
 
 puissance. Et non pas du côté de la justice ni de
-la vérité. Ou il ne va du côté de la justice ou de la vérité
 
 que pourvu qu'elles soient accompagnées de puissance, |
 ou qu'elles promettent, qu'elles annoncent un très prochain accompagnement de puissance. Les intellectuels
@@ -1386,7 +1298,6 @@ nombre, surtout s'il est très grand; etsuivre la puissance.
 Et les intellectuels vont naturellement du côté de la
 
 puissance. Et non pas du côté de la justice ni de la
-vérité. Ou ils ne vont du côté de la justice et de la
 vérité que pourvu qu'elles soient accompagnées de
 puissance, ou qu'elles promettent, qu'elles annoncent un
 très prochain accompagnement de puissance. Ils aiment
@@ -1396,8 +1307,6 @@ mais particulièrement quand c'est le leur, et qu'il ne
 s'agit plus que de gouverner tout le monde. Or pour
 exercer le gouvernement, dans nos sociétés démocratiques, et même dans les autres, il vaut mieux,
 
-ee CU US Ne Eee à at RO
-3 en principe, être du côté où il y a beaucoup de
 & Tel fut le mécanisme, schématisé, de cette immortelle ;
 À affaire Dreyfus, tel est le mécanisme, schématisé, de
 À toutes les grandes affaires humaines, et aussi de toutes
@@ -1522,7 +1431,6 @@ acharnés à la défendre. lis se conforment ainsi au
 grand principe de la conservation. Ils ont à la fois tous
 les avantages de la solidité, politique et sociale, et
 
-pr ae DE LA SITUATION FAITE fi Ÿ
 j _ ensemble toutes les incommutables joies du vieil d.
 _ orgueil. Ils ont été des héros, peut-être authentiques, —
 une fois dans leur vie. Mais ils ne savaient pas ce que 0
@@ -1618,7 +1526,6 @@ demeurer fidèle à la justice doit se faire incessamment 4
 k tenir, — j'entends cette expression au sens où l'on dit :
 . tenir sa foi, — que les puissances modernes ont des ï
 
-| Charles Péguy +R
 sanctions implacables. Généralement toutes. Mais particulièrement les puissances modernes intellectuelles,
 | devenues politiques, ont des sanctions plus implacables
 encore, et plus redoutées, que les puissances politiques
@@ -1771,8 +1678,6 @@ borateur et de notre ami René Litalien. A |
 Cette question particulière et le problème général M
 ï qu'elle introduit et représente a été de toutes paris si ‘$ |
 
-| ASC AE Ve rer Ga ARE ENT RE xt An REA
-D On ji ieh PRET de
 complètement résolu qu'il a été pour ainsi dire presque 1
 trop complètement résolu. La solution a été tellement De. j
 | parfaite qu'enfin elle est trop parfaite. 1
@@ -1799,7 +1704,6 @@ _  cultés, les impossibilités, les contrariétés métaphysiques "4
 ii eur vie dans des diflicultés infiniment plus difliciles, 2 #
 ARE ns des impossibilités infiniment plus impossibles, +
 de ns des conirariétés infiniment plus contraires, enfin à Fe
-SR 61 de la situation — 4 tt
 
 dans des métaphysiques infiniment plus grossières, qui 4
 sont proprement les difficultés, les impossibilités, les > 4
@@ -1816,7 +1720,6 @@ que ce monde moderne, les introducteurs, füt-ce très NM
 lointains et très perdus, de n'importe quel autre monde, |
 à venir, d'un tiers monde, d'une tierce création, d'une 4
 Tout eût mieux valu, et infiniment, que ce monde
-: Si Renan et à sa suite et par le ministère de sa
 représentation le monde moderne entier ne s'étaient 1
 pas engagés dans cette voie d'être le monde moderne, Ë
 comme nous le connaissons, comme et tel que nous ÿ
@@ -1833,9 +1736,6 @@ Il n'y aurait plus pour nous aucun problème. La |
 situation, la déjà ancienne et classique situation |
 d'homme qui a quitté l'Église, qui a perdu le sentiment ‘ai
 
-|
-|
-
 religieux, qui a quitté le christianisme, qui particulièrement a quitté le catholicisme, qui de sa personne à
 : quitté l'état ecclésiastique est aujourd'hui si parfaitement connue, d'une connaissance si claire et si intellec-
 \ tuelle, nous l'avons connue par tant de personnes
@@ -1845,7 +1745,6 @@ fréquente. C'est la situation de beaucoup d'hommes
 et l'on pourrait presque dire aujourd'hui de beaucoup
 de peuples.
 
-Il n'y a de problème que, mais il y a un problème
 énorme, un problème de relation et de comparaison,
 parce que du même geste qu'ils quittaient l'Église, du
 
@@ -1880,14 +1779,6 @@ K Qu'il se soit abonné à l'insipide revue que le monde M
 | Et non seulement ce qui fait le problème c'est ce singu
 | lier abonnement nouveau. Mais c'est la liaison, la rela-
 \ tion de ce désabonnement à cet abonnement nouveau.  #
-| CnarLes PéÉcux Le |
-
-ses
-
-: RES HIEiT SES QE de
-
-ET se ee ci y FR
-UE de Var | "RU
 
 Il a été tiré de ce cahier treize exemplaires sur 4 |
 ”  whatman ainsi distribués : 4 |
@@ -1908,10 +1799,6 @@ en caractères fin dix-huitième siècle (Didot) de la fon- A
 derie Mayeur (Allainguillaume et compagnie sueces- ‘M
 seurs) 21, rue du Montparnasse, à Paris, sixième 14
 
-}, 4 VrdERESr ASH 4 LES fi 4. Mira NAN (Te. ©
-N° ATIES de”
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, |
 rez-de-chaussée, Paris, cinquième arrondissement. me |
 Nos Cahiers sont édités par des souscriptions men- ja |
 suelles régulières et par des souscriptions extraordi- 4 |
@@ -1943,11 +1830,6 @@ méro d'inscription qui devient automatiquement le "M
 
 ; numéro du tirage réservé à chacun des souscripteurs; M
 l'édition sur whatman est strictement limitée au |
-
-Li ES jù ju j ja de ENT dau it d
-à Le fee ONU DER AC PAT A xl NS LEA ji RE Ah hobbies HITENS Ras :
-A MAN PEUT) 2 de A SAR AE OS GE à, Mit):
-, ; AE RP vr il
 
 Pour tout changement d'adresse envoyer soixante nn. |
 centimes, six timbres de dix centimes. à “fi |

@@ -10,12 +10,6 @@ wordCount: 39348
 4 ‘ paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-£a QNN OUT 0 ce 93 Dei cé
-#7 4. 48)
-
-ATOS AA ‘ie à. Le SET I ee UE Pa Fr. RENE
-APE AVS R OUEN RE NE NE A KI Pier TUE ee ALPINE 3010
-
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, 1900-1904, un si
 grand nombre de documents, de textes formant dos- |
@@ -41,9 +35,7 @@ dans l'ordre ; il sufjit de le Lire pour trouver, à leur « « place, les réf�
 Ce catalogue, in-18 grand jésus, forme un cahier
 
 {rès épais de X114-408 pages très denses, marqué cinq
-|: MONS c
 
-ART UE ni \f He “D LAURE) mn N \ (as VEN nd # y
 franc s; ce ca ier comptait comme premier cahier de la
 | sixième série et nos abonnés l'ont reçu à sa date, le PAL
 2 octobre 190%, comme premier cahier de la sixième pa
@@ -66,19 +58,9 @@ de _ avons établi automatiquement de ce catalogue analy- A
 _ rieures et de nos sept premières séries, même premier #4
 _ Cahier de la huitième série. We.
 
-re MA Ce AE TE oaste RME: (tr a LA
-
-# ‘ l PR LNES 1 Liu à.
-ans A L# AE MAMA Ta dit 2
-L ui PAT,
-# |: 2 A0 LA
-#1 A Ÿ La LES)
-Le. MAC te
-
 1 , aux Cahiers de la Quinzaine at.
 110 Le présent petit index donne automati- #4
 180 quement pour tout volume et tout cahier 4
-| 170 indiqué : ; j
 FE CA a) le numéro d'ordre de ce cahier dans “
 \ le classement général de nos collections ‘4
 … FER complètes, le numéro d'ordre de la série ‘2
@@ -87,7 +69,6 @@ Tee _ du cahier lui-même, dans la série ainsi #
 déterminée, en chiffres arabes, de sorte : 88
 n. ‘que V-17 par exemple doit évidemment se 42
 ER FAUN lire dix-septième cahier de la cinquième td,
-RU) r \ b) la date du bon à tirer, ou, à son dé- ‘4
 | 3 RER faut, la date du fini d'imprimer, ou, à son . PE.
 
 De . défaut, la date du cahier même; .
@@ -106,12 +87,6 @@ un cahier épuisé, n'est plus mis en vente que dans les col- : 1
 
 _ lections complètes de la deuxième série............... 99 3444
 
-des à Fa ioN M
-
-LOC ONE APE PR A CRT “toi 1
-
-du même auteur TRES FT pi
-
 Romain Rolland, — une introduction à une lettre inédite |
 de Tolstoi, adressée à Romain Rolland (Il-9, samedi
 22 février 902: 44. sense eee eee es OU ES
@@ -126,7 +101,6 @@ deuxième édition, sans le masque (IV-10,, mardi 22 septembre 1903..:...,......
 1903, un cahier épuisé, n'est plus mis en vente que dans
 les collections complètes de la cinquième série ..... 297
 — —  — — le mème sous couverture Fischbacher,
-— — Jean-Christophe. — I. — L'aube (V-9, mardi 2 jé-
 — — Jean-Christophe. — I. — L'aube, — édition Ollendorff, en vente à la librairie des cahiers.................
 — — Jean-Christophe. — I. — Le matin; la mort de
 — — Jean-Christophe. — IL. — Le matin, — édition
@@ -139,19 +113,6 @@ LE LP) — Vies des hommes illustres, — la vie de Michel- (LEE
 _ — — Vies des hommes illustres, — la vie de Michel
 
 _ Ange, — II. — l'abdication (VIII-2, mardi 16 octobre 1906... Ho
-> 1 T8 ROME A.
-
-+ KLs ts où
-
-1 LD} ju gr TT De
-
-L'an] daté NU Gus Lt ik
-
-L: Lt aus
-
-UNE "À tal
-
-# ni 12 : NA | l'A
 
 Note du gérant. — De ce petit index il résulte que
 Jean-Christophe se compose présentement de quatre
@@ -174,9 +135,7 @@ seront complètement épuisés, ils ne seront plus mis en L
 vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries ellesmêmes viennent en voie d'épuisement puis soient complè-
 tement épuisées. Alors ils ne seront forcément plus mis
 L en vente du tout. :
-1 9 Jean-Christophe. — x.
 
-1). d'étude Das Lt, 2 RE JU Le Le. \ POUR
 | quatrième cahier de la huitième série
 A dater du jour où ces trois cahiers seront portés aux
 prix d'épuisement, nous ne mettrons plus en vente pour
@@ -197,7 +156,6 @@ cinquième arrondissement. On recevra par le retour
 du courrier les trois cahiers indiqués ci-dessus ;
 
 _ Pou Pre atre premiers livres de Jean-Chris-
-| RON ER LUE PRET Lot : e : D D?
 tophe, il suffit d'envoyer un mandat de dix-neuf francs ÿ
 cinq nante à M. André Bourgeois, même titre, même #
 _ adresse. On recevra par le retour du courrier : +718
@@ -206,21 +164,8 @@ _ le présent cahier formant la première partie du qua_ trième livre; +*: V0
 MA: Let l'on recevra le jour même de leur publication : "SR
 25 _les deux autres cahiers formant les deux autres par- 1
 … ties de ce quatrième livre. EL
-: RES le gérant 34
 | SES : Charles Péguy que"
-4 POIRIER du RO Pali rà jé \ r4f das S'AEVLEERS S
 
-| 188 ARTE
-CAL EE L r l'ai
-
-* ja de A TL dr © n
-st te $ KG CE NERO
-
-# À È . ‘4 MA M 4 tal 1
-
-# ? ls Apt ra
-
-: AR Rule qe rs rte tré « - L » i
 _ Au seuil d'une nouvelle série de l'histoire de Jean- 1
 _ Christophe, dont le caractère de critique un peu vive 7
 | risquera bien souvent de blesser tour à tour les lecteurs
@@ -232,7 +177,6 @@ k pour corriger nos erreurs, Vaincre nos préjugés, et à
 élargir de jour en jour notre pensée et notre cœur ? à
 _ Patience! Faites-nous crédit, si nous nous trompons.
 ; Nous savons que nous nous trompons. Quand nous 4
-|
 _ reconnaîtrons nos erreurs, nous les condamnerons plus |
 _ durement que vous. Chaque jour, nous nous efforçons : 9
 _ d'atteindre un peu plus de vérité. Lorsque nous serons ts
@@ -240,33 +184,6 @@ _ d'atteindre un peu plus de vérité. Lorsque nous serons ts
 _ Comme dit un vieux proverbe, « la fin loue la vie, et le à
 | 6
 _ soir le jour ». |
-Roman ROLLAND î
-in Le
-
-2) ta LR AT TNE "re RTE NN
-tt ï . Mo“ et. VAS
-| L CAT 4 { ut
-| HA EURE
-| £ ï
-# $ (où à
-13 n An di ne
-
-Ru oi BR UY ET U ASE) Shi À
-
-ina ds de
-[a LS DA 8 Qu: nt Aer L die +
-| È Le k LM Le % N
-CA n ta DANS:
-nt): UN ti jy
-
-nue ÿ AGE x ; L Ne LS LOL TURN È A NI fi SA H 2; Ai
-je ‘A tr À #
-| j
-
-Jo Need nt LA AE A VAL
-140 AP Les FN Jeis
-1) Li on ft)
-Y3RES ta ; ei! v
 
 Libre! Il se sentait libre! Libre des autres et de lui_ même! Le réseau de passions, dont il était lié depuis un
 | an, venait brusquement de se rompre. Comment? Il
@@ -291,7 +208,6 @@ rien ne le liait plus à rien. Il était seul... Seul! Quel
 l'hallucination des figures aimées et détestées! Quel
 bonheur de vivre enfin, sans être la proie de la vie,
 d'être devenu son maitre!.….
-# ;
 
 KE L Il rentra dans sa maison, blanc de neige. Il se seco FECE
 ? gaiement, comme un chien. En passant près de sa mère,
@@ -322,10 +238,7 @@ h d'êtres. Il n'y distinguait rien, la tête lui tournait; il
 h intérieure, qui, comprimée depuis des mois, éclatait
 ‘# + comme un printemps soudain,
 Eu Sa mère l'appelait à déjeuner. Il descendit, la tête
-| 22 #
-de L à \' 4 Ertale
 
-ni oE UNIT 17 SABLES MOUVANTS d
 | étourdie, comme après une journée au grand air; mais k
 une telle joie rayonnait en lui, qué Louisa lui demanda [38
 ce qu'il avait. Il ne répondit pas; ül la prit par la taille, |
@@ -361,7 +274,6 @@ F ment serré autour de la tête, ses cheveux blanes, ses
 k indulgent. Il lisait toutes ses pensées en elle. Il lui dit,
 à — Cela vest bien égal, hein? tout ce que je te
 | Elle protesta faiblement : « à — Mais non, mais non! fo |
-È — Mais si, mais si! Va, ne t'en défends pas. Tu as. 1
 f} raison. Aime-moi seulement. Je n'ai pas besoin qu'on
 À me comprenne, — ni toi, ni personne. Je n'ai plus
 À besoin de personne, ni de rien, maintenant : j'ai lout en 1
@@ -388,7 +300,6 @@ retirer les monstres qu'il voit luire dans l'eau. Il les
 laisse passer. Plus tard!
 La barque flotte au gré du vent tiède et du courant
 insensible. Il fait doux, soleil, et silence.
-Jean-Christophe. — 2
 
 ê Languissamment enfin, il laisse tomber les filets. 1
 à Penché sur l'eau qui grésille, il les suit du regard, 4
@@ -397,7 +308,6 @@ Jean-Christophe. — 2
 KR tire, ils deviennent plus lourds; au moment de les sortir, \
 nr il s'arrête pour prendre haleine. Il sait qu'iltient sa proie, “4
 & il ne sait quelle est sa proie : il prolonge le plaisir de
-1 l'attente. ; de
 hi Enfin, il se décide : les poissons aux cuirasses irisées
 E apparaissent hors de l'eau; ils se tordent comme un nid ‘1
 À de serpents. Il les regarde curieusement, il les remue du
@@ -408,13 +318,11 @@ nt, nuances pâlissent, ils se fondent entre ses doigts. I les
 nr Il est plus avide de voir, l'un après l'autre, tous les
 4 rêves qui s'agitent en lui, que d'en garder aücun:ils lui
 1 semblent plus beaux, quand ils flottent librement dans À
-L le lac transparent... VE à 4
 F Il en pêchait de toutes sortes, tous plus extravagants les uns que les autres. Depuis des mois que les Ë
 idées s'amassaient en lui, sans qu'il en tirât parti, ll
 # crevait de richesses à dépenser, Mais tout était pêle-
 | o mêle : sa pensée était un capharnaüm, un bric-à-brac de
 } juif, où étaient empilés dans la même chambre des LA
-| r
 
 | objets rares, des étoffes précieuses, des ferrailles, des k hi
 4 _guenilles. Il ne savait pas distinguer ce qui avait le plus ‘4
@@ -437,10 +345,7 @@ _ réduisaient à un ou deux traits, pas plus : c'était assez.
 ; Comme les très jeunes gens, il croyait avoir créé ce pe
 _ qu'il rêvait de créer. $
 
-#
-
 1 4
-| \
 Mais il était trop vivant pour se satisfaire longtemps
 | de ces fumées. Il se lassa d'une possession illusoire, il
 voulut saisir ses rêves. — Par lequel commencer? Ils
@@ -500,9 +405,6 @@ as ! Je t'apprendrai à mentir, chenapan! A l'eau, monsieur, à l'eau! -
 Il s'enfonçait la figure dans sa cuvette, et il la maïintenait sous l'eau, jusqu'à ce qu'il étouffât. Quand il
 sortait de là, écarlate, les yeux hors de la tête, et souf-
 
-29 Jean-Christophe. — 2.
-
-| 1804 Jean-Christophe
 EF flant comme un phoque, il allait précipitamment à sa
 \ table, sans prendre la peine d'éponger l'eau qui ruisseEx lait en rigoles autour de lui; il saisissait les compo- |
 | sitions maudites, et il les déchirait avec rage, en |
@@ -556,7 +458,6 @@ gré le malaise qui vous oppresse, on sent passer dans if
 _ ses veines le feu qui brûle l'univers. L'âme soûle à
 \ bouillonne dans la fournaise, comme le raisin dans la 118
 
-me, Jean-Christophe
 ne: cuve. Des milliers de germes de vie et de mort la tra4 vaillent. Qu'en sortira-t-il? Elle l'ignore. Comme la
 ‘44 femme enceinte, elle se tait, le regard perdu en elle,
 K elle écoute, anxieuse, le tressaillement de ses entrailles,
@@ -599,9 +500,6 @@ en lui, dont nulle flamme de vie ne sortira jamais!
 Malheur à l'âme qui ne se sent point féconde, lourde de |
 vie et d'amour, comme un arbre en fleurs, au printemps! Le monde peut la combler d'honneurs et de
 bonheurs : il couronne un cadavre. |
-|
-
-ET ROLE RCE pus Rs fus) d + ÿ
 
 ( Quand Christophe était frappé par le jet de lumière,
 
@@ -712,12 +610,9 @@ unique, et inintelligible, parce qu'elle était au-dessus de
 
 L l'intelligence. Cependant, qu'elle la comprit ou non, (
 
-# | din: al
-
 _ l'intelligence avait le besoin de donner un nom à cette
 _ force, de la rattacher à une des constructions logiques
 l que l'homme élève infatigablement dans la ruche de son
-| cerveau.
 Ainsi, Christophe se convainquait — il voulait se
 convaincre — que l'obscure puissance qui l'agitait avait
 un sens précis, et que ce sens s'accordait avec sa
@@ -728,7 +623,6 @@ ainsi qu'une juxtaposition mensongère d'un de ces
 grands sujets que l'esprit de Christophe s'était tracés,
 et de ces forces sauvages qui avaient un tout autre
 sens, que lui-même ignorait. |
-Jean-Christophe. — 3
 
 À Il allait à tâtons, tête baissée, emporté par les forces |
 È contradictoires qui s'entrechoquaient en lui, etjetant au
@@ -758,7 +652,6 @@ k l'esprit de chaque race; ils varient de l'une à l'autre :
 A1 c'est devenu pour lui une condition de vie; iln'yaque
 F. quelques génies qui peuvent s'en dégager, à la suite de
 
-à ETS GOT Le fs ET rs F3 KE? tnt 4 vi
 crises héroïques, où ils se trouvent seuls, dans le libre PR
 Que univers de leur pensée. F3 0
 _ Ce fut une occasion insignifiante qui révéla brusque- 2
@@ -767,11 +660,7 @@ _ ne l'avait point vu jusque-là, ce n'était pas faute de 4
 W l'avoir toujours eu sous les yeux ; mais il en était trop “1
 _ près, il manquait de recul. Maintenant, la montagne lui “10
 _ apparaissait, parce qu'il s'en était éloigné. À À
-#l = AL
 
-|
-
-#
 Il était à un concert de la Städtische Tonhalle. Le
 concert avait lieu dans une vaste halle, occupée par dix
 ou douze rangées de tables de café, — environ deux ou
@@ -795,7 +684,6 @@ tout le monde s'efforçait à parler et à manger bas. Le
 | Herr Konzertmeister, grand vieux homme voûté, avec
 une barbe blanche, qui lui pendait comme une queue |
 au menton, et un long nez recourbé, muni de lunettes, !
-| fo Ë
 
 4 . avait l'air d'un philologue. — Tous ces types étaient
 ; depuis longtemps familiers à Christophe. Mais il avait
@@ -826,8 +714,6 @@ la" poésie de Schumann prenait vaguement ainsi une $
 odeur fade de nursery. Le public était dans l'extase.
 | — Mais l'attention devint solennelle, quand parut la
 Société chorale « des hommes allemands du Sud »
-| 4x
-|
 
 ls (Suddeutschen Männer  Liedertafel), qui tour NL our .
 susurrèrent et mugirent des morceaux d'orphéons,
@@ -920,7 +806,6 @@ BL. de rire. Des « chut ! » indignés s'élevèrent. Ses voisins "4
 À le regardèrent avec effarement; ces bonnes figures
 scandalisées le mirent en joie : il rit de plus belle, il
 A rit, il pleurait de rire. Pour le coup, on se fâcha. On
-À cria : Q A la porte! » Il se leva, et partit, en haussant 4
 les épaules, le dos secoué par un accès de fou rire.
 j Cette sortie fit scandale. Ce fut le début des hostilités
 f entré Christophe et sa ville. 1
@@ -960,9 +845,6 @@ d'amour que jamais l'abondance généreuse de la vie:
 son cœur ne le trompait point... k
 
 Longtemps encore, il n'osa pas toucher à ceux qui
-45 Jean-Christophe. — 3.
-
-D TO on DRM dv  <
 
 he étaient pour lui les meilleurs, les plus purs, le Saint des L
 Saints. Il tremblait de porter atteinte à la foi qu'il avait |
@@ -1016,7 +898,6 @@ le vocabulaire imparfait dont il les désignait. Beaucoup
 
 É mais le secret de leur langue était mort avec eux.
 
-OO sages MOUVANTS je NU
 _ Christophe n'était point psychologue, il ne s'embarF rassait pas de toutes ces raisons : ce qui était mort
 À pour lui l'avait toujours été. Il revisait tous ses juge-
 -. ments sur le passé avec l'injustice sûre d'elle-même et
@@ -1078,8 +959,6 @@ jamais rien qu'il n'eût vraiment senti. Mais, justement,
 pire fausseté de l'art allemand n'était pas quand ses
 artistes voulaient exprimer des sentiments qu'ils ne
 sentaient point, mais bien plutôt quand ils voulaient
-|
-M ne db: Ml
 
 ‘4 exprimer des sentiments qu'ils sentaient — et qui
 étaient faux. La musique est un miroir implacable de
@@ -1104,8 +983,6 @@ salon. Siegfried et Brünnhilde, en bons mariés allemands, dans la Gæœtterdæ
 | plus énorme ne s'était aflichée que dans ce théâtre qui
 % prétendait renverser toutes les conventions. Ni les yeux,
 ÿ ni l'esprit, ni le cœur n'en pouvaient être dupes, un
-
-|
 
 { instant ; pour qu'ils le fussent, il fallait qu'ils voulussent 1
 ! l'être. — Ils le voulaient. L'Allemagne se délectait de
@@ -1139,7 +1016,6 @@ k montagne de pierre et leurs tours gigantesques aux |
 ii flèches ajourées ? — Mais il souffrait de leurs mensonges,
 * et il ne pouvait les oublier, Il les attribuait à la race, et |
 
-| En ._ SABLES MOUVANTS
 leur grandeur à eux-mêmes. Il avait tort. Grandeur et \
 faiblesses appartiennent également à la race, dont
 _ la pensée puissante et trouble roule comme le plus .
@@ -1162,8 +1038,6 @@ _ et entend autour de lui, l'enfant absorbe une telle ù
 somme de mensonges et de sottises mélangées aux
 ._ vérités essentielles de la vie, que le premier devoir de
 __ l'adolescent qui veut être un homme sain est de tout 3
-|
-|
 
 Christophe passait par cette crise de robuste dégoût.
 Son instinct le poussait à éliminer de son être tous les
@@ -1263,7 +1137,6 @@ L pris juvénile pour l'hypocrisie qui l'entourait, ou pour |
 1 de malheurs et d'épreuves qui forgent pour la vie les
 4 peuples qui veulent vivre. |
 
-Je cit ODA MARNE RAT MCE TONER AQU A ne rfi
 Cependant, Christophe composait; et ses compositions n'étaient pas exemptes des défauts qu'il reprochaïit
 aux autres. C'est que la création était chez lui un |
 besoin irrésistible, qui ne se soumettait pas aux règles
@@ -1276,7 +1149,6 @@ avec l'héritage écrasant d'habitudes paresseuses, transmis par les génératio
 les gens, ou les peuples, qui ont la manie indiscrète de É
 _ laisser parler leur cœur — de le faire parler — sans re- Ë
 pos, quand il n'aurait rien de mieux à faire, le plus
-| souvent, qu'à se taire. |
 Le cœur de Christophe était bien allemand, en cela : ni.
 il n'avait pas encore appris la vertu de se taire; |
 * d'ailleurs, elle n'était pas de son âge. Il tenait de son 1
@@ -1287,7 +1159,6 @@ tenait une autre contre l'hérédité non moins fâcheuse
 | qu'il tenait de son grand père : une difficulté extrême
 à s'exprimer exactement. — Il était fils de virtuose. |
 
-e7 . Jean-Christophe POSE A
 Il sentait en lui le dangereux attrait de la virtuosité:
 : vité musculaire satisfaite, plaisir de vaincre, d'éblouir,
 | de subjuguer par sa personne le public aux mille
@@ -1346,7 +1217,6 @@ faciles, le dimanche, attablées à quelque Piergarten.
 
 Mais d'ordinaire, il trouvait les poètes, même les plus
 
-ii | Jean-Christophe
 % grands, trop littéraires; et il cherchait de préférence les
 is textes les plus simples : des textes de vieux Lieder, de
 il vieilles chansons spirituelles, qu'il lisait dans un manuel
@@ -1377,8 +1247,6 @@ D ce qu'il disait avait été, ou non, dit avant lui. Il avait
 4 celte plénitude intérieure, d'une vie illimitée devant lui,
 + le jetait dans un état de bonheur exubérant et un peu
 
-RUN 7". SABLES MOUVANTS ne
-
 indiscret. C'était une jubilation de tous les instants. ”.
 Elle n'avait pas besoin de la joie, elle pouvait s'accom- A
 moder de la tristesse : sa source était dans son trop-plein 4
@@ -1402,8 +1270,6 @@ autres sa conviction, — de vaincre. Instinctivement, il Ÿ
 comparait ses richesses à la pauvreté générale des Nr:
 fabricants de notes; et il pensait qu'il serait bien facile #
 de faire reconnaître sa supériorité. Trop facile, même. 4
-Ïl n'avait qu'à se montrer. j
-Il se montra. } |
 
 On l'attendait.
 
@@ -1433,7 +1299,6 @@ Mais on ne tarda pas à trouver qu'il y revenait trop
 évident que Christophe croyait à ses paradoxes ; et cela
 parut moins drôle. I était compromettant; il manifestait |
 en plein concert sa bruyante ironie, ou il exprimait son
-#
 
 dédain pour les maîtres glorieux, de la façon la moins
 voilée, en quelque lieu qu'il se trouvât.
@@ -1457,8 +1322,6 @@ côté des anciennes, dans le registre à son nom. Les
 . unes éclairaient les autres. Aux ressentiments de la
 morale offensée s'ajoutèrent ceux du bon goût scandalisé. Les plus indulgents disaient de lui :
 
-— Il cherche à se singulariser.
-
 Mais la plupart aflirmaient :
 
 Une opinion non moins sévère et plus dangereuse
@@ -1470,7 +1333,6 @@ avec une indécence révoltante sur le compte de maîtres
 vénérés; il avait, disait-on, appelé l'Elias de Mendels-
 
 . sohn« des patenôtres de clergyman hypocrite », et traité
-| (0: Jean-Christophe. — 4
 
 di certains Lieder de Schumann de « musique de Back- FE
 | Jisch » : — et cela, quand les augustes princes venaient
@@ -1532,7 +1394,6 @@ __ méritait cette place, puisque la cour était pour lui. Mais
 à il avait trop bonne opinion de lui-même, pour ne pas
 L croire qu'il l'eût méritée davantage, si la cour l'eût
 
-à Jean-Christophe "mm
 mieux connu. Aussi accueillait-il d'un singulier sourire
 les effusions de Christophe, quand celui-ci arrivait au
 théâtre, le matin, avec une figure qui s'efforçait d'être
@@ -1566,11 +1427,9 @@ choix, dans le fatras de ses œuvres, d'une ouverture
 pour la Judith de Hebel, dont la sauvage énergie
 l'avait attiré, par réaction contre l'atonie allemande,
 bien qu'il commençât déjà à s'en dégoûter un peu,
-ayant eu l'intuition de ce qu'il y a de guindé dans ce
 parti-pris d'avoir du génie, toujours et à tout prix. Il y
 avait joint une symphonie, qui portait le titre empha- 4
 
-, tique du Bæcklin de Bâle : « Le Songe de la Vie », et
 l'épigraphe : « Vita somnium breve ». Une suite de ses
 Lieder complétaient le programme, avec quelques
 œuvres classiques, et une Festmarsch de Ochs, que
@@ -1598,15 +1457,12 @@ de plomb, et il y avait une tragédie dans chaque
 phrase. Christophe la pria de modérer un peu sa puissance dramatique. Elle s'y appliqua d'abord d'assez
 bonne grâce; mais sa lourdeur naturelle et le besoin
 
-. 65 Jean-Christophe. — 4.
-
 de donner de la voix l'emportaient, Christophe devint |
 nerveux, Il fit remarquer à la respectable dame qu'il |
 avait voulu faire parler des êtres vivants, et non le serpent Fafner, avec son porte-voix. Elle prit — comme
 l'on pense — fort mal cette insolence. Elle dit qu'elle |
 savait, Dieu merci! ce que c'était que chanter, qu'elle |
 avait eu l'honneur d'interpréter les Lieder de Maître
-Brahms, en la présence de ce grand homme, et qu'il ne
 se lassait point de les lui entendre dire. |
 — Tant pis! Tant pis! cria Christophe.
 Elle lui demanda, avec un sourire hautain, de vouloir
@@ -1656,7 +1512,6 @@ qu'iniporte? — Aimable! Aimable! La force! cela
 | suffit. Qu'elle aïlle son chemin, et qu'elle emporte tout,
 \ comme le Rhin!
 Il eut une première déconvenue, Le grand-duc ne vint
-#
 
 RE ait Jean-Christophe ML: ‘A
 pas. La loge princière ne fut occupée que'par des com- |
@@ -1756,9 +1611,7 @@ que Christophe lui avait faites, la veille, Christophe, qui ;
 l'accompagnait, blémit, Il prévoyait cette rébellion, Au
 premier changement qu'elle fit, il tapa sur le piano, et
 dit avec colère :
-| — Non! : &
 
-sie a LA MOUVANTS
 | Elle continua. Il lui soufilait dans le dos, d'une voix
 sourde et furieuse : ,
 
@@ -1797,8 +1650,6 @@ Quand elle eut fini, le public la rappela avec frénésie.
 
 | Ce n'étaient pas les Lieder qu'il applaudissait; — (elle
 | 91
-
-si Jean-Christophe FRLANRIINRS
 
 en eût chanté d'autres, qu'il eût applaudi de même) —
 c'était la chanteuse célèbre et vieillie sous le harnoïs : |
@@ -1859,10 +1710,6 @@ ennemi ne guidait, le silence. Laissé à ses propres
 pensées, le grand public ne pense rien : — cela va sans
 dire.
 
-#4
-À Jean-Christophe. — 5
-
-EG s: de pie dité ÿ, Lil RUE AS e
 Christophe fut atterré. +
 | Son échec n'avait pourtant rien de surprenant. Il
 y avait trois raisons pour une, pour que ses œuvres
@@ -1919,15 +1766,12 @@ il faut que l'odeur s'évapore au souflle du temps.
 L'œuvre d'art ne commence à leur être intelligible que ;
 quand elle est recouverte de la crasse des ans.
 
-Mäis Christophe ne pouvait admettre qu'on ne le
-
 - comprit pas quand il était présent, et qu'on le comprit
 
 … quand il était passé. Il préférait croire qu'on ne le com-
 
 “ prenait pas du tout, en aucun cas, jamais. Et il enra- |
 
-is Jean-Christophe ON
 44 geait. Il eut le ridicule de vouloir se faire comprendre,
 de s'expliquer, de discuter, bien que cela ne servit à
 À rien : il eût fallu réformer le goût du temps. Maiïs il ne
@@ -1942,8 +1786,6 @@ préparer sa pensée à loisir, et forcer ensuite le public à
 l'entendre.
 Et juste, à point nommé, son étoile — sa mauvaise
 étoile — vint lui en offrir les moyens. |
-|
-|
 
 Il était attablé au restaurant du théâtre, dans un
 cercle de musiciens de l'orchestre, qu'il scandalisait par
@@ -1964,18 +1806,13 @@ paroles de Christophe réveillaient en lui bien des
 doutes ; mais il n'avait pas le courage de se les avouer,
 ni surtout d'en convenir tout haut, — moitié, par peur
 de se compromettre, moitié, par modestie, par défiance
-de soi.
 Weigl, le corniste, ne voulait rien savoir; il voulait admirer, qui que ce fût, quoi que ce fût, bon ;
 | ou mauvais, étoile ou bec de gaz : tout était sur le
-
-|
 
 £ même plan: il n'y avait pas de plus et de moins dans
 son admiration : il admirait, admirait, admirait. C'était
 
 à pour lui un besoin vital; il souffrait, quand on voulait |
-
-- le limiter. : |
 
 Le violoncelliste Kuh souffrait bien davantage. Il
 aimait de tout son cœur la mauvaise musique. Tout ce
@@ -2009,7 +1846,6 @@ pérés, Krause disait des coq-à-l'âne, et Spitz criait d'une
 L fort que les autres; et il disait des choses énormes sur
 l'Allemagne et les Allemands. |
 
-un JM its CSS Sn
 | A une table voisine, un jeune homme l'écoutait, en se |
 tordant de rire. Il avait les cheveux noirs et bouclés, de
 beaux yeux intelligents, un nez volumineux, qui, arrivé
@@ -2039,10 +1875,8 @@ de se présenter :
 R Il s'excusa d'avoir été assez indiscret pour suivre la
 . discussion, et il le félicita de la maestria, avec laquelle
 
-MU 0 © 7 Jean-Christophe MAR: Ai
 S il avait pulvérisé ses adversaires. Il riait encore, en y
 ; pensant. Christophe le regarda, heureux, un peu
-| méfiant : |
 — C'est sérieux? demandat-il, vous ne vous moquez
 pas de moi? A |
 : . L'autre jura ses grands dieux. La figure de Christophe |
@@ -2066,13 +1900,8 @@ chages séniles qu'on veut que nous admirions, « cet !
 et qui fera loi demain parce qu'il a fait loi aujourd'hui.…..! »
 Il récita quelques vers du passage fameux de
 
-Lui ROSES SRE |
-| ju SABLES MOUVANTS
-
 — Et lui, tout le premier ! — s'interrompit-il au milieu
 de sa récitation.
-
-— Qui? demanda Christophe.
 
 — Le pompier qui a écrit cela!
 
@@ -2106,8 +1935,6 @@ disiez qu'il y a des vivants qui sont plus morts que les
 encore jeune.
 
 — Eh bien, s'il est encore jeune, nous le retrouverons de nous-mêmes... Mais je n'en crois rien. Ce qui a
-
-| 81 Jean-Christophe. — 5.
 
 j _ été bon une fois, ne l'est jamais une seconde fois. y L
 a de bon que le changement. Ce qu'il faut avant tout, |
@@ -2185,8 +2012,6 @@ $ elles avaleront tout. 1
 à le droit de tout dire : ;
 ; berté absolue! Chacun de nous est libre. |
 
-ts PT NC MR AL EUR AP TON AUOT ER TT
-
 Il vint le relancer au théâtre, une troisième fois, le
 soir, après la représentation, pour le présenter à Adalbert von Waldhaus et à ses amis. Ils l'accueillirent
 avec cordialité.
@@ -2212,7 +2037,6 @@ tout ce qu'il possédait : mais il ne possédait jamais rien;
 
 | 85
 
-JE | Jean-Christophe * "VOOR"
 si et quoiqu'il pestât bruyamment contre la ladrerie de
 , son père, en lui-même il en riait et trouvait qu'il avait
 raison. Au bout du compte, il n'y avait guère que
@@ -2244,7 +2068,6 @@ mépris tranquille et sans bornes. Il n'ignorait pas qu'ils
 étaient bien aises de se servir de son nom et de son
 argent; et il les laissait faire, pour avoir la douceur |
 de les mépriser. |
-| : 86
 
 Et ils le méprisaient aussi de les laisser faire : car ils :
 savaient très bien qu'il y trouvait son profit. Donnant,
@@ -2272,7 +2095,6 @@ risquaient à faire un coup d'éclat, ou de réclame, à partir
 bruyamment en guerre contre une idole du jour, —
 _ qui commençait à branler, — ils avaient soin de ne pas
 
-ÿ Jean-Christophe
 « brûler leurs vaisseaux : en cas de danger, ils se rembarquaient. Quelle que fût d'ailleurs l'issue de la campagne, — quand elle était finie, il y en avait pour
 longtemps avant qu'on recommençât; les Philistins
 pouvaient dormir tranquilles. Tout ce que cherchaïent
@@ -2302,9 +2124,7 @@ busqué, écrivait dans la Revue les modes et la chronique mondaine, Il disait d
 voix caressante; il avait de l'esprit, mais méchant, et
 souvent ignoble. — Tous ces jeunes millionnaires étaient
 anarchistes, comme il convient : c'est le suprême luxe, |
-il
 
-| SABLES MOUVANTS
 quand on possède tout, de nier la société; car on se
 dégage ainsi de ce qu'on lui doit. Tel, un voleur qui,
 après avoir détroussé un passant, lui dirait : « Qu'est-ce
@@ -2403,7 +2223,6 @@ Elle n'osa rien dire à Christophe, quand il lui annonça
 qu'il dinerait, le soir, chez les Mannheim; mais elle eut
 le cœur un peu serré. Elle pensait qu'il ne fallait pas
 croire tout ce qu'on disait de méchant contre les Juifs — |
-(on dit du mal de tout le monde) — et qu'il ya de ”
 braves gens partout, mais qu'il était mieux pourtant et |
 plus convenable que chacun restât chez soi, les Juifs de
 leur côté, et les chrétiens d'un autre. |
@@ -2440,7 +2259,6 @@ n'avait eu l'occasion d'approcher l'élite de la société
 Le dîner chez les Mannheim avait donc pour lui l'attrait de la nouveauté, et, un peu, du fruit défendu.
 L'Ëve qui lui présentait ce fruit le rendait plus savou-
 
-M SE féan- CRRSTOPRE TRE ne
 M" reux. Depuis l'instant qu'il était entré, Christophe À
 14 n'avait plus d'yeux que pour Judith Mannheim. Elle
 appartenait à une espèce différente de toutes les femmes
@@ -2513,7 +2331,6 @@ si sentir maîtresse. Mais elle ne s'attardait point à sa vice
 chose de mort. Elle portait en elle le génie de la curio-
 \ sité et de l'ennui. |
 4 4
-#1 à
 
 Ainsi, elle regardait Christophe, qui la regardait. Elle
 parlait à peine. Il lui suffisait d'un sourire imperceptible, au coin de la bouche : Christophe était hypnotisé
@@ -2537,8 +2354,6 @@ force. Elle sut faire parler Christophe sur tout ce qu'elle
 voulut, dévoiler sa pensée, montrer lui-même les limites
 et les manques de son esprit; elle lui fit jouer du piano:
 elle n'aimait pas la musique, mais elle la comprenait ;
-
-j 97 Jean-Christophe. — 6
 
 4 et elle entrevit parfaitement l'originalité RU. 0 k
 
@@ -2585,8 +2400,6 @@ reconnu sur-le-champ qu'il y avait « quelque chose » |
 dans ce garçon. Mais il ne s'intéressait pas à la
 musique, ni aux musiciens : ce n'était pas là sa partie, |
 
-il n'y connaissait rien, et il ne le cachait pas; il s'en
-
 À vantait même : — (quand un homme de cette sorte
 
 | avoue une ignorance, c'est pour en tirer vanité.) —
@@ -2617,7 +2430,6 @@ Alors, il peut réussir?
 — Oui, je crois. Il est fort. 4
 . — Très bien, — dit Lothar, avec la logique magnifique des, forts, qui ne s'intéressent qu'aux forts, — il ÿ
 faudra donc l'aider. |
-|
 
 Christophe emportait, de son côté, l'admiration de
 Judith Mannheim. Il n'était pourtant pas épris, comme
@@ -2673,9 +2485,7 @@ l'amour. N'étant pas amoureux, l'amour lui semblait
 médiocre, au prix de l'amitié. |
 Judith ne tarda pas à sentir la nuance, et elle en fut
 blessée. Elle n'aimait pas Christophe, et elle excitait
-IOI Jean-Christophe. — 6.
 
-| L1RARAS Jean-Christophe D SRE
 ; assez d'autres passions parmi les jeunes gens de la ville,
 riches et d'un meilleur rang, pour qu'elle ne pût éprouver
 | une grande satisfaction à savoir Christophe amoureux.
@@ -2740,7 +2550,6 @@ se rendre victime de ce qu'on pense ? Penser vrai :
 certes ! Mais à quoi bon dire vrai ? Puisque les hommes |
 sont assez bêtes pour ne pouvoir supporter la vérité, |
 
-ag HS Jean-Christophe" "MN .
 faut-il les y forcer ? Accepter leur faiblesse, paraître s'y
 plier, et se sentir libre dans son cœur méprisant, n'y
 a-t-il pas à cela une jouissance secrète ? Jouissance
@@ -2854,7 +2663,6 @@ mille raisons de l'être, — la fille intelligente et dédaigneuse du banquier 
 faire comme la première venue de ces petites bourgeoises
 allemandes, qu'elle méprisait.
 
-| Q 0 1
 L'expérience fut courte. Christophe perdit ses illusions sur Judith presque aussi vite qu'il les avait 3
 prises. Il faut rendre cette justice à Judith qu'elle ne fit
 rien pour qu'il les gardât. Du jour où une femme '
@@ -2877,7 +2685,6 @@ dans les cœurs d'artistes, quand ils ne sont pas entièrement absorbés par leu
 suffit à la leur donner; ils voient en elle toute la beauté ‘4
 qui est en elle et qu'elle ignore elle-même, dont elle ne ne
 
-| SABLES MOUVANTS
 se soucie pas. Et ils l'aiment d'autant plus qu'ils savent
 qu'elle ne s'en soucie pas. Ils l'aiment comme une belle
 chose qui va mourir, sans que personne ait su son prix, R
@@ -2906,9 +2713,7 @@ toutes celles du monde, ramassées sur son chemin. Ce
 n'était pas encore là qu'il pouvait trouver le point -
 d'appui pour poser le levier de son art. Il risquait bien
 plutôt de s'engloutir avec elle dans le sable du désert.
-109 Jean-Christophe. — 7
 
-Jean-Christophe SU UPS,
 Ayant vu le danger, et ne se sentant pas assez sûr de
 lui-même pour le braver, il cessa brusquement d'aller
 é chez les Mannheim. Il fut invité plusieurs fois, et
@@ -2918,7 +2723,6 @@ venir, un changement aussi soudain fut remarqué : on le
 mit sur le compte de son « originalité »; mais aucun
 des trois Mannheim ne douta que les beaux yeux de
 Judith n'y fussent pour quelque chose : ce fut un sujet
-de plaisanterie, à table, de la part de Lothar et de
 Franz. Judith haussa les épaules, en disant que c'était
 une belle conquête; et elle pria sèchement son frère
 .. « de ne pas lui monter de bateau ». Mais elle ne négligea rien pour que Christophe revint. Elle lui écrivit,
@@ -3048,8 +2852,6 @@ On fut seulement choqué du ton général; on s'accordait
 
 à le trouver peu convenable, surtout de la part d'un j
 
-| 114 > 1
-
 cèrent à s'agiter et protestèrent avec aigreur : ils pré-
 
 voyaient que Christophe n'en resterait pas là. D'autres
@@ -3078,9 +2880,7 @@ félicitait d'avoir découvert Gade, Dvorak, ou Tschaikowsky; il s'extasiait sur
 orchestrer pour son prochain concert l'École de la Vélocité de Czerny; et il le conjurait de ne pas tant se fatiguer, de ne pas tant se passionner, de ménager sa pré-
 cieuse santé. — Ou c'étaient des cris d'indignation à
 
-Fe ” cé PF à % ; F "h du Jean- 0 ristophe ns ET TPS À #7
 propos de la façon dont il avait conduit l'Héroïque de
-| Beethoven :
 
 — « Un canon! Un canon! Mitraillez-moi ces gens-là ! |
 .… Mais vous n'avez donc aucune idée de ce que c'est
@@ -3119,10 +2919,6 @@ qu'il les nommait, il l'était moins encore pour les k
 écuyers de cirque de l'orchestre, pour les Xapellmeister |
 illustres qui venaient en tournée faire admirer leurs |
 
-# | *4
-
-ri Lt SNS NES ES ON ASS
-| SABLES MOUVANTS
 | ronds de bras et leurs mains fardées, ceux qui exer-
 çaient leur virtuosité sur le dos des grands maîtres,
 s'évertuaient à rendre méconnaissables les œuvres les
@@ -3152,7 +2948,6 @@ maîtres, répriment avec soin tout élan de la pensée, et,
 comme E. d'Albert et H. de Bülow, quand ils disent une
 sonate passionnée, semblent toujours donner une leçon
 de diction.
-117 Jean-Christophe. — 3.
 
 1 Votil k Jean-Christophe
 
@@ -3258,7 +3053,6 @@ FN tout tremble encore autour de vous. L'œil ivre regarde
 fixement devant soi. Le cœur palpite, le souflle s'arrête,
 ; les membres sont paralysés… Et à peine la dernière \
 note a-t-elle résonné que vous êtes déjà gais et réjouis, À
-| N°
 
 vous criez, vous riez, vous critiquez, vous applaudissez!.… Mais vous n'avez rien vu, rien entendu, rien
 senti, rien compris, rien, rien, absolument rien! Les
@@ -3297,7 +3091,6 @@ bons principes, le mit hors de lui :
 | 121
 ,
 
-à “Jean-Christophe | NE
 génie ne se laisse pas mener dans les chemins battus.
 Il crée l'ordre, et érige sa volonté en loi. »
 
@@ -3380,8 +3173,6 @@ que ce ne serait point la sienne; il se croyait à l'abri
 tions ; et il ne voyait pas de mal à ce que les Juifs, ses
 
 alliés, fussent un peu houspillés. Ehrenfeld et Golden- |
-
-| : th id il
 
 ring, indemnes jusque-là, ne se fussent pas troublés de
 quelques attaques : ils étaient capables de répondre.
@@ -3509,7 +3300,6 @@ de soi que Wagner était pour lui le type du pur Aryen,
 dont la race allemande était restée le refuge inviolable
 contre les influences corruptrices du Sémitisme latin, et
 
-Ne PEN hi
 spécialement français. Il proclamait la défaite définitive de l'impur esprit français. Il n'en continuait pas
 moins, chaque jour, âprement le combat, comme si
 l'éternel ennemi était toujours menaçant. Il ne reconnaissait qu'un seul grand homme en France : le comte de
@@ -3592,7 +3382,6 @@ mêmes gens qui exaltaient Wagner, depuis qu'il était
 mort, n'eussent été des premiers à l'étrangler quand il
 était vivant : — en quoi il leur faisait tort. Un Kling et
 
-tr / Jean-Christophe Mi 54
 un Lauber avaient eu, eux aussi, leur heure d'illumina-
 
 tion; ils avaient été de l'avant, il y avait quelque vingt
@@ -3672,10 +3461,6 @@ veux plus appartenir qu'à moi.
 tout le monde? dit Mannheim. Tu ne peux pas faire
 jouer ta musique, à toi tout seul. Tu as besoin de chanteurs, de chanteuses, d'un orchestre, d'un chef d'orchestre, d'un public, d'une claque.
 
-Christophe criait :
-
-133 Jean-Christophe. — 8
-
 à Mais le dernier mot le fit bondir : :
 { — Une claque! Tu n'as pas honte? "ne
 — Ne parlons pas de claque payée, — (quoique ce soit,
@@ -3707,7 +3492,6 @@ un métier, Pourquoi ne ferais-tu pas aussi des souliers?
 — Ah! si j'étais un savetier comme l'incomparable
 Sachs! s'écria Christophe. Comme ma vie s'arrangerait
 | joyeusement! Savetier, les jours de la semaine, —
-17 y À du lai ne
 
 musiélen, le dimanche, et seulement dans l'intimité, |
 pour ma joie et pour celle d'une paire d'amis! Ce serait
@@ -3721,8 +3505,6 @@ l'orgueil et du désir de la gloire ne me prendra plus
 ‘aux cheveux : tu peux t'en fier à moi!
 
 — Assurément, dit Mannheim.
-
-Il pensait :
 
 — Dans une heure, il dira le contraire. 1
 
@@ -3749,7 +3531,6 @@ haussa les épaules, et dit : ï
 
 — Fou? Il voudrait bien le faire croire !.. Il est stupide, et d'un orgueil ridicule...
 
-|
 Cependant, Christophe continuait sa campagne enragée dans la revue de Waldhaus. Ce n'était pas qu'il
 y trouvât plaisir : la critique l'assommait, et il était sur
 le point d'envoyer tout au diable. Mais il s'entêtait, |
@@ -3804,9 +3585,6 @@ Mannheim n'y manqua point : ce fut un jeu pour lui.
 D'abord, il ne se risqua prudemment qu'à atténuer
 quelques termes, à laisser tomber çà et là quelques épi-
 
-137 Jean-Christophe. 8.
-
-h gû Li rY k PE Toi URre to a  : CETR PATES iQ
 thètes malgracieuses. Enhardi par le succès, il poussa
 plus loin ses expériences : il commença à remanier les
 phrases et le sens ; il déployait à cet exercice une vraie
@@ -3836,8 +3614,6 @@ Revue, déposait sa copie et ne s'en inquiétait plus. Quel-
 quefois, il lui arrivait de prendre Mannheim à part:
 
 — Cette fois, je leur ai dit leur fait, à ces canailles,
-
-Lis un peu...
 
 — Eh bien, qu'est-ce que tu en penses?
 
@@ -4050,7 +3826,6 @@ Ces pleutres au contraire, prostrés d'épouvante, ke
 étaient comme un troupeau à l'abattoir, qui attend N
 qu'on l'assomme. — Et pourtant, c'étaient là les meil-
 
-# | SABLES MOUVANTS x
 . leurs entre tous, les plus sincères : ils avaient voulu
 sortir du mensonge, ils avaient percé à jour l'hypocrisie
 des institutions sociales et des âmes pharisiennes. Mais,
@@ -4074,8 +3849,6 @@ la première œuvre du réalisme allemand. Le soleil
 ne s'était jamais levé. Comme chantait un de leurs
 
 (« Le ciel est gris. La mer est grise. Le cœur est
-
-145 Jean-Christophe. — 9
 
 Et naturellement, la belle cause de la vérité en art
 avait été aussitôt compromise par ses défenseurs débiles. b

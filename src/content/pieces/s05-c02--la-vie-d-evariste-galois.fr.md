@@ -10,7 +10,6 @@ wordCount: 28868
 Nos Cahiers sont édités par des souscriptions men-
 ‘ suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-Nous servons :
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;
 et des abonnements de propagande à douze francs.
@@ -64,8 +63,6 @@ cahier le mardi 13 octobre 1903.
 
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-IMPRIMERIE DE SURESNES (E, PAYEN, D RIDER) 9, rue du Pont. — 8002
-
 _  Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, Paris, toute la correspon-
 | dance d'administration et de librairie : abonnements et
@@ -87,7 +84,6 @@ He BERNARD-LAZARE. — L'Oppression des Juifs dans …
 l'Europe orientale. — Les Juifs en Roumanie, —
 È huitième cahier de la troisième série, un cahier de
 
-LA vd Li Li
 la vie d'Évariste Galois
 4 paraissant vingt fois par an
 L 8, rue de la Sorbonne, au rez-de-chaussée
@@ -97,19 +93,8 @@ _. il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 | arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième et de la quatrième
 La Nous mettons ce cahier dans le commerce; nous le
-pi 23 L sd RS
 
-TPE Hi ; Gran S de
-1430 UE RER (rl Eee on) CERTAIN k xs 28
-LETTRES RES ET en 2 Ac PE ‘
-# PE Ce 1 LU ne, Pr te
-ch FOR VRÉ vie 2 CAT A Eng se Fo D EU?
-y VE VE TONER er ARE n.- pe UT et DES
-M Te ui LES
-
-M CE SL PEN PEN NT DÉDE Wrele =
 Sur les vies publiées dans les éditions des cahiers "
 antérieures à la fondation des cahiers et dans les trois ei
 ‘ premières séries des cahiers, se référer aw ne
@@ -117,17 +102,6 @@ antérieures à la fondation des cahiers et dans les trois ei
 | forme de catalogue, un cahier de 52 pages, un franc #8
 . Nous publierons dans un cahier de la cinquième série
 le relevé sommaire des vies, biographies et bibliographies publiées dans les cahiers de la quatrième série.
-es L BE
-| LV 5
-# LES
-
-| MA Fe
-
-> + ds , Le Tr TS LS es PRES à at HS &
-D. Le +2 en à Cor,
-Fa [LE x HER Date S
-| 5 È Rae.
-Pndete > CRT RS ee RE A LT ENS Ne ADR E U COUPE: ES
 
 Les œuvres mathématiques de Galois forment un
 volume de soixante et une pages ; (1) l'auteur est mort
@@ -184,21 +158,9 @@ unique ? Combien de semaines de sa vie brève et agitée
 cet enfant de vingt ans at-il données à la science, qui
 lui doit tant ?
 
-ie M ne
-
 FREE La vie que l'on va lire a été publiée pour lp
 __ mière fois dans les Annales de l'École normale supé-
-# 2 Le Se CIS
 __ rieure, troisième série, tome XIII, 1896; ce tome est
-ns. | ou EN
-
-Re M ha RAT LR Ti PR Le es SE
-25 AR Mau RSS PRÉ PEE PE NE
-Dir 2 3% DETe" au LES LR pi SRE ? LA À 4
-
-#20) * CAR 1: # RER
-ET Tes "al ; 4x1 RO
-DURS NET pe , A verte Ras RAS nn sh Le ES # AA 1
 
 Les premiers éléments de cette étude ont été réunis
 au cours de recherches relatives à l'histoire de l'École
@@ -254,7 +216,6 @@ mis à la porte comme lui.
 
 celles du Bourg-la-Reine, de la Préfecture de la
 Seine, de ïhôpital Cochin, des prisons de la Conciergerie et de Sainte-Pélagie. Malheureusement celles de
-la Préfecture de police, de la cour et du tribunal de
 Paris, où devaient se trouver des notes intéressantes et
 toute la procédure de ses affaires judiciaires, ont été
 brûlées en 1871. Les collections de journaux du temps,
@@ -277,7 +238,6 @@ ou correspondances des principaux chefs du parti
 seront livrés au public, on y rencontrera sur Galois, et
 en particulier sur les circonstances dans lesquelles il a
 trouvé la mort, des renseignements nouveaux, propres
-1 à en éclaircir le mystère. Il m'a été impossible de le
 
 faire. à
 
@@ -368,7 +328,6 @@ Marie Demante, dont la famille, bien connue à la
 Faculté de droit de Paris, habitait le Bourg-la-Reine,
 (1) Archives de la Seine. : $
 
-| LA VIE D'ÉVARISTE GALOIS
 presque en face de la maison Galois. Là aussi, dans
 une aisance modeste, se conservaient depuis longtemps des traditions de culture intellectuelle dont
 Évariste Galois devait recueillir l'héritage dès son
@@ -1038,7 +997,6 @@ des révoltes de collégiens; une fois l'expansion passée,
 beaucoup songeaient à se faire pardonner dans le particulier la turbulence des démarches communes, (1) et,
 en tout cas, de l'aveu même de M. Guigniault, le directeur des études, quelques-uns des élèves étaient les
 (1) Gazette des Écoles.
-#00
 
 confidents de ses plus secrètes pensées. Rien de pareil
 à l'École polytechnique ; les élèves ne s'y occupaient ni
@@ -1322,8 +1280,6 @@ dans l'École. La gendarmerie, le 28 juillet!
 Le même jour, M. Guigniault nous dit avec son pédantisme ordinaire : « Voilà bien de braves gens tués de part et
 d'autre. Si j'étais militaire, je ne saurais à quoi me décider.
 
-Que sacrifier, ou de la liberté ou de la légitimité ? »
-
 Voilà l'homme qui, le lendemain, ombragea son chapeau
 d'une cocarde tricolore. Voilà nos libéraux doctrinaires ! -
 
@@ -1573,7 +1529,6 @@ interrompue dès le début.
 Enfin, le 30 décembre, le même journal publia la
 lettre suivante adressée à ses camarades par Galois :
 
-Mes camarades, 3
 $ Une lettre sans nom, signée simplement un élève de l'É-
 cole normale, a paru dans la Gazette des Écoles sur M.Guigniault, notre directeur. Vous avez cru devoir protester
 contre les interprétations données par l'auteur de cette
@@ -1758,7 +1713,6 @@ de Belleville, les Vendanges de Bourgogne, le 9 mai 1831 ; <
 deux cents républicains environ y assistaient; beaucoup avaient, pour protester contre la dissolution et la
 réorganisation de l'artillerie, revêtu le costume d'artilleur de la garde nationale auquel ils n'avaient plus
 droit. A la fin du repas, des toasts furent portés à la
-révolution de 93, à la Montagne, à Robespierre, et
 acclamés; d'autres à la révolution de 89 et à celle de
 1830, hués. Un artilleur s'écria : « Au soleil de juillet
 1831 ! puisse-t-il être aussi chaud que celui de 1830, et
@@ -1828,7 +1782,6 @@ intérêt si Drouineau, celui-là même qui avait hautes ment protesté contre l
 serment et ne s'était fait infliger une amende. Il fut
 _ bien établi que Galois n'était pas, comme il l'avait
 écrit à Chevalier, privé de raison par les fumées du
-> Gr
 
 vin; il n'y avait eu qu'une seule bouteille de vin devant
 chaque convive, et la plupart n'avaient pas été vidées;
@@ -1955,7 +1908,6 @@ quiétés. On leur fit voir qu'ils s'étaient trompés, mais
 inégalement, paraît-il, puisque Duchâtelet en fut quitte
 pour trois mois de prison, tandis que Galois en eut le
 
-Si l'on en croit un passage du journal de sa sœur,
 madame Chantelot, (2) cette condamnation surprit profondément Galois. Il ne pouvait se figurer que sa longue
 détention préventive ne serait pas jugée suffisante pour
 punir un aussi mince délit : il eut la naïveté d'en appeler
@@ -2060,7 +2012,6 @@ devine celui qui l'emportera sur l'autre; je suis trop
 impatient d'arriver au but: les passions de mon âge
 s'imprègnent toutes d'impatience ; la vertu même a ce
 vice chez moi. Voyez plutôt! je n'aime pas le vin; et sur
-un mot je le bois en me bouchant le nez et je me
 soûle !.. Savez-vous bien, mon ami, ce qui me manque ?
 Je ne le confie qu'à vous: c'est quelqu'un que je puisse
 aimer, et aimer de cœur seulement. J'ai perdu mon
@@ -2144,10 +2095,8 @@ Au moment où se passa cette scène, Galois n'était pas
 encore connu du personnel de la prison: c'était avant
 tout l'homme qui voulait tuer Louis-Philippe. On s'aper-
 çut sans doute à la longue de ce qu'il était réellement
-et de ce qu'il valait, car, au moment où le choléra
 de 1832 sévit avec le plus d'intensité, il fut l'objet d'une
 mesure de bienveillance motivée par le mauvais état
-de sa santé. On le fit sortir de la prison le 16 mars et
 on l'envoya dans une maison de santé de la rue de
 Lourcine. Mais il était marqué par le sort et cette bienveillance même fut cause de sa perte. Chez M. Faultrier,
 il fut prisonnier sur parole et noua l'intrigue d'amour
@@ -2312,8 +2261,6 @@ il tenait le plus, griffonnant sans cesse en marge : « Je à
 n'ai pas le temps, je n'ai pas le temps », et, aprèsavoir
 ainsi rédigé son testament scientifique, écrivit aux
 
-le
-
 patriotes républicains et à deux de ses amis les belles
 lettres (1) que voici :
 Lettre à tous les républicains
@@ -2338,8 +2285,6 @@ de mensonge, nette de sang patriote.
 Adieu ! j'avais bien de la vie pour le bien public.
 
 Pardon pour ceux qui m'ont tué, ils sont de bonne foi.
-
-Mes bons amis,
 
 J'ai été provoqué par deux patriotes... il m'a été impossible de refuser.
 
@@ -2439,7 +2384,6 @@ empêché les journaux de donner aucun renseignement détaillé sur
 la mort et les obsèques de Galois.
 (2) Registre d'inhumations du Cimetière du sud.
 
-| LA VIE D'ÉVARISTE GALOIS
 Du moins le tombeau ne l'a-t-il pas pris tout entier;
 
 les quelques pages qu'il a laissées ont suffi pour que la
@@ -2579,8 +2523,6 @@ s'occupe que de cette étude; il perd son temps ici et n'y
 fait que tourmenter ses maîtres et se faire accabler de
 punitions. Il ne se montre pas dépourvu de sentiments religieux, sa santé paraît faible.
 
-| Ë Rhétorique
-
 Note de M. Pierrot.—Travaille quelques devoirs. Dureste, °
 causeur comme à l'ordinaire,
 
@@ -2605,7 +2547,6 @@ chose que ce qu'il faudrait faire. C'est dans cette intention L
 sans doute qu'il bavarde si souvent. Il proteste contre le 4
 Note de M. Vernier. — Des dispositions. Succès qui serait À |
 plus grand si cet élève travaillait avec plus de méthode. à
-1 PREMIER TRIMESTRE de :
 : Note d'étude. — Conduite inégale et méritant souvent des ‘1
 reproches; il a travaillé avec ardeur, ses moyens sont sur- F
 prenants, ses progrès rapides. Son caractère est très iné- 24
@@ -2636,7 +2577,6 @@ Ses progrès sont proportionnés à l'étendue de ses moyens
 
 la vie d'Évariste Galois LE
 et à son goût pour les sciences. Son caractère est bizarre, * A
-et il affecte plus de bizarrerie qu'il n'en a réellement. Sa ‘1
 tenue dans les exercices religieux n'est pas toujours aussi ;
 bonne qu'on pourrait le désirer. Sa santé est bonne. : ‘%
 Note de M. Richard. — Conduite bonne, travail satisfai- 1
@@ -2656,15 +2596,12 @@ sonnalités grossières dont la pudeur publique a déjà fait +4
 maintes fois justice; nous comprenons parfaitement que 4
 les personnalités paraîtront toujours très grossières aux à
 
-1. LIT LI je nt APRES EEE à CN 4° di * A 1, Le
-
 gens qui veulent faire tranquillement leur chemin et sans
 qu'on les observe; à l'avenir, si nous voyons quelques
 personnes donner des coups de coude à droite et à gauche
 et renverser tout ce qui les gêne sur leur passage, nous
 ferons comme si nous n'avions rien vu et nous prendrons
 notre lorgnon pour prouver que nous avons la vue basse;
-au lieu de dire. grossièrement à M. Guigniault qu'il a su
 habilement profiter de la maladie de M. Gibbon, directeur
 des études à l'École préparatoire, pour se glisser à sa
 place, nous nous exprimerons d'une manière vague sur le
@@ -2720,7 +2657,6 @@ donner suite. D'ailleurs les élèves avaient, du premier $
 
 ” moment, pris l'initiative, par un désaveu unanime, qui =
 pouvait suflire à leurs consciences, mais qui ne suffisait ni 4
-à la justice, ni à ma dignité. Ke
 
 L'auteur de la Gazette ayant, dans son numéro d'aujour- ñ
 d'hui, décliné ce désaveu, et, d'une autre part, Galois m'étant 118
@@ -2780,8 +2716,6 @@ que l'ordre est la condition de la liberté.
 
 (En marge de cette lettre se trouve le brouillon de l'arrêté ;
 d'exclusion, de la main de M. Cousin.) ;
-| ar
-|
 Le 14 décembre, nouvelle lettre de M. Guigniault au
 Ministre pour lui adresser la copie d'une lettre « qu'envoie à la Gazette, par l'intermédiaire de ses camarades, l'un }
 de nos meilleurs élèves placés cette année.., jeune homme
@@ -2843,16 +2777,13 @@ dans les Journées. J'étais du nombre de ces élèves. Nous
 nous rendîmes chez le Directeur, qui devait assister avec
 nous au convoi; nous avions tous pris les couleurs nationales; seul, il n'avait point de cocarde : « Messieurs, nous
 
-ne
 la vie d''Épariste Galois RATER
 dit-il, vous m'avez devancé, mais il y a longtemps que nous
 la portions dans notre cœur; on peut la porter là aussi. » ;
 Nous savions tous qu'il disait vrai...
 (Communiquée par le fils de cet élève, M. L., normalien
 lui-même)
-Mon cher Prosper,
 Des événements d'un caractère très grave se sont passés }
-à l'École depuis que je ne t'ai vu; et je vais Ven parler, |
 quoiqu'ils ne m'aient pas atteint; tu pourrais croire en
 lisant certains journaux que je suis impliqué dans l'affaire.
 Un de mes condisciples, mauvais sujet s'il en fut, du '
@@ -2898,8 +2829,6 @@ de l'École, est venu nous dire adieu...
 
 (Archives du Ministère de l'Instruction publique) ”
 
-Sur le rapport de M, le conseiller Cousin,
-
 Vu le rapport de M. Guigniault, directeur de l'École normale, relatif au renvoi provisoire de Galois et les motifs à
 l'appui,
 
@@ -2917,10 +2846,8 @@ Profession de répétiteur.
 Né au Bourg-la-Reine, département de Seine-et-Oise /sic); |
 demeurant lors de son arrestation à Paris, rue des Bernardins numéro 16. |
 Amené de la Conciergerie.
-DAnbe ie. > ONE NPA NE
 L'an mil huit cent trente-deux, le 22 janvier, le dénommé 1
 en l'écrou ci-contre a été transféré à la Force, par ordre
-de M. le Préfet de police.
 Réintégré le 31 janvier 1832. É 1
 Transféré à la maison de santé du sieur Faultrier, rue de 4
 l'Oursine numéro 86, le 16 mars 1832.
@@ -2937,7 +2864,6 @@ date du 3 décembre 1831, a confirmé purement et simplement le jugement ci-dess
 Pour extrait conforme délivré à M. le Procureur général
 ce requérant.
 
-Le greffier en chef,
 (Archives de la Préfecture de la Seine. — Reconstitution
 des actes de l'Etat-civil)
 
@@ -3024,7 +2950,3 @@ et sur la balle les rainures que ces angles ont produites.
 Six onces de sang étaient épanchées dans le petit bassin,
 des adhérences unissaient déjà les intestins au péritoine
 qui était pointillé de rouge.
-
-> ER ds
-
-de s EEE

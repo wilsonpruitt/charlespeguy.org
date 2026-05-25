@@ -62,7 +62,6 @@ Réponse. — Oui, carilest dit que nous n'avons pas
 
 4 de droits et que Dieu peut, s'il le veut, tout nous
 
-| refuser.
 26. Demande. — Le salut est-il une faveur aussi ?
 
 : Réponse. — Oui, comme il est montré par le larron
@@ -171,8 +170,6 @@ qi à progrès moral cesse de prier, car l'honnéteté est une de ses maximes
 ia, principales ». Il dit aussi que de prier devant les gens est « faire
 ii appel à leur sensualité », c'est-à-dire « s'abaisser jusqu'à eux ».
 
-La mort
-
 1. Demande. — Depuis combien de temps la mort
 existe-t-elle sur la terre ?
 
@@ -185,8 +182,6 @@ Réponse. — Ce sont des manifestations différentes de
 la même puissance.
 
 3. Demande. — Qui est?
-
-Réponse. — Le mouvement. k
 
 4. Demande. — Qu'arrive-t-il du corps au moment
 de la mort?
@@ -205,7 +200,6 @@ a dû exister avant que rien pût mourir; tandis que quelques-uns
 des organismes les plus simples ne meurent pas mais se multiplient
 par scission en deux moitiés dont chacune devient un organisme
 
-d ÿ ts tu, A Divan gi Ne SN À
 L le monde sans Dieu
 4 5. Demande. — Se retrouvent-elles toujours dansle +
 même corps ? à
@@ -280,17 +274,12 @@ D. le monde sans Diea "0 NN
 M VA devons faire face à notre destinée comme des hommes,
 nu nous devons aussi sentir comme des hommes.
 Re 45. Demande. — Comment pouvons-nous triompher
-4 de la mort?
 :V] | Réponse. — En aimant et servant quelque noble
 AL. cause, dans laquelle nous puissions nous survivre longAR temps après que nous avons disparu. dr
 | à 16. Demande. — Quels ont été les plus grands bienfi ‘ii faiteurs de l'homme ?
 |:10 Réponse. — Ceux qui ont soulagé son esprit d'une
 %f frayeur et qui l'ont aidé à faire un pas en avant dans
-1e la voie de l'affranchissement de la pensée.
 443 1
-ie l LA
-je
-|: \YaNR
 
 4. Demande. — Que signifie le mot : Immortalité ?
 
@@ -330,7 +319,6 @@ Réponse. — Peu de personnes le croient. 1
 } Réponse. — On croit qu'elle le peut.
 10. Demande. — A-t-on une connaissance scientifique
 à cet égard ?
-Réponse. — Pas précisément.
 11. Demande. — A-t-on jamais vu quelque chose qui
 n'avait un corps de quelque espèce ? |
 | Réponse. — Non ; quoique certains assurent avoir vu
@@ -341,8 +329,6 @@ des esprits. ;
 } 13. Demande. — Pouvons-nous même imaginer un
 esprit sans lui donner une forme et un corps dans notre
 x Réponse. — Nous ne le pouvons pas.
-
-| |
 
 14. Demande. — Que s'ensuit-il ?
 
@@ -369,7 +355,6 @@ Réponse. — Le ciel, le Paradis, les Iles des Bienheureux et ainsi de suite,
 18. Demande. — Quel genre d'endroit est-ce ?
 
 Réponse. — Il y a autant de conceptions différentes
-du ciel qu'il y a de religions.
 
 19. Demande. — Dites quelques-unes d'entre elles.
 
@@ -408,7 +393,6 @@ j 24. Demande. — Quelle autre opinion existe sur
 
 Réponse. — Qu'il n'y a ni ciel ni enfer et que l'autre
 | monde ou l'autre vie consistent dans la continuation de
-1 ce monde-ci.
 
 A 25. Demande. — Scra-ce un monde meilleur que
 
@@ -512,7 +496,6 @@ vie, et ainsi de suite toujours. (1)
 Réponse. — Elle nous encouragerait à ne cultiver
 en nous, — pour l'amasser comme un trésor, — que ce
 qui est vrai et noble, pour en faire le cerveau et l'âme
-de l'avenir. (2)
 () « Sous cet aspect la mort cesse d'apparaître comme un anéantissement ; car notre âme ne peut pas plus être effacée que la loi
 de causalité ne peut être suspendue. » — Paul Carus, Whence
 (2) Quand nous serons au-dessus de cette illusion que l'existence est limitée à notre individualité personnelle, quand nous
@@ -594,7 +577,6 @@ F Réponse. — Parce que nous avons appris par l'expé-
 | rience des siècles qu'il le faut.
 
 \ 15. Demande. — Qu'arriverait-il si nous n'obéissions
-ts pas ?
 
 k Réponse. — Elle nous remplacerait rapidement par
 is ceux qui lui obéissent.
@@ -602,7 +584,6 @@ is ceux qui lui obéissent.
 | Réponse. — Pas le moins du monde. '
 17. Demande. — Par quelle précaution la Nature amA t-elle incité à l'obéissance à ses lois ?
 ie Réponse. — Elle a lié l'action à la réaction, la cause
-la: à l'effet.
 
 Je chaque action, la Nature a donné la même puissance
 î qu'à la semence, — de croître et de porter le fruit que
@@ -611,9 +592,7 @@ la chacun comporte. À
 Fa emploie-t-elle pour imposer l'obéissance?
 
 4 Réponse. — Elle a logé en nous un représentant de
-|A
 
-jt OAV "ne
 son autorité que nous pouvons appeler la « conscience ». ÿ
 
 20. Demande. — Veuillez l'analyser et la définir.
@@ -677,7 +656,6 @@ Réponse. — D''être juste et bon. (2)
 
 27. Demande. — Mais devons-nous être justes et
 \ bons sans attendre ni récompenses ni châtiments de
-l'au-delà ?
 \ Réponse. — Si nous n'agissons pas ainsi, d'autres le
 feront, et par la loi de la survivance des plus aptes,
 0 c'est à eux qu'appartiendront la royauté, la puissance,
@@ -725,7 +703,6 @@ vrai cependant que notre savoir s'améliore et s'accroît aussi souvent que nous
 une lettre à Sturm, abbé de Fulda, écrivait : « Quoique l'action soit
 meilleure que le savoir, cependant il est impossible d'agir sans
 
-|: MUSNENTEESS RE PTS EN REE
 |. 1 le monde sans Dieu (Nota
 ‘4 33. Demande. — Que fera encore le savoir ?
 
@@ -757,12 +734,4 @@ x Réponse. — De chercher la sagesse suprême par
 
 ui (1) Giordano Bruno et de Tocqueville.
 
-NT AIMER DE Get LL ASS
-SEE l'<" 2080 TRES px rs À) ATROREANN
-KT ANRE ia (OU E RE ATNS RAR €
-DA AN ne Le À \ 28 RER Pret
-
-‘AT : ed ne
-
 He dal on ' mit é
-VPN ji Le AE

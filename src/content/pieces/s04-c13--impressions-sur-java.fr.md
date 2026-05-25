@@ -7,7 +7,6 @@ author: felicien-challaye
 isAvertissement: false
 wordCount: 19687
 ---
-| CAHIER DE COURRIERS
 _ impressions sur Java
 * juiits de Roumanie
 paraissant vingt fois par an
@@ -96,7 +95,6 @@ Vers la fin de l'après-midi et dans la soirée, Hollandais et Hollandaiïses so
 bras nus, la robe à demi décolletée. Quelques \personnes, devant leur maison, sont en pijamas, en sarongs indigènes, en camisoles, les pieds nus dans des
 pantoufles. Les métis sont aisément reconnaissables au
 
-| IMPRESSIONS SUR JAVA
 mélange singulier de traits européens et de traits javanais qui les caractérise. — Une pension de jeunes filles
 passe : les cheveux blond cendré des Hollandaises, les
 cheveux noirs des métisses font un charmant ensemble
@@ -163,7 +161,6 @@ serviteurs javanais : Spada ! spada! Je m'étonne, en
 rentrant à mon hôtel, de croiser, le long du canal, des
 hommes à peau brune, sous des arbres immenses, en
 un paysage nocturne qu'illumine l'étincelante lune des
-L tropiques.
 
 Une heure de chemin de fer entre Batavia et Buitenzorg (Sans-Souci), résidence du gouverneur-général des
 Indes Néerlandaises, célèbre surtout par son Jardin
@@ -452,7 +449,6 @@ par l'excursion, je jouis beaucoup de la sieste de
 laprès-midi, pendant qu'au dehors l'orage éclate, et
 que de véritables torrents tombent du ciel noir de
 
-| IMPRESSIONS SUR JAVA
 Ce matin, avant de quitter Garoet, je fais en voiture
 une délicieuse excursion, par des chemins ombragés,
 jusqu'à Sitoe Bagendit. C'est un minuscule village de
@@ -920,7 +916,6 @@ sur la Mer de Sable, mon vaillant petit poney. Derrière
 lui s'élèvent des nuages de fine poussière volcanique.
 Mon guide, laissé en arrière, n'apparaît plus maintenant que comme un point à peine visible: sa petitesse
 fait mieux apprécier l'immensité des choses autour de
-lui.
 
 Je monte à pied les pentes escarpées du Bromo; un
 sentier assez raide, puis des espèces de marches,
@@ -1063,7 +1058,6 @@ propriétés relatives, limitées, temporaires, pour les
 introduire peu à peu chez nous, à mesure que se révélera
 plus injuste, plus inacceptable, notre régime actuel de
 de vue administratif, les Hollandais ont eu la sagesse
-de s'en tenir au système du protectorat, de résister à la
 
 tentation de l'administration directe : tout fonctionnaire
 hollandais est doublé d'un fonctionnaire indigène de
@@ -1324,7 +1318,6 @@ leur permettait de dédaigner le gouverneur général et
 parfois d'entamer la lutte avec lui. On sait d'ailleurs
 que le gouverneur général n'avait alors qu'une autorité
 très restreinte, qui ne devait augmenter qu'à la venue
-de M. Laferrière. M. Tirman comprit ce qu'il y avait de
 désobligeant dans ses fonctions, et afin de miner l'influence des députés, il résolut de s'appuyer sur le parti
 radical. Mais pour rendre la force à ce parti qui périclitait, il fallait trouver un programme qui entraînât
 des adhésions, inventer ce qu'en matière d'élections on
@@ -1485,7 +1478,6 @@ et de temps en temps une campagne se monte contre
 les M'zabites et des journaux antimoutchous se fondent,
 tout comme des journaux antijuifs.
 
-Si de la ville vous passez au village et à la ferme, de
 chez le marchand chez le colon, vous trouvez toujours
 le mème sentiment de haine pour l'Israélite. Sur les
 
@@ -1593,7 +1585,6 @@ d'amour et d'espérance, ils ne voient qu'une religion de
 âme est crédule ! Il leur faut des fétiches, comme aux
 nègres. Et tenez... ajouta-t-il à mi-voix, notre église a
 le bonheur de posséder une relique de saint Augustin,
-un os de l'épaule. Eh bien, si, au lieu de l'enfermer
 dans ma chambre, je la laissais un jour sur l'autel, ces
 Italiens me le voleraient ; oui, j'en suis sûr, ils me le
 voleraient. Songez donc : le merveilleux fétiche ! » —
@@ -1647,7 +1638,6 @@ et que cette cause, ce n'était pas l'étranger, c'était le
 Juif, Tel l'enfant, qui a dérobé des confitures, a soin de
 crier : « C'est le chat. » La maman ne s'y trompe pas;
 mais le Français s'y trompait ; il faisait écho : « C'est le
-Juif. » Et de la sorte on oubliait que s'il y a en Algérie
 une question juive, il y a aussi une question étrangère.
 Telles étaient donc les forces antijuives. Parmi les
 Français elles comprenaient les cléricaux, beaucoup
@@ -1687,7 +1677,6 @@ Tue le citoyen. !
 Y a trop longtemps qu'on est dans la misère,
 Chassons l'étranger, ça fera travailler ;
 Ce qu'il nous faut, c'est l'Algérie française,
-Et Max Régis en liberté.
 
 « Chassons l'étranger! » et c'étaient des Maltais, des
 Italiens, des Espagnols, dont quelques-uns venaient à
@@ -1782,7 +1771,6 @@ pas à suivre l'exemple de M. Marchal : l'ancien chef du
 parti radical de Constantine comprit qu'il risquait de
 perdre son prestige à marcher dans le sillage de
 M. Drumont, de M. Firmin Faure, des réactionnaires,
-en un mot, et doucement il s'orienta du côté de la
 majorité. D'ailleurs la nouvelle tactique de M. Morinaud
 ne passa pas plus inaperçue que celle de M. Marchal :
 dans une lettre ouverte, M. Masson, rédacteur de la
@@ -2002,7 +1990,6 @@ court, n'atteint pas la cheville: et ils marchent, chaussés de ces « alpargate
 -cou-de-pied et les orteils. Quelques-uns ont un châle
 sur les épaules. Ce sont des « pataouètes » où Espagnols
 
-|
 nouvellement débarqués : sous peu, ils deviendront des |
 citoyens français. A Philippeville, à Bône, ce sont plutôt |
 ) des Italiens qui viennent s'établir, mêlés de Maltais. Et
@@ -2065,7 +2052,6 @@ A Alger, dès 1901, les ouvriers français se ressentirent vivement de la concur
 
 - indigènes. Les entrepreneurs embauchaient de préfé-
 | 5
-#
 
 rence des Espagnols et des Italiens, des Arabes et des
 Kabyles, gens sobres et accoutumés à une vie de
@@ -2099,7 +2085,6 @@ vins de coteaux se vendaient, d'aïlleurs péniblement et
 à des prix à peine rémunérateurs, en revanche les vins
 de plaine ne trouvaient pas d'acquéreur. La surproduction des vignobles est aussi funeste à la population des
 
-| COURRIER D'ALGÉRIE
 campagnes que la surproduction industrielle à la population des villes. Pas de transactions. Aussi, à demi
 ruiné, sans avances, le colon algérien se trouve-t-il
 réduit à solliciter des emprunts. Des conférences s'organisent ; on s'adresse à la bienveillance du gouvernement, on le prie d'intervenir auprès des sociétés financières, de développer le crédit agricole. Plus d'attitudes

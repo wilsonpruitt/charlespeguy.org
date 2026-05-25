@@ -7,46 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 74864
 ---
-Ftemen CAHIER DE LA DOUZIÈME SÉRIE
-
 ap Over VE 7e A moi, Comte, deux mots.
 ‘1100 périodique paraissant tous les deux dimanches pe
 ne rue de la Sorbonne, au rez-de-chaussée f
 
-PER PEN NÉE RE ET NRGRREP Pavé AL 152 à fé A
-e »| KART M EL co: ARE 27 0 MA nl
-#: à ï + RARES | :
-nou 1, tn FN Le
-
-ÉERPAS Vi peine Le
-EL ue SK sit SENS NDLR NS, De LAN SE CERE
-: 1 RFA ER As « Fee ce SR RATE M DR à
-SN SES Pre a pars à AC TR RER ES
-
-à Pret ESS Er ME La
-
-nm 0 + L'Etat É
 18 4
-
-api RE L CE
-
-DORE cd: 4 Fu ni . FER +0 SI |
-
-ge PR TR NI NOTA AE NEED
-
-| \ ? US 3
-| 74200 |
-# d L +90 :
-
-" REP UNREtS PREMIERE LE LL 3 GR l'ENS LE en ce MT
-Se ARE EE ae N'AUAES Here SEA PE à F4) Re il NROANLAAIES, ts RES
-LLTLENNS des { < rc ERPEUI as
-
-| 18 |
-#
-| Mn #
-| s 1% ie 1
-Le ES V rer 3 es
 
 Solvuntur objecta. — J'ai mis dans mon cahier que
 l'affaire Dreyfus avait un virus propre, qu'il y avait
@@ -72,7 +37,6 @@ comme en sommeil. Elle ne peut être ni inquiétée, ni
 troublée, ni suspecte, ni malade en dedans.
 
 + Ni inquiète, ni trouble. “400
-Et il ne faut pas qu'on y regarde à deux fois, il ne nn
 faut pas qu'on réfléchisse, même en dedans, avant de … GE |
 tendre et de serrer une main. Re: |
 , Il faut que de tendre et de serrer une main, de serrer É. ÿ |
@@ -82,7 +46,6 @@ invincible, aussi irrécusable, irréfrénable, que soi-même
 aussi immédiat, aussi neuf, même intérieurement, aussi
 _  jailli, soit, fasse un geste aussi instantané, et non pas
 ; seulement aussi spontané, un geste aussi neuf, aussi “à on |
-ne
 joyeux, la joie d'une retrouvaille, aussi sans (aucune) Fee |
 arrière-pensée, et sensiblement aussi sacré que l'était "+
 ; dans les siècles chrétiens de faire de la même main es !
@@ -95,7 +58,6 @@ elle ne peut pas être exposée. LE |
 re L'outrage est essentiellement une opération où il n'y en LE |
 _ à qu'un qui sait au juste qui outrage, qui est outragé Tèl ER
 _ et s'il ÿ a outrage : c'est celui qui outrage. L'outrage l
-1 Ces PEN de ot ù ee 13 KA '
 
 | est une opération essentiellement volontaire, intentionnée. Quand j'outrage, je m'y prends évidemment
 d'une tout autre encre. Je n'ai outragé que trois ou
@@ -197,7 +159,6 @@ vous ne voulez pas que je rapporte ce propos. Vous avez SE
 tort. Mais il est à vous, puisque enfin il est de vous. Je” 5
 dois m'incliner. Il était entré pourtant, il entra instanta- À #
 nément comme une pièce essentielle de ma pensée, de la =.
-méditation, et à la vérité il ne me quitte plus. J'y pense Le
 même, à vrai dire, il me revient plus souvent que je ne De.
 voudrais. Ce fut pour moi un éclair, une révélation sou- : ee.
 ; daïne, c'est-à-dire une de ces révélations d'une pièce Be
@@ -278,7 +239,6 @@ l'on ne refait pas, que l'on n'improvise pas, que l'onne … 31
 qui n'accepte pas qu'on lui donne le change. Pensez- #57
 $ vous que nous retrouverions jamais, que nous pourrions à à
 ÿ recommencer ces longues, ces lentes maturations, #2 : 138
-| mûries au soleil et à la pluie de la plaine. On ne forme, 5e
 
 F: _ on ne lie d'amitiés de cette sorte qu'entre hommes
 : … du même âge, de la même génération, de la même
@@ -351,7 +311,6 @@ libérale française. Vous êtes un doctrinaire, j'entends
 | savez. Voyons, vous le savez bien. Tout le monde le “
 ne Moi vous le savez bien. Les tenaces aïeux, paysans, At à
 … vignerons, les vieux hommes de Vennecy et de Saint
-ne - Jean-de-Braye, et de Chécy et de Bou et de Mardié, les | ER à
 patients aïeux qui sur les arbres et les buissons de la is de Fi
 forêt d'Orléans et sur les sables de la Loire conquirent
 tant d'arpents de bonne vigne n'ont pas été longs, les = a.
@@ -431,8 +390,6 @@ impardonnable, ce qui, dans le langage du peuple,
 Halévy, veut dire qu'il ne pardonne rien. Car c'est
 l'âge où nous devenons ce que nous sommes. Or ce que
 
-Charles Péguy LE
-je suis, Halévy, il suffit de me voir, il suffit de me F5
 regarder, un instant, pour le savoir. Un enfant y pour- $
 voirait. J'ai beau faire; j'ai eu beau me défendre. En moi, :
 autour de moi, dessus moi, sans me demander mon avis ]
@@ -470,7 +427,6 @@ a l'homme qui est au bout des deux jambes, toute ma
 See de mes épaules, cette voûte commençante, l'inclinaison
 de la tête sur la nuque, les jours de fatigue, et déjà les UE
 FES autres jours, (car tous les jours sont déjà des jours de a
-L_ fatigue; mais ce qu'il y a de bien, et de consolant, ce ee
 qu'il y a de merveilleux, c'est comme on en abattout
 _ de même les jours de fatigue. Comme on en metpar 24
 Le | terre. Heureusement. L'homme est une‘bête, une mécanique d'une souplesse, d'une élasticité incroyable. Et A
@@ -489,10 +445,8 @@ A travail. On resterait en deçà du travail, où c'est encore EE
 ESS _ plus neuf, et encore plus frais. Il faut être un peu culotté 72e ve
 Lore pour travailler, même dans le neuf et dans le frais. On FE
 a: est fatigué en se levant, on se met fatigué à sa table $
-É de travail. Et puis un roulement s'établit. On ne tra- Ë k
 De vaille jamais si bien, le métier, le registre ne rend, ne à 14
 _ joue jamais si bien que quand on a commencé un peu Fe
-Fe fatigué. Il y a comme un entraînement de la fatigue au :
 “ | travail, (de la journée), comme un réensemencement, Tea
 3 C3 1e pour le travail de la journée, de tout ce résidu de tout Sa
 ET le travail antérieur, de toute la vie passée. (Qu'est, pour x ‘
@@ -504,8 +458,6 @@ se réveillant, en étant réveillé trop tôt le matin avant Ex
 a jour dans la paille, (quand on a pu toucher de la paille); M
 F dans les brouillards du matin, dans les fins brouillards
 de septembre, dans les brouillards de la Loire et du !
-Loiret, de la Somme, du Lunain et de l'Ornain, et de LE À
-l'Orge, et du Cousin, et de l'Armançon, et du Petit et du 14
 Grand Morin on traîne lamentablement, raidement les
 premières poses. Les pieds vous font mal, vous cuisent, EE
 : vous brüûlent, toute la peau est excoriée. Mais une fois
@@ -592,8 +544,6 @@ fourbu, un raccourci de vieux pésan. Exactement paisan, l
 
 en appuyant sur paî, en écrasant paî d'une seule émis- \
 
-|
-
 218 sion de voix très ouverte, large ouverte, nullement
 Hi - une diphtongue mouillée. Non point en traînant sur
 18 pat, en traînant pat, mais en le nourrissant au Con- …
@@ -625,7 +575,6 @@ A 24 disait ma grand mère (on est toute en deux) pour tailler,
 ES pousser du regard), vendanger d'ingrates et de recon- | ». naissantes vignes. Ils disaient plus simplement : J'oa.
 # _ travailler la vigne. Tout ce qu'on faisait à la vigne M
 
-LES Solountur objecta
 ses _ que c'est la récompense et le gain, qui s'appelait faire à
 _ La vendange. Et bien qu'on y attrape des rudes cour- à
 Mu batures, ce n'était censément pas travailler. C'était fe
@@ -666,10 +615,6 @@ ss PER d'écraser le fer comme l'ouvrier assomme, comme lou
 js É« vrier martèle, comme l'ouvrier écrase le fer. On se forge,
 3à comme dit l'autre, et ce n'était point seulement pour les
 #4 besoins de la rime : Fe
-2 On se forge, ë
-e On s'égorge,
-23 Par saint George! |
-D Par le roi! |
 | 100 La cuirasse et le heaume
 dE. 4 était de fer et de cuir. De part et d'autre, ouvrier,
 A 210 paysan, homme d'armes, la peau même était de cuir.
@@ -761,13 +706,10 @@ E Le monde pauvre, le système pauvre, le langage
 4 pauvre. Qui se tient, qui existe. Il n'y a de mastics À
 40 gs que quand on veut méler l'un de l'autre, l'un dans
 
-DNS PA CE ee ES ERP
-ÉESSES SON EAUX FANS RE, QU SA AREAS FO is à ts À
 l'autre, : le s eux mondes, le monde riche et le monde _  .
 pauv é, les deux systèmes, les deux langages. Sent.
 . Tout ça l'un dans l'autre. Alors il y a de ces contami-
 - nations que nos typographes nomment si savamment,
-Ter x à ER LEE AR ai NE on.
 - si opportunément des mastics. La vieille distinction
 … des genres avait du ‘bon dans la société. Faux . VAR) ce
 sables. Également dangereux peut-être, qui rendent. Fat
@@ -789,7 +731,6 @@ _ donné une fois, une première fois. Il m'a été donné re
 
 mettre de son être à représenter les quatorze ou quinze E
 mystères, le mystère unique de la vie et de la vocation (
-et de la sainteté et du martyre de la plus grande sainte À.
 je crois qu'il y ait jamais eu. On m'a généralement |
 accordé que c'était une entreprise difficile, et en un 4
 certain sens, en ce temps moderne, comme une gageure. ‘ É
@@ -808,7 +749,6 @@ relle, mais mon point d'appui temporel si je puis dire à + |
 moi-même, c'était que cette histoire temporelle, c'est que ;
 cette inscription temporelle est une histoire, une inscription de chez nous. C'est mon seul atout, (temporel), dans 2 |
 ce terrible jeu. Je serais un grand sot de le jeter, ou de
-le négliger, ou de le diminuer, ou de le laisser diminuer #1!
 en mes mains. De le laisser tomber. Dans ce terrible ;
 jeu, dans ce terrible engagement je n'ai pas une chance 1
 à négliger, pas une chance, (temporelle), à perdre. Dans
@@ -851,10 +791,8 @@ je serais un grand sot, moi-même de ne pas me laisser
 comme nous eussions été nous-mêmes, comme nous
 allions être nous-mêmes, (or si nous pouvions tranquillement le redevenir), étaient exactement, étaient identi-
 
-RO TE DES En te ee EL Se nu: LE EAU ee
 He quement des gens comme tous ceux où nous avo VÉCU A
 RU étant petits. Et que toute cette grande histoire est sort re
-Ru de là. FER R
 LS Tout ça, monsieur, c'était pour vous dire. Vous recon__  naïssez là leur formule habituelle. Tout ça, mon cher -
 __ Halévy, c'était pour vous dire que ce malentendu qui. É; |
 F'A8SE s'est ému entre nous vient premièrement et pour une à
@@ -864,7 +802,6 @@ RUE , bonne part de ce que je ne me suis point méfié de vous.
 Fa cela même que je me sens redevenir paysan, je n'ai “#
 SL APREN jamais aucune affaire, aucun malentendu avec les |
 Lee messieurs proprement dits. Avec les bourgeois bourNes, rt : à x 14
--  gcoisants. Car alors, le sachant, je me méfie. Je me à
 | ; méfie même doublement. Je me méfie d'eux et je me
 Mers méfie de moi. Je me méfie d'eux sachant qu'ils sont
 : !: bourgeois et je me méfie de moi sachant que je suis
@@ -896,7 +833,6 @@ aussi mon instinct, mon malheureux instinct est de me Me - s
 Ë riches. Surtout quand ils sont libéraux, quand ils appar- 5 ; are %
 “tiennent à la bourgeoisie libérale. On s'entendrait … Re
 “encore mieux, je dis uniquement pour le propos, avee
-“es propres réactionnaires. Il n'en revient, on n'en ANNE
 “récolte jamais rien de bon. Ni pour le riche, vous en EEE
 êtes la preuve. Ni pour Le pauvre, vous m'en faites la SES
 pre uve. C'est l'instinct du paysan que de respecter le Es
@@ -994,7 +930,6 @@ vous prenez possession de tant de terre et de tant de
 route, de cette terre toujours nouvelle. Et nous sommes
 bien en effet, en tant de sens, les élèves du vieux
 
-rot ia VE es L
 4 Quinet, des jeunes Quinet renaissants, si je puis dire, \
 - renés, comme lui, comme ces vieux républicains des s
 . républicains nationalistes, (ces mots, ce mot ne jouant
@@ -1107,7 +1042,6 @@ eu de légumes, tout a coulé. Il y a pas eu de fruits, tout Fe
 a coulé, tout est dévoré. Il y a même pas de salade. Il Ô| Î
 | y a pas de raisins. Toute la force de la vigne a tourné { |
 . en vrilles. Et en vert. Et encore. Tout ça c'est sec, tout 4 |
-ça c'est pourri. Et puis il y a partout la maladie. Ils N |
 vous disent de mettre du soufre. On en mettrait ben 14 |
 autant comme autant. Il en faudrait pus que le bon Dieu |
 pourrait en bénir. Et pis des ingrédients, des saletés, de |
@@ -1118,7 +1052,6 @@ pas non plus la maladie. Vous comprenez, il tombe 1
 trop d'eau. Pour sûr il y aura encore rien c'tannée. È
 Après quoi ils vous invitent à venir faire la vendange 1
 
-Î : RE un os - dt 2e CRE de Re Nas" Lie à ar” U
 un, Ce nest pas üne ironie, vous les connaissez. Ils ne
 ! | savent pas, mais ils savent plus que s'ils le savaient, ils
 a sentent que l'ironie est grossière, que la dérision est
@@ -1184,7 +1117,6 @@ un chaume qui était une prairie naturelle. Je ne sais 2
 pas si vous saisissez. Il y avait de l'herbe comme dans e
 un pré. Il avait poussé tant d'herbe(s) dans ce blé, ÊSE.
 
-| LES Solountur objecta
 _ A _ des mauvaises herbes, des herbes folles, (dans le blé
 “44 toutes les herbes sont folles, toutes les herbes sont
 = des mauvaises herbes, même celles qui autrement ne î
@@ -1239,7 +1171,6 @@ Il n'y aura pas de raisin. Ils vous invitent à venir
 faire la vendange. Ils parlent très sérieusement. C'est
 là que l'on voit ce que c'est qu'un rite, chers sociologues. F
 
-| LIT S ER 4 È
 à Ils vous invitent rituellement, c'est une cérémonie, |
 ._ comme ils vous ont invité tant de fois toutes les autres
 4 années précédentes, exactement ainsi, comme ils vous
@@ -1305,7 +1236,6 @@ chaleur, dans la fumée, dans la douceur, dans la tiédeur, à
 5 dans les pipes, derrière la porte et les fenêtres fami- 4
 lières, dans l'abri, dans l'atmosphère familière, abri- À
 
-Re HR 1e ss ie NE ENT EN RSR:
 Ke: Fe tante, d'un vieux familier cabaret. Alors là on peut se ”
 Le: lancer. Là on est hardi, on est couvert, on ne craint  . |
 __ rien. On est à l'abri d'on ne sait quoi. Et ils en parlent
@@ -1351,7 +1281,6 @@ qu'ils osent me parler de Gallouédec à jeun. Non sans :
 une certaine crainte. Et un certain espoir. Je dois
 savoir. Je dois m'y connaître. À Paris je dois tout de
 même connaître du grand monde, des députés, tout ;
-ça. Ils me demandent si il fera du bien au pays.
 Je pensais à vous, Halévy, tout en contemplant les |
 _ splendeurs de la Foire du Mail, dans cette immense
 solitude soudaine, dans ce silence que sont quarantehuit heures d'Orléans. Vous allez voir les mêmes. Mais
@@ -1457,8 +1386,6 @@ cette ouvrière certitude, être sûr qu'au plus creux des
 fines, des délicates, des droites, des robustes moulures,
 pas plus qu'au plat le plus plan, au plat du plus large
 
-Re L nn
-
 plan, au plus beau plat de bois luisant, au plus beau "ei
 panneau, être plus que mathématiquement sûr qu'il ne É
 reste pas pour aujourd'hui un grain de la poussière :
@@ -1514,7 +1441,6 @@ foule ; il faut bien qu'on sache qu'il y a foule à Orléans)
 défilant sous les auvents des petites baraques, pour les
 cossus), s'attroupant, sérieuse et pressée, sage et s'amusant, sagement, (follement), devant les boniments, que
 
-|
 dis-je, devant les parades des grandes baraques, des on.
 vraies baraques, des baraques proprement dites, et
 partout aussi hélas, un peu partout s'arrêtant devant
@@ -1545,7 +1471,6 @@ Os homini, comme eux je m'en irai la tête basse, les 5 4
 yeux par terre, le front par terre. Et alors, Halévy, je 53
 7 60
 
-| is Solountur objecta
 à vous le demande, faites-y bien attention. Puisque je .
 * _ suis eux, faites-moi au moins la grâce que vous leur
 …_ faites. Quand vous adressez ainsi la parole à un garçon
@@ -1600,7 +1525,6 @@ cieuses, peut-être d'uniques références. Tout ce que LS
 nous avions de différence, d'écart entre nous donnait À
 58 4
 
-L Solountur objecta
 précisément, était précisément ce qui donnait une
 valeur, peut-être unique, à cette perpétuelle référence
 mutuelle, ce qui la rendait peut-être uniquement
@@ -1724,7 +1648,6 @@ cette détresse pour se rassurer on parle de ses projets. a.
 On aime avoir quelqu'un à qui on parle de ses projets.
 Une oreille amie, (un cœur ami), une entente, une au- #
 dience amie. On ne le fait pas seulement pour se
-donner du courage. Et de la consclation. Une sorte de “à
 consolation anticipée, prématurée. Une consolation À
 d'avant. D'autant meilleure. D'autant plus chère. Ce
 que l'on veut se donner, ce que l'on se donne ainsi, Le
@@ -1794,9 +1717,6 @@ rien, puisque les œuvres futures, éventuelles, rêvées,
 impossibles, pèsent sur nous éternellement. 4
 Toutes ces montagnes qu'on a devant soi vous pèsent 4
 à devant sur les épaules. Il faut les surmonter. Les re-
-| à 5
-
-Ne de A PIN nd bigs mA 0 Ve eo
 
 LE monter des épaules. Y entrera-t-on seulement. Repré-
 senter, rendre ce monde, ces trois dimensions, avec
@@ -1855,7 +1775,6 @@ optiques. Singulières erreurs, illusions d'optique. Il y 3
 
 & a des pays qui sont grands et qui paraissent petits. Il 1
 
-| D D |
 FA y a des pays qui sont petits et qui paraissent grands.
 Ë Tout ainsi et du même regard il y a des périodes, des
 Es temps qui sont grands et qui paraissent petits, qui sont
@@ -2027,16 +1946,13 @@ de. représentatif, comme significatif, de la France même,
 ee st aussi. Ce n'est qu'un hasard. Mais avouez qu'il est
 $ LR merveilleux. Et encore. Nous disons que ce n'est qu'un
 de 234 hasard. Nous n'en savons rien. Il avait tout de même lu
-| SE Wagram :
 ss L . © drapeau de Wagram! 6 pays de Voltaire!
 1 Hein, vieil honneur militaire. C'est Wagram. Il est
 _ vrai que Ça rime avec Voltaire. Il faut avouer aussi
 que Voltaire est bon ici :
 - Principes, droits, pensée, ils font en ce moment
 He, De toute cette gloire un vaste abaissement.
-ni
 
-Charles Péguy Fe pa AVEC
 Toute leur confiance est dans leur petitesse. Mas 4
 Ils disent, se sentant d'une chétive espèce : | À
 É « Bah! nous ne pesons rien! régnons. » Les nobles cœurs! -4
@@ -2065,8 +1981,6 @@ ces merveilleux couchers de soleil comme l'Ile de France
 Toi qui vas cherchant E
 
 nu. =. Prends garde de choir. LT
-En PU La terre, le soir, CNRS
-TSSSS Est brune. < #è
 
 fe Qui à ce seul môt coucher de soleil, ou plus pleine- k
 ment au spectacle d'un coucher de soleil vous rendra #
@@ -2166,7 +2080,6 @@ _ pas. J'ai fait une découverte de bibliographie. Elle est
 | bonne? Ne riez pas. C'est ma découverte qui est bonne.
 
 Elle est même plus bonne, vous allez voir qu'elle est
-Des 7ù
 
 (encore) plus bonne que vous ne le pensez. Ma découverte entre, comme partie intégrante, dans l'histoire de |
 la littérature, et même dans l'histoire des lettres fran- |
@@ -2211,14 +2124,11 @@ __ modes de son temps, aux mouvements de son temps, à :
 À tellement réussi. Or la ballade quatrième, — à Trilby,
 ë — le lutin d'Argail, — porte cette épigraphe :
 Mr A vous, ombre légère,
-Ka Qui d'aile passagère
 Re Par le monde volez,
 i°2 Et d'un sifflant murmure
-x. : L'ombrageuse verdure
 Éd J'offre ces violettes,
 1 Ces lys et ces fleurettes,
 . Et ces roses ici,
-2 Ces vermeillettes roses,
 ; Tout fraischement escloses,
 Et ces œillets aussi!
 Or il attribue gaillardement ces deux strophes comme
@@ -2259,10 +2169,7 @@ les Odes, qui n'en craignaient déjà point), ensemble
 Émile Deschamps; La Fontaine, Imitation d'Anacréon: "
 Shakspeare; Montenabri; Gonzalo Berceo, la Bataille
 78 4
-#
 
-D PCR Un en É L
-| 2e Solvuntur objecta
 Fr F _ de Simancas; Ancienne chronique; Reproches al rey
 4 Rodrigo; Avienus: André Chénier. Les références que
 : …_ jene peux pas vérifier sont certainement bonnes. Quel
@@ -2292,7 +2199,6 @@ Il est vrai que les références attribuées nominativement ;
 ne sont peut-être pas meilleures que les références attri__ buées anonymement si je puis dire. On ne sait plus. La
 confiance ne règne pas. Tout notre auteur est là. Et
 
-| EE
 alors comme les malheurs se suivent et se ressemblent, Ce
 et d'ailleurs que ça lui est bien égal, premièrement et
 d'ensemble il appelle, il attribue Vieille chanson le
@@ -2441,19 +2347,13 @@ tranquillement à la moderne, sans aucune affectation. 3
 C'est ainsi que je trouve dans une petite édition É
 Bruxelles et Lausanne : Les Chefs-d'Œuvre de la Poésie :
 
-| 13  Solvuntur objecta | ,
 é :# _ lyrique française. — Les Chefs-d'Œuvre lyriques de
 0 _ Ronsard et de son école. — Joachim du Bellay. — Jeux
 | 2 rustiques. — D'un Vanneur de Blé, aux Vents :
-li A VOUS, troupe légère, eu
-LEE Qui d'aile passagère 5
-Fa DE : Par le monde volez,
 Fu | Et d'un sifflant murmure *
-É L'ombrageuse verdure
 D. J'offre ces violettes,
 : Ces lis et ces fleurettes,
 Ne Et ces roses ici, ARE Se
-LES Ces vermeillettes roses,
 4 ë Tout fraîchement écloses,
 . Et ces œillets aussi. RS
 ï De votre douce haleine Ê
@@ -2461,7 +2361,6 @@ FF ; Éventez cette plaine,
 2 ; Éventez ce séjour, :
 0 Cependant que j'ahane
 É LS A mon blé que je vanne
-[a à A la chaleur du jour.
 Fe ou bien prendre une graphie ancienne sur une édition
 “ ancienne ou sur une édition savante. C'est ainsi que je
 A trouve dans Marty-Laveaux; et encore il faudrait faire
@@ -2471,14 +2370,11 @@ A trouve dans Marty-Laveaux; et encore il faudrait faire
 n'existent peut-être pas naturellement chez Allainguillaume dans nos Didots actuels : Y
 
 A vous troppe legere, ;
-Qui d'æle passagere *:
 Par le monde volez, k
 Et d'on sifflant murmure WE
-L'ombrageuse verdure
 l'offre ces violettes, . ‘À
 Ces lis & ces fleurettes, E
 Et ces roses icy, É
-Ces vermeillettes roses, à
 Tout freschement écloses, ;
 Et ces œilletz aussi.
 De vostre doulce halaine 4
@@ -2516,7 +2412,6 @@ Toutes les références qu'on ne vérifie pas sont évidemment bonnes. On a bien
 éditions ne varietur. Ça ne bouge jamais. Excepté
 quelques différences de ponctuation, juste assez pour
 
-Charles Péguy SUR
 montrer qu'on ne collationnait même pas. Même pas à |
 l'imprimerie. J'ai trouvé cette vieille chanson, à qui enfin
 il veut faire un sort, (digne d'elle), et qui, l'ingrate, lui
@@ -2531,7 +2426,6 @@ derniers vers, et on a supprimé l'exclamation du point d
 d'exclamation final, ce qui donne, au lieu d'un des pre- 4
 miers textes que nous avons donné : À
 
-Ces vermeillettes roses
 - Tout fraischement escloses
 Et ces œillets aussi. à
 Il a mis des graphies anciennes, ou même pas, ici, là, 1
@@ -2704,7 +2598,6 @@ dernière montée à un deuxième faîte, d'un deuxième
 pas, d'un dernier pas, au faîte suprême; à une grandeur, à un faîte de grandeur d'une grandeur suprême,
 d'une grandeur unique; car c'est pour ainsi dire à un
 
-| PES = PRRRANES |
 faite spirituel comme d'une grandeur temporelle. C'est
 un recoupement. Dans les Horaces, (que l'on nous dit
 qu'il nommait lui-même Horace), il avait déjà dit :
@@ -2734,7 +2627,6 @@ volontaire aux deux vers culminants des Horaces est « saisissante; infiniment p
 réponse, une correspondance capitale d'aboutissement, 4
 de couronnement; sur laquelle, de laquelle nous nous à
 
-ne
 expliquerons quelque jour, que nous chercherons quelque
 jour à approfondir; en ce sens que j'espère que nous
 montrerons que le Cid et Horace représentent deux
@@ -2794,7 +2686,6 @@ l'Ascension. Les vers de l'intercession sont partout dans
 Æt toi qui, tout sortant encor de la victoire, :
 Regardes mes travaux du séjour de la gloire, É
 
-à fi Solvuntur objecta A A SA ASC
 Y Chér Néarque, pour vaincre un si fort ennemi, 5 RAR
 Préte du haut du ciel la main à ton ami. Le
 Et c'est là que bientôt, voyant Dieu Jface à face,
@@ -2876,7 +2767,6 @@ que l'autre était peut-être bien le génie de la Guerre; le
 parallélisme de ces deux verticales avait été poussé si
 loin dans les esprits que Vendôme avait fini par devenir
 une espèee de nom de mois. Merveilleuse correspondance, antithèse toute faite pour Hugo : la colonne de |
-la Victoire, la colonne de la Liberté ; la colonne de la
 Gloire militaire, la colonne de la Gloire civile. Entre
 nous cette antithèse était un peu factice, tout à fait
 - faite par conséquent pour Hugo. Car la colonne de la
@@ -2927,8 +2817,6 @@ non français. Grande capitale et non pas bas de casse.
 C'est dans l'édition définitive qu'on lui a fait la faute,
 qui n'était pas dans les premières, dans les anciennes
 
-és” La PE ES DE NT tte CNE QUEIS CUITE SCORE AR
-Charles Péguy Ne Cl
 éditions. C'est tout à fait contraire au dicton. C'est tout
 ce que ses secrétaires ont pu trouver pour lui. Comme
 toute sa vie est là. On a pu lui faire, on lui a fait des
@@ -2983,7 +2871,6 @@ dans le détail. Maïs nous ne croyons pas que le détail
 épuise ni l'œuvre ni toute autre réalité, nous croyons
 au contraire qu'il s'en faut infiniment. Nous aussi nous
 
-FAP SES Charles Péguy MU 4
 .. savons faire de la bibliographie. Nous n'en avions pas
 seulement de bien bonnes; nous n'en avions pas seulement de bonnes, ce qui est le grade au-dessus; nous en |
 Un soir, t'en souvient-il? c'est moi qui vous ai conté 5
@@ -3006,7 +2893,6 @@ naissances les rimes en ombre, qui intervenant pour la
 deuxième fois dans ce poème lui ont, ici, couronné, 4
 permis de couronner deux de ses plus beaux vers. Mais M
 106 22106
-> - 2 8e" ANNE
 
 ë restait non pas cette redoutable infanterie espagnole,
 - mais la question de Jérimadeth.
@@ -3039,7 +2925,6 @@ qu'il n'existait pas, que c'était un nom forgé. On se
 forge, comme dit l'autre. Comme on avait admiré le
 choïx, ainsi on admira la forge. Pour les mêmes
 
-| RE |
 raisons. Il n'avait pas choisi un nom bien hébreu, mais :
 il avait forgé un nom bien hébreu. En y pensant, c'était
 encore plus fort. Trouver un nom qui existe, tout le
@@ -3068,13 +2953,11 @@ souvienne, était signé d'un nom aujourd'hui déjà beau
 coup plus connu, car il était, je pense, signé du nom de
 M. Eugène Marsan, attaché aujourd'hui à la Revue. “
 
-Le _ Solvuntur objecta 4
 critique des Idées et des Livres, — Nouvelle librairie 4
 nationale, — 85, rue de Rennes, Paris sixième. Pas très 4
 loin du 149, comme vous voyez. Ce qui prouve, Halévy, ë
 . qu'il faut toujours être bien avec les jeunes gens. Et k
 . qu'il faut toujours les lire. Pour moi j'avoue que j'ad- ‘à
-mire en plein ce toupet qu'il a eu ce jour-là. Je admire ; f
 à bloc. Pensons-y, c'était le jour où il avait fait Booz : %
 endormi. Il avait couché avec Dieu. Avec Dieu créateur : 4
 « Voilà longtemps que celle avec qui j'ai dormi, à
@@ -3111,7 +2994,6 @@ charnel, tout ce monde de la fécondité, de la perpétuité
 charnelle, de la race charnelle, et même, par là, même -
 l'entrée, l'inscription, l'insertion de l'éternel dans le
 . temporel, de l'éternel dans le charnel, de la vie éternelle dans la vie charnelle.
-Er oo FaAcTus EsrT. Les païens et les Juifs ne con- 4
 sidèrent généralement pas l'incarnation. Les chrétiens
 la considèrent (moins qu'ils ne devraient, mais enfin
 ils la considèrent, au moins professionnellement, beaucoup politiquement, beaucoup habituellement, usagère- j
@@ -3161,7 +3043,6 @@ de l'éternel, se plaçant de l'éternel, (et mon Dieu c'est
 bien un peu leur office). C'est leur métier. C'est de là
 qu'ils contemplent cette insertion culminante, ce point
 
-Charles Péguy Te MES æ Le
 de reconcentration, ce ramassement en un point de tout FD
 l'éternel dans tout le temporel. Tel est généralement leur }
 point de vue, leur propre point, leur angle de vue, leur k #
@@ -3196,7 +3077,6 @@ eussions l'autre partie, la contre partie. Pour que con- “#4
 trairement, (conjointement), cette incarnation, ce point = à
 d'incarnation vint, se présentät dans l'ordre de l'événe-. =
 
-| 3 Solountur objecta + |
 b ment temporel comme une fleur et comme un fruit tem_ porel, comme une fleur et comme un fruit de la terre,
 comme un aboutissement, comme un couronnement
 _ temporel, comme un coup suprême de fécondité tem-
@@ -3239,8 +3119,6 @@ histoire arrivée à la chair, et à la terre, mais comme
 
 le couronnement, comme l'aboutissement d'une histoire
 
-arrivée à la chair, et à la terre.
-
 Dans cette vue la race elle-même, la race d'Israël 3
 culmine, comme un arbre de vie, s'achève, culmine à É.
 produire elle-même charnellement Dieu : :
@@ -3267,9 +3145,6 @@ tique de Hugo exerçait sur son génie. Le génie, lui, 4
 mauvais (très) petit tour petit que la politique a voulu 4
 jouer aü génie, la politique à la mystique, le politicien 4
 
-| SIN ! Ë
-
-à l'homme de génie, au poète et au mystique. Ou ne
 nous frappons même pas autant, même pas cela : c'est
 peut-être simplement un coup de la typographie, un
 petit tour de la typographie, c'est peut-être simplement
@@ -3297,15 +3172,12 @@ d'origine, d'une origine à la fois, ensemble charnelle
 Jils de David, fils d'Abraham. Partant de ce point
 d'origine d'élection il redescend le temps :
 
-PDT de ON SANTE STE
 Jacob autem genuit Judam, et fratres ejus. FA
 Judas autem genuit Phares et Zaram de Thamar.
 Salmon autem genuit Booz de Rahab. Booz autem <
 Josias autem genuit Jechoniam, et fratres ejus in 58 £
 Et post transmigrationem Baby lonis, Jechonias g'enuit à
-NATUS EST JESUS, qui vocarur CHRISTUS. SEC
 
-è ‘a 4 NÉS a EEE sie LM past Las PNR TE Et OS Lei a de
 David, generationes quatuordecim; et a David usque
 decim ; et a transmigratione Babylonis usque ad Chris- ;
 C'est donc une génération charnelle, mais c'est une
@@ -3361,8 +3233,6 @@ descend posément, tranquillement le temps, il déroule, F
 il dévide un fil, il constitue, il donne, il présente une À
 lignée, une race, une série linéaire. Cette série aura L
 deux temps : David, Abraham. Elle aura trois périodes, 3
-
-| RÉACE
 
 la transmigration de Babylone faisant époque. C'est
 une filiation, il commence tout tranquillement à l'origine et suit, et descend l'ordre du temps. Il commence
@@ -3472,7 +3342,6 @@ pas seulement en Jésus, mais en Jésus commençant ï
 environ ses trente ans, et se situant de là, partant de là, $
 remontant de fils en père, qui fuit, qui fuit, de génération charnelle en génération charnelle, de grade en 1
 grade il remonte jusqu'au premier Adam, qui fuit Dei.
-Ce qu'il y a de mystérieuse filiation charnelle dans le à
 premier Adam même, dans la création du premier
 Adam, dans la création charnelle de l'Adam charnel, ce : <
 qu'ainsi il y a de charnel dans le Pater Noster même, 4
@@ -3534,17 +3403,13 @@ i _ enfant de chœur, ce petit futur, ce petit déjà criminel #
 racinien; les crimes de David, les grandeurs de David, #4
 David roi criminel, David roi adultère, David le ro M
 psalmiste, et roi victorieux ; La race de David; le sang
-de David; il naîtra de la race de David: il est né de la Br:
 race de David. Et avant David Salomon, les crimes et ee
 les splendeurs de Salomon, et le temple. Les somptuo- 4
 sités orientales. Booz, qui fut une sorte de grand pro- 4
 priétaire, Abraham, Isaac et Jacob, c'est-à-dire, en PA
-| MER
 
-20 és # Solsuntur objecta L
 remontant, avec lui, et comme à l'envers, Jacob, Isaac, 7
 * Abraham. Sem et Noé. Mathusalem, Enoch. Seth, sl
-#
 A deux temps, à un temps, descendant, montant, et #
 bien qu'ils ne passent généralement point par les j.
 mêmes noms, sauf quand ce sont des noms illustres, +
@@ -3556,7 +3421,6 @@ ses deux sens contraires. C'est une route charnelle, ‘3
 c'est une filiation charnelle, mais c'est une route char- k.
 nelle chrétienne, c'est une filiation charnelle chrétienne. L:
 Que ce soit une remontée, que ce soit une descente, c'est 7
-toujours Le livre de la génération de JÉSUS-CHRIST. à
 C'est toujours l'avènement charnel spirituel, temporel s:
 éternel, chrétien de Jésus-Christ. Ce sont toujours, ce F
 sont déjà deux chrétiens qui placés après Jésus, faisant 4
@@ -3688,8 +3552,6 @@ des apothéoses aux murs des chambres de toutes les à
 maisons, et les grosses paupières, surtout les deux ‘4
 paupières inférieures, comme un peu gonflées, (il avait
 
-ne HS CS No
-
 tant regardé le monde), un homme que nous avons suivi
 pendant onze ans, pendant douze ans, je veux dire que
 nous avons historiquement, biographiquement, chronologiquement doublé pendant douze ans, que nous avons
@@ -3763,7 +3625,6 @@ la lune et les étoiles, le ciel et la mer, le ciel et la terre, * =
 la terre et la mer, la mer et la côte, les sables de la dune, |
 Fleurir le chardon bleu des sables, g.
 quand il regardait l'homme et la femme, l'enfant ; la .
-plaine et la forêt; le mur et la maison; la plaine et la
 - moisson ; la maison et la treille ; La vigne et la maison : ee
 le blé et le pain; la roue et la voiture; le pain sur la
 table et le vin dans les verres, (sa compétence allait
@@ -3841,7 +3702,6 @@ reté), toutes les fois surtout qu'on le relit, qu'on le lit j
 dans sa mémoire, (où il demeure intact, où il demeure 8
 
 € neuf, où il demeure entier, premier), toutes les fois
-qu'on le récite et qu'on se le récite et que je vous le
 récite on est immédiatement averti par un avertissement secret, on est saisi instantanément par un saisis- :
 sement, d'un saisissement sourd, soudain, d'une révélation soudaine, on est instantanément pénétré, d'une
 évidence soudaine, on sent instantanément que c'est
@@ -3883,7 +3743,6 @@ grand (poète) tragique, mais un cas unique, c'est peut- :
 être cette pureté unique du génie, cette incapacité À
 totale de talent qui le faisait retomber parfaitement à
 plat quand le génie n'était pas là. C'est peut-être ce 4
-qu'il y a de plus beau en un sens et de plus grand %
 | dans ce plus grand de tous les tragiques. Cette inca- É
 pacité, quand le génie n'y était pas, cette involonté “4
 totale, organique, cette inorganisation de savoir y faire, ; 3e
@@ -4008,8 +3867,6 @@ Un regard tout plein du blé des granges. 4
 Il en suit que ce poème, plus que poème, se rabat au 3
 deuxième degré, recoupe à être un témoignage antérieur. ; $
 
-| 26 ER Solountur objecta
-
 <s ea ultérieur, un témoignage en avance en retard de vingt
 
 Le | siècles, le seul témoignage païen que nous ayons de
@@ -4038,8 +3895,6 @@ qu'ils jurent, sans qu'ils se contrarient invinciblement,
 ë sans qu'ils se battent l'un contre l'autre ensemble, sans
 
 qu'ils hurlent d'être accouplés, ces deux mots : prophétie
-
-Sa — paienne.
 
 Il est impossible, il est indéniable, je plains celui qui
 ne sentirait pas instantanément que ce jour-là il s'est :
@@ -4248,7 +4103,6 @@ qu'un poète se soit peut-être jamais donnée, par cette HÉS
 tion, par la déclaration, par la proclamation de ce SA
 Jérimadeth on ferait savoir au monde qu'aujourd'hui
 en effet on s'en payerait et que l'on dominait, que l'on
-| tenait le monde. Qu'on en prendrait et qu'on s'en
 donnerait. © cruel souvenir de ses gloires passées.
 Mauvais souvenir, impérieux souvenir des gloires tant
 de fois manquées, souvenir en avant des gloires qu'il
@@ -4276,7 +4130,6 @@ pleine ivresse du Booz s'explique, éclate. Dans le païen 6
 même, dans le pur païen, à ne considérer même purement que la veine païenne et non pas même cette inser- ;
 + tion, cette référence du païen sur le chrétien, dans la $
 + pure veine païenne même il ne devait jamais retrouver = 4
-un Booz, (à ne considérer que ce qu'il y a de païen dans
 Booz, à ne considérer que la veine païenne), pas même
 dans ses grands poèmes officiellement, professionnellement païens, pas même dans le Géant, le Titan, le
 Dans cette indécence, dans cette insolence, dans cette |
@@ -4348,7 +4201,6 @@ Quel dieu, quel moissonneur de l'éternel été 27
 Avait, en s'en allant, négligemment jeté #3
 Un temps. ne
 | Cette faucille d'or dans le champ des étoiles. 4
-# 'AË
 
 ee Nous aussi, à défaut de couleurs, nous avons nos -
 __  hachures. Maïs il nous en manque. IL nous faudrait
@@ -4380,7 +4232,6 @@ Le croissant fin et clair parmi ces fleurs de l'ombre
 Brillait à l'occident, et Ruth se demandait,
 
 _ Et tout reste en l'air.
-Les.
 
 Voici à présent la première des deux, le premier
 essai, le premier modèle de la même structure, de la 6
@@ -4437,7 +4288,6 @@ d'appui; et la rime avec ce nom propre, ce qui est le dernier des derniers, le d
 de la conjugaison d'un verbe : Judith, descendit; Jéri- -
 - madeth, demandait. Dans les deux cas, (avec un nom
 propre), troisième personne du singulier (du parfait
-ou de l'imparfait) de l'indicatif. De l'imparfait ou du .
 prétérit. La rime non attendue, ou enfin attendue
 à force de n'être pas attendue, la rime attendue doublement inattendue ; nullement cette rime paresseuse attendue, cette rime toute allante qui fait rimer le nom …
 avec le nom, l'adjectif avec l'adjectif, le verbe avec le 3
@@ -4476,7 +4326,6 @@ que graduellement sous ce soleil joyeux. Vous me disiez :
 - Ces vers, ces poèmes sont précisément les poèmes de ce
 … paÿs-ci, de cette Ile de France. Is ont été faits pour ce
 
-| Solountur objecta
 pays-ci même. Ils sont nourris de ce pays-ci. De ces
 paysages. De ces horizons. C'est ce pays-ci qu'il tra- 5
 versait à pied quand il allait voir madame Drouet. Elle $
@@ -4632,7 +4481,6 @@ nous en apercevoir quand nous arrivons à l'âge de raison
 pour savoir où nous en sommes, comment placés nous
 sommes, (c'est-à-dire en somme un peu qui nous sommes),
 sont invincibles. Ils sont indéfaisables. Et comme dit
-|
 
 l'autre indéfectibles. Ils comptent pour toute la vie.
 Nous ne pouvons jamais nous en dépouiller. Ils demeurent toujours. Au fond nous ne cherchons pas même
@@ -4666,7 +4514,6 @@ fois dans la vie. On a déjà eu tant de mal à s'installer.
 D'abord alors on veut que cette installation compte
 pour toute la vie. Serve pour toute la vie. Et on y
 
-Solvuntur objecta LE87 1TEORR
 réussit tant bien que mal. On ne veut pas recommencer è 4 |
 la vie. Puis on aime les enfants. On les aime mal. Donc RES
 on les aime mal. On croit que c'est de l'amour et de la 3
@@ -4678,7 +4525,6 @@ pour eux. Laissons nos enfants s'installer pour eux, . )
 compter pour eux, commencer pour eux. Ils ont sept
 ans. Ils ont douze ans. Laïissons-les faire leurs comptes, 4
 qui nous chassent. 4
->
 $ 2. — Poussons nos merveilleuses, nos mystérieuses |
 recherches. La véritable ode à la Colonne, tout court, 4
 n'est pas dans les Odes; elle n'est pas une ode; enfin #4
@@ -4699,7 +4545,6 @@ s'était produit depuis, l'Empire s'était mis entre, a
 l'épopée impériale, il y avait eu l'Empire entre les É
 deux. Il avait bien senti tout ce qu'il y avait, tout ce |
 
-SE tue à Un M EE MT nee UE tn 0 RE "
 3 qu'il y avait eu dans ces nouvelles journées de napoléonien, de gloire impériale, de guerre impériale,
 d'épopée impériale. Ce n'est point dans sa préface
 qu'on le voit, dans sa préface sans titre ni mention de
@@ -4831,7 +4676,6 @@ l'ordre du jour. 4
 C'est le poème
 Oh! quand il bâtissait, de sa main colossale, $
 Pour son trône, appuyé sur l'Europe vassale,
-Ce pilier souverain,
 Ce bronze, devant qui tout n'est que poudre et sable,
 Fait de gloire et d'airain; &
 Quand il le bâtissait, pour qu'un jour dans la ville
@@ -4847,8 +4691,6 @@ grand commencement de Mil huit cent onze! —
 : O temps où des peuples sans nombre
 Attendaient, prosternés sous un nuage sombre,
 Que le ciel eût dit oui!
-
-| VICTOR-MARIE, COMTE HUGO
 
 Sentaient trembler sous eux les États centenaires,
 
@@ -4879,7 +4721,6 @@ $ 18. — Quoi qu'ils en disent, quoi qu'ils en pensent
 même peut-être, les Français sont généralement corné-
 liens. Et d'autre part comme il n'y a que les Français
 
-|
 | qui soient assez fins pour être raciniens, il suit qu'en |
 © réalité il y a beaucoup moins de raciniens que de cor- |
 $ 19. — Quand nous ferons, à notre tour, quand |
@@ -4911,9 +4752,6 @@ ses prophètes. Ils sont tous irrévocablement pétris de |
 disgrâce, (serait-ce donc de la disgrâce janséniste; qui |
 placée comme un germe, comme un virus à l'origine
 
-| Î
-|
-
 même, au point d'origine de l'homme et de l'œuvre, se Îl 1
 serait ensuite et lentément et patiemment diflusée | £
 jusqu'aux membres les plus éloignés; comme naturelle- ul
@@ -4928,8 +4766,6 @@ grâce à manqué, des Grecs, des Romains; des Infidèles LR
 qui la grâce a manqué; des Tures; enfin des Juifs Ré Ÿ
 mêmes, des prophètes à qui la grâce a manqué, autant 1
 qu'on peut le dire, au moins la grâce précisément de +
-| prophétie. # A
-Par contre il y a quelque chose de désarmant, de Œi)
 | vraiment touchant à voir l'opinidtreté forcenée, fréné- | \
 À tique, l'entêtement, l'efforcement, la persévérance, l'en- HA ‘4
 durance, la force d'illusion sur soi, la méconnaissance FFT 4 :
@@ -4939,7 +4775,6 @@ Comeille s'est efforcé pendant toute l'immense deuxième HT
 moitié de sa carrière, À
 Le sort, qui de l'honneur nous ouvre la barrière, FL 14
 ‘ Offre à notre constance une illustre matière ; || A 28
-|L
 s'est appliqué laborieusement à faire des criminels FA
 extraordinaires, plus noirs que le noir de fuméé, sans DEA à
 jamais parvenir, le vieux et le maître, avec tout ce Il à
@@ -4994,8 +4829,6 @@ qui la grâce a manqué; des Turcs; enfin des Juifs » mêmes, des prophètes à
 
 qu'on peut le dire, au moins la grâce précisément de
 
-Par contre il y a quelque chose de désarmant, de à
-
 vraiment touchant à voir l'opiniâtreté forcenée, fréné- ;
 
 tique, l'entêtement, l'efforcement, la persévérance, l'en-
@@ -5026,7 +4859,6 @@ non pas même Bérénice.
 
 Corñeille n'a jamais pu faire que des êtres gracieux, "+
 Racine n'a jamais pu faire que des êtres disgraciés, et
-ce qu'il y a de tragique c'est qu'il est impossible de ;
 nier qu'il les faisait tout naturellement, qu'ils sortaient
 de lui, qu'ils lui venaient naturellement ainsi.
 
@@ -5046,8 +4878,6 @@ monstrueuse), comme sa soumission à son père a un
 fond de cruauté, comme elle est bien déjà la fille
 d'Agamemnon et de Clytemnestre. Cette réponse terrible
 à son père, d'une sourde cruauté tragique :
-
-x Mon père, ]
 
 Cessez de vous troubler, vous n'êtes point trahi. 4
 
@@ -5101,7 +4931,6 @@ cruels. Ils ne le sont point naturellement, sincèrement.
 Ils ignorent le raffinement, qui est toute la cruauté. Le
 raffinement ne leur vient point. Ils n'en ont pas le goût,
 
-PS | Solvantur objecta LES
 ils n'y ont point de compétence. Nulle maîtrise. Ils $
 n'y sont point inspirés. Ils ignorent la douceur, qui est |
 toute et plus que la cruauté. C'est un genre où ils ne $
@@ -5164,7 +4993,6 @@ Non que la peur du coup dont je suis menacée L
 Me fasse rappeler votre bonté passée. 1
 Ne craignez rien : mon cœur, de votre honneur jaloux, 1
 Ne fera point rougir un père tel que vous:
-Et si je n'avois eu que ma vie à défendre, î
 J'aurois su renfermer un souvenir si tendre. ;
 Mais à mon triste sort, vous le savez, Seigneur,
 Une mère, un amant attachoient leur bonheur.
@@ -5221,7 +5049,6 @@ cruauté; cette prodigieuse imagination racinienne.
 
 $ 21. — Les cornéliens ne se blessent jamais, même 3
 et surtout quand ils se tuent; leur honneur alors est 5
-précisément de ne point se blesser, en un sens de ne. : à
 point se faire de mal. Plus ils sont ennemis, plus ils se 4
 ; battent, moins aussi, moins donc ils se veulent du mal, 3
 moins ils se veulent de mal, moins ils se blessent
@@ -5246,7 +5073,6 @@ toujours par se vouloir du mal, ne fût-ce que de s'en è
 faire et de s'en être fait. $
 $ 22. — La libéralité est une certaine grâce dans les x
 questions d'argent. L'avarice au contraire y est une 4
-$ 23. — Il y a aussi et généralement, (et c'est la :
 
 même), une certaine libéralité du cœur et une certaine $
 avarice de cœur. ë
@@ -5271,7 +5097,6 @@ si je puis dire un vice pire, infiniment pire, (une inhumanité, surhbumanité, 
 Plus mordante, infiniment plus profond, plus dominante,
 plus attachée, à sa proie. Les saints et les martyrs
 
-| DEEE
 sont infiniment plus pétris, tenus par la charité, infini- 1
 ment plus pétris de (la) charité, infiniment plus mordus É
 de charité que les criminels, que les cruels ne sont 1
@@ -5302,7 +5127,6 @@ nement dans la construction de l'œuvre, qui se poursuit,
 (mais alors souverainement), jusque dans le moindre
 180 1
 
-#4 .
 détail. Il faudrait beaucoup s'entendre sur cette ordonnance. Elle est réelle, et souveraine, dans le dialogue,
 dans le détail, dans le détail du dialogue. Le peu que
 nous avons donné d'/phigénie est saisissant d'ordonpance, merveilleux de cette ordonnance. Maïs aussitôt
@@ -5363,7 +5187,6 @@ de parler de somptueuse ordonnance, à condition qu'il LA
 soit bien entendu et qu'il demeure entendu que l'on sait LU
 
 TRE « - que ordonnance ne veut point dire ordre. Ordre pro4 fond, ordre organique. :
-#" K i j
 
 12 $ 30. — L'appareil n'est point l'ordre. Ou plutôt
 > … tantétil peut être un vêtement du désordre, intérieur,
@@ -5723,10 +5546,7 @@ $ 45. — Le saint est infiniment plus la proie de la
 charité que le cruel de la cruauté.
 $ 46. — Ni l'ordonnance n'est l'ordre, ni la désordon193
 
-D RENE STE SC NEC A OU à A ue LRO
-+ 9 ee St AE ie DOS L'ANPE
 nn nance n'est le désordre. Ni l'ordonnance ne fait l'ordre,
-7 ni le désordonnancement ne fait le désordre. ST
 $ 47. — L'ordonnance règne surtout dans le détail.
 L'ordre règne dans le corps même. 4
 $'48. — L'ordonnance couvre. L'ordre règne. £ S.
@@ -5751,7 +5571,6 @@ $ 51. — Il faut dire aussi que cet éclatant désordre
 $ 52. — Une tragédie par an, excepté cette extraor- Lt
 dinaire Phèdre, qui sortant déjà par trop de la série,
 - prit une incubation de trois ans. Ce
-| 194 e
 
 _ $ 53. — Toutes les tragédies de Racine se couronnent
 - chacune elle-même. Ce sont des reines séparées. Des
@@ -5809,8 +5628,6 @@ gédie de Corneille finit toujours bien. Héroïsme,
 clémence, pardon, martyre elle finit toujours par un
 couronnement. Les palmes temporelles croissantes
 dans les trois premières s'achèvent, se promeuvent, se
-
-| à VICTOR-MARIE, COMTE HUGO :
 
 couronnent dans Polyeucte en palmes éternelles.
 L'événement même est pur dans une tragédie de
@@ -5952,9 +5769,7 @@ Tout ce classique, toute cette mesure, sans biaïiser
 # d'une ligne, sans reculer d'une ligne, sans se laisser
 entamer, ronger, atteindre d'une ligne, n'en baigne $
 pas moins dans un océan de démesuré, de surmesure,
-| d'extramesure.
 | Là est la réussite unique.
-|
 | $ 72. — Un contour aussi fin; en même temps,
 ensemble aussi ferme; sans un écrasement; nullement
 $ 73. — Mais il y faudra revenir, autrement, ailleurs
@@ -6050,14 +5865,11 @@ Que dis-tu, malheureux? qu'oses-tu souhaiter ? 4
 
 Ce que de tout mon sang je voudrois acheter. È
 
-Que plutôt... 1
-
 Ë C'est en vain qu'on se met en défense :
 Ce Dieu touche les cœurs lorsque moins on y pense. ë
 Ce bienheureux moment n'est pas encor venu; È
 Il viendra, mais le temps ne m'en est pas connu. #
 Quittez cette chimère, et m'aimez. ;
-Il faut du courage, et beaucoup de barbarie, et de la
 décision, et prendre sur soi, et se faire à soi-même un F
 rude refoulement, et être résolu à se faire, à se donner É-
 à soi-même une bien triste opinion de soi-même pour
@@ -6368,8 +6180,6 @@ des rimes intéressantes, promues d'Horace à Polyeucte,
 formant, faisant un système lié.
 Nous montrerons, nous suivrons partout cette triple
 
->" Cor %
-
 HP promotion. Trois œuvres avançant d'un même front, à
 | sur un seul front, apportant, offrant ensemble leur triple ÿ
 
@@ -6527,7 +6337,6 @@ ceux qui peuvent travailler, qui hors du souci, du 4
 tracas, du fatras temporels, dans le grand silence des '
 
 lampes aux veillées d'hiver pourront travailler les
-auteurs. L 4
 
 Et à présent plus de notes. Xeine … mehr. Plus de
 
@@ -6548,7 +6357,6 @@ sommes indispensables l'un à l'autre. Nous sommes 4
 
 218 4
 
-| VIcTOR-MARIE, COMTE HUGO
 (comme) dans une armée, nous sommes une armée où
 _ tout le monde a le même cœur, mais où l'un est la
 
@@ -6619,8 +6427,6 @@ nos grands ancêtres. Spectacle singulier. Spectacle tra- 1
 gique. Une fois de plus la Sorbonne est tombée dans à
 220 4
 
-ne.
-
 la scholastique. Et dans la scholastique du maté- ‘
 rialisme, la pire de toutes. Ce n'est point trahir d'anciennes amitiés, ce n'est offenser personne que de dire
 que cette Sorbonne, que nous avons tant aimée, ayant
@@ -6653,7 +6459,6 @@ a les honneurs, qui a l'argent, qui fait les mariages,
 
 | 221
 
-LLÉEARE de rer bee pet en er 52 FRE ee ee he FEPRTRUE
 comme les (anciens) jésuites, et comme les (anciens) cd 4
 ; rabbins, qui a les charges, qui a le gouvernement +
 temporel, toutes les puissances temporelles. Qui a les 4
@@ -6683,7 +6488,6 @@ secours de son dehors que de son dedans. Et ce qu'il ‘4
 y a de plus fort peut-être dans tout ce débat, c'est que
 le pouvoir bureaucratique lui-même, les bureaux du
 Ministère de l'Instruction publique, le parti bureaucra- $ :
-> 222 « 0
 
 > tique, ou comme on dit dans les polémiques les bureaux à
 
@@ -6788,7 +6592,6 @@ tout le pouvoir temporel; et qu'un homme qui défend
 le français, le latin, ou le grec, ou simplement l'intelligence, est un homme perdu; qu'il ne se fait pas actuellement une seule nomination dans l'enseignement
 supérieur sans que le candidat ait fait sa soumission, à
 ces messieurs, sans qu'il ait donné des gages, signé
-le revers, signé la capitulation et de la pensée, et de
 la liberté de la pensée.
 Sans qu'il ait fait ses dévotions à la sociologie.
 Disons le mot, c'est une église, laïque, radicale, qui
@@ -6891,7 +6694,6 @@ congruent), ils chargent sur leur dos toutes ces échelles È
 et tous ces micromètres et sortant de leur maison, À
 déménageant, de leur propre maison, sans esprit de à
 retour ils vont dans la maison d'en face, ou, autant k
-#
 
 ÿ ‘que possible, dans une maison beaucoup plus éloignée,
 : dans la maison la plus éloignée, pour voir s'il n'y aurait
@@ -6921,7 +6723,6 @@ trop art), (trop ce qu'ils devraient être), les gars ils vont
 d'emblée aux chimies, qu'ils ne savent pas non plus,
 aux physiques, qu'ils ne savent pas, aux mathématiques
 
-NS PA TARA ee de
 qu'alors ils ne savent pas. Il est très remarquable que
 
 les ignorants vont toujours aux mathématiques, comme
@@ -6958,10 +6759,6 @@ linéarité consiste à être une linéarité de scientifique,
 qu'en remontant la ligne, la série, la série linéaire à
 chaque étape, chaque degré est, fait un progrès ‘4
 de scientifique, que la série, que la progression F
-
-. L ASRESS me
-
-É. de _ VICTOR-MARIE, COMTE HUGO k
 
 . _ d'abstraction croissante est en réalité (si je puis dire)
 
@@ -7009,8 +6806,6 @@ e … pas seulement chimistes et physiciens, na. Ça ne serait
 ' scientifiques, suprême scientifiques. Ils ne seront pas
 
 _ moins que mathématiciens. Je vous le dis, toute la
-
-| rigueur mathématique.
 
 4 Mais mon ami, (c'est à ce littéraire que je parle),
 
@@ -7181,9 +6976,7 @@ sais que je ne suis point un écrivain impropre. Il ne
 m'est jamais venu à la pensée, (et par suite j'ai l'assurance qu'il ne peut pas m'être venu à la plume, qu'il
 ne peut pas être venu sur ma page), ni de juger |
 votre courage, ni de comparer votre courage au |
-|
 
-| See VICTOR-MARIE, COMTE HUGO
 Je n'ai jamais eu l'intention de juger votre courage,
 
 de juger votre cœur. Où en aurais-je pris, de qui en
@@ -7569,14 +7362,12 @@ pas facilement. Rassurez-vous, c'est le petit. Mais Si
 M. Sorel en est depuis dix ans et plus et moi depuis
 toujours et nous nous en trouvons fort bien. M. Benda ù
 
-| 4 VICTOR-MARIE, COMTE HUGO
 ; fait quelquefois semblant de n'en être point. Il va, il
 { voyage jusqu'à Versailles pour n'en être point. Mais il
 | se cache à Paris pour en être. C'est, ce sera le parti des <
 gens qui ne quittent pas Paris pendant les mois d'été.
 Ce sera un peu long à mettre dans nos programmes.
 Mais les grands partis à présent ne se désignent plus
-que par leurs initiales. L. P. D. G. Q. N. Q. P. P. P.
 L. M. D. E. Un rêve. C'est un peu moins court que le
 S. F. I. O. Mais aussi ce sera plus puissant. Daviot
 même ne pourra pas en être. À cause des Sables
@@ -7732,7 +7523,6 @@ de faucheuses; dans le fin brouillard bleu qui montait
 de la Seine vous regardiez passer ces tubes gris de fer.
 Ces corselets. Et vous ne grondiez pas trop, vous ne
 
-NE Solsuntur objecta
 = paraissiez point trop mécontents de ces canons respubliquains.
 
 Un fin brouillard bleu de fleuve, une buée seulement
@@ -7808,7 +7598,6 @@ fatiguées ; vous qui avez entendu le silence de l'âme et }
 qui ainsi avez gardé votre âme première; nullement
 RON émoussée, nullement fatiguée ; Grec, fils de Grec,
 pan Breton, grand Français pour qui l'Iliade est vraiment
-un récit de guerres comme ii y en a, et l'Odyssée un
 récit de voyages comme il y en a; Français qui selon
 le rite antique, selon le rite grec, (hébraïque), (français)
 êtes nommé de votre père, et prénommé de votre grand- |
@@ -7856,7 +7645,6 @@ dans cette sorte de cérémonie antique païenne qu'il y
 eut, je crois que j'ai recueilli le testament littéraire de
 Moréas. C'était il y a peu de jours, dans cette chambre |
 où nous venons pieusement de lever son corps. Il avait « demandé qu'on nous laissât tout seuls, et la garde ellemême s'éloigna. Nowe avons causé de ce qui lui tenait le À |
-plus au cœur, de littérature, et il m'a dit : « Il ny à |
 
 - pas de classiques et de romantiques... C'est des bétises.… M
 ; Je regrette de n'être pas mieux portant pour Cexpliquer… » Nous ne saurons jamais quels arguments se 1
@@ -7886,9 +7674,7 @@ Ce bon ordre, continuait Barrès, cette économie souveraine qui règne dans ses
 Ë mettait dans-sa vie si digne et si claire; son lyrisme
 concentré, c'est une mâle pudeur; ses raccourcis, son +
 ,
-| Nr
 
-# VICTOR-MARIE, COMTE HUGO
 _ style énergique, ses belles inversions, c'est de la bravoure; sa grâce fière, c'est la loyauté que nous aimions
 dans toutes ses mœurs.
 Vous rencontrerez souvent, mon ami, cette proposition, cette distinction, cette reconnaissance. Vous
@@ -8001,7 +7787,6 @@ antique race qui se rattache à l'Orient mystique (il y a
 ici des « Chiites » que les guerres du premien siècle de
 l'Islam avaient pourtant rejetés et confinés\en Perse
 : sur les bords de l'Euphrate) et qui se ramifie vers l'Est
-| ei
 
 4 Là Jusqu'au delà de Timbouctou (les Kounta du Tagant
 …_  s'échelonnent ainsi jusqu'au Nord de la boucle du
@@ -8061,7 +7846,6 @@ de Vous qui connaissez la brousse et le bled, allons vous Lt: 5
 êtes bon. Vous en serez. Un jour vous serez mûr. Mil- At AN
 taire je vous prends. Hfnest Psichari mon enfant, vous AP 4
 
-#2 N0NSE _  VICTOR-MARIE, COMTE HUGO et ? 1
 ‘ a aussi vous serez de mon parti. C'est le grand parti. Ce
 de _ n'est point encore ce grand parti des mécontemporains,
 bus ._ Dont Pesloüan fonda les premières assises.

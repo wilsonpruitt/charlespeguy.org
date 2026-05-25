@@ -8,20 +8,9 @@ isAvertissement: false
 wordCount: 56433
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s15-c06-ocr.txt); ingested 2026-05-25"
 ---
-
-L'EXODE
-
-                 DU MÊME AUTEUR
-         A LA LIBRAIRIE HACHETTE ET Cu
-
-
-
   Alsace-Lorraine : La Carte au liséré vert.— 4»édition.
-Un volume ta-i6, broché                                    3 fr, 5o
                         .
     Ouvrage couronné par l'Académie française.
-
-
 
   La Cathédrale de Strasbourg. Notice historique et archéo*
 logique. — Un volume in-16 avec 3o planches hors texte en photo-
@@ -31,38 +20,15 @@ des Grands Monuments). D.-A. Longuet, éditeur. .           4 fr. •
   Un Ennemi du Cardinal « Collier » : François-Léopotd
 de Mayerhoffen, maire de Saverne (Contribution à l'histoire de
 la Révolution en Alsace). — Un volume in-i6, Dorbon-Alnô,
-éditeur                                           3 fr. So
 
   L'Insurrection de Strasbourg (3o octobre i836). — Un
 volume in-4% avec de nombreuses illustrations (tirage à part
 de la Revue Alsacienne Illustrée). — Librairies Dorbon-AIné
-et Floury                              .'            10 fr. •
-
-   GEORGES DELAHACHE
-
-
-
-
-         WISSEMBOURG — V(C
-      LE « RAYON DES VOSGES »
-
-
-
-
-             PARIS
-LIBRAIRIE HACHETTE ET O
- 79, BOULEVARD SAINT-GERMAIN, 79
 
               1914
 
 TOM droits 4« trtdiHO », de tept\MocUoo
 «t «l'adaptation rtaents pour toa* paya.
-«s Cotyrtgt* ty Hachette et O* 1914  »
-
-No$ patrfae /?n##...
-
-
-
 
   « Les sujets français, originaires des territoires cédés,
 domiciliés actuellement sur ce territoire, qui entendront
@@ -80,7 +46,6 @@ gation. Nul ne put garder à la fois sa qualité de
 Français et son domicile en Alsace-Lorraine. Il fallut
 rester en Alsace-Lorraine et devenir « sujet allemand»,
 ou « opter » en bonne et due forme pour la France et
-partir.
   J'ai dit ailleurs (t) quelles réactions te traité produisit
 sur les diverses catégories de personnes, comment se
 
@@ -120,11 +85,7 @@ des parents moins proches, ou, simplement, la France,
 les Français... Les Alsaciens et les Lorrains se sont
 répandus par toute la France, lui apportant, de la
 
- (1) Voir Annexe I.
-
                            20
-
-                      AVANT-PROPOS
 
 même foi que leurs pères s'enrôlaient aux autels de la
 Patrie, une énergique volonté de la servir. Des noms
@@ -197,8 +158,6 @@ représentants de l'Alsace n'auraient pas devant l'his-
 toire la même autorité. Faire déclarer, à Bordeaux,
                              22
 
-                       AVANT-PROPOS
-
 « nul et non avenu un pacte qui dispose de nous sans
 notre consentement », à Berlin, « que l'Allemagne a
 excédé son droit de nation civilisée en contraignant la
@@ -230,7 +189,6 @@ que i'Alsace-Lorraine allait devenir un pays allemand
 mination des habitants qui se sont prononcés pour la
 France » (i), ce n'était qu'un argument de consolation
 
- (t) Voir Annexe II.
                             23
 
                             l'exode
@@ -264,11 +222,7 @@ duction humaine cl économique de l'Allemagne a
 contribué à modifier dans le même sens les manières
 de voir et d'agir des autorités. Ce n'est pas seulement
 
- (t) Voir Annexe III.
  (a) Sinon tout de suite, du moins quelques années après la guerre.
-                               *4
-
-                        AVANT-PROPOS
 
 au point de vue politique que le traité de Francfort
 séparait l'Alsace et la Lorraine de la France : la fron-
@@ -302,7 +256,6 @@ Dévotion tendre à notre petite patrie, sensibilité tou-
 jours en éveil quand il s'agit d'elle et vibrante au
 
  (i) Voir plus loin, pages 30, or, et Annexe IV.
-                                a5                 l'exode. — a
 
                          l'exode
 moindre choc, sans doute; mais encore —puisse le mot
@@ -338,8 +291,6 @@ industrie, avec qui « travaillait » Langenhagen de
 la guerre, les gardes montées ensemble à la Porte
  do Pierres, l'escarmouche de Chalempé ou tes sorties
                              26
-
-                     AVANT-PROPOS
 
 de Belfort, encore des émotions éprouvées en commun
 et qu'on revit d'un même coeur; puis, la fin, après la
@@ -394,10 +345,6 @@ sont restés » de tant .de personnes, de tant de choses
 chères qu'ils n'ont jamais vu revenir, et il m'a semblé
 qu'ainsi je contribuais, pour ma modeste part, à main-
 tenir ce lien, à faire durer, malgré la frontière, cette
-fraternité, (i)
-
-
-
 
   (i) M. Ernest Lavisse, de l'Académie française, a bien voulu
 s'intéresser dés te début à ee travail et en accueillir les principaux
@@ -405,26 +352,12 @@ chapitres dans la Reçue de Paris, avec une sympathie dont le
 souvenir m'est très précieux. Qu'il veuille bien trouver Ici l'hom-
 mage respectueux de ma vive et sincère reconnaissance.
 
-DE BISCHWILLER A ELBEUF
-
-
-
-
-                  l'exode. — a.
-
-
-   DE BISCHWILLER A ELBEUF
-
-
-
   La guerre était à peine terminée qu'une petite ville
 du Bas-Rhin, en pleine prospérité, vit partir près de la
 moitié de sa population, presque toute une industrie,
 qui s'en forent jusqu'en Normandie chercher les moyens
 de revivre en restant à lu France : Elbeuf allait s'enri-
 chir de tout ce que perdit Bischwiller.
-
-
 
   L'activité industriellede Bischwiller avait son origine
 au début du dix-septlème siècle. Hameau bâti autour
@@ -438,7 +371,6 @@ Non loin de là, au débouché d'un col des Vosges, mais
 sur leur versant occidental, une ville neuve s'éleva
 bientôt, Phalsbourg, oeuvre du comte palatin Jean-
 George de Veldençe, refuge largement ouvert aux prç.
-                           3i
 
                         l'exode
 testants persécutés de France et des Pays-Bas, indus*
@@ -462,7 +394,6 @@ des échevins, liberté du travail, concession gratuite de
  pour l'établissement d'un foulon... A ces travailleurs
  venus ainsi — par Phâlsbourg — de Lixheim près de
  Sarrebourg ou de Courcelles près de Metz, de Rocroi,
- de Commenchon ou de Grandrieux, du Yermandois ou
  du Limbourg, appartient l'honneur d'avoir introduit à
  Bischwiller cette industrie textile qui devait trans-
  former, vivifier, rendre célèbre l'ancien village obscur
@@ -473,9 +404,7 @@ des échevins, liberté du travail, concession gratuite de
   apparurent comme d'autres sources de richesse, —
   mais accessoires : dans l'industrie drapière apportée
  par les premières colonnes de réfugiés, « il y avait »,
-                           3a
 
-                 PE BISCHWILLER A BLBBUF
 dit un jour le Dr Luroth, on bon administrateur de
 Bischwiller, « il y avait un levain qui devait, tôt on
 tard, faire lever tonte la pâte ». Lorsqu'on 1811 l'adroi-
@@ -506,10 +435,8 @@ tion fondées sur la plus large tolérance publique et
 religieuse », dont M. de Quatrefages (1) fit un cnthou-
 
  (1) L'illustre savant, membre de l'Institut, professeur au Muséum.
-                    i
 Il avait été étudiant Strasbourg. — La cérémonie d'inauguration
 eut lieu le 10 octobre i80f. Depuis plusieurs années, M. de Quatre-
-             i
 fages passait Bischwiller la période des vacances.
                                 33
 
@@ -522,7 +449,6 @@ anciennes et six rues nouvelles, d'uno largeur uni-
 forme, sur un plan d'alignement régulier, bordées de
 petites malsons commodes, peu coûteuses, à simple
 rez-de-chaussée, qu'il fallut, souvent, surbâtir par la
-suite.
    ... Tout à coup, par un  matin  d'été, l'écho de canon-
 nades proches, puis, l'après-midi, des lueurs d'incendie
 du côté de Froeschwiller, un cheval au galop, sans
@@ -534,21 +460,16 @@ spérité do Bischwiller. On ne construira plus de quar-
 tiers nouveaux, on n'aura plus besoin de surbâtir les
 rez-de-chaussée.
 
-
-
   Mais Bischwiller était, comme toute l'Alsace, ardem-
 ment française. Faut-il dire aussi qu'elle mettait quelque
 coquetterie à garder un air révolutionnaire, et que son
 humeur indépendante devait mal augurer de l'avenir?
 L'Alsace, l'Alsace des Dix Villes Libres, de la Répu-
-blique de Strasbourg et do la .République de Mul-
 house, l'Alsace de la Marseillaise allait tomber
 sous un joug étranger, le plus rude qui fût. Or, dans
 l'Alsace démocratique, les Bischwillérols se vantaient
 particulièrement de n'avoir pas, en 1793, arboré le
                           34-
-
-                DR niSCHWlLLER A, ELBEUF
 
 drapeau blanc & l'approche des Autrichiens, d'avoir
 fait des réceptions triomphales à Benjamin Constant
@@ -562,7 +483,6 @@ cien?... Peut-être; mais, plu» qu'un sentiment confus,
 une Idée claire occupait leurs esprits,/animait leurs
 volontés. La France restait, et justifiait à soi seule le
 désir de rester à elle, d'aller la rejoindre... Us parti-
-raient...
   Heureux ceux-là I s'ils voulaient partir, les conditions
 d'existence de leur industrie ne seraient pas un obstacle
 à leur départ. D'abord, en co qui concerne les débou-
@@ -626,7 +546,6 @@ de sa personne... Raisons et raisonnements qui
  (1) Voir pages a5,91, et Annexe IV.
                               36
 
-               PK BISCHWILLER A BLBBUF
 soutenaient l'élai» premier, mais n'ôtalent rien à sa
 beauté. On voulait, et on pouvait partir ; on s'y décida,
 sans hésitation, non sans angoisse. Malgré tout, l'avenir
@@ -639,28 +558,16 @@ ne se lasserait-elle pas, la première émotion passée?
 Les agglomérations industrielles où ils allaient entrer
 verraient-elles leur arrivée avec plaisir, — facteurs
 nouveaux d'activité et de succès, ou concurrents?... Ils
-partirent...
-  Eu 1869, il y avait à Bischwiller n.600 habitants ; en
 1874, il n'y en avait plus que 7.700. Des 96 fabricants
 d'avant la guerre, il n'en restait plus que 21 ; des
-5.000 ouvriers, moins de 2.000 ; des 2.000 métiers, 65o.
 Les expéditions de marchandises fabriquées ne se
 chiffraient plus que par 400.000 kilogrammes au lieu
 d'un million, et le total des affaires de la draperie que
 par 5 à 6 millions de francs au lieu de 18 à 20. (1)
 
-
-
-
   Où allèrent-ils? Quelques-uns à Sedan, à Vire, à
 Reims, à Tourcoing. La plupart, les plus Importants, à
-Elbeuf.
   L'antiquité d'Elbeuf était plus respectable encore que
-
-
- (1) Cf. Euo. BOURGUIGNON, op. cit., page 356.
-
-                               37                l'exode. — S
 
                           l'exode
   celle de Bischwiller. Mention est faite des drapiers
@@ -692,15 +599,11 @@ visite du Premier Consul, qui les honore d'une devise,
 brève et nctto comme un commandement : « Elbeuf est
 une ruche ; tout le monde y travaille »... En 1698, Elbeuf
 fabriquait 9 à 10.000 pièces, valant plus de 2 millions
-de livres; en 1785, 18.000 pièces : 9.000.000 livres;
 en 1823, sa production atteignait 36 millions de francs ;
 en i834, 45 millions; en 1868, 85 millions. Elbeuf ne
                             38
 
-               DR BISCIINVII.LER A ELBEUF
-
   dérogeait pas en accueillant Bischwiller, ni Bischwiller
-  en se réfugiant à Elbeuf.
      Toutefois, entre l'industrie de Bischwiller et celle
   d'BIbeuf, II y avait analogie, non identité. Les produits
   manufacturés, ici et là, n'étalent pas absolument les
@@ -730,11 +633,8 @@ en i834, 45 millions; en 1868, 85 millions. Elbeuf ne
   au contraire, étaient do l'école de Mulhouse : ils
   apportaient et ils mirent en pratique à Elbeuf la for-
   mule moderne de la concentration dans les grandes
-  usines.
      Sans doute, l'action ne fut pas unilatérale, l'influence
                              39
-
-                         Vexode
 
 no vint pas des Blschwillérois seuls; il y eut pénétra-
 lion réciproque. Au bout de quelque temps, les Blsch-
@@ -759,18 +659,13 @@ vie industrielle d'Elbeuf, par leur arrivée, se renou-
 vela, comme celle de Bischwiller, par leur départ,
 s'était presque éteinte.
 
-
-
   Quarante ans après... Du coup que lui a porté la
 séparation d'avec la France, Bischwiller ne s'est pas
-relevée.
   Co fut d'abord, non pas la misèro : on l'a évitée
 en fuyant devant elle, — mais la désolation, dans
 le sens originel des livres sacrés, le vide, l'abandon,
 — une malédiction qui avait passé, destructrice peut-
-                           4o
 
-             PS BISCHWILLER A ELBEUF
 être de l'avenir même. Puis, ceux des fabricants qui
 étaient restés, essayèrent do reprendre courage, se
 remirent au travail; et quelques-uns sont venus à bout,
@@ -803,7 +698,6 @@ de chaussures, une fonderie. Des ouvriers aussi, ceux
 qui restèrent, purent vivre grâce aux vides laissés par
 ceux qui étaient partis. Avant la guerre, les ouvriers
 étaient les maîtres du travail, les patrons,.comme on
-                            4i
 
                              l'exode
 disait, les attendaient au pas des portes; après, dans
@@ -841,8 +735,6 @@ grés, sous-ofltclcrs ou employés de bureau ; mais elles ne s'en éton-
 nent pas moins qu'on fasse comme elles quand on a les moyens
                                  42
 
-                  DR BISCHWILLER A KLBBUF
-
  monde en parle pendant des années, les relations sont
  rompues avec     le transfuge,  et, une  fois do plus, les
  « Immigrés » ne comprennent pas... Alors, malgré .la
@@ -873,7 +765,6 @@ espoirs que la guerre a brisés.
 
 de faire autrement. Un» d'entre elles, apprenant le mariage d'une
 Jeune 011e de la bourgeoisie Indigène avec un Allemand, disait en
-              t
 son dialecte : Ieh thaï mteh awer schâme, wenn leh e Mamsell «car,
 so elner tu hlrolhel » « J'aurais honte, si j'étais une demoiselle,
 d'en épouser un comme çà! »
@@ -914,8 +805,6 @@ beaucoup d'entre eux sont luthériens au milieu d'une
 population catholique, qui ne connaissait, avant la
                             44
 
-              DE BISCHWILLER A ELBEUF
-
   guerre, que quelques réformés; leur pasteur, un Alsacien
   de bonne roche qui fut aux ambulances dans Strasbourg
   bombardé, leur fait un sermon en allemand tous les
@@ -948,9 +837,6 @@ population catholique, qui ne connaissait, avant la
  De beaux types de là-bas subsistent, reconnaissables
   au plus lointain aspect : leur carrure, tout un air de
  vigueur laborieuse mêlée de bonhomie, la moustache et
-                            45               l'exode. — 3.
-
-                         V exode
 
 la « mouche », vieux souvenir aussi... En voici un, —«
 au hasard, — dans le pavillon des anciens métiers qui
@@ -986,7 +872,6 @@ argent pour voyager d'une autre manière; mais il aurait
 fallu, pour cela, parler, écrire, apitoyer, attendre, peut-
                             46
 
-             DE BISCHWILLER A ELBEUF             f
 être aussi se priver d'un plaisir très alsacien : celui de
 montrer aux camarades de quoi on est capable, pour
 venir les rejoindre... Ils firent la route en trente-trois
@@ -1000,13 +885,6 @@ drame éternel est déjà dans Virgile: Nos patriaefines et
 dulcla linquimus arva. Mais Virgile est bien loin; tandis
 que Bischwiller, c'est de notre histoire à nous, de notre'
 chair, et de notre eceur.
-
-
-PHALSBOURG
-
-
-                 PHALSBOURG
-
 
   A l'ouverture d'un col des Vosges, le plus fréquenté
 de toute la chaîne par les soldats et les marchands qui
@@ -1031,7 +909,6 @@ avec un luxe d'idées et d'ordonnances qui confondent,
 surgissant à cette date : les finances de l'État, les
 mines, la boulangerie, la boucherie, l'ordre dans la rue,
 l'ordre dans la maison de ses sujets, tant de vin permis
-                            Si
 
                          l'exode
 aux hommes, tant aux femmes, les chiens renvoyés de
@@ -1066,9 +943,6 @@ Jean-George vit sans doute dans l'acte de d'Hausson-
  ambitieuse de progrès vers l'est, puisqu'il appela
  l'attention de l'empereur sur la nécessité d'intercepter
  le passage en y élevant une ville nouvelle, plus impor-
-                            5a
-
-                        PIIALSEOURO
 
 tante pour la défense qu'un château perdu. Ou encore,
 luthérien qui pouvait continuer à vivre dans son pays,
@@ -1113,7 +987,6 @@ sera, entre l'Europe centrale et occidentale, une grande
 ville d'échange et de production. Jean-George l'a dit. Il
 le faut. Et tout concourt au succès. D'ici on est en six
 heures au Rhin, en une journée à la Sarre, en trois
-jours à la Moselle, en quatre à la Meuse, à la Marne ou
 au Danube; à peine davantage pour la Seine, le Rhône,
 la Loire. Quelques routes nouvelles à créer, de Phals-
 bourg à Spire, à Énsisheim, à Blamont, et l'on rejoindra
@@ -1136,12 +1009,8 @@ geois, l'illustre Specklin, disait alors qu'elles étaient
 conçues « pour la perte des pauvres gens et contre
 l'ordre de Dieu »... Jean-George avait pu, pendant plus
 
- (i) LEI'AOK, op. cit., tome II, page a;|; Dag. FISCHER, Comté
 Petite-Pierre, Revue d'Alsace 1880, pages 100-ioj ; WOLFRAM, op. cit.,
-page a{i.
                                  54
-
-                      PHALSBOURG-
 
 de dix ans, tout à son aise, bâtir, réglementer et rêver.
 Hélas! ce grand administrateur avait mal administré.
@@ -1220,8 +1089,6 @@ borgne entre les aveugles ».
    (a) Voir plus haut, page 3a.
                                   56
 
-                         PHALSBOURG
-
 payait pour le rachat de pillages que ce rachat n'empê-
 chait point, payait et voyait sa maison brûler au départ
 des troupes, payait et mangeait des racines, des feuilles
@@ -1249,7 +1116,6 @@ aller de Metz en Alsace sur ses Terres, sans toucher les
 Estats dudit Sieur Duc... » (1) Bientôt après, la place
 fut fortifiée : une ceinture de bastions et de demi-lunes,
 
-
  (1) Article XIII du texte du traité. Cf., pour la continuité de ce
 dessein de la France, article XIV du même traité : « Est convenu en
 oulre,que lechemin cy-dèssuscommencera depuis le dernier village
@@ -1258,7 +1124,6 @@ ment, et appartiendra en toute souveraineté à Sa Majesté sans
 aucune Interruption pour la longueur, et aura de largeur demi
                                 67
 
-                            Vexode
 géométrie magnifique, — marque de Vauban; deux
 portes, la « Porte de France » et la « Porte d'Alle-
 magne », avec leurs boucliers, leurs glaives, leurs éten-
@@ -1292,14 +1157,10 @@ Sa Majesté pour entrer en Allemagne... »; ultérieurement,
 article VI des Lettres patentes du duc Léopold I* à la suite du
 traité du ai janvier 1718 : nomenclature, modifiée, des villages qui
 seront compris dans la a demi lleuê de route » & laquelle le roi de
-France a droit.
                                 58
-
-                         PHALSBOURG
 
 passer dans le bruissement des feuilles le rythme déli-
 cieux et mélancolique des Trois Marches de Marbre
-rose...
 
        Mais  Phalsbourg    paya   cher  tant   d'honneurs.
    ...
@@ -1360,14 +1221,11 @@ le Mlncio, Vérone, Iéna, sous-officier, officier, général
 de division, baron, grand-croix de la Légion d'honneur;
 Phalsbourgeois enfin, le plus illustre de tous, Georges
 Mouton, engagé volontaire au 9* bataillon de la
-Meurthe en oa, le héros du pont de Landshut et de l'Ile
 Lobau, aujourd'hui maréchal, pair de France, comman-
 dant supérieur des gardes nationales de la Seine; ah 1
 celui-là, le fils du boulanger de la rue du Rempart,
 malgré les grades, malgré les honneurs, malgré là
                             60
-
-                         PHALSBOURG
 
 femme que l'Empereur lui avait donnée « pour assurer
 le repos do son coeur ombrageux », une aristocrate de
@@ -1399,10 +1257,8 @@ politique, ainsi Charpentier, « chef d'escadron retraité
 à 2.000 francs », Giraud-Tixier, capitaine, le colonel
 Metzinger, qui sont « électeurs adjoints au Collège
 
-
  (i) Cf. Journal des Débats, n* du aj mai 1860, a propos de la mort
 de la maréchale Lobau; — CASTOXAMB, op. cit., page 18.
-                                61                  l'exode.   -4
 
                              l'exode
 électoral »; il siège aux assises ou répartit de:
@@ -1441,8 +1297,6 @@ Lorrain, 5* numéro, août i85a.
 
                                 62
 
-                        PHALSBOURG
-
 sur le numéro des régiments : « Lors de l'arrivée do
 3a» de ligne, qui revenait de Crimée... » Leurs remparts,
 leur garnison, ils les aimaient comme leur raison d'être.
@@ -1475,7 +1329,6 @@ attribuèrent toujours à une haute et tenace rancune les
 
  (t) Elle est rappelée sur le piédestal de la statue de Lobau, à
 Phalsbourg : c Mon Mouton est un lion, B
- (a) DE SÉGUR, op. cit., page S.
 
                               63
 
@@ -1499,7 +1352,6 @@ Phalsbourg prévit le « manque à gagner » que le
 progrès lui coulerait, personne ne l'abandonna... Il
 fallait autre chose...
 
-
   Dans la petite ville lorraine, le mouvement et la joie
 des grands jours militaires. Défilés de régiments, éten-
 dards et drapeaux déployés, qui vont se concentrer en
@@ -1509,15 +1361,11 @@ tout de suite, le 6 août, vers neuf heures du soir, un
 
  (1) Le père du romancier.
  (a) Comme on dit encore dans le pays. Tandis que les autres
-                                                      i
 cantons de l'arrondissement de Sarrebourg donnaient Louis-
 Napoléon des majorités considérables, dans celui de Phalsbourg,
 en effet, la différence fut très faible : Bonaparte, 3407 voix,
 Cavaignac, 1.733. (Journal de la Meurlhe cl des Vosges, n* du
-i5 décembre 1848)
                               64
-
-                      PHALSBOURG
 
 soldat originaire du pays, des Quatre-Vents, entre en
 ville, affolé, avec d'autres, qu'il a ramenés par la vallée
@@ -1527,7 +1375,6 @@ C'est la défaite qui passe, maintenant. Le matin du 7, à
 cinq heures et demie, le Maréchal lui-même. L'homme
 qui était resté, impassible, sur la tour minée do Malakof
 et qui avait triomphé dans le soleil de Magenta, le voilà,
--— en
        retraite. Sur la Place d'Armes, sur les glacis, des
 milliers d'hommes se suivent, s'entassent, reparlent...
 Le 10, à huit heures du matin, un officier prussien
@@ -1552,7 +1399,6 @@ sait où, partout, nulle part, dans l'air qfion respire :
 le roi Victor-Emmanuel arrive au secours d> la France;
 le prince Charles, devant Metz, a demandé i*< armistice
 à Bazaine; Napoléon s'est rendu à SeJéan avec
-                            65                l'exo le. — 4.
 
                         l'exode
 80,000 hommes, — verbe & double sens qui échauffa
@@ -1588,8 +1434,6 @@ mands et leur escorte arrivent devant la Porte de
  pourrait pas à la fois rester dans le territoire annexé,
  et rester Français. Sans doute, la prise de possession
                             66
-
-                      PIIAL8B0URQ
 
 ne se manifesta pas Ici par de particulières rigueurs.
 Même, on ne lésina pas sur les indemnités : dégâts
@@ -1660,7 +1504,6 @@ prétexte à tumulte dans la classe, à moquerie en
 famille, — mais le professeur de latin prononçait
                             68
 
-                       PHALSBOURG
 dominons, et caousa, et tertsia, par où une habitude
 germanique s'infiltrait, indéfectible et caractéristique
 pour la vie; et quand on allait à la promenade, sur la
@@ -1720,7 +1563,6 @@ suivirent la guerre, et, de ces expressions, la dernière,
   voisines, qui les sollicitent : puisqu'il faut partir, ils vont
   plus loin, à Lunéville ou à Baccarat... Un millier de
   personnes   environ sont parties, sur trois mille à trois
-„
   mille cinq cents que comptait Phalsbourg avec ses
   dépendances. Depuis, peu à peu, les vides ont été
   comblés : des gens sont venus d'alentour, do la cam-
@@ -1730,8 +1572,6 @@ suivirent la guerre, et, de ces expressions, la dernière,
   assez exacte de la population ainsi défaite et refaite :
   on no trouve plus dans le Conseil municipal les noms
                                 30
-
-                       PHALSBOURG
 
 qui y figuraient d'habitude, avant la guerre, — Bender,
 Hoffer, Antoni, Aron, Reeb..., — il se compose à
@@ -1755,7 +1595,6 @@ comme voilée, de suivre pardessus la mauvaise fron-
 tière, toujours sans avoir besoin do l'Annuaire, les
 promotions de ceux qui sont partis, des Hotz, des
 Uhrich, des Brissé, des Teissier, des Hollender, des
-Micheler...
     Pourtant, les portes de Louis XIV sont là, et les
 casernes de Vauban, et la Place d'Armes, Lobau au
 centre, en grande tenue de bronze, et, le long des rues
@@ -1801,8 +1640,6 @@ des mots français, assez fraîchement peints, ceux-là,
 mais dans un ordre singulier : Offizier-Pavillon... Et
 cela dit tout : la caserne est toujours caserne, Phals-
 
-                     PHALSBOURG
-
 bourg a toujours une garnison, mais on sait laquelle,
 et, comme dit avec une énergique simplicité la langue
 populaire, le coeur n'y est plus...
@@ -1835,17 +1672,6 @@ mettait un doigt sur ses lèvres et prononçait, correcte-
  France, et son silence est fait de trop de choses mortes,
  qui étaient françaises...
 
-
-                                             l'exode* — 5
-
-
-MULHOUSE-BELFORT
-
-
-             MULHOUSE-BELFORT
-
-
-
    Dans un même département français, deux sous-
 préfectures, l'une, ville industrielle, l'autre, ville mili-
 taire; la frontière, déplacée par la guerre de 1870-71,
@@ -1857,8 +1683,6 @@ tout ce drame complexe, économique et sentimental,
 c'est la vie même de Mulhouse et de Belfort, telle que
 l'a faite le traité de Francfort.
 
-
-
   Antique agglomération urbaine autant d'un château
 fortifié, Belfort porte un nom qui dépeint son séculaire
 aspect et qui résonne de toute son histoire (1). A vrai
@@ -1866,8 +1690,6 @@ dire, on rencontre dans la ville les vestiges d'un
 
  (1) Cf. ScnoerrLiN, AlsaUa tlluslrata, tome II, page 4( :
 ab amoenttate sttus, tel praestanlla munltlonts, nomen suum
-                                                             r Caslrum
-                                                               Iraxlsse
 fidelur » ; — et Mémoires de deux voyages, op. dl., page ai3 : a (Test
 une des clefs de l'Alsace, et la situation avantageuse de son
 château lui a fait donner le nom de Belfort. »
@@ -1908,8 +1730,6 @@ siècle, dans Belfort, chantier permanent, les construc-
 tions militaires se pressent le long du mur d'enceinte,
                             78
 
-                    MULHOU8B-BELFORT
-
 « Quartier du Moulin », « Quartier de l'Hôpital »,
 « Quartier à droite de la Porte de France », « Quartier
 à gauche de la Porte de France », pavillon pour les offi-
@@ -1930,8 +1750,6 @@ nom de la cocarde tricolore... Bouillonnements de cer-
 veaux militaires, belle tenue à l'ennemi : Belfort a
 connu tous les cliquetis des villes de garnison, tous les
 tumultes des places de guerre.
-
-
 
   Dans l'étymologie de Mulhouse, point de château
 fort, dans ses armes point de « tour pavillonnée d'or,
@@ -1963,7 +1781,6 @@ beaucoup plus que sur les autres, d'une indépendance
 rude à manier parfois, même quand le coeur se donne,
 et qui ne s'amollit nullement, au contraire ! dans l'exis-
 tence heureuse et large qu'elle allait devoir à son
-industrie.
    On sait ce que fut ce magnifique développement.
 Déjà, un touriste du dix-septième siècle, ayant vu les
 Mulhousiens, disait d'eux : « Ce sont tous gens de com-
@@ -1977,14 +1794,10 @@ métiers : des draps communs et des cuirs pour les cam-
  allait déterminer pour Mulhoese toute la suite de son
 
   (1) Mémoires de deux voyages, op. cit., page 3a.
-  (9) La Municipalité.
 
                                  80
 
-                     MULHOUSK-BKLFORT
-
 histoire. J.-J. Schmaltzcr, un jeune Mulhousien qui avait
-appris, à Bar-le-Duc et à Ncuchôtei, l'industrie de
 l'indienne, J.-1L Dollfu3, peintre, et Samuel Koechlin,
 ancien négociant, le « capitaliste » de l'affaire, s'associè-
 rent pour la fabrication des toiles peintes, sous la
@@ -1999,7 +1812,6 @@ elle voulut produire aussi l'étoffe sur laquelle elle impri-
 mait, les couleurs qui servaient à l'impression, les
 machines pour fabriquer l'étoffe : admirable ensemble
 d'industries textiles, chimiques, mécaniques, qui a fait
-la gloire de Mulhouse et de sa région.
    Les bouleversements politiques eux-mêmes se mirent
 à son service. Pendant la Révolution, du jour où la
 République de Mulhouse, alors alliée de la Confédéra-
@@ -2016,8 +1828,6 @@ d'autres régimes sombrèrent, journées de juillet ou
 
  (1) Depuis : rue de la Loi.
 
-                               8l              l'exode. — 5.
-
                          l'exode
 journées do février; même l'émeute pour la cherté des
 grains en 1847 ou '& K famine du coton », conséquence
@@ -2027,7 +1837,6 @@ marqnèrent jamais dans le développement HQ Mulhouse
 que des temps d'arrêt très courts, suivfc «le reprises
 immédiates, et l'on peut dire que le développement de
 Mulhouse français fut aussi régulier qu'extraordinai-
-rement rapide : 70.000 habitants en 1870 (6.000 en 1798,
 lors de la réunion à la France), ia millions de francs
 de salaires, pour le seul textile, 10 millions de francs
 d'affaires, rien que pour les machines, et, dirigeant,
@@ -2050,13 +1859,7 @@ d'égoïstes : ils n'étaient pas riches depuis longtemps,
  techniques, du Cercle Mulhousien, du Crédit popu-
  laire... Ils avaient fait de leur Mulhouse une ville
  industrielle-type, et devant eux s'ouvraient les « longs
- espoirs ».
                             82
-
-                     MULUOUSK-BELFORT
-
-
-
 
   Survint la guerre. Dans Mulhouse sans remparts et
 sans troupes, les premiers Allemands entrèrent le
@@ -2091,7 +1894,6 @@ pour quelque acte diplomatique heureux : « Convenez,
 
                                l'exode
 Talleyrand, que je suis bien pour quelque chose dans
-ce traité I »...
   Le vendredi 24 février 1871, à Versailles, dans la
 petite maison de la rue de Provence où logeait
 Bismarck, pendant la discussion des Préliminaires de
@@ -2120,11 +1922,9 @@ champ, Bismarck, puis, sans perdre haleine, Mollke,
 Guillaume. Bismarck finit par céder, mais, comme on
 dit, donnant, donnant. Thiers garderait son Belfort,
 
-  (1) M., tbfd., page irt.
   (a) THIERS, Notes..., op. cit., pages ia{-ia5.
                                    84
 
-                    MULHOUSE-BELFORT
 mais Bismarck y gagnerait, lui, son entrée des troupes
 dans Paris, (i) qui lui avait toujours été refusée
 jusqu'ici, mais à quoi il tenait comme à l'un « des fruits
@@ -2151,7 +1951,6 @@ depuis, d'un terme unique dans notre nomenclature
   (t) Plus les villages de Sainte-Marie-aux-Chênes et de Vionville,
 prés de Metz, qui font partie de la même < compensation »
 accordée pour Belfort (Article t" des Préliminaires).
-  (a) JULES FAVRS, op. cit., tome II, page 38?.
   (1) On sait qu'un premier corps de 3o.ooo Allemands occupa,
 le i" mars, une partie de Paris (entre la Seine et le faubourg
 Saint-Honoré, jusqu'aux Tuileries); mais que, l'occupation ne
@@ -2160,12 +1959,10 @@ celle-ci ayant été votée le même jour, ce premier corps d'occupa-
 tion fut le seul et qu'il évacua la partie occupée, non sans que
 Bismarck en avouât son désappointement,avant que l'empereur
 Guillaume pût effectuer son entrée solennelle qui devait avoir lieu
-le 3 mars.
                                   85
 
                              l'exode
 reux et une tradition nécessaire : le Territoire de
-Belfort.
    Alors, pendant des années, ce fut, par la trouée, un
 continuel passage. Du Haut-Rhin, de Mulhouse, de
 Thann, de Wesseriing, tout ce qui pouvait partir s'est
@@ -2204,14 +2001,11 @@ Français ; — sources de difficultés sans nombre, et causes Initiales
 de certaines situations extraordinairemenlcompliquées.
                                  86
 
-                     MULHOUSE-BELFORT
-
 France suffisait, en vertu, écrivit un jour au Garde des
 Sceaux le président de la Commission d'Émigration de
 Belfort, (i) de ce « sentiment accrédité en Alsace, que
 ses habitants n'ont pas cessé d'être nos compatriotes,
 que leur nationalité revit dès qu'ils touchent la terre
-française ».
   Dans ces bureaux banals, tout parle d'eux : ici, c'est une
 demande de «feuille de route» : le père vient de mourir
 en Algérie, à l'hôpital de Sétif, laissant une veuve et six
@@ -2227,16 +2021,13 @@ habite Rougemont, (2) «incorporé de force dans l'armée
 allemande, quoique ayant opté régulièrement pour la
 nationalité française ». — Puis, les engagements, 257
 pour la seule période du 27 septembre 1872 au 19 février
-1873, 4<4 du i3 mars 1874 au 17 février 1875 : Bader,
 Koehl, Bogen, Goetschy, Krebs, Higelin, Gross, Ziegler,
 "Wolff, Schwindenhammer, —- de Bennwihr, de Wlnt-
 zenheim,deThann, de Cemay, de Molsheim, de Nleder-
 morschwiller, de Pfastatt, de Soulfz, de Bergheim, de
 
-  (t) Léo* STEHBMX, aS janvier i8;3 (Arch. départ., M 4/90.
   (a) Rougemont-le-Château, dont le D' Courvoister, de GrandvU-
 lars, disait, dans un rapport manuscrit sur le mouvement de la
-population de Belfort et de sa région de i8ot A i8;3 (Arch. départ.,
 M i3/$>) : • Sa situation au pied des Vosges en fait la retraite
 favorite des familles alsaciennes qui viennent y psalmodier le
 Saper /lamina Babylonls des Hébreux déportés. »
@@ -2244,8 +2035,6 @@ Saper /lamina Babylonls des Hébreux déportés. »
 
                          l'exode
 Markolsheim, — au 7* dragons, au 4' hussards, au 18*,
-au 3e, au 84e, au fytf, au 125* de ligne, au 3e, au 19e, au
-27* bataillon de chasseurs à pied, au 1", au 2e, au
 3* zouaves, au 5e, au 8* chasseurs à cheval, au 2e chas-
 seurs d'Afrique, au 8e cuirassiers : ii semble qu'on voie
 défiler tous les régiments de France, et toujours à leur
@@ -2271,12 +2060,9 @@ où quelque chose de la meilleure Alsace s'y fixa : une
 partie de l'industrie de Mulhouse, de son activité, de
 sa puissance, et de son âme même.
 
-
   Le déplacement de la frontière avait bouleversé les
 conditions d'existence de l'industrie et du commerce
                             88
-
-                     MULHOUSE-BELFORT
 
 mulhousiens : Mulhouse, séparé tout à coup de la
 France, était désormais incorporé, non-seulement à
@@ -2311,7 +2097,6 @@ et 5t.3oo métiers (Cf. également O. Relier et L. Lants, op. cit.).
 Une comparaison absolument précise serait, du reste, très diffi-
 cile à établir, les auteurs n'indiquant pas toujours si leurs calculs
 s'appliquent au colon seul ou au colon et à la laine ensemble, aux
-                i
 seules broches filer ou également aux broches de retordage.
 On admet généralement que l'industrie colonnlère mulhousienne
 nvait alors une Importance à peu près égale aux deux tiers de
@@ -2350,10 +2135,7 @@ appréhension : la main-d'oeuvre y était moins coûteuse,
  par exemple, et, pour celles-ci, désormais, l'Alsace,
   ayant deux centres puissants (Graffenstaden, près de
 
-  (t) Cf. VILLEFORT, op. cit., tome II, pages 118,160,170.
                                  90
-
-                    MULHOUSE-BELFORT
 
 Strasbourg, et Mulhouse), serait une productrice trop
 considérable par rapport à l'Empire allemand, qui
@@ -2385,7 +2167,6 @@ les Vosges devenant frontière (i), le versant lorrain, —
 Y Est nouveau I comme dit le comité industriel siégeant
 à Épinal, dans sa circulaire à tous les cotonniers de
 
-  (i) Voir Annexe IV.
                            91
 
                              l'exode
@@ -2419,13 +2200,9 @@ n'en était pas moins inéluctable, comme l'autre.
   (1) Publiée dans l'Industriel Alsacien du 90 mai 1831.
   (a) Voir plus haut, page 30, et Annexe IV.
   (3) Est-il besoin de dire ici que Belfort ne fut pas le seul refuge
-de Mulhouse et de sa région? Les changements survenus à Bel-
 fort sont particulièrement topiques, mais on retrouve Mulhouse
 dans tout le développement Industriel du versant occidental des
 Vosges depuis la guerre (voir plus loin, pages io3 et suivantes).
-                                 9»
-
-                     MULHOUSE-BELFORT
 
 sinon que Belfort, c'était la France à cinquante kilo-
 mètres de chez eux : un autre Mulhouse que déléguerait
@@ -2441,7 +2218,6 @@ ils gagneraient moins, si leurs femmes et leurs filles n'y
 avaient pas de travail ; ce travail féminin, complément
 indispensable de leur budget, c'est le retordage du fil
 qui se chargea de le fournir. Puis, d'autres maisons
-suivirent.
    Transfert purement économique? Sec et simple
 calcul, désir de vendre sur deux marchés au lieu d'un ?
 Non point. Mulhouse libéral, qui avait regimbé rude-
@@ -2456,9 +2232,6 @@ seule autre ville de France le triste honneur d'un vote
  léon, lorsque l'Empereur lui avait parlé un peu brusque-
  ment de ces « contrebandiers » de Mulhouse, de ces
  « fabricants qui avaient amassé de la fortune » : — « Oui,
-
-  (1) Arch. Nal., F a (1) 5m (a), Lettre au Ministre de l'Intérieur,
- 18 mars i85a.
 
                                 03
 
@@ -2493,11 +2266,6 @@ allemand au Conseil municipal, déclarant, dès le
 do ne pas lâcher l'Alsace, je n'ai d'autre mission que
 d'administrer le Haut-Rhin dans le sens do son annexion
 
-
- (1) A. CnrquK-r, op. cit., page 3*?.
-
-                     MULHOUSE-BELFORT
-
 prochaine... » Malgré tout, ils avaient, eux aussi, pen-
 dant la discussiondes Préliminaires, envoyé à Versailles
 des délégués qui tentèrent d'agir, sur M. Thiers, sur
@@ -2513,7 +2281,6 @@ fondèrent la Ligue d'Alsace, pour s'affirmer « Français,
 malgré tous les protocoles qui voudraient leur dénier
 ce titre », et ils envoyèrent au Reichstag des députés
 
-
    (i) Journal de Genève, n« du a5 avril 1831 (correspondance de
 Mulhouse, datée du 20): < Il n'a pas fallu longtemps pour que le
 bruit, plus ou moins fondé, de la rétrocession de Mulhouse & la
@@ -2528,7 +2295,6 @@ grands industriels, etc. Ce qui a donné lieu à ces rumeurs, ce
 sont, en premier lieu, les démarche*, des manufacturiers allemands
 auprès de l'empereur Guillaume, msuitc la dépulalion alsacienne
 qui s'est rendue à Versailles à différentes reprises. Un journal
-anglais, le Standard, si je ne mn trompe, disait, il y a quelques
 jours seulement, que M. de Bismarck avait assuré à diverses
 reprises qu'il laisserait les Chambres de commerce de l'Allemagne
 complètement libres de juger la question de savoir si oui ou non
@@ -2561,7 +2327,6 @@ Koechlin-Schwarlz, contribuèrent pour une très grande'
 part à la réussite financière de ce projet ; puis, ils y
 envoyèrent leurs fils. Grâce à Mulhouse, grâce à tout
 l'ancien Haut-Rhin, le lycée de Belfort, qui avait
-365 élèves en 1874, en eut 53o, 566,551, en 1875, 1876,
  1877. Ah I que de jolis souvenirs émus dans la mémoire
  des adolescents d'alors I Les lendemains de vacances,
  le train où ces petits Alsaciens s'entassaient, où l'on
@@ -2575,8 +2340,6 @@ l'ancien Haut-Rhin, le lycée de Belfort, qui avait
  Mulhouse, « sujet allemand »; ou, parfois, naturalisé
   suisse; citoyen français, à grand peine, dans des
                             96
-
-                   MULUOUSK-BKLFORT
 
 cas très exceptionnels. Aussi, quand les fils revenaient
 pour travailler avec le père, se préparer à « prendre sa
@@ -2595,8 +2358,6 @@ souvenirs, tous ces sentiments, toutes ces rancoeurs
 donnaient à la délibération l'entrain qui fait agir. Ce
 n'était plus une question de comptabilité...
 
-
-
   Depuis que les Mulhousicns, plus perspicaces que
 Raoul Duval à l'Assemblée Nationale ou le comte
 de Luxbourg au Rcichslag, ont prévu l'acharnement de
@@ -2610,7 +2371,6 @@ Ainsi pour l'impression. La mode ne réclame pas tou-
 jours les mêmes articles, ceux qui ont fait la fortune de
 Mulhouse ne se sont pas maintenus constamment en
 faveur. En outre, les industriels'.mulhousicns se sont
-                         j   'MJ{ [''   ï-\   '   l'exode.   -6
 
                          l'exode
 montrés trop généreux éducateurs, leur école de chimie
@@ -2645,9 +2405,6 @@ d'une importance qu'on ne connaissait pas dans l'indus-
  trie d'autrefois, comme représentant l'ancienne puis-
  sance de l'Impression mulhousienne.
     Deux exemples sont particulièrement significatifs.
-                            9»
-
-                      MULTIOUSK-BRLFORT
 
 D'abord, la filature elle lissage du colon. Aux princi-
 paux centres allemands d'il y a quarante ans (Augs-
@@ -2656,11 +2413,8 @@ pays de Bade et de la Prusse rhénane) se sont ajoutées,
 depuis, la Saxe et la Weslphalie ; et avec quelle ardeur
 conquérante toute celte Allemagne unie a poussé sa
 marche en avant ! Tandis quo le nombre des broches
-alsaciennes, qui était de 1.200.000 en 189T (600.000 de
 moins qu'en 1870!) ne se relève, jusqu'en 1905, qu'à
-I.50O.OOO, en 1909, à 1.730.000, pendant ce même temps,
 le total allemand (Alsace non comprise) grandit du
-simple au double, de 4.000.000 en 1893 à 8.000.000 en
 1909, et la Bavière, la Saxe, la Prusse rhénane avec la
 Wcstphalie, qui, en 1893, produisaient chacune moins
 que l'Alsace, l'ont, depuis, atteinte ou dépassée (1).
@@ -2678,7 +2432,6 @@ marchandise française, tandis qu'aujourd'hui... L'Alle-
 magne, en 1870, n'avait pas plus de 25o.ooo à 3oo.ooo
 broches de laine peignée; l'Alsace, au même moment,
 en avait environ 200.000, aujourd'hui, l'Alsace en a
-450.000, mais l'Allemagne 2,600.000.
 
  (1) VY. RIKOBR, op. cit., éditions l8g3, igo5, 1009.
 
@@ -2709,7 +2462,6 @@ poursuivi sur le même rythme que celui de 1' « Union
 douanière allemande » : Mulhouse a progressé modes-
 tement, dans un ensemble qui a progressé formidable-
 ment. N'admirez pas que Mulhouse, au lieu de
-70.000 habitants en 1870, en ait aujourd'hui 95.000. Les
 Mulhousiens vous diront, même ceux qui n'ont pas à se
 plaindre de la vie, que les villes industrielles alle-
 mandes, Augsbourg, Elberfeld, Crefeld, Chemnitz,
@@ -2718,8 +2470,6 @@ mais nous en aurions, sans la guerre, 125.000! » Aussi
 bien les Mulhousiens d'il y a quarante ans, si avertis
 qu'ils fussent, n'avaient-ils que calculé des chiffres,
                            100
-
-                   MULHOUSE-BELFORT
 
 comparé des probabilités de production, de •corssorsv
 mation, de concurrence, d'après le passé; ils i\o pou*
@@ -2753,9 +2503,6 @@ qu'en 1875 les premiers Alsaciens qui voyageaient en
 Allemagne ne pouvaient vendrequ'à condition d'accepter
 le paiement à six mois, plus le mois d'achat, aujourd'hui
 le client allemand est souvent — quand il ne veut pa-s
-                            IOI               l'exode.- «.
-
-                        Vexode
 
 « aller trop vito » — un Kassemann, un homme qui pale
 à caisses ouvertes, « Us ont gegriindet, gegriindet,
@@ -2791,7 +2538,6 @@ questions où l'industrie a besoin du concours de l'Etat,
 tout ce « moyen do parvenir » était incompatible avec
                            102
 
-                  MULH0U8S-SKLF0RT
 lo souvenir d'hier t comment ces industriels mulhousiens,
 Français de naissance, d'éducation, de languo. do tra-
 dition, d'esprit, de relations, d'amitiés, comment
@@ -2812,8 +2558,6 @@ quotidien do Bâle à Mulhouse; alors, s'ils s'en vont,
 eux aussi, Mulhouse y perd encore un peu do soi-même,
 mais Mulhouse comprend...
 
-
-
   Belfort, qui avait 6.000 habitants en 1870, en compte
 aujourd'hui 34.000. Alsaciens pour les deux tiers, Alsa-
 ciens nés eux-mêmes dans l'Alsace annexée, ou fils
@@ -2824,7 +2568,6 @@ plupart sont des « filiales », dont le siège social est
 resté à Mulhouse; les mêmes administrateurs, frères,
 cousins, assument en commun la direction générale. La
 maison-mère n'oublie pas ses fils i et l'on me permettra
-                           io3
 
                         l'exode
 do ne pas insister sur ce point,.. Dans telle usine de
@@ -2861,14 +2604,11 @@ cousins à Fellering... » « ... mes soeurs, à Habsheim... »
 revoyez jamais? — Ah! si, je les vois, mais pas là-bas.
                            104
 
-                   MULHOUSK-BKLFORT          *
 Ils viennent; eux, toujours, lo 14 Juillet. Tenez, le i4< ils
 étaient là, Surtout que c'était un dimanche.., » ko
 14 juillet, la Revue do Belfort : la grande accolade fié-
 vreuse et bruyante de ceux qui sont « restés » avec
 ceux qui sont « partis »...
-
-
 
   Un jour récent, deux grands industriels mulhousiens,
 de ceux qui ont vécu toute la vie do Mulhouse depuis
@@ -2878,17 +2618,8 @@ les départs, tout ce qui a suivi la grande désillusion, et
 Mulhouse souffrant encoro des « vastes pensées » alors
 interrompues, non reprises. Ces deux mots conclurent
 leur entretien, l'un d'explication, l'autre do conso-
-lation :
   « Nous n'avons rien fait depuis la guerre.
   — Nous avons fait Belfort. »
-
-
-METZ
-
-
-                             MKTZ
-
-
 
   Quand la garnison française sortit de Mclz, dans la
 matinée du 29 octobro 1870, les Messins, si désespérés
@@ -2909,10 +2640,6 @@ du monde romain et catéchisant la vallée moscllano ; le
 féodalité ; l'unité frauçaiso attirant à sot des lambeaux
 « à l'abandon » du Saint-Empire « en anarchio » (1), et,
 par eux, gagnant jusqu'au Rhin : toutes ces révolutions
-
- (1) E. LAVISSR, op. cit., page 5.
-
-                                 109         l'exode. — <j
 
                           l'exode
 avalent laissé derrière elles, dans Metz, des institutions
@@ -2946,11 +2673,7 @@ troupeau contre les Barbares -~ tel l'évéque Wala, qui
 tomba, le jeudi saint de 882, à Rcmich-sur-Moselîe,
 sous les coups do l'envahisseur normand, — ou,
 
- (1) Op. cit., page af,
-
                            110
-
-                           MKT7.
 
  plus tard, contre la « malhcuretre gangraino » de
  l'hérésio protestante, lorsque « l'Eglise et la Religion »
@@ -2982,9 +2705,6 @@ paraiges de Porte-Muzclle, de Juruo, de Saint-Martin,
 de Porl-Saillis, d'Oulrc-Seille et du Commun I Les
 Chaverson .et les Faulquenel, les Burthemin, les Colli-
 gnon, les Renguillon, et ces Baudocho dont Barrés
-
- (i) Ibld., page 6o3.
-                           m
 
                         l'exode
 glorifia la descendance doucement obstinée : expres-
@@ -3021,14 +2741,11 @@ d'instinct, le peuple messin le retrouva. « Notro mattre-
 amour de l'ordre et de la liberté, dévouement passionné
                           112
 
-                           MKTZ
-
 à la chose publique, tout l'esprit du patriclat disparu
 resta celui do la bourgeoisie messine, Jusqu'à la fin,
 les hommes qui siégeront à l'Hôtel do Ville de Metz
 ne furent point seulement lo Conseil municipal d'uno
 ville, mais encore autre chose et mieux : les chefs d'uno
-cité.
    Do moindro ancienneté, la tradition parlementaire
 n'avait pas jeté de moins profondes racines. Elle n'y
 était apparue qu'à la suite du roi de Franco. Lorsque
@@ -3055,7 +2772,6 @@ projet do Henri IV. Les Messins no virent pas tout
 de suite la jeune institution d'un oeil favorable, ils
 épousèrent les ressentiments de leurs Juges tradition-
 nels, juges seigneuriaux, épiscopaux et municipaux,
-                            n3
 
                             l'exode
 qui perdaient en importance tout ce que gagnait le
@@ -3066,7 +2782,6 @@ Mont-Luisant (i) qui, dès la première année de
 l'existence du Parlement, célébrait en acrostiches les
 vertus de chacun des magistrats et chantait sur sa lyre
 les « Effects merveilleux » de ce « Juste Sénat »,
-                                               Oracle
       Qui par ses purs Décrets va dissipant l'obstacle
       De la Perversité,
 ils virent bien, peu à peu, que les formules employées
@@ -3091,9 +2806,6 @@ divine, humaine et morale : l'establissement de la Cour du Parle-
 ment à Mets; et les Acrostiches sur les noms de nos seigneurs
 de ladite Cour, par Esprit Gobineau, sieur de Mont-Luisant,
 Chartrain (Met*, Claude Félix, 16*4, ln-4').
-                              Il*
-
-                          MBTZ
 
 Monnler au mariage de sa fille avec M. de ValcUbon,
 la plainte énergiquement soutenue du sieur Boulanger,
@@ -3127,7 +2839,6 @@ comme un bastion d'honneur et de péril soir les
 « marches » du monde latin. A maintes reprises, des
 flots armés viennent, de l'est et de l'ouest, gronder à
 ses pieds : Metz subit quatre investissements au
-                           ti5
 
                             l'exode
 dixième siècle, un au quatorzième, trois au quinzième,
@@ -3156,19 +2867,13 @@ connu, peut-être avant toute autre ville, les valeureux
  étudier, combiner, transformer les robustes défenses de
  Metz, combien d'ingénieurs militaires s'exercèrent
 
-  (t) Cf. LARCHBY, Maîtres bombardiers, pages 11 et IJ.
-  (a) VBXAXCK FontuxAT, évêque de Poitiers, 111, lî :
           Vrbs muntta nlmls, quarn elngit murus et amnls...
-  (S) StosftsnT, édit. cit., page 48 :
            Laudo minas murl, quadrls exaedlficall,
            Nonfactlts sotvl, non expugnabills hostl...
            Mensurans lalum, stapeas suecreseere longum;
             Suspletens turres, Babylonls suspleor arees...
 
-                              METZ
-
 depuis lors 1 et Metz fut de tout temps la ville bénie des
-« sapeurs ».
    Artillerie et génie s'y installèrent donc un jour comme
 dans leur capitale naturelle et prédestinée : ce fut, en
 l'an XI, lorsque le Premier Consul, par un décret du
@@ -3199,7 +2904,6 @@ vers le Théâtre — parce qu'on les y abonnait d'office
 
  (t) L'École d'artillerie de Châlons-sur-Marne et l'École du génie
 de Mézléres, celle-ci transférée déjà à Metz depuis 179$.
-                               117                 l'exode.-y.
 
                         l'exode
 en leur retenant une journée de solde, soit, tout compte
@@ -3227,7 +2931,6 @@ de soi-même dans l'antique patrimoine commun. La
 guerre survint, qui défit on un jour ce que des siècles
 avaient fait,
 
-
   Ce que fut la guerre à Metz, je ne prétends point le
 redire après tant d'autres; aussi bien n'en serait-ce pas
 ici le lieu. L'Armée du Rhin, — Borny, Gravetotte,
@@ -3235,8 +2938,6 @@ Saint-Privat, — Bazaine : une ligne suffit pour ressus-
 citer dans toutes les mémoires françaises l'Idstoire
 douloureuse do Metz perdu. Mais, fût-on ramené à
                           118
-
-                          METZ
 
 Metz par le souci d'y revivre les tristesses de l'exode
 plutôt que celles de la défaite même, en errant par ses
@@ -3270,14 +2971,12 @@ blessés, les derniers documents sans doute qui portent
 la signature : Le maréchal de France commandant en
 chef l'armée sous Metz, Batalne.
   Les voici, toutes les visions lugubres, dans la moindre
-                          "9
 
                         l'exode
 conversation avec les vieux Messins ou leurs fils, dans
 leurs gestes et dans leur langage même, où se devine
 la présence familière du passé : « La bataille du 14 »,
 « la bataille du 16 » : point n'est besoin d'une précision
-de mois, ni de lieu; où l'on s'est battu le 14, le 16,
 le 18 août, personne ne s'y trompe ici. Les'souvenirs se
 pressent en foule, entre ces murs qui ont vu. La rue
 Serpenolse, la dernière entrée de l'Empereur à Metz, le
@@ -3307,8 +3006,6 @@ qu'elle fera tout son devoir, qu'elle veut lutter jusqu'à
 la dernière extrémité. Le lendemain ou le surlende-
                            120
 
-                            METZ
-
 main,YIndépendant de la Moselle rappelait le texte des
 lois et règlements militaires qui condamnent à la
 dégradation et à la peine de mort le commandant d'une
@@ -3332,8 +3029,6 @@ personne, ma famille et tout mon bien, je ne balancerais
 pas un moment à lé faire. » Cette statue, un voile de
 crêpe la couvrait, le 29 octobre, quand les troupes
 allemandes entrèrent dans la ville.
-
-
 
   Alors la dispersion commença.
   La garnison partit, prisonnière de guerre. Elle ne
@@ -3382,12 +3077,9 @@ conseillers : MM. des Godins de Souhesmes,Chonetde Bollemont
 [de Metz]; Henrlet, Thilloy (de Sarreguemtnes], Cotelle, Pidancet
                                122
 
-                               MBT2
-
 d'atteindre la limite d'âge, c'est « à la suite » de la
 Cour de Nancy qu'ils furent nommés honoraires (i);
 le nom même do Metz disparaissait des Annuaires
-judiciaires.
   Sans doute l'évéque resta. Et cet évoque fut grand.
 Napoléon III, qui le savait royaliste et Breton, avait dit
 un jour de lui : « Mgr. Dupont des Loges ne se laissera
@@ -3409,8 +3101,6 @@ tous les devoirs de SA charge sans jamais donner au
 général, Af. Poulet, avocat général à Alger(depuis le aj avril 1831),
 mats, précédemment, substitut du procureur général à Metz;
 M. Godelle, avocat général à Metz, passa aussi, comme procureur
-général, à Nancy.
-  (t) Décrets du 3o mars et du si juin 183a : MM. Llmbourg [de
 Florange], président honoraire ; Gougeon, de Turmel [de Metz] ;
 Dufour, De nengeot [de Bar-le-Duc] et Viliard [de RethelJ, conseil-
 lers honoraires. (M. Gougeon avait déjà l'honorartat à Metz avant
@@ -3452,17 +3142,13 @@ tolérance d'en haut qui n'engageait point le lendemain.
 Il est vrai que des décrets pontificaux consécutifs au
 
   (t) Le mot est du chanoine Dacheux, dans sa Cathédrale de
-Strasbourg, page 5$.
   (a) Césl même lui, dit-on, qui fit inscrire sur une des faces du
 monument ce texte des Macchabées : «r Malheur à mol! Fallait-il
 naître pour voir la ruine de mon peuple, ta ruine de la cité et
 pour demeurer au milieu d'elle, pendant qu'elle est livrée aux mains
 de l'ennemi I »
-  (1) Cf. abbé F. KLIIM, op. cit., page 480.
 
                                 124
-
-                           METZ
 
 traité de Francfort avaient, depuis 1874, rattaché direc-
 tement l'évéché de Metz (ainsi que celui de Strasbourg)
@@ -3528,12 +3214,9 @@ fragile, rattaché à l'Empire germaniquo, sa langue, sa
 littérature, ses chroniques, ses actes publics ou privés,
 lo nom do ses écrivains et de ses habitants, tout était
 exclusivement français », et aujourd'hui (recensement
-de 1866), sur 47.24* personnes, 44*367 sont de langue
 française. Que l'on considère donc soit le « passé qui
 est mort », soit la vie du présent, c'est-à-dire « ces
                            126
-
-                          METZ
 
 grands intérêts qui constituent la vie morale et maté-
 rielle d'un peuple, il est impossible d'approuver et
@@ -3604,7 +3287,6 @@ qui n'étaient pas seulement d'ordre économique, les
 quelques industriels de Metz (ils étaient assez peu
                            128
 
-                           METZ
  nombreus, l'industrie no recherchant guère les enceintes
  fortifiées où l'on est trop à l'étroit et le voisinage des
  frontières où l'on est vite en danger) transportèrent tout
@@ -3656,44 +3338,26 @@ de l'Académie de Mèlz réfugiés à Nancy. Quant a la
 Société d'archéologie et d'histoire do la Moselle, elle
 « avait fini par n'avoir plus de f>ureau », dit son
 secrétaire-archiviste (a); elle né publia P^>9 sps
-mémoires que 4p J<>ïn en loin, en .igSjO, en| \iïj$i M  |^,
 et elle était presque dissoute en fait, lorsque le tirçàt-
 dent de la ^rralné, en îifffÔ,s'occiijm de la recousiit^er
     y appelant  les Immigrés.
-en                                                 ,t
    Metz s'était
-géoisie, éip
-                  vidé,
-                 ïêfyïfï
-                         ràpidèmë^
-                        giéyi           de
-                                     jè!|o|tl6|;»||l
                                             sa grande   btâji*
-                                                        i
-
-
-
 
 France était si proeneî point do fleuve, point do jjtôijl
 tagno pour lés séparer d'elle ; une route touto droite,
 tout  unie,    Quelques   riiiniïîës de chemin de fèty et Wé
-            ou
 Messins échapperaient a l'étranger, relrouyerajpnl la
 Fratlèé, les Français, la langue française. En ib% U y
 
  (1) |<e général Didlon, Magnln, Emile Michel.
  (9) L'abbô Ledaln, séance du iJ mars 18$. L'anctcH
-                                                 .  Méijdehlj
                                                             .
 M. de BooteUler, les deux vlce-présldènts, MSI. qù|yeénè et
 Dommanget, le secrétaire, M. Durand de pistrofr, étalent tous
 partis pour 1a France.
-                             l3o
-
-                              WBTÎ!
 
 avait à Mets 4&3a$ habitants; le i" décembre 1871, Il
-en restait 39937; le 1" octobre 1874, 35.696. De gros
 in-folios banals, des noms de rues, des numéros de
 malsons, des noms de famille, des prénoms : c'est le
 a recensement » de la ville en 1869, nomenclatureadmi-
@@ -3726,9 +3390,7 @@ VQsqy? ipsos possiderent; et, hier encore, interprètes
 àçaritïa, èl mulàndap tedUamor, ut, rcUctls paladibas tt totiladt-
 tMiu sàts, fecphiïidmnm hoc sàlam tosqae Ipso* potsUUrent. »
 (Discours 4e Cerlalls, TACITB, Hisl., IV, •&)
-                                i3x
 
-                           Vexode
 peut-être malicieux, mate non point infidèles, du vieux
 texte latin, de brillants polémistes alsaciens exerçaient
 leur verve aux dépens « des faméliques qui se sont
@@ -3755,17 +3417,12 @@ temps et que Metz illustre de son douloureux exemple.
 nait guère que des originaires du pays. Je ne crois pas
 qu'il y eût alors à Metz 1 i/a 0/0 d'habitants venus
 d'Allemagne ; tous les autres, sauf quelques excep-
-tions (a à 3 0/0 de Français de l'intérieur, 1 i/a 0/0
 
  (1) Le Nouvelliste d'Alsace-Lorralne, n* du 11 janvier IÔI3.
  (a) Discours de Paul Bezanson au Relcbslag, mars i8#.
  (S) c Nous sarons ce que noua perdons, disait, 4 celte époque,
 un haut fonctionnaire allemand de Metz, et nous connaissons
 mieux encore ce que nous aurons à la place. (Cité par D'ELSTEI»,
-op. cit., p. 89)
-                              l3a
-
-                               MOTS
 
 do Luxembourgeois, quelques Belges, quelques Alsa-
 ciens), étaient de Metz même, ou du pays messin,
@@ -3802,7 +3459,6 @@ défalquer de ce chiffre la population de Devant-Ies-Ponts et do
 Plantléres-Queuleu qui n'ont été réunis à Metz qu'en 1908 : d'où
 0.5J6 en moins, ce qui nous donne 48.6J5 habitants, soit à peu
 prés le chiffre d'avant la guerre.
-                                l33                  Vt.xode.   -8
 
                              l'exode
 vrai qu'avec l'aide do leurs compatriotes, des Banques
@@ -3841,8 +3497,6 @@ l'Académie française.
                                                                     ,.
 
                                 134
-
-                         METZ
 
    Les départs continuent. Point de semaine que des
 chargements de mobilier no suivent cette route, et les
@@ -3907,18 +3561,6 @@ conseillers, Lorrains, trois autres qui sont d'assez bons
  courage et jusque dans la tristesse fraternelle de ceux
  qui sont restés.
 
-ALSACIENS D'ALGÉRIE
-
-
-
-
-                l'exode. — 8.
-
-
-          ALSACIENS D'ALGÉRIE
-
-
-
   Le 4 mars 1871, trois jours après la ratification des
 Préliminaires de paix par l'Assemblée Nationale,
 M. de Beleastel, député de la Haute-Garonne, déposait
@@ -3929,7 +3571,6 @@ de la Lorraine, dont elle a cédé avec une douleur profonde,
 sons l'empire de circonstances qu'elle n'a point faites, le
 territoire matériel, et voulant autant qu'il est en son
 pouvoir garder les âmes et les bras de si vaillantes races,
-       Décrète:
    .
   Une concession de cent mille hectares des meilleures
 terres dont l'état dispose en Algérie, est attribuée aux
@@ -3966,7 +3607,6 @@ détenus, colonisation par a nos classes mendiantes et
 indigentes », colonisation par les sans-travail de
 1848(1); d'autres projets encore, parmi lesquels celui-ci,
 
-
  (1) On peut consulter a ce propos, entre autres livres ou 'bro-
 chures : Bugeaud, De l'établissementde légion* de coton* militaires
  dans'te* possessionsfrançaises du nord de l'Afrique, Paris, Dldot,
@@ -3986,9 +3626,6 @@ ferme normande en Algérie, Rouen, iSfo, in* ; — Lieutaud notaire
  & Alger, Société angevine pour le placement de* colons en Algérie,
  Angers, i8|;, in-4' ; — Aug. Ronciére, Colonisation française de
  l'Algérie, Initiative bretonne, Salnt-Brleuc, 18», in*.
-                                l4o
-
-                   ALSACIENS n'ALOBRlR
 
 qui naquit presque simultanément sur plusieurs points
 du territoire : a fonder, en Algérie, un village pour
@@ -4004,7 +3641,6 @@ chevaleresque»,ajoutait l'auteur. En vérité,conception
 irréalisable de colonisateurs théoriques, mais où se
 mêlaient des observations judicieuses dont il était
 possible de tirer un heureux parti. Gheraga fut peuplé
-do paysans du Var; AIn-Benian, d'immigrants de la
 Haute-Saône; le ministre de la Guerre écrivait au
 préfet du Haut-Rhin qu* « il faut grouper ensemble les
 familles que la similitude du langage et des habitudes
@@ -4057,13 +3693,6 @@ y retrouver un peu de la France perdue.
 
  (i) Kurttr und gtûndttcher Beschrteb ûbet die Kolonfe In Afrlka,
 *«m Oebrauch der Auswanderer und Aaswanderangstmttgen,
-Colmar, Decker, 18M, In*.
-                              I/'a
-
-                    ALSACIENS D ALGERIE
-
-
-
 
    Le projet Beleastel était d'une simplicité spécieuse et
 d'une générosité qui devaient séduire l'Ame populaire,
@@ -4099,7 +3728,6 @@ caractère officiel, et le to, communiquantcette décision aux trois
 préfets, il écrivait : « Une grande chose nous reste 4 faire après
 nos malheurs... Cest d'offrir à nos concitoyens de l'Alsace et de
 la Lorraine une hospitalité digne de leur industrie et de leur
-patriotisme... s
 
                          l'exode
 la terre d'exil, ce n'est pas chez des étrangers que vous
@@ -4133,9 +3761,6 @@ colonisation, on recommencera la malheureuse expé-
 rience de 1848, beaucoup de millions seront dépensés
 en pure perte. M. de Beleastel, puis M. Lucet, député
 
- (1) Voir Annexe V.
-
-                    ALSACIENS D'ALOKRJB
 de Constantine, rapporteur de la loi, n'eurent pas de
 peine à triompher des arguments de l'opposant. Il ne
 s'agit pas de 1848 : les émigrants d'alors, « c'était, en
@@ -4169,7 +3794,6 @@ fécondée par votre travail, ennoblie par votre fidélité
 de cent mille hectares des meilleures terres dont l'Klat dispose
 en Algérie est attribuée, à titre gratuit, aux habitants de l'Alsace
 et de la Lorraine qui voudraient conserver la nationalité française
-                                i#>                 l'exode. — 0
 
                             l'exode
 i5 septembre, puis un décret, le 16 octobre, précisèrent
@@ -4183,7 +3807,6 @@ réduira à assurer les transports par mer, à doter les
 centres de leur alimentation en eau, des voies de
 communication nécessaires pour les relier aux centres
 voisins, d'une école, d'un édifice pour le culte et d'une
-mairie.
    Quant au reste, maisons à construire, mobilier,
 boeufs, semences, instruments de travail, subsistance,
 les colons n'auront à compter que sur eux-mêmes;
@@ -4207,8 +3830,6 @@ Français, tandis que cette concession a, en outre, « pour objet de
 procurer a l'Algérie des colons dont elle a un si grand besoin
 pour assurer sa prospérité s.
                                146
-
-                   ALSACIENS !>'ALGÉRIE
 
 aux autres (i). Le nombre des départs allait augmenter
 considérablement, et les charges de l'État avec lui.
@@ -4235,7 +3856,6 @@ pas, pour tout un provisoire angoissant qui pouvaU
  durer un an ou deux, peut-être davantage, un crédit de
  400.000 francs, qui avait été voté en même temps que
 
-
   (i) Le litre i" du décret réglait simplement les conditions aux-
 quelles les Alsaciens-Lorrains justifiant d'un capital d'au moins
 5.000 francs, pourraient obtenir des concessions arec propriété
@@ -4246,7 +3866,6 @@ que la toute-propriété des terres n'appartiendrait aux concession-
 naires qu'après une résidence effective de neuf ans et la mise en
 culture de leur concession. — Voir Annexe VI, le texte de la loi
 du iS septembre et celui du décret du tô octobre.
-                               147 *
 
                              l'exode
 la loi du i5 septembre, n'y suffirait certainement point.
@@ -4254,7 +3873,6 @@ la loi du i5 septembre, n'y suffirait certainement point.
  dont quelques-uns sont un peu oubliés aujourd'hui,
  quoiqu'ils se rattachent à l'histoire générale du désastre,
  allaient, par un détour, venir en aide aux Alsaciens
- d'Algérie.
    On sait que sur l'indemnité de cinq milliards imposée
  à la France par le traité de Francfort, deux milliards
 devaient être payés avant le i" mai 187a, les trois autres
@@ -4284,8 +3902,6 @@ publiée dans le Journal des Débats du g décembre ; le Temps des
 a5 novembre, 8 et to décembre, etc...
                                 148
 
-                    ALSACIENS D'ALGÉRIE
-
 public, avaient acquitté les prévenus (14 et 34 novembre).
 En vain M. Thiers, dans le message qu'il lut à l'Assem-
 blée Nationale le 7 décembre, fit-il allusion à ces événe-
@@ -4311,8 +3927,6 @@ qui ne connaîtraient pas eux-mêmes les joies de la
 délivrance. Le premier appel fut lancé à Strasbourg, le
 a3 décembre 1871, par quelques dames de la ville (a).
 
-
- (1) Voir Annexe VIL
  (a) Mesdames Momy, to, rue des Pucelles, Oioxln, 4, place Safnt-
 Pierre-le-Jeune, Malhllde Lichtenberger, 1, rue du Noyer, Mathllde
 W'eisé, ao, rue du Dôme, Alfred Oit, 8, rue de la Nuée-Bleue. —
@@ -4360,8 +3974,6 @@ les députés des départements de l'Kst se chargèrent de recom-
 mander à toute la France ». Cf. Leroy, op. cit., pages 07-100.
                                 160
 
-                  ALSACIENS D'ALOÉRIB
-
  avoués de Château-Thierry souscrit i.SSo francs; les
  « officiers du bataillon d'infanterie de marine campé à
  Villencuve-l'Étang », 1.600 francs; les employés au
@@ -4394,7 +4006,6 @@ ne faut pas se dissimuler, écrit le Temps avec regret,
 quo la condamnation prononcée par le pouvoir exécutif
 contre l'effort des initiatives individuelles et ratifiée par
 le vote de l'Assemblée, est un véritable arrêt de mort
-                            I5I
 
                               l'exode
 pour la souscription » (i). Elle avait déjà atteint plus
@@ -4423,8 +4034,6 @@ Gerst, autre Alsacien, ancien fonctionnaire des Finances
 en Algérie, et décida d'y créer, à loi seul, un village.
 Le comte d'Haussonville, au contraire, ne devait agir
 
-
-  (i) 39 février 1833, n* du Temps du i" mars.
   (a) Il restait exactement, déduction faite des sommes restituées
 aux souscripteurs qui avaient réclamé leur remboursement,
 6a&{-3?3 francs disponibles. On procéda par virement, car les
@@ -4435,9 +4044,6 @@ crédits votés [pour le paiement des trois milliards] devient libre,
 elle peut recevoir une autre application », et c'est cet excédent
 qui rut affecté aux Alsaciens-Lorrains. En deux fols : trois ralliions
 par la loi du i8 décembre i8?a,le reste par la loi du 9 Janvier i8jf
-                                 i5a
-
-                    ALSACIENS D'ALQÉRIE
 
 qu'au nom d'un groupe, mais de ce groupe il fut l'Ame.
 Un comité de quatre membres existait depuis quelque
@@ -4465,7 +4071,6 @@ se trouvèrent réunis : ce fut la célèbre Exposition des
 
  (1) Discours prononcé par M. Mannberguer à l'inauguration du
 monument du comte d'Haussonville, au Camp-du-Maréchal
-(avril 18S3).
    (9).KIeibc, inspecteur général des Ponts et Chaussées, WurU,
 doyen de la Faculté de Médecine de Paris, Léon et Gustave de
 Bussiére, Alexandre, président à la Cour d'Appel de Paris,
@@ -4476,7 +4081,6 @@ Sorbonne, Cuvler, sous-gouverneur de la Banque de France, etc.
    (3) L'Hôtel actuel de la Présidence de la Chambre. (L'Exposition
  .
 s'ouvrit  le »3 avril 1854.)
-                               IÔ3                 l'exode. — 9.
 
                              l'exode
 Alsaciens-Lorrains, dont le souvenir prestigieux sub-
@@ -4491,8 +4095,6 @@ des centaines et des centaines d'hommes, de femmes,
 d'enfants, quittaient l'Alsace, puis, par Belfort ou
 Nancy, s'en allaient vers Marseille, vers la Méditer-
 ranée, vers l'inconnu.
-
-
 
    Émigration en masse : expression pittoresque qui
 platt à nos imaginations chargées d'histoire, mais, der-
@@ -4516,9 +4118,6 @@ L'Offrande, auquel collaborèrent G. Sand, V. Hugo, H. Martin,
 F. Coppée, A. Assolant, A. Houssaye, A. Barbier, Erekmann-
 Chàlrian, H. Malot, Tb. Gautier, Lud. Halévy, Th. de Banville,
 E. Legouvé, E. About, F. Passy, L. Ratlsbonne, etc.
-                                i5£
-
-                   ALSACIENS D*ALGERIE
 
 comités qui se formèrent alors, beaucoup de leurs
 compatriotes, Algériens d'avant la guerre, dont les
@@ -4548,17 +4147,14 @@ Verner, Wurtst, jeunes avocats à Strasbourg, juges de
 paix à Relizane et à Batna (3), Haffner, avocat à
 Colmar, défenseur près le tribunal de Constantine (4),
 
-
   (t) Décédés, les deux premiers, comme conseillers à la Cour
 d'Alger, le troisième comme avocat, à Alger également,
   (a) Aujourd'hui, conseiller à la Cour de Cassation.
   (3) Aujourd'hui, présidents de Chambre à la Cour d'Alger.
   (i) Aujourd'hui, procureur général prés la Cour d'Appel de Pau.
-                              i55
 
                             l'exode
 Boeraer, substitut à Saverne, procureur de la Répu-
-blique & Pbilippeville(i)...
    Mais, dans le désarroi de ces jours tragiques, quelles
 que fussent ces bonnes volontés, elles ne pouvaient
 suffire à toute la tâche. Les immigrants arrivaient,
@@ -4573,13 +4169,9 @@ lerie, on les dirigeait vers leurs futures résidences.
 A l'arrivée, l'autorité militaire leur prêtait des tentes,
 
   (t) Depuis, conseiller à la Cour du Pau. D'autres encore : Racle,
-                                     i
 de Scnlestadt, nommé juge de paix Souk-Ahras, depuis avocat
-        i
 général Alger et premier président à Rouen, Weheklnd, de
-                                 i
 Mulhouse, nommé juge de paix Oued-Athménla, depuis procu-
-                                              i
 reur de la République à Nancy et conseiller Amiens, Gauvenet
 dit Dijon, de Strasbourg, nomméJuge de paix à Ténés, en dernier
 Heu juge au Havre, sont venus directement d'Alsace en Algérie
@@ -4593,20 +4185,16 @@ Lorrains : M. Leclerc, de Meta, avocat à Mets en 1867, juge
 suppléant à Sarreguemlnes en 1869, nommé juge de paix à
 l'Aima, dans le département d'Alger, en 18; 1, et qui « fait,
 depuis, la plus grande partie de sa carrière en Algérie et en
-                                      i
 Tunisie; en dernier lieu, conseiller la Cour de Besancon; —
 et M. CaiUjr.de Metz également (fils de M.Ch. Cailly, bitonnier
 de l'ordre des avocats de Metz), venu en Algérie un peu plus tard,
 mais qui n'a jamais quitté la colonie : suppléant rétribué
 Aumale en 1882, puis suppléant, juge de paix, substitut on juge,
-                                                                 i
 à Bou-Medfa, & Alger, à Tizl-Ouzou, à Batna, actuellement juge à
 Tizl-Ouzou. (M. Poulet, substitut du procureur général à Metz,
 ne resta que quelques mois en Algérie, comme avocat général
 à Alger : voir page isa, note a\
                                156
-
-                ALSACIENS D'ALGÉRIE
 
 ou les Installait dans les mauvaises masures en pierres
 sèches d'un village kabyle abandonné; quelquefois, par
@@ -4636,11 +4224,9 @@ persiste. Parfois, ce sont des baraques en planches,
 assez bien faites, et que le Génie va remonter ensuite
 dans de nouveaux villages, à,mesure que le progrès
 des constructions définitives permet aux premiers de
-s'en passer...
   La plupart manquent de tout, même ceux qui ne man-
 quaient de rien là-bas : déménager d'Alsace pour l'Al-
 gérie, opération compliquée, qu'ils simplifiaient en ven-
-                          i5y
                                 .
 
                          l'exode
@@ -4678,8 +4264,6 @@ vingt charrues du village de La Réunion, près de
 Bougie, très belles et qui ont dû coûter fort cher, sont
                            158
 
-                 ALSACIENS D'ALGERIE
-
 beaucoup trop lourdes pour les boeufs d'Algérie; il en
 faudrait trois paires pour les conduire, et elles sont
 restées sur la place du village.
@@ -4694,13 +4278,9 @@ n'avaient pas plus de trois ou quatre hectares en
 Alsace, c'était un immenseespoir de résurrection, c'était,
 après tant de bouleversements et d'angoisses, l'aurore
 d'une vie nouvelle, qui pourrait encore être heu-
-reuse.
   Du mois d'octobre 1871 au mois de mars 1875,
 1.020 familles d'Alsace et de Lorraine — plus de
 5.000 personnes — arrivèrent en Algérie.
-
-
-
 
   Des confins du Maroc à ceux de la Tunisie, près de
 cent villages où les familles alsaciennes-lorraines ont
@@ -4714,7 +4294,6 @@ Sainte-Marie-aux-Mines, Marsal, Landser, Bltcbe,
 Eguisheïm, Altkirch, Ribeauvillé, Obernai, Rouffacb,
                            153
 
-                              Vexode
 La Robertsau (t) ; je ne pouvais songer à les voir tous;
 mais, ambitieux de recueillir, où que les ait jetés le
 vent du désastre, les épaves do l'Alsace dispersée,
@@ -4723,7 +4302,6 @@ villages alsaciens d'Algérie; Ils m'attiraient invincible-
 ment; je ne me résignais pas à ne connallre d'eux que
 des noms sans vie, ombres exsangues à peine entre-
 vues aux feuillets rapides d'un rapport ou d'un diction-
-naire.
   Belle-Fontaine, (a) d'abord, parce qu'ici s'instal-
 lèrent les premiers immigrants d'Alsace et de Lorraine
 en 1871 : Belle-Fontaine fut le lieu de naissance de la
@@ -4741,21 +4319,16 @@ ralement restés seuls en usage : Akbou (Metz), Oued-Amlzour
 (Colmar), Ain-Tinn (Belfort), Aln-Tagrout(Chèvremont),ATn-TouU
 (Horboorg), Khencbela (Sainte-Marie), AIn-Abessa (Marsal), Ain-
 Roua (Landser), Kl-Kseur (Bltcbe), Bou-Malek (Bguisnelm), Sidl-
-Khalifa(AltkIrch),BledYousse^RibeauvlUé),Aïn-MeIouk(ObernsJ).
 Tous ces villages aux noms alsaciens sont dans le département de
 Constanllne, et le conseiller Rtchert, qui était président de la
 commission de séquestre dans ce département,né fut pas étranger
 au choix de ces appellations. N'importe quel fonctionnaire du
 gouvernement général ou de la préfecture aurait pu trouver Stras-
 bourg, Colmar, Metz et Bitcbe, mais, pour penser à Chèvremont,
-i               i            i
    Uorbourg, Rouflach, la Robertsau, il fallait un Alsacien
-d'Alsace.
   («) Dans le département d'Alger, à 48 kilomètres à l'est d'Alger.
 Centre de colonisation officielle.
                                  160
-
-                  ALSACIENS n'ALOBRIE
 
 consultatifde colonisation relatif à la création de Belle-
 Fontaine : il faut « garantir la sécurité du pays par le
@@ -4770,7 +4343,6 @@ choisi, « défendable par ses propres habitants, sans
 autres travaux de défense que deux blockhaus à établir
 à ses extrémités », et il faisait hâter les préparatifs, car
 « le temps presse », « chaque courrier nous amène des
-immigrants »...
    J'ai vu l'état de lotissement du village : le nom de
 chaque habitant du nouveau centre est suivi de la men-
 tion de son origine, presque toujours la même : quel-
@@ -4786,7 +4358,6 @@ mal de mer, les Arabes sur le port, à l'arrivée, qui ven-
 daient des oranges par petits tas de cinq, tout ce qu'on
 pouvaitmanger après les secousses de la Méditerranée...
  Ils .se rappellent la construction de l'église, avec ses
-
 
   (i) 96 octobre 1871 (Archives du Gouvernement général).
                               161
@@ -4827,8 +4398,6 @@ nairement, lletllgenblld, image de saint; d'où, dans la langue
 populaire, toute Image coloriée.
                               163
 
-                   ALSACIENS D'ALOSRIK
-
 les coins et recoins du village, la Hintergmse,
 YRntenpfuhl, le MCthlberg, tout cela bondit et rebondit
 et se heurte dans notre conversation précipitée; et si
@@ -4860,7 +4429,6 @@ Craignit-il, lui, l'homme des réalisations immédiates,
 que la tentative ne fût trop longue à produire d'heureux
 
   (i) A 4 kilomètres à l'ouest de Tizl-Ouzou. Centre de coloni-
-sation privée.
                              163
 
                              l'exode
@@ -4886,7 +4454,6 @@ malsons déjà bâties, ces maisons qu'il avait pourvues
 d'une manière de véranda, « afin de garantir en partie
 le mur de face des rayons solaires » ; mais, comme,
 
-
  (1) L'économie de l'oeuvre (qu'il s'agit de Jean Dollfus ou de la
 Société de protection) était la suivante. L'État concédait un terri-
 toire en bloc, le premier concessionnairedevait le rétrocéder par
@@ -4900,11 +4467,8 @@ le tout à litre d'avances, dont le remboursement doit lui per-
 mettre de réaliser d'autres créations du même genre. (Le com-
 mandant Riff disait, à propos d'un de ces villages : c II ne faut
 pas qu'Azib-Zamoun devienne un hôtel où on ne pale pas. »)
-                            i                           i
 Quant au colon, Il s'engage résider sur ses terres et les cultl-
                                 164
-
-                    ALSACIENS D'ALGÉRIE
 
 paratt-il, le service rendu n'était pas en rapport avec
 la dépense, la Société fut plus économe %X construisit
@@ -4937,7 +4501,6 @@ tection, comme Jean DoUfus, fut amenée, dans la plupart des cas
 (à Bou-Khalfa, du moins, et a llaussânvillers), i abandonner aux
 colons la valeur de leurs maisons. La Société était d'autant plus
 disposée à prendre la suite de Jean Dollfus i Bou-Khalfa, qu'elle
-                                                         i
 pouvait considérer ce centre comme une compensation la perte
 de celui d'Aln-Tinn (départementde Constantlne), qui lui avait été
 concédé en 1873 et auquel elle renonçait à ce moment même
@@ -4949,7 +4512,6 @@ achevée entre Constantlne et Aîn-Tlnn, etc.)
 «rd'Haussonville » ou « Dollfus », les maisons de
 Bou-Khalfa ont gardé leur modestio un peu triste de la
 première heure, commo si elles attendaient toujours un
-meilleur avenir.
 
    Haussonvillcrs (i) marque déjà un progrès sensible
 sur Bou-Khalfa. Le village s'appela d'abord Aslb-
@@ -4959,7 +4521,6 @@ Heureusement, quelques années plus tard, le Conseil
 général d'Alger, glorifiant le nom du fondateur, sim-
 plifia celui de la fondation. Le a territoire de coloni-
 sation d'Azib-Zamoun » avait été mis à la disposition
-de la Société à partir du i" octobre 1873. A ce moment,
 Haussonvillcrs n'est encore, dit un témoin (a), qu'une
 « concoption géographique ». Mais, dès le mois de
 décembre suivant, trente-trois familles y étaient instal-
@@ -4976,14 +4537,10 @@ un piano 1 « La jeune fille de la maison, qui conduit
 vaillamment la charrue pendant le jour, fait de la
 
  (1) A 8a kilomètres à l'est d'Alger, a l'embranchement des routes
-                          i
 d'Alger à Del lys et d'Alger Fort-National par Tizi-Ouzou. Centre
-                                                             " *
 de colonisation privée.
   (a) Eug. Hcpp (Archives de la Société de protection).
                               166
-
-                     ALSACIENS DALOKRIB
 
 muslquo le soir »; mais « tout le pays, jusqu'à Dellys
 et à Tizl-Ouzou, s'est ému et a parlé de ce piano, chose
@@ -5047,17 +4604,13 @@ orphelinat d'Alger (i). Dahlem, Priant, Muller, Runlz,
  mats Heilzler, mais Godfroy, mais Grusenmeyer, et
  les deux Helnrlch, et Lorentz, et Heppert, et Hosli, et
 
-
   (i) Je ne sais ail y eût dés ce moment un service organisé pour
 les protestants; en tous cas, quelques ann^vs plus tard, une pièce
 louée dans la maison du colon Sand leur servit d'oratoire. En
 1884, le pasteur de Tizl-Ouzou exprima le voeu que l'église d'Haus-
-                        i
 sonvillérs fût soumise ce régime du slmultaneum qui est bien
 connu en Alsace (l'église servant tour à tour aux deux cultes)
                                168
-
-                    ALSACIENS p'ALGKRIR
 
 Marchai, et Starck, et Zlngraff, et Marlzloff, tous
 ceux-là connaissaient depuis longtemps l'agriculture,
@@ -5093,7 +4646,6 @@ Scblestadt, celui de Khenchela est de Bcinbelm, celui de Pélix-
 Faure est de Guebwiller, celui d'KI-Guerrah, de Llèpvre, celui de
 Mesloug, de Bergheim,celui de Datna, de Walbourg. J'en trouve
 une soixantaine d'autres, dans tous les emplois, garde-frein, ajus-
-                               169                  l'exode. —10
 
                             l'exode
 rement, mais largementrémunérateurs,avaient détourné
@@ -5122,7 +4674,6 @@ des plantations hygiéniques aux miasmes qui montaient
 du Sebaou voisin. Le recrutement aussi put se faire
 plus à loisir et se ressentit d'être moins précipité. La
 
-
 teur, chef de pose, chef d'équipe, chauffeur, brigadier de la voie,
 chef de train, commis principal,chef de bureau, etc. L'ingénieur
 en chef de l'exploitation est de Strasbourg. On peut noter aussi
@@ -5132,8 +4683,6 @@ tlne, par un Wissembourgeots.
   (1) Entre Haussonvillers et Bou-Khalfa.
 
                                170
-
-                   ALSACIENS D ALGERIE
 
 commission devant laquelle comparaissaient les futurs
 colons de la Société de protection, à la mairie de
@@ -5163,7 +4712,6 @@ Goetzl Bonjour, Madame Kastl.. Les souvenirs du
 départ viennent aux lèvres, créent tout de suite une
 intimité, dès l'accolade à la gare, dès les poignées de
 mains du débarquement... Le père travaillait, contre-
-
 
   (t) Elle était composée du comte d'Haussonville, de M. E. Le-
 derlln, professeur à la Faculté de droit de Nancy, et de M. Penot,
@@ -5205,8 +4753,6 @@ place, dans cette jolie maison blanche où le comte
 d'Haussonville installait son bureau, lorqu'il venait au
                              172
 
-                   ALSACIENS D'ALGÉRIE
-
 Camp, et qu'il a, depuis, offerte à la commune (i).
 Alsacien aussi, le premier instituteur, M. Schoeffler,
 ancien élève de l'école normale de Colmar, instituteur-
@@ -5235,12 +4781,9 @@ sonnés, il prendra son passage et partira, « Pour tou-
 jours ? — ... Oui,... si les choses changeraient/ » Son
 frère, maréchal des logis d'artillerie, a été tué, il y a
 
-
   (i) Les princes d'Orléans, les Chalats-Pérlgord. les de ItrogUe,
 les Greffulhe avalent, avec le comte d'Haussonville, participé aux
 frais de construction et d'entretien de cette école (F. Mannber-
- guer, op. cil., page 5).
-                               l?^                l'exode. — 10,
 
                             l'exode
 deux ans, dans le massacre de Fez. Tous ils en sont, de
@@ -5255,7 +4798,6 @@ demandais à celui-là s'il parlait aussi Vetsâsser ditsch,
 ce diable noir en burnous m'a répondu par un Alle-
 weyl(?) sonore et chantant, superbement du cru, que
 je n'oublierai de ma vie et que ne dépara point, croyez-
-m'en, le reste de la conversation.               *
    Des aspects et des usages d'Alsace revivent sur ce
  sol lointain : l'impression est étrange, de les retrouver
 ici, de l'autre côté de la Méditerranée, sous le soleil
@@ -5278,8 +4820,6 @@ a Certainement, bien sûr 1 » Il est vrai qu'on cite un des Alsaciens
 d'ici qui peut tenir tous les discours du monde en allemand et en
 kabyle, mais, en français, point.
                                174
-
-                 ALSACIENS D'ALGÉRIE
 
 village où il y a pas de religion, c'est rien », m'a dit le
 Bernard; les processions, spectacle inconnu ailleurs en
@@ -5350,11 +4890,6 @@ France était trop bon ; Us avalent trop de confiance »,
 et je vous assure que je n'ai point ri... J'ai pensé alors
                             176
 
-                  ALSACIENS D'ALGERIE
-
-
-
-
    Le succès c'u Camp-du-Maréchal, — on l'a vu par
 quelques exemples, — n'a pas couronné partout les
 efforts de la colonisation alsacienne-lorraine en Algérie.
@@ -5416,10 +4951,7 @@ sol, énergiquement, victorieusement, eux-mêmes ou
   séduire, à absorber, à assimiler. Certes, les apports
 
    (1) Séance du Comité, du 96 octobre i8jt (Archives du Gouver-
-  nement général).
                                178
-
-                    ALSACIENS D'ALGÉRIE
 
 moraux de l'individu dans la collectivité, d'une petite
 collectivité dans une collectivité plus grande, échappent
@@ -5436,7 +4968,6 @@ librée » : harmonieux composé de Nord et de Midi,
 d'Est et d'Ouest, auquel, tout à coup, l'Est manquait.
 Les cinq mille Alsaciens d'Algérie ne sont pas inutiles
 pour maintenir dans la seconde France l'équilibre
-français.
   Et puis, cet élan mutuel qui rapprochait la mère-
 patrie et quelques milliers de ses enfants au lendemain
 d'une séparation que les vainqueurs auraient voulue
@@ -5470,10 +5001,6 @@ conserver la France à eux-mêmes. « On aurait risqué
 davantage, s'il l'avait fallu », me disait un de ceux de
 Belle-Fontaine, à qui pourtant les fièvres enlevèrent
 presque tous les_ siens, « car c'était trop dur de rester
-là-bas... »
-
-
-
 
 possibles mettre les immigrants alsaciens-lorrains en position de
 pourvoir par le travail aux besoins de leurs familles. Cela fait, Il
@@ -5490,9 +5017,6 @@ d'Alger (to octobre 1873) : c 11 y a*de plus, un Intérêt national &
 faire réussir ces villages alsaciens-lorrains qui resteront comme la
 preuve de l'attachement de la France pour les provinces qu'elle a
 perdues. » (Archives de la Société de protection)
-
-l'exode, — ii
-
 
    Industries qui se sont transportées sur le territoire
 demeuré français; petites villes qui ont perdu, avec une
@@ -5551,14 +5075,11 @@ important : tout un personoel qui recula en même
 temps que la frontière, jusqu'où le traité la transpor-
 tait : « La douane s'est repliée », me dit un de mes
 interlocuteurs : expression concise, imagée, doulou-
-reuse. ét a Des Wissembourgeois, dit un autre, il n'y en
 a plus qu'au cimetière ». Là, du moins, à côté du monu-
 ment élevé «Aux soldats français — nos frères —
 morts pour ta patrie », il y a encore des Veling et des
                             184
 
-                    WISSEMBOURG
-                           -   m
 Hormis, des Zoegger et des Gauckler, des Boell et des
 Weber, des Apffel, des Scherer, des Volpert, des
 Ehrweîn, — des noms qu'on a retrouvés presque tous,
@@ -5605,13 +5126,11 @@ frontière, et chez qui l'on voit, pendue au mur de soi
 Entre ceux qui sont partis et ceux qui sont arrivés, il j
  a égalité de nombre, non point équivalence de qualité    :
 
-
 cette formule revient dans tous les propos. L'ancienne
 bourgeoisie s'en est allée, et rien n'a pris sa place..
 Mais qui sait quels bourgeois seront demain ces petites
 gens d'aujourd'hui, venus d'Allemagne en Alsace à le
 suite des conquérants? J'entends des mots pénibles        ;
-
 
 a Nous sommes des vaincus »... « Nous sommes des
 épaves»... Dps épaves... Derrière ces plis légers du
@@ -5632,14 +5151,12 @@ nouvelle; et puis, une digue encore puissante protège,
 presque sans qu'elles aient à se défendre, les villes et
                            186
 
-                           vie
 les campagnes de cette région : leurs habitudes et leur
 langue, purement françaises, qui rebutent l'Allemand,
 même colonisateur. Ce n'est plus le Palatinat qui se
 déverse sur l'Alsace, mais la Lorraine sur la France.
 Ce n'est pas l'invasion, mais c'est encore l'exode,
 la retraite vers la France. Et c'est encore le « replie-
-ment ».
    Jusqu'à une heure avancée de la nuit, en interro-
 geant, en écoutant quelques anciens du pays, de ces
 hommes qui connaissentpar coeur toutes les généalogies
@@ -5702,12 +5219,9 @@ d'autrefois. Une maison qui valait quinze mille francs
  compliquât pas de ses tracasseries les autres embarras
                            188
 
-                   AU PIED DES VOSGES                   #
 du départ, on allait faire sa déclaration d'option
-« en France », à Juvrecourt, ou à Athienville, ou à
 Moncel, ou à Nancy. On partait... On loua des
 logements, quand on en put trouver, à Arracourt,
-à Juvrecourt, à Bezange, à Moncel, et de là on
 revenait ici cultiver son champ; mais, parfois, les
 Allemands barrèrent la route... En faisant le « tour de
 ville », j'aperçois la France à quelques centaines de
@@ -5724,21 +5238,16 @@ frontière, j'ai vu l'exode arriver, ces Français deux
 fois Français (i) se débattre, .avec les difficultés d'une
 existence à refaire, errants, inquiets, mais se redres-
 sant toujours dans la fierté de n'avoir pas voulu « rester
-Prussiens ».
 
   Au Val-et-Châtillon, sur la Vezouse, commune qui
 n'avait pas mille habitants, il en arriva plus de deux
 cents. Ils venaient par le Donon à pied, par la vallée
-de la Plaine, le col de la Charaille, la vallée de la
 
   (t) Cette qualification fut populaire tu lendemain de la guerre,
 et l'est restée. Elle n'est pas une formule emphatique : tout ce
 livre en démontre le sens précis. Français par la naissance, les
 optants devenaient, par cet acte, une deuxième fols Français.
-                               189               Pexode. — tt.
 
-                            Vexode
-       «
 Vezouse. Plusieurs avaient déjà opté à Raon-sur-
 Plaine, le premier village qu'ils rencontraient à la
 descente des Vosges, mais Raon-sur-Plaine, n'ayant
@@ -5768,14 +5277,11 @@ listes où, un par un, pour lui-même et les siens, chaque
 chef de famille immigrante « déclare opter pour la
 nationalité française et fixer son domicile à Raon-
 
-
  (1) fins exactement : Lellembach, prés de Salnl-Qulrtn. Mais la
 dénomination : 1 Verreries de Satnt-Quirln > est d'usage courant.
- (a) En 18S8.
 
                               190
 
-                         EPINAti
 l'Étape » : du 15 février i8ja au 9 juin, cent vingt
 familles sont inscrites, qui de cinq, qui de sept, qui de
 .neuf enfants; du 9 juin au 3o septembre, cent quatre
@@ -5808,13 +5314,10 @@ toutes les difficultés, les générosités, lés tristesses de
 l'exode : des comptes de la Préfecture avec ta Compa-
 gnie de l'Est, i3 émigrants transportés de Neuf/château
 à Langres le 20 juillet 1871,9) de Neufchftleau à Gray
-                            î0t
 
                               l'exode
-le ai, puis, les jours suivants, 33, 24, 36, a5, 38, ($... ;
 — le relevé des opérations du Comité de Saint-
 Dié : 1.390 places de chemins do fer et voitures :
-9.345 fr. j5, et 6.33i repas, et 10.900 kgr. de pain, et
 2.87} fr. 25 à recouvrer sur le gouvernement français
 pour transport des jeunes gens alsaciens de la classe
 i8?3; — les mémoires établis tous les quinze jours par
@@ -5833,7 +5336,6 @@ hiérarchiquement transmises, par l'inspecteur primaire,
 en faveur de M. Lirhantz, cx-institutcur-adjoinlà Thann,
 non replacé dans les Vosges, « car il y en a trop à'
 
-
   (1) Kl celle-ci, particulièrement dramatique : de Xavier Maycr-
 hoffer, ouvrier fondeur à Cornimont. Rngagé volontaire pour la
 durée de la guerre au i" zouaves, puis versé au i" tirailleurs
@@ -5849,8 +5351,6 @@ tions, Il tombe malade, demande un secours... Il meurt, quelques
 jours après, à Cornlmonl, soigné chez un autre Alsacien, qui n'a
 pas voulu être dédommagé de ses frais.
                                  193
-
-                            ÉPINAL
 
 replacer », ou de M. Windenberger, dont le traitement,
 comme adjoint à Rarabervillers, est inférieur de près
@@ -5876,7 +5376,6 @@ vernements, les situations, mais qu'on ne violente pas
 les lois économiques », et la situation créée à Mulhouse
 par le traité de Francfort peut avoir une heureuse
 répercussion sur la vie industrielle et commerciale des
-
 
   (i) «... Beaucoup des gardes forestiers des province» perdues
 par la France, pour rester fidèles à leur Patrie, n'ont pas hésité
@@ -5918,12 +5417,7 @@ seulement ici que la frontière du traité de Francfort ne
 permettait plus au tissage français de recourir comme
 autrefois aux industries a finisseuses » d'Alsace. Il ne
 
-
- (1) aWi février 183) (ibtd.)
  (4) Il faut entendre par là Mulhouse et   sa région, Cernay,
-Malmerspach, etc.
-
-                           THAON
 
    pouvait plus venir à elles. Elles vinrent à lui. Quelques
 ..
@@ -5974,7 +5468,6 @@ location par adjudication publique de l'emplacement
 de la fête, «c qui va devenir importante par suite de
 l'immigration alsacienne », la commune de Thaon se
 trouva endettée de plus de 20.000 francs au 1" janvier
-i8;3.
    Mais elle n'eut pas à regretter ses sacrifices. Aujour-
 d'hui, Thaon-lcs-Vosges, en pleine prospérité, compte
 7.000 habitants, et livre au commerce pour 17 millions
@@ -5992,11 +5485,8 @@ tout la dernière. Thaon-lcs-Vosges est un curieux
 microcosme où la sagacité de l'ethnologue et du socio-
 logue s'exercerait avec fruit : trois populations y
 
-
  (1) Cf. L. LArritie. Rapport... cité, page 5i«.
                                 196
-
-                            THAON
 
 vivent en bonne harmonie, sans avoir encore perdu les
 caractères particuliers qu'elles tiennent de leurs
@@ -6027,10 +5517,8 @@ fécules, sommairement transformé en oratoire; là,
 quelques chefs de familles, « pasteurs laïques », comme
 on disait de l'un d'entre eux (a), avaient chacun son
 
-
   (i) On était, car deux ou trois de ces familles n'existent plus,
 à Thaon du moins.
-  (a) Christophe Dietcrlen.
 
                                197
 
@@ -6054,7 +5542,6 @@ Wesserling), ou bien on les reçoit à Thaon, on leur fait
 les honneurs d'Épinal. Quelques arrivées, de temps
 en temps encore, sept, huit, dix par an, s'ajoutent
 à l'ancien apport alsacien, — lointain remous de la
-tempête...
 
   Une ville nouvelle née de l'exode : n'est-ce point le
 symbole de la résurrection? Des villes renouvelées,
@@ -6064,12 +5551,10 @@ trainte imposée à leur conscience : ce spectacle n'appa-
 ralt-il point, tout d'abord, comme un singulier retour
 des choses, l'heureux effet de quelque « révocation de
 
-
  (i) Jean-Frédéric Oberlin, né à Strasbourg en 1740, pasteur à
 Waldersbach, prés de Rothau, pendant cinquante-neuf ans.
                              198
 
-                             LBXOPB
 l'Édit de Nantes » à rebours? Ou voudrait croire à la
 réalité complète de ces Images réconfortantes. Mais je
 ne puis. Que la statistique cotonnlère du Hayon des
@@ -6100,7 +5585,6 @@ pas possible à un Français de l'entendre, de le pro-
 noncer, de l'écrire, sans un sursaut violent d'émotion et
 de regret. Ne point penser d'une pensée constante à la
 
-
  (i) Cf. L. LAFFITTB, Rapport... cité, passlm.
                                 199
 
@@ -6118,18 +5602,7 @@ n'effacent ni ne réparent, du moins rendent-elles plus
 cher encore lo souvenir de cette terre et de ces hommes,
 plus araère la douleur de les avoir perdus.
 
-
-
                                              1914.
-
-
-
-ANNEXES
-
-
-                                I
-
-
 
   L'auteur, très modéré, des lettres tFAlsace (t) qui parurent
 dans i'Augsburger AUgemeine Zeltung, a rappelé en ces
@@ -6157,7 +5630,6 @@ en fige de servir, furent consternés en présence d'une loi
 qui pouvait les faire marcher demain contre leurs propres
 
  (i) Voir plus haut, page ao, et a Vtndex : Aus dem Hlsass.
-                              ao5                 l'exode. — la
 
                            l'exode
 frères. 11 faut savoir combien étalent étroits, dans les
@@ -6184,7 +5656,6 @@ lation du Palatinat et qu'elle y eût provoqué la même
 émotion. C'est là, o'est dans l'incorporation immédiate des
 recrues alsaciennes qu'il faut chercher la première cause et
 la plus importante, des options, d'abord, puis des émigra-
-tions... • (i)
   On citera encore Ici, parmi tant d'autres documents
 contemporains, deux lettres particulièrement propres à
 éclairer cette situation, qui parurent, à quelques jours
@@ -6195,11 +5666,8 @@ auteur Gli. Dollfas. En votel les principaux passages :
 devrait, à mon avis, se résumer en deux points : 1* Auto-
 nomie administrative de l'Alsace; a* Service militaire
 
- (1) Pages 69-63,
  (a) Reproduite dans le Temps du «4 novembre 183 r.
                              906
-
-                            AHNIXB8
 
 facultatif pour tous ceux qui sont nés antérieurement à
 l'annexion.
@@ -6234,12 +5702,10 @@ logie, la Prusse a donné naissance à Kant t s'en souvient-
 elle encore? Hier, la patrie allemande rendait à Schiller
 des honneurs unanimes t- et l'Allemagne commettrait froi-
 dement, après mûr examen, les yeux ouverts, une si
-flagrante violation de ce qu'il y a de pluB moral, de plus
 noble, de plus respectable chea les Alsaciens? car les Alsa-
 ciens, s'ils sont dignes d'estime pour ne pas vouloir aban-
 
   (i) Le délai partant de la date du traité. (Note de l'auteur de la
-lettre)
                                 907
 
                            l'exode
@@ -6255,9 +5721,7 @@ l'apôtre de la conscience, do Schiller, lo poète de la liberté,
 mais de Goethe, le plus humain des Allemands, qui écrivit
 ces vers immortels, Imprescriptibles dans leur vérité :
 
-                   ... Gefîthl ht ailes,
                 Name ist Schall und Hauch,
-                Umncbelnd Jiimmelsgluth.
 
   « Durant la guerre, la passion domine les âmes et comme
 dans un torrent de feu et de sang emporte les meilleures
@@ -6267,9 +5731,7 @@ place à la délibération. Malheureusement, les assemblées
 comme les armées obéissent h des courants souvent funestes,
 et ce que beaucoup accorderaient individuellement à la
 justice et à la raison, on peut craindre qu'ils ne le leur
-refusent collectivement... »
   L'autre lettre, signée X..., fut publiée par lo Journal de
-Genève (i) :
   « Le Journal de Genève a mis ses lecteurs au courant de
 l'agitation qu'a provoquée en Alsace la perspective d'une
 prochaine application du service militaire. Vos correspon-
@@ -6281,9 +5743,6 @@ les Alsaciens ont à porter le poids sans qu'ils en aient en
 nulle manière encouru la responsabilité.
 
  (i) Reproduite dans le Temps du » décembre 1871.
-                             ao8
-
-                          ANNEXES
 
   « Mats U paraîtrait qu'on se retranche à Berlin, pour ne
 rien concéder, derrière l'article $7 de la Constitution, qui
@@ -6293,7 +5752,6 @@ dit-on, les Alsaciens qui n'auront pas, en octobre, opté
 pour la France et transféré hors de l'Alsace leur domicile
 légal, seront devenus des Allemands; on ne saurait donc,
 sans détruire la Constitution allemande, les dispenser du
-service.
    « Berlin a trouvé son non possumus. On reconnaît que
 les sentiments qui s'élèvent partout en Alsace contre
 l'immédiate application de la loi sont des plus respectables,
@@ -6311,7 +5769,6 @@ loi est toujours libre do la modifier en tout ou en partie,
 pour un temps ou pour toujours, dans les limites jugées
 nécessaires par lut. L'exception confirme la règle, et l'excep-
 tion de fait motive en équité et en raison l'exception de
-droit,
   « Qui niera que l'Alsace n'ait été jetée brusquement dans
 l'exception? L'instruction primaire obligatoire et le service
 militaire obligatoire sont les deux colonnes de granit de la
@@ -6324,9 +5781,7 @@ casque de ses vainqueurs? Elle ne demande pas qu'à son
 intention le principe général soit aboli, elle demande que,
 le principe maintenu, l'on en diffère la mise en vigueur
 quant à elle, durant une période de temps suffisante pour
-                             209            l'exode. — i».
 
-                          Vexode
 qu'elle échappe à cette servitude horrible, à 9e mépris
 d'elle-même qu'on voudrait lui infliger,,.
    « Si l'on juge qu'après avoir rois l'Alsace dans l'état où
@@ -6368,13 +5823,11 @@ et à sa constitution politique, sera reconnue neutre au
 moins dans la personne de ses habitants?... Et si cette ncu-
                             910
 
-                            ANNEXES
 trallté des habitants pouvait s'étendre plus tard, d'un
 commun accord entre la France et l'Allemagne, jusqu'à la
 Forêt-Noire, formant une zone de paix et de réconciliation
  entre les deux peuples unis et non plus séparés parla
 province limitropheI Mais ne rêvons pas et restons dans le
-présent.
    « S'il est vrai, comme on le prétend, quo le service facul-
 tatif admis transitolrement en Alsace, sauf à demander un
 impôt général de rachat à la province, soit une héréste
@@ -6389,14 +5842,8 @@ talons; quant aux consciences faites à ces manoeuvres,
 j'estime qu'il n'en existe pas beaucoup en Alsace, Celles
 d'Allemagne devraient le comprendre... »
 
-
-
-
  (i) Le délai serait, selon nous, insuffisant, ail était inférieur 4
 douze années partant d'octobre i8;a. (Note de l'auteur de là lettre)
-
-                               II
-
 
    «... Quels que puif sent être les résultats de l'option, dit la
 Provincial Correspondent, (i) les desseins et les espérances
@@ -6427,8 +5874,6 @@ tats de l'option. L'Allemagne est en possession de ses
 plus haut, page a).
                               212
 
-                         ANNEXES
-
 anciens pays-frontières et de ses puissantes forteresses ;
 la force et le dévouement de la nation, l'excellence éprouvée
 de nos institutions militaires et de notre administration de
@@ -6454,9 +5899,6 @@ de l'Alsace-Lorraine, moralement aussi, s'opère de plus en
 plus et que la population acquière bientôt avec orgueil et
 satisfaction la conscience d'être rentrée dans une pleine
 communauté d'existence avec l'empire allemand. »
-
-                                III
-
 
   Le traité de Francfort était formel, et l'on ne pouvait pas
 contester que l'Étal annexant eût le droit d'exiger des
@@ -6484,10 +5926,6 @@ velles entraves à l'option, ou nouvelles obligations de
 départ. D'autre part, on a vu plus haut quelle émotion
 
  (1) Cf. O. May, op. cit., pages itfi et suivantes. — Voir plus haut,
-page af.
-                                2l4
-
-                           ANNEXES
 
 soulevèrent dans le pays les prescriptions relatives à
 l'incorporation immédiate des recrues alsaciennes et lor-
@@ -6527,10 +5965,8 @@ nous pourrions trouver un exemple d'une calamité aussi
 étendue et d'un aussi puissant attachement à la patrie...
 
  (1) Journal de* Débats, n« du 3 octobre i8ja.
- (a) td., tbld.
                                215
 
-                             l'exode                 *
                                                          ,
 « Il n'y a qu'un petit nombre de nos jeunes émigrants des
  voilures de 3* classe, nous écrit-on, qui connaissent parfai-
@@ -6569,11 +6005,7 @@ néanmoins conserver à leurs enfants la nationalité fran-
 d'accepter l'option de ces enfants, quoique validée par
 l'autorité de leurs tuteurs naturels, à moins que la famille
 
-
- (i) Journal de* Débalt, n* du a octobre i8ja.
                                216
-
-                            ANNEXES
 
 entière ne parte pour l'exil. » (i)— Le Preeman, de Dublin :
 « On prétend que les Français ne sont point colonisateurs.
@@ -6601,18 +6033,8 @@ Spectator. a La conscience de l'Europe semble se réveiller
  pour un jour », dit le rédacteur des ^Débats, qui rapporte
  quelques-unes de ces opinions étrangères. (3)
 
-
-
-
-  (i) Journal de* Débats, tr du 3o septembre i8;a.
   (a) Journal de* Débats, n* du 5 octobre 1879.
   (1) Article signé HKMRY AROJT, ld., Ibld.
-
-                                                     l'exode. — il
-
-                                IV
-
-
 
    La frontière établie par le traité de Francfort était une
 frontière (t) économique en même temps que politique. Non
@@ -6639,12 +6061,9 @@ I8JI entre Potiycr-Qucrlier, ministre des finances, et trois
 délégués de l'industrie alsacienne, Aug. Dollfus, Spoerry,
 
  (1) Voir plus haut, page a5, page 30, pages et et suivantes.
- (a) O. MAY, op. cit., page *ig.
  (1) Voir plus haut, pages 65 et G6, <* O. MAY, pages ifl et afo.
 
                                218
-
-                             ANNEXES
 
 Marin,—puis,article g du Traité de paix) ne fut concédée par
 M. Thiers qu'en échange d'avantages auxquels il attachait
@@ -6666,15 +6085,6 @@ même de ces diverses négociations et de leur dépendance
 réciproque dans son message du 7 décembre 1831 à l'Assem-
 blée Nationale (dont il est question également, à propos de
 faits d'un autre ordre, page ifo du présent livre).
-
-
-
-
- (t) VILLEIORT, op. cil., tome I, page 88.
-
-                              V
-
-
 
   Pour consacrer aux yeux de tous celte union de l'Algérie
 et de l'Alsace (t), on songea à offrir un siège de député
@@ -6702,14 +6112,11 @@ dans sa totalité la nation française »; — que Victor Hugo
 rédigea le projet d'une c Déclaration » par laquelle ses col-
 lègues « continueraient leur mandat » aux députés alsaciens
 et lorrains, continuation qui est à la fois c de droit » et de
- (1) Voir page t4f.
 
                              220
 
-                               ANNEXES
                            .
 
-a devoir » (i); — qu'à la séance du n mars, le colonel
 Denfert-Rochcrcau, député du Haut-Rhin, et M. George,
 député des Vosges, ayant adressé à l'Assemblée des lettres
 officielles de démission, le président Grévy, reprenant la théo-
@@ -6745,13 +6152,11 @@ vons le traité... Il Importe que dans l'exécution forcée du traité,
 rien de notre part ne ressemble à un consentement. Subir sans
 consentir est la dignité du vaincu... » (VICTOR HUGO, Acte* et
 Paroles, tome 111, Depuis l'Hxll, pages io5 et suivantes)
-  (a) Cf. SCHEURKR-KKSTSBR, op. cil., pages 3So-3Si.
                                 « voix consultative a, si l'on en juge
   (Y) Mais avec une sorte de
 par les déclarations, l'une, collective (de quatorze noms), trois
 autres, individuelles, qu'ils envoyèrent & l'Assemblée Nationale en
 I8J3 pour prolester contre l'éventualité d'une restauration de la
-monarchie. (Cf. En. TKUTSCU, op. cit., page ai)
                                  221
 
                            l'êxode
@@ -6791,11 +6196,8 @@ bon sens politlquo l'ordonne d'une façon impérallve en
 présence de la double décision prise par une partie des
 Alsaciens et des Lorrains de quitter le sol natal, préférant
 
-
   (1) «apport de M. Vente aur l'élection de Garibaldi à Alger,
 Journal officiel du ia mars I8JI.
-
-                           ANNEXES
 
 l'exil à l'humiliation de vivre sur le sol étranger, et par
 l'Assemblée Nationale d'offrir à ces émigrants 100.000 hec-
@@ -6829,24 +6231,13 @@ la Lorraine auront à la Chambre l'organe implacable de leur
 revendication; l'Algérie, un défenseur convaincu, comme
 nous le sommes nous-mêmes, que notre sol doit être l'asile
 des victimes de la guerre; la France, une notoriété de plus
-à In tribune. »
 
-
-
- (1) Arrêté du 10 Juin 1851.
  (a) Par un second arrêté de la mémo date.
-
-                                VI
-
-
-
-               Loi du 15 septembre 1871
 
   AnTrcr.K !>fiKMiEit.(i)— 11 est institué à Belfort cl à Nancy
 des commissions à l'effet de recevoir les demandes des
 habitants de l'Alsace et de la Lorraine qui, voulant conser-
 ver la nationalité française, prendraient, conformément &
-l'article i" de la loi du ai juin 1871, l'engagement de s»
 rendre en Algérie pour y cultiver et mettre en valeur les
 terres dont la concession leur serait faite par l'Étal à titre
 gratuit. Ces commissions seront chargées de constater la
@@ -6864,13 +6255,8 @@ l'effet de recevoir les colons à leur débarquement, de les
 diriger sur les lots qui leur seront affectes et leur rendre
 tous les bons offices réclamés par leur situation.
    4. — Indépendamment des lots individuels, chaque colonie
-devra comprendre un communal, en bois, s'il y en a, et en
 
  (1) Voir plus haut, pages f {5-ifr.
-
-                                22/$
-
-                          ANNEXES
 
 terres de parcours, dont l'étendue sera proportionnée au
 chiffre de la population présumée.
@@ -6882,7 +6268,6 @@ lots aura lieu par ordre d'arrivée ; autant que possible, leur
 de la famille et l'importance des ressources pécuniaires
 dont elle dispose.
    6. — Chaque centre de population sera pourvu, aux frais
-           r
 de l'État : dVaux ntlmcnlatres (fontaine ou puits, lavoir
 et abreuvoir); s d'une mairie; 3* d'une école; 4* d'un
 édifice du culte avec ses accessoires obligés; 5* des voles de
@@ -6901,14 +6286,10 @@ doivent la former.
 gatoires par la présente loi au moyen de crédits ouverts
 au budget de l'Algérie, chapitre Colonisation.
 
-
                Décret du 16 octobre 1871
-                     TITRE PREMIER
- ARTICLR PHHMisn. — Les habitants de l'Alsace et de la
 Lorraine qui voudront profiter du bénéfice de la loi du
 i5 septembre 1831, auront à produire, devant les commis-
 sions d'émigration, Instituées à l'article premier de ladite
-                            225                l'exode. — il.
 
                           l'exode
 loi, une expédition en forme de la déclaration qu'ils doivent
@@ -6931,7 +6312,6 @@ engagement, et la déchéance pourra être prononcée contre
 ceux qui cesseraient de résider sur leurs terres avant de
 les avoir mises en valeur dans une mesure suffisante pour
 prouver la loyale exécution des obligations par eux sou-
-scrites.
   3. — L'affranchissement de la clause résolutoire Impli-
 quant, au profit des concessionnaires, propriété définitive
 et incommutable des immeubles dont ils auront été mis en
@@ -6944,21 +6324,16 @@ déchéance, il sera procédé conformément aux règles établies
 à l'article n du présent décret.
   4. — Pendant trois ans, le concessionnaire sera affranchi
 de tous impôts qui pourraient être établis sur la propriété
-immobilière en Algérie.
   5. — Chaque colonie sera constituée en commune de plein
 exercice aussitôt l'arrivée dés deux tiers des habitants qui
 doivent la former. En conséquence; les conditions de peu-
                             226
 
-                          ANNEXES
 plemcnt «front réglées pour chacune d'elles de façon à ce
 que cette proportion puisse correspondre à l'existence d'un
 corps électoral de cent citoyens français au moins.
 
-                          TITRE II
-
   6. — Lo gouverneur général est autorisé à consentir, soùj
-                                   $
 promesse de propriété dM$t|yJ> |uf $$j0tqt$ ci-après
 exprimées, des locations de terrés domaniales d'une dUjféfl
 de neuf années en faveur de tous wi&ç^ajff d'ojrl|lne cnrP-
@@ -6974,7 +6349,6 @@ hectares au plus et de trois hectares au moins par lelfde
 résident européen (hommes, femmes, enfants ou gens à
 gages). L'acte de location déterminera, pour chaque cas
 particulier, le nombre d'Européens à entretenir sur fini-
-meuble.
   0. — A l'expiration de la neuvième année de résidence
 continue dans les conditions exprimées à l'article précé-
 dent, le bail est converti en titre définitif de propriété. Cet
@@ -7008,15 +6382,9 @@ présente aucun adjudicataire, l'immeuble fait définit ive-
 inent retour à l'État, frano et quitte de toutes charges.
    19. — Pendant trois ans, le locataire sera affranchi de
 tous impôts qui pourraient être établis sur la propriété
-immobilière en Algérie.
    i3. — Le ministre de l'intérieur et le gouverneur général
 civil de l'Algérie sont chargés, chacun en ce qui le concerne,
 de l'exécution du présent décret.
-
-                              VII
-
-
-
 
   « Votre Excellence (i) a été informée par les journaux de
 Vimpresston que Us acquittements prononcés â Mcluh et
@@ -7039,8 +6407,6 @@ peser sur lut.
 affaire avec M. de Rémusat, ce n'est pas dans le but de porter
 d Vadresse du gouvernement français les reproches de la
 
-
-                          i
   (i) Dépêche de Bismarck d'Arnlm (voir page 149 ), traduction
 communiquée par l'AgenceHavas (Le Temps du *f décembre 1871).
                               229
@@ -7077,18 +6443,13 @@ Copinlon publique en France.
  Tonnelet et de Berlin réclamée par nous, eut été refusée,
 persisté dans cette réclamation, confiants que nous étions
 dans la justice de la France. Mais, à Favenir, nous ne
-pourrions, en présence de FlndlgnaUon de la population
 allemande, garder la même réserve, et, dans le cas oh une
 extradition de cette nature nous serait refusée, nous serions
 contraints d'arrêter et d'emmener des Otages français, et
 même, dans les cas d'extrême nécessité, de recourir d des
 mesures plus étendues, pour obtenir qu'il soit fait droit à
 notre demande, — éventualité dont nous souhaitons vivement
-d'être dispensés.
-                                             e
                               230
-
-                           ANNEXES
 
   a Abstractionfaite des dangers que nous aurions d craindre
 de ce côté, au point de vue de nos relations réciproque», les
@@ -7129,7 +6490,6 @@ tible avec les principes éternels de la justice, de Fordre poli-
 tique, et avec Fêtai actuel de la civilisation. Il semble
 donc que même ces faibles hommages rendus au droit se
 tairaient le jour oà notre occupation aurait cessé.
-                              a3i
 
                               l'exode
   «r Je prie Votre Excellence de communiquer ces.considé-
@@ -7143,8 +6503,6 @@ esprit conciliant, surgir des faits jin présence desquels je
 me vols, malheureusement, dans l'obligation de qualifier de
 prématuré notre espoir de voir renaître entre tes deux pays
 la confiance réciproque.
-                                                  « BISMARCK. »
-
 
   Cette dépêche, envoyée le 10 décembre 1871 (1) par M. de
 Bismarck à M. d'Arnim, ne fut rendue publique que le aa.
@@ -7166,158 +6524,96 @@ en lui la lecture de l'inqualifiable dépêche adressée, le
 avant-hier par les Journaux de Berlin. Le général est
 confondu de la perfidie de cette pièce mensongère et calom-
 
-  (1) IIAKOTAUX, op. cit., p. 35).
-  (a) Le Temps, n* du aj décembre 1871.
-  (?) Cf. HAXOTAUX, tbld.,e\ Ad. TBIUM, Occupation et libération du
 territoire, i8yt>p3 (a vol. ln-8*, Paris, 1900), tome I, pages IOJ-IIO.
-                                 23a
-
-ANNEXES
-
-
-
 
 ABBU (Gh.). — Une Cause célèbre à Mets (in-8% Mets, i854).
-ABOUT (Edmond). — Alsace            (i8yi-i8?a) (in-ié, Paris,
- Hachette, 8* édit., 1897).
 AcKsn (Paul). — Une Ville industrielle alsacienne, dans :
  Revue îles Deux Mondes, i5 mars 191a,
 ALBERT (Henri). — La « nouvelle a Alsace-Lorraine, dans :
  Cahiers Alsaciens, janvier 191/).
 AnooumDuMAZET. — Voyage en France : 6* série (in-iO,
- Paris, Dcrger-Levrault, 1896); 48*-49*-5o* séries {ibut., 1907).
 BAQUOI. — L'Alsace ancienne et moderne, édition entière-
  ment refondue par P. BJSTBMICBBR (in-8*, Strasbourg,
- Salomon, 1864).
 BARBB (Jean-Julien). — A travers te Vieux-Mets. Les Maisons
  historiques (in-8*, Metz, Imprimerie Lorraine, igi3>.
-BAROY (G.) et DuTti.it. — Historique du Lycée de Belfort
- (in-8*, Belfort, 1908).
 BARDY (IL). — Histoire de la Ville de Belfort (in-8*, Belfort,
-  1897-1901).
 
-— —    Belfort en 1816 (in-8*, Belfort, 1888).
 BBOIN (B.-A.). — Mets depuis dix-huit slictes (3 vol. in-8',
- Paris, Fume, 1a$3-i845).
                               237
 
            indox des principaux ouvrages
-BBNOIT (A.). — Le Blocus de Phalsbourg en 181S (ln-8%
-  Mets, 1863).
 — — Le Siège de Phalsbourg en 1830 (In-8*, Nancy, 1871),
 — — Vers tes Vosges (in-8*, Strasbourg, 1876).
 Bus (Eug.). — L'Industrie de ta laine cardée dans la région
   normande (in-8% Rouen, Cagnlard, 1891).
 BOXNKT (Victor). — La Libération du territoire selon le mode
   de Fepiprunt des Américains, dans : Revue des Deux
-  4/o'fiw, i** mars 187a,
 BOUCIIKR (Henry). — Industrie et Commerce, dans : LBON
   LOUIS, Le Département des Vosges, t. V (In*, Épinal,
-  1889).
-BOURBLLY (Général). — La       Rétrocession de Belfort à la
   France, dans : Revue des Deux Mondes, 1" octobre 190$.
 Bovaotrioxox (Eug.). — BlschtvUler depuis cent ans (In-8*,
-  Bischwiller, Poslh, 1875).
 BOUTBILLBR (Ernest de). — Étage de Mets, par Sigeberl de
-  Gembloux (ln-16, Paris, 1881).
 CASTBLLANF (de). — Journal du Maréchal de Gastellane
-  (in-8*, Paris, Pion, 1895, t. I).
-CHUQURT (Arthur).—L'Alsace en 1 #/<?(in-8*, Paris, Pion, 1900).
 CORNBILLR (A.). — La Seine-Inférieure Industrielle et com-
   merciale (in-8*, Rouen, Herpin, 1873).
 CuXMArm (F. W.). — Geschlchte von Blschweller (In-8*,
- Strasbourg, J.-IL Heitz, i8a6).
 DÉMONTÉS (V.). — Le Peuple Algérien (in-8*, Alger, 1906).
 
 DOLLFUS (Aug.). — Notes statistiques sur les diverses indus-
   tries du Haut-Rhin, et plus particulièrement sur les indus-
  tries textiles de ce département, dans : 'Bulletin de la
  Société Industrielle de Mulhouse, année 187a.
-DOMINIQUE (L. C). — Un Gouverneur général de FAlgérie :
   FAmiral de Gueydon (in-4% Alger, Jourdan, 1908).
-                             a38
 
-            ARTICLES «T DOCUMENTS CONSULTÉS
 KttTBiN (G. d). — L'Alsace-Lorralne sons la domination
  allemande (in-8*, Paris, Olmer, 1877).
 EMMRRY. — Recueil des Êdlts... enregistrés au Parlement
- de Mets (S vol. in-4*, Metz, 1774*1788).
 ENOBL (Alfred).—Documentsofficiels concernant le 4* Batail-
   lon de la Mobile tin Haut-Rhin (in-8*, Mulhouse, Mclnlngcr,
-  1909).
-FAVRB (J.), — Le Gouvernement de la Défense Nationale
-  (t. II et III, in-8*, Paris, Pion, 187a, 187S).
 FiscHBR(Dagobcrl).—DieStadt Pfalsburg Qn*i9, Mulhouse,
-  186$).
 
 — — Le Comté de la Petite-Pierre sous ta Domination
  Palatine, dans ; Revue d'Alsace (1879-1880).
 FRAKNKRL(Paul). — Rapportfait â ta Chambre de Commerce
   d'Elbeuf, séance du a février 1910 (in-8*, Elbeuf, Crepel,
-  1910).
 GAUBN     (Paul). — Êphêmêrldes alsaciennes de FAnnée
-  Terrible (In-i6, Colmar, J.-B. Jung, 1910).
 GLUCK (Emile). — Le 4' Bataillon de la Mobile du Haut-Rhin
- (in-8*, Mulhouse, Meininger, 1903).
 GnAD (Ch.). — Considérations sur les finances et Fadmlnts-
   tratlon de FAlsace-Lorrainesous le régime allemand (In-8*,
  Strasbourg, Noirlel; Mulhouse, Bader; Paris, Germer-
-  Bal II 1ère, 1877).
 — — Die Optanlenfrage vor dem deutsehen Relehstag
- (In*, Berlin, 1878).
 GuiLMBTn (A.). — Histoire de la Ville et des Environs
  d'Elbeuf (in-8*, Rouen, Berdalle, 184a).
-GuYNBMBn. — Rapport présenté le 3i juillet i8y5 à la Com-
   mission générale des Alsaciens-Lorrains au nom du Comité
  de colonisation de l'Algérie (in-4*, Paris, Imprimerie
- Nationale, 1875).
 HALLAYS (André). — A travers FAlsace (ln-16, Paris, Perrin,
-   1911).
-                            a3o
 
            index des principaux ouvrages
-HANNONCELLES (Gérard d*).
                              — Met* ancien (a vol. in-fol.,
- Metz, i856)       '
 HANOTAUX (G.). — Histoire de     la France contemporaine,
  t. Le Gouvernement de M. Thiers (in-8*, Paris, Combel).
-HAUSSONVILLE (Comte dr).
                          — Lettres du Gouverneurgénéral,
  des 3o et 3i décembre 1876 (insérées au Journal officiel du
- 3i mars 1877).
 — — La Colonisation officielle en Algérie, dans : Revue
  des Deux Mondes, 1" juin et 1" juillet i883.
 HBIM (Ed.). — La question des optants en Alsace-Lorraine,
  dans : Revue Alsacienne, décembre 1880.
 HEPP (Eug.). — Du droit d'option des Alsaciens-Lorrains
  pour la nationalité française (in-ia, Paris, Sandoz et
- Fischbacher, 187a).
 HBRMIKB (H. de Y). — Mémoires de deux voyages et séjours
- en Alsace (lôjfriGtf et 1681), édités par J. COUDRB
-  (gr. in-8', Mulhouse, 1886).
 HOLLBNDBR (Lieutenant-Colonel A.). — Le Siège de Phals-
   bourg en 18jo (in-8', Paris, H.-Ch. Lavauzelle).
 KELLER. — Ailes und neues von Pfahburg (in-8*, Sarrebourg,
-  1874).
-KELLER (O.). —     Sitaalion de l'Industrie du Coton et de
   l'Industrie de la Laine dans le département du Haut-Rhin,
   dans : Bulletin de ta Société Industrielle de Mulhouse,
-  année 1872.
 KIENBR (P.). — Die elsâssische Bourgeoisie, dans : Revue
-  Alsacienne Illustrée, 1909.
 KLEIN (abbé Félix). — Vie de Mgr. Dupont des Loges
-  (In-8*, Paris, Poussielgue, 1899).
 KLIPFFEL (IL). — Les Paratges messins (in-8*, Metz-Paris,
-  i863).
 KOBCHLIN (A.). — L'Industrie cotonnlère en Allemagne (in-8',
-  Paris, Pelletier, 1906).
 
-           ARTICLES ET DOCUMENTS CONSULTÉS
 LAFFITTB (Louis). — Rapport général sur FBxpositlon Inter-
   nationale de FBst de ta France (in-4*, Paris-Nancy, Berger-
-  Levrault, I9?â).
 — — La Région lorraine, dans : Les divisions
-                                                  régionales
   de la France (in-8*, Paris, Alcan, 1913).
 LALAKCB(A.).—Mulhousefrançais (ln-8% Paris, Chaix, 1898).
 LAMOTHB (H. de). — Les Alsaciens-Lorrains en Algérie,
@@ -7325,10 +6621,8 @@ LAMOTHB (H. de). — Les Alsaciens-Lorrains en Algérie,
                                                          ,
 LAMTZ (Lazare). — Notice historique et statistique sur le
   Syndicat industriel du Haut-Rhin (in-4*, Mulhouse, Bader,
-  1873).
 LARCBBY (Lorédan). — Les maîtres bombardiers, canonnters
   et couleuvrinlers de ta cité de Mets (in-8*, Paris, Domaine,
-  1861).
 
 — —      Le Pays messin, dans : La Lorraine Illustrée (In-fol.,
   Paris, Berger-Levrault, 1886).
@@ -7337,71 +6631,39 @@ LASABLIÊRB (Ch. de). — Notice historique sur ta ville de
 LAVISSB (Ernest). —La Question d'Alsace dans une âme
   d'Alsacien (in-i6, Paris, Colin, 1891).
 LsoBRim (A.). — Monographie de l'Industrie cotonnlère
-  (in-8*, Épinal, 1905).
-LBPAOB (H.), — Les Communes de la Meurthe (a vol. in-8*,
-   Nancy, Lepage, i854).
 LBROY (O.). — Notre histoire au jour te jour, 1" partie
-   1830-1834 (In-4*, Nancy).
 Léw (R.). — Histoire économique de VIndustrie cotonnlère
    en Alsace (in-8*, Paris, Alcan, 191a).
  .
-LOTJIS-LANOB (L.). — Les Alsaciens-Lorrains en Algérie et la
    Société de Protection, dans : Revue des.Deux Mondes,
-   1" septembre 1875.
-LtmoTit (D*). — L'Administration municipale de BlschtvlUer
    à partir de Fannée 1840 (in-8*, Bischwiller, Posth, 1864).
-                              241               l'exode.-i$
 
             iudex des principaux ouvrages
 L. K. — Une ville de garnison sous Fanclen régime (In-8*,
-  Belfort, 1906).
 L. M. — Mulhouse, dans : Revue de Paris, i5 mars 1898.
 MANNBBHOUBR (F.). — Éloge de feu M. te comte d'Hausson-
   ville, de l'Académie française, sénateur, président de la
   Société de Protection (in-8*, Paris, Châlx, 1884).
 MAY (Gaston). — Le Traité de Francfort (In-8*, Paris-Nancy,
-  Berger-Levrault, 1909).
 MBIKINOBR (Ernest). — Essai de description, de statistique
   et d'histoire de Mulhouse (in-4*, Mulhouse, i885).
 — — Le Traité de Réunion de Mulhouse à là France en
-  1398 (in-fol., Mulhouse, 1910).                  «
-MBURISSB (R. P.). — Histoire des Évesques de FÉglise de
- Met* (in-fol., Metz, i634).
 MÉZIÈRBS (Alfred).—Récitsde l'Invasion, Alsace et Lorraine
- (3* édit., in-i8, Paris, Perrln, i884).
-MICHEL (Emm.). — Histoire du Parlement de Met* (in-4*,
-  Paris, Tcchener, 1845).
 NÉREB QUÉPAT (René PAQUET).—Dictionnaire biographique
   de Fanclen département de la Moselle (in-4*, Paris-Metz,
-  1887).
 PBNOT (D* A.). — La Société Industrielle, dans : Bulletin de
   ta Société Industrielle de Mulhouse, 1876.
 PBYBRIHHOFF (H. de). — Enquête sur tes résultats de la
- Colonisation officielle de 1831 à i8g5, Rapport à M. Jon-
  nart, gouverneur général de l'Algérie (a vol. in-4', Alger,
-  1906).
-PINET (G.). — Histoire de FÉcole Polytechnique (in-4', Paris,
-  Baudry, 1887).
 PROST (Aug.). — Journal du Siège de Mets, manuscrit de la
- Bibliothèque Nationale.
 — — Le Blocus de Mets, Publication du Conseil municipal
  de Mets (ln-8*, NogenHe-Rotrou, 1898).
-                            a4*
 
-           ARTICLES ET DOCUMENTS CONSULTÉS
-
-RÉOAMBY (J. et P.). — IIAlsace au lendemain de ta conquête
-  (1830-1834)(in-i6, Paris, Jouve, 1911).
 RBINACH (Joseph). — Raphaël Lévy (In-x6, Paris, Deiagrave,
-  1898).                        j
 RBTJSS (Rod.). — L'Alsace au dix-septième siècle (a vol. in-8*,
-  Paris, Bouillon, 1897-1898).
 Ricoux (D* René). — La Démographie figurée de l'Algérie
-  (in-8*, Paria, Masson, 1880).
 RISOBR (W.). — Verselchnts der im Deutschen Relche auf
   Baumwolle laufenden Splndetn und Webslùhlè (in-8*,
-  Stuttgart, édil. 1893, igo5, 1909).
-SCOBURBR-KBSTNBR. — Les représentants de FAlsace et de
   la Lorraine à FAssemblée Nationale de Bordeaux, dans :
   Revue Alsacienne, mai et juin 1887.
 SCKLVHBBROBR (Th.). — Rapport annuel, dans : Bulletin de
@@ -7411,25 +6673,18 @@ SCHMIDT (Ch.), — Une conquête douanière (in-8*, Paris-Nancy,
 SÉOUR (Lieutenant-général  comte Philippe de). — Éloge
   historique de M. le Maréchal Comte de Lobau, prononcé
   à la séance de la Chambre des pairs du 17 Juin 1839 (in-8*,
-  Paris, Crapelet).
 TBUTSCH (Edouard). — Notes pour servir à Fhistoire de
   Fannexion de FAlsace-Lorraine (In-8*, Nancy, Berger-
-  Levrault, 1893).
 TUIBRRY-MIEO (Ch.). — Les Alsaciens-Lorrains en Algérie,
  dans : Revue Alsacienne, janvier 1888.
 THIERS (Ad.). — Notes et Souvenirs (in-8*, Paris, Calmann
- Lévy, 1903).
 VnxBFonT (A.). — Recueil des traités, conventions, lois,
  décrets et autres actes relatifs à la paix avec FAllemagne
- (S vol. in-4*, Paris, Imprimerie Nationale, 1873-1879).
                               243
 
            index des principaux ouvrages
 WAHL (Maurice). — L'Algérie (in-8*, Paris, Alcan, a* édition,
-  1889).
 WBBER-KOECIILIN (D'Jean). — Les Prussiens à Mulhouse en
- 1830 (in-8*, Mulhouse, Meininger, 1910).
-WOLFRAM(D'G.). — AusgewâhlleAklenslûckesur QescMchte
  der Gr&ndung von Pfahburg, mllelner Einletlung..., dans :
  Jahrbuch der Gesellschaft fur lothrlngische Geschtchte
   und Allertumsfiunde, 1908 (in-4*, Metz).
@@ -7439,18 +6694,13 @@ WORHS (Justin). — Histoire de ta Ville de Mets depuis
 ZURLINDBN (Général). — Mes souvenirs depuis ta guerre
  (In-i6, Paris, Perrin, igi3).
 
-
 Aus dem Elsass, — Zustânde, Sllmmungen und Erwar-
  iungen tm Neuen Relchsland (in-16, Leipzig, J.-J. Weber,
-  1875).
 Causes célèbres, t. CXXXIV (in-12, Paris, 1786).
 Histoire documentaire de Finduslrle de Mulhouse et de ses
   environs au dix-neuvième siècle (Publication de la SOCIÉTÉ
   INDUSTRIELLE DK MULIIOVSB) (2 vol. in-fol., Mulhouse,
-  Bader, 190a).
 Das Relchsland Etsass-Lothringen (3 vol. In-4*, Strasbourg,
-  J.-H.-Kd. Heltz, 1898-1901).
-Statistique de l'Algérie, 1863-1833 et 1833-1836 (in-fol.,
   Paris, Imprimerie Nationale, 1874 et 1877).
 Bulletin de ta Société d'Agriculture d'Alger, 1871.
 Mémoires de l'Académie de Met*, 1873-1873.
@@ -7458,61 +6708,25 @@ Mémoires de FAcadémie Stanislas, 1870, 187a, etc.
 
 L'Austrasie (M. Thlria); Les Cahiers Alsaciens (D'P. Bûcher);
   Les Marches de FEst (M. Georges Ducrocq); Le Messager
-                             *44
 
-           ARTICLES ET DOCUMENTS CONSULTES
  (SAlsace-Lorraine (M. Henri Albert); Le Pays Lorrain
  et te Pays Messin (M. Ch. Sadoul) : passtm.
 Archives du Gouvernement général de FAlgérie : documents
- divers.
-Archives départementales, Belfort, M */»i» M "/«o» M "/s,
  R Vu» Épinal, i5 M »• (Alsaciens-Lorrains).
 Archives municipales diverses.
 
-
-
-
-                                          Vtxoât. ~- i{«
-
-
-TABLE DE CE   CAHIER;^
-
-
-           TABLE DE CE CAHtâfttt |*Mgî
-
-
-DU MÊME AUTEUR                                          5
-Vexode                                                  9
-   Nos patriae fines........                            i3
-AVANT-PROPOS                                            17
-de Blschwiller à Elbeuf                                29
-Phalsbourg              '.                             49
-Mulhouse-Belfort..                                     75
-Metz                                                   107
-Alsaciens d'Algérie                                   137
-
 Industries qui se sont transportées                    i83
-ANNEXES                                               ao3
       I. — L'auteur des Lettres d'Alsace               ao5
      II. — La Provincial Correspondent                 aia
     III. — Le traité de Francfort était formel         âi4
     IV. — La frontière établie par le traité de Franc-
-             fort                                      ai8
      V. — Pour consacrer aux yeux de tous celte
              union de l'Algérie et de l'Alsace........ aao
-    VI. — Loi du 15 septembre 1871...                  224
-           Dêoret du 16 ootobre 1871                   aa5
-   VIL — Dépêche de Bismarck à d'Arnim                 329
    Index des principaux ouvrages, articles et docu-
-      ments consultés.                                 *35
-
-Table de ce cahier                                    247
 
   Nous avons donné le bon à tirer après corrections
 pour seize cents exemplaires de ce sixième cahier
 et pour vingt exemplaires sur whatman le mardi
-17 février iQlÇ.
 
-                                 Le gérant /CHARLES PEOUY
   Ce cahier a été composé et tiré par des ouvriers syndiqués
    '. CaiMtao, Imprimeur, tS et iS, rue Pierre-Dupont, Surette*. — Itil

@@ -112,8 +112,6 @@ cinquième cahier de la deuxième série
 reçu le premier désabonnement.
 — Nous vous requérons de nous lire cette lettre.
 
-Mon cher Péguy
-
 La lecture de ton dernier cahier m'a révolté.
 
 — Quel était ce cahier ?
@@ -171,7 +169,6 @@ journaux bourgeoïs et les gros bonnets universitaires
 
 cinquième cahier de la deuxième série
 sur la personnalité de —. Vous permettez que je passe
-le nom ?
 
 — Provisoirement nous te le permettons. Nous te requérons de continuer.
 
@@ -255,7 +252,6 @@ J'écris cette lettre pour toi et non pourtes lecteurs.
 Je ne veux donc pas que tu la publies.
 
 — Cela est raide. Nous verrons ce que nous y dirons.
-A-t-il fini ?
 
 — Ton ami qui regrette que tu fasses un si mauvais
 usage de tes qualités naturelles.
@@ -271,8 +267,6 @@ aux imprimeurs quand me parvint le deuxième désabonnement.
 laisserons tout passer sans interruption.
 
 — Elle est plus courte.
-
-Mon cher Péguy
 
 Je ne veux plus recevoir les Cahiers de la Quinzaine,
 pour les raisons que voici
@@ -331,7 +325,6 @@ lettres qui m'ont fait beaucoup plus de peine.
 — Cela s'entend. Nous vous requérons de nous les
 
 — La première est brève
-Mon cher Péguy
 
 — Pour fixer les idées, je maintiens que si tu avais été
 au comité général pour soutenir Jaurès et le père Longuet, tu eusses dit à haute voix ce que tu sentais; je
@@ -341,7 +334,6 @@ typique et dramatique. Quoi qu'il en soit, je n'ai pas
 
 Je passe le nom. Vous le connaissez. La deuxième
 lettre est plus longue
-Mon cher Péguy
 
 Je me permets de te répéter que l'action me paraît
 plus urgente que la critique, surtout que l'histoire
@@ -391,7 +383,6 @@ Je te prie de croire d'ailleurs que je ne demande qu'à
 ton ami.
 
 La même enveloppe contenait une feuille simple
-Mon cher Péguy
 
 Hier matin j'ai écrit d'un jet la lettre ci-jointe; à la
 réflexion cela ne rend plus tout à fait ma pensée sur
@@ -432,7 +423,6 @@ cinquième cahier de la deuxième série
 — Est-ce tout? demanda Pierre Baudouin.
 — C'est tout. J'ai un désabonnemeni sans explication.
 J'en attends plusieurs, mais de gens que je ne connais
-pas.
 
 — Eh bien je vous donne à présent ma parole que les
 cuistres qui liront ce que je veux dire aujourd'hui ne
@@ -549,7 +539,6 @@ lu ces rappels studieux et ces annonces. Enfin, et
 surtout, voulant donner à la maison que j'ai fondée, à
 un livre que j'ai fait, la quatrième page de ma couverture je la disposai comme suit. Permettez que je la
 remette exactement sous vos yeux
-SOCIÉTÉ NOUVELLE DE LIBRAIRIE ET D'ÉDITION, 17, rue Cujas
 
 La guerre = Les alliances - La pai
 
@@ -567,7 +556,6 @@ sion universitaire ; question d'Alsace-Lorraine ; la
 
 La bee religieuse ; Léon France et l'Allemagne
 et le catholicisme social
-Les libertés du parane en- La France et la Russie; la
 seignant; interpellation Thierry | double alliance »; le Tsar
 L'enseignement laïque et l'en- ï
 seignement clérical ; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
@@ -648,8 +636,6 @@ infidèle, comme auteur des cahiers.
 — Demandez-le. Vous nous dites que vous y êtes mis
 en cause. Réclamez-le. ‘
 
-Mon cher ami,
-
 La partie du rapport de Janvier qui vous concerne
 occupe quatre pages et demie, qu'il m'est matériellement
 impossible de copier. Je ne puis davantage songer
@@ -664,7 +650,6 @@ Je passe un paragraphe personnel et privé.
 
 Votre affectueusement dévoué
 Sur une redemande un peu motivée il me répondit
-Mon cher ami,
 
 Je crains de m'être mal exprimé. Vous paraissez
 croire que je détiens en ma possession privée les documents de la librairie, et qu'ils peuvent subir les mutations du personnel administratif. Toutes les pièces
@@ -797,7 +782,6 @@ j'achèterai un petit Sophocle. La première fois que
 j'irai à Paris, j'irai en acheter un à la Société Nouvelle
 de librairie et d'édition, 17, rue Cujas.
 
-Il me demande
 — Pourquoi là, mon ami?
 
 — Pour beaucoup de raisons que je vous donnerai
@@ -902,7 +886,6 @@ de cinq à sept. Ils vont à la propagande comme les
 mauvais catholiques vont à la messe. Les mauvais
 catholiques vont à la messe le dimanche de dix à douze,
 avec des âmes apprêtées. Ils savent que c'est la messe.
-Et du midi de ce dimanche à dix heures de celui de la
 semaine suivante ils redeviennent ce qu'ils sont. Ainsi
 nos censeurs font de la propagande. C'est un office. Au
 contraire les bons catholiques sont catholiques en
@@ -971,7 +954,6 @@ c'est sur les impériales des voitures et dans les
 troisième classe de l'Orléans que j'ai entendu le
 meilleur de ce que je sais. Et quand je parle avec un
 homme du peuple, ce qui m'arrive le plus souvent que
-je le puis, je n'ai aucune intention de le catéchiser. Car
 au fond leur propagande estune catéchisation, une caté-
 chisation de plus. Je cause uniment avec l'homme du
 peuple. Je lui parle de son métier, non pour profiter
@@ -1022,7 +1004,6 @@ vote menteur a fait ces merveilles. Un vote menteur
 a fait passer la consigne. La discipline faisant la
 force principale des armées, il importe que tout infé-
 rieur obéisse exactement, sans hésitation ni murmure.
-Je désobéirai si la justice et la vérité le veut. Je
 suis réserviste. Si demain matin je recevais ma feuille
 de route pour aller en Chine, sachant comme je le
 sais ce que les Internationaux sont allés faire en Chine,
@@ -1445,7 +1426,6 @@ nous traitent comme des soldats. Et non pas comme un
 officier raisonnable peut traiter des soldats raisonnables, mais comme un officier de l'ancienne armée
 traitait les mauvais soldats : Allons, encore un coup
 d'épaule, il n'y a plus que deux kilomètres, quand on
-sait qu'il y en a encore six ou huit. Ou bien si on
 attaque : Hardi ! en avant ! ils ont peur ! ils vont foutre
 le camp! avec le refrain obligé : il y @ la goutte à boire
 là-haut! C'est comme ça que les gens finissent par

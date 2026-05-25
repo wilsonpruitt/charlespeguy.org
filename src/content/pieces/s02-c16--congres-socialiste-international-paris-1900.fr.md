@@ -26,7 +26,6 @@ s'il vient à mourir, ce n'est pas une re
 victime simplement, c'est un mar- RCE.
 ‘ tyr, car il a combattu pour les
 à foyers et les autels.
-(Évangile selon SAINT... OLIVIER) re
 Enfin, depuis, il ne se passe guère de semaine sans de
 que dans le corps du journal on voit à tout propos ve
 apparaître et comparaître celui que la feuille socialiste
@@ -146,7 +145,6 @@ membres de l'enseignement, habitués à parler aux Se
 à enfants et aux jeunes gens.
 Il y avait-même quelques gravures parlant aux yeux;
 à rien n'y manquait, pas même des vers : SE
-à En voici un échantillon : FRS
 be: Je poussais gaiment la charrue ; ER
 "tes Sous le soleil cuisant : ee
 Ou les bises bourrues, #S
@@ -159,13 +157,11 @@ Fusil que je caresse, - Sr
 E Que je fourbis avec tendresse, EE
 Re Jamais, bons et compatissants, :
 Nous ne ferons couler le sang
-Des pauvres gens.
  : Si tu lances des balles
 pe Elles seront, mon bon ami, ,
 LEE Je sais pour qui !
 
 Nous ne ferons couler le sang
-Des pauvres gens.
 Si tu lances des balles
 Elles seront, mon bon ami,
 Je sais pour qui! ‘
@@ -221,7 +217,6 @@ semaines au plus de service militaire; parce que j'ai
 conscience qu'avec une pareille organisation nous se.
 rions impropres à toute guerre offensive — et de guer Ne”
 
-ès ATTENTATS DANS L'YONNE
 x offensive, je n'en veux point — tout en restant redoutables encore s'il fallait, contre une agression injustifiée
 d'un despote voisin, défendre la République et nos Ës
 Re minces libertés, les seules choses que je sois décidé
@@ -290,7 +285,6 @@ que celui qui consiste à s'introduire, armés de fusils
 s mal armés et incapables de se défendre pour leur voler
 leur pays, que toutes ces expéditions, de quelque pré-
 
-ns : ATTENTATS DANS L'YONNE
 texte hypocrite qu'on essaye de les justifier, ne sont que
 des actes de brigandage indignes de peuples civilisés.
 — Petit conscrit, enfant du peuple, que feras-tu, si
@@ -316,7 +310,6 @@ IV. — Où l'administration universitaire, ayant cru
 lever un lièvre, leva un sanglier.
 La suite à la troisième série.
 
-EE a LAPS est
 ES Nous avons reçu la lettre suivante : Ta
 FA ' Paris, le 4 juillet rgo1 .
 Dans votre « Treizième cahier », vous usez de votre droit
@@ -342,9 +335,7 @@ Se et Jean Grave lui-même. 3 - 102
 LL Le Depuis qu'elle nous est parvenue, nous avons reçu de
 Re Jean Grave une lettre à Ludovic Marchand, où iléclaire
 are plusieurs points du débat.
-GE 5 Le Gérant : CHARLES PÉGUY
 ST Ce cahier a été composé et tiré au tarif syndical Be.
-- LE IMPRIMERIE DE SURESNES (G. RicHAn », administrateur), 9, rue du Pont. — 4118.
 
 SHECR Nous tenons gratuitement à la disposition de nos Has
 es © Marcel et Pierre Baudouin : Jeanne d'Arc, drame en
@@ -362,7 +353,6 @@ sur l'étiquette, avant le nom. LL PSS dE » …  Adresser à M. Charles Péguy,
 +. 16, rue de la Sorbonne, Paris, la correspondance de” FES
 rédaction et d'institution. Toute correspondance d'admi- SE
 nistration adressée à M. Péguy peut entraîner pour
-la réponse un retard considérable. ge FRERE D
 pre 3 M. André Bourgeois, administrateur des cahiers, © On
 reçoit pour l'administration et pour la librairie tous RE”
 h les jours de la semaine, le dimanche excepté, — de
@@ -376,12 +366,10 @@ cabier de la deuxième série sera le compte rendu sténo- FE
 graphique non officiel du cinquième congrès socialiste
 international, tenu à Paris en septembre 1900. Non seu- L
 lement ce compte rendu est un monument unique, mais
-ë les annotations de Lagardelle et de M. Sorel en font un Ex
 
 - Nous avons donné le bon à tirer après corrections
 à pour deux mille exemplaires de ce quinzième cahier Ra
 
-tes As
 Nous lisons dans /e Réveil du Nord, journal socialiste,
 numéro daté du mardi 9 juillet: -
 Bien que le temps soit quelque peu l'épée sort de la blessure. Un quatrième
@@ -649,12 +637,10 @@ salaire dans les divers pays;
 a) Constitution et action du prolétariat organisé en parti de classe
 b) Expropriation politique et économique de la bourgeoisie ; c/Socialisation des moyens de production
 4° Paix internationale, militarisme, suppression des armées per- dk
-5° La politique coloniale; É
 6° Organisation des travailleurs maritimes
 7: La lutte pour le suffrage universel et la législation directe par
 le peuple; is
 9° La conquête des pouvoirs publics et les alliances avec les partis
-10° Le Premier Mai; 7
 
 Depuis, le Parti Ouvrier Socialiste Révolutionnaire a proposé aux diverses nations l'amendement suivant dont Vinseription à l'ordre du jour est dès aujourd'hui acceptée par %.
 
@@ -663,11 +649,9 @@ six nations sur onze : -
 Le mouvement croissant de la concentration des capitaux, le désor-. ÿ
 dre économique, irréductible par des moyens politiques, résultant ne
 
-pre RE È 5 ROSES Rue LE (2e LR feene
 de leur concurrence, et, par suite, l'aggravation incessante dela
  sifuation des travailleurs, ne rendent-ils pas inévitable un confit
 direct entre le travail et le capital, qui prendra la forme d'une
-MEEr: Citoyens et camarades, RTE > NAS NX TT
 EE _ Nous vous invitons donc à vous rendreau Congrès socia-
 liste international de Paris.
 Une circulaire subséquente vous fera connaître les dispo- Hs
@@ -690,7 +674,6 @@ Il est bien entendu que la validation des mandats au
 Congrès international ne préjuge pas de celle qui aura lieu
 pour le deuxième Congrès général des organisations socialistes, les conditions d'admission n'étant pas les mêmes
 pour l'un et pour l'autre Congrès.
-Le secrétaire
 Séance du dimanche 23 septembre 1900
 Avant l'ouverture du Congrès, les délégués français
 se réunissent dès dix heures un quart pour élire leur
@@ -721,7 +704,6 @@ que la première réunion du Congrès international se
 tiendrait à dix heures, le 23 septembre, et que la section française se tiendrait à dix heures du matin. Conformément à sa décision, nous sommes tous ici. Ilest
 incompréhensible qu'on nous propose un ajournement.
 Applaudissements de l'autre côté)
-Le citoyen ALLEMAXNE. (P. O.S.R.) — Je suis l'auteur
 de la proposition adoptée à l'unanimité par le Comité
 général. Je puis donc en rappeler les dispositions sans
 crainte de me tromper. C'est bien à l'heure que vient
@@ -751,11 +733,9 @@ Le citoyen Jourxoup (Fédération de Saône-et-Loire).
 — Je propose à la section française de décider, en règle
 générale, que le bureau qui aura présidé une séance ne
 pourra plus être élu. (Mouvements divers. Tumulte)
-DES Le citoyen TANGER. (P. S. R.) — Nous ne pouvons,
 citoyens, constituer notre bureau avant que les mandats
 - des délégués aient été vérifiés. Vérifions-les d'abord
 nous élirons le bureau ensuite. (Applaudissements
-du P.O.F.et duP.S.R.)
 mets en doute la bonne foi de personne. Maïs nous e
 autres, dans le Nord, où notre Fédération est si forte,
 - avons des habitudes d'organisation. Je veux bien croire
@@ -1124,7 +1104,6 @@ voulons de toutes nos forces l'unité des prolétaires polo- “4
 nais, mais nous la voulons seulement sous le drapeau
 du socialisme révolutionnaire. (Vifs applaudissements) 3
 
-Le citoyen NemEc, président de la section de.
 Bohème. — Le dernier Congrès socialiste tchèque m'a
 donné mission de venir saluer les membres du Congrès
 socialiste international. C'est avec une joie profonde
@@ -1144,7 +1123,6 @@ des usages, des différents cantons qui composent notre
 pays. Vous pouvez avoir confiance en nous! Nous
 marcherons, toujours et d'un commun accord, avec les
 
-Le citoyen MENANDER, de la section suédoise. — Au
 nom de mes camarades de Suède, je m'associe aux
 paroles et aux souhaits qui ont été adressés du haut
 de cette tribune au prolétariat socialiste international.
@@ -1219,7 +1197,6 @@ Séance du lundi 24 septembre 1900
 
 La séance est ouverte à dix heures quinze, sous la
 présidence du citoyen SINGER (Allemagne). Fa
-Le citoyen PRÉSIDENT. — Au nom du bureau, je ‘
 déclare que nous sommes tous d'accord pour estimer
 que le bureau qui a présidé la séance d'hier était ;
 essentiellement provisoire, qu'il importe donc que
@@ -1289,7 +1266,6 @@ vous présenter son rapport sous forme de résolution, et
 on pourra ensuite discuter les autres questions. Alors,
 nous aurons bien l'opinion du Congrès, et pas seulement l'opinion d'une commission. (Applaudissements) -
 
-Le citoyen PRÉSIDENT. — Je propose de rejeter la
 proposition Fribourg, bien qu'en principe elle soit
 excellente; mais il faudrait, pour qu'elle soit applicable, s
 que le Congrès siégeât pendant trois mois. (Rires) Je
@@ -1345,10 +1321,7 @@ devoir nous en tenir au contrat et ne pas demander au
 propriétaire autre chose que ce qui était convenu. 7%
 La séance plénière. est levée à onze heures. Eee
 
-ae RÉUNION DE LA SECTION FRANÇAISE
 Le La séance est ouverte par le citoyen Allemane.
-Le citoyen PRÉSIDENT. — Je donne la parole au
-Le citoyen DeLrory. (P. O. F.) — Nos amis des
 autres nationalités nous ont invités à accomplir deux
 actes; pour prendre part d'une façon régulière au Congrès international, nous avons à désigner un bureau
 définitif et à élire des membres pour les différentes
@@ -1475,7 +1448,6 @@ citoyen Vaillant. (P. S. R.) Ces deux noms, mis aux
 voix, sont acceptés à l'unanimité. Le vote est salué par
 les cris de : Vive la Commune! s
 La séance est suspendue et reprise à midi. ne
-Les citoyens DELorYy et JEAN LoNGUET (F.S$. R.) lisent
 successivement les noms des délégués choisis pour faire
 partie des commissions. Voici ces noms
 Première commission. — Exécution des décisions du Congrès. Recherche et application des moyens pratiques pour
@@ -1491,11 +1463,9 @@ prolétariat organisé en parti de classe; b) expropriation ra
 politique et économique de la bourgeoisie; c} socialisation
 des moyens de production. — LAFARGUE et PoxARD, !
 risme, suppression des armées permanentes. — VAILLANT PRES
-et ALLEMANE.
 Cinquième commission. — La politique coloniale, — .
 Rozpes et LAGROSILLIÈRE. 3 ù
 Sixième commission. — Organisation des travailleurs
-maritimes, — LAVIGNE et BRUNELLIÈRE. Dis.
 . Septième commission. — La lutte pour le suffrage universel et la législation directe par le peuple. — LePAGEe et k
 . Huitième commission. — Socialisme communal, — DeLORY et FLAISSIÈRES. ee
 Neuvième commission. — La conquête des pouvoirs pu-
@@ -1510,7 +1480,6 @@ Les résultats sont adoptés à l'unanimité, à mains "
 levées, et salués par des acclamations. \ 4
 La séance est levée à midi un quart. On se sépare au Bi
 chant de l'Internationale. Me.
-SÉANCE DE L'APRÈS-MIDI 5 es
 La séance est ouverte à deux heures quarante, sous Fe
 la présidence du citoyen Singer (Allemagne). “4
 Le citoyen Présipenr. — Nous avons appris avec une
@@ -1564,7 +1533,6 @@ nuances particulières qui peuvent nous séparer, quand
 nous voyons le grand but qui.est devant nous, l'œuvre
 d'affranchissement qu'il y a à opérer, toutes les discordes cessent pour y parvenir, car nous voulons que
 les bataillons français luttent à côté des autres, dans
-Se DR HF ate FIRE Fe PRE DANS.
 
 à _ l'armée socialiste internationale. (Applauà issements fe
 PU Nous nous réunissons aujourd'hui dans des circon
@@ -1626,7 +1594,6 @@ dions pas à ce que notre camarade Delory fitunrap
 ne port d'ensemble, dans lequel il semblerait, après avoir
 à formulé une déclaration de conciliation, à laquelle nous
 adhérons pleinement, faire devant le Congrès certaines
-se Nos camarades de la section française, du P. O.S.R., È
 de la Fédération des travailleurs socialistes, d'un cer-
 tain nombre de Fédérations autonomes, de syndicats
 } et de coopératives ont compris que dans la section fran-
@@ -1664,7 +1631,6 @@ les fédérations" socialistes d'Angleterre, ainsi que les
 Trade-Unions ont délégué quatre-vingt-quinze camarades au Congrès international. Je déclare que leurs
 mandats sont valables et acceptés par tous. (Applaudissements)
 
-Le citoyen PETE CURRAN. (2) — J'ai participé à la
 vérification des mandats de la délégation anglaise et
 je suis désireux de faire remarquer au Congrès que la
 délégation anglaise aurait été beaucoup plus nombreuse si le gouvernement n'avait pas dernièrement
@@ -1915,7 +1881,6 @@ La citoyenne Rosa LuxEMBuRG fait savoir qu'elle
 accepte le renvoi au bureau. “14
 Le citoyen PRÉSIDENT. — La question sera donc réglée
 k par le bureau.
-is Le délégué de la BonÈèME. — Les socialistes de
 la Bohème sont représentés ici par deux délégués, au
 pe, nom des organisations politiques et syndicales. Lesst
 ‘ mandats ont été vérifiés et trouvés en règle. S'il n'y a
@@ -1997,7 +1962,6 @@ bureau. Nous ne pouvons admettre qu'elle dure plus
 
 Le citoyen PRÉSIDENT. — Je déclare close cette
 
-Le délégué de la RÉPUBLIQUE ARGENTINE. — Le jeune
 Parti argentin est représenté pour la première fois dans
 un Congrès international; ses ressources sont trop
 minimes pour avoir plusieurs délégués; mais quoique
@@ -2009,8 +1973,6 @@ main dans la main vers l'idéal commun : la transformation de la propriété ind
 
 Une voix du P. O. F.— Cela ne suñlit pas!
 Le Dérécué. — Et nous poursuivons cette transformation par tous les moyens, même les plus révolutionnaires.
-
-Le délégué de la BurGarre. — Le Parti Socialiste
 
 Bulgare a tenu cette année son premier Congrès socialiste national. Il compte soixante et un comités; le
 Parti a organisé pendant l'année qui vient de s'écouler
@@ -2031,16 +1993,13 @@ ne. trois délégués, et c'est là l'indication d'un grandpr ogrès,
 de voir que dans un pays aussi malheureux, aussi
 “160 retardataire, un pays d'agriculture, dépourvu de resLe sources comme l'Irlande, aient pu se développer et
 mn se former des associations socialistes.
-a Le délégué de la NorvèGE. — Au nom de l'Extrême-
 À Nord de l'Europe, je viens vous exprimer nos senF timents de solidarité. Aux élections générales, il ya
 quelques jours, nous avons pu obtenir un nombre élevé
 j de voix, et l'idée socialiste se propage partout. Nous
 à espérons acquérir quelque chose de l'esprit pratique et
 d'organisation que l'on trouve en Angleterre et quelque
 s chose de l'esprit vif et brillant qu'on trouve en France! « Le citoyen PRÉSIDENT. — Nous avons reçu le télé- .
-gramme suivant : L:
 Les socialistes roumains regrettant de ne pouvoir participer au Congrès international des socialistes, envoient aux
-à lInternationale du prolétariat! /Applaudissements) (x) 4
 É Nous avons également reçu des télégrammes de féli-
 "citations et d'adhésion du Conseil de la Social-démo-"
 cratie d'Écosse et de l'Union générale des travailleurs
@@ -2079,7 +2038,6 @@ Le citoyen Van Ko (Hollande). (2) — Dans notre
 
 @) De la Social-democratic Federation.
 
-(2) Le citoyen Van Kol a écrit en français et en allemand sous le
 pseudonyme de Rienzi; il avait été obligé d'employer un pseudonyme en un temps où il était fonctionnaire du gouvernement hollandaïs aux Indes. (Voir de lui Socialisme et Liberté, publié en 1898
 chez Giard et Brière.)
 
@@ -2365,7 +2323,6 @@ Fe commune avec le parti politique. Il faut voter le prinRe cipe d'une certaine 
 à nationalités; et qu'ensuite celles-ci soient libres de
 ‘2 réclamer de leurs adhérents la cotisation nécessaire
 he S comme elles l'entendront, et de la façon qui conviendra ‘À
-{ - au pays.
 Le citoyen Vax Kor. — Toutes les objections indiquées ici, nous les avons traitées, notamment celle
 ‘à “ayant trait aux syndicats. Il est certain que chaque k
 nation sera libre de trouver les moyens les pluspropres
@@ -2394,7 +2351,6 @@ Le citoyen PRÉSIDENT. — Bien que quelques orateurs
 soient inscrits sur cette question, je demande à l'assemblée de voter cette proposition par acclamation. —
 Adopté par acclamation.
 
-Le citoyen VANDERVELDE. — Au nom de la délégation
 socialiste, au nom du Parti Ouvrier Belge, je remercie
 nos camarades de toutes les nationalités du grand
 témoignage d'estime et de confiance qu'ils viennent
@@ -2539,7 +2495,6 @@ présidence du citoyen Andrea Costa (Italie), assisté
 du citoyen Hyndman (Angleterre). (1)
 Le président annonce que les troisième, quatrième,
 cinquième et dixième commissions se réunissent; la
-Le délégué de la Hongrie TEessarr. — La Hongrie
 n'est représentée que par un seul délégué; ce n'est cer-
 tainement pas par manque d'esprit de solidarité, mais
 parce que les ouvriers socialistes sont aussi pauvres et
@@ -2663,7 +2618,6 @@ s. rouges, dont une souscription internationale couvri n
 Commune, qui ont combattu pour l'affranchissement
 humain et l'avenir du socialisme. (Nouveaux et longs
 applaudissements. Cris répétés de : Vive la Com
-ne: mune!) 4
 -54 nt Le citoyen Présmenr. — L'enthousiasme avec lequé
 vous avez accepté cette proposition de notre ami Fu
 
@@ -2681,7 +2635,6 @@ la reprise de la séance, le citoyen WurM (Alle-
 magne) a la parole pour lire un rapport sur la première
 question de l'ordre du jour examinée par la deuxième k
 commission : Législation internationale du travail par
-la limitation de la journée de travail. De
 Le citoyen Wurm. — La commission s'associe à la ps
 résolution prise par les Congrès précédents ; mais il faut
 déclarer que si le Congrès se prononce aujourd'hui en He
@@ -2920,7 +2873,6 @@ le minimum de salaire, soit en le payant directement
 aux ouvriers employés aux travaux publics, soit en l'im-
 posant dans les cahiers des charges des travaux adjugés
 nous avons l'honneur de vous proposer le vote de la
-résolution suivante : L
 Le Congrès déclare que le minimum de salaire n'est pos-
 sible que là où il peut être fixé par des syndicats fortement
 () H s'agirait plutôt du living wage des Anglais (de Rousiers, M@ Ÿ 4
@@ -2941,7 +2893,6 @@ la pression sur les pouvoirs et administrations publiques
 qui peuvent établir le minimum de salaire, soit en le
 payant directement pour les travaux publics, soit en limposant aux entrepreneurs, adjudicataires des travaux,
 
-Le citoyen MorkexBuur (Allemagne).— Si je me suis
 élevé dans la commission contre la fixation du salaire
 minimum, ce n'est pas parce que je ne souhaite pas un
 salaire élevé aux ouvriers; c'est parce que j'ai la conviction que l'État ne peut pas régler cette question et
@@ -3030,7 +2981,6 @@ Le citoyen BoEMELBURG (Allemagne). — La question
 du Premier Mai a occupé tous les Congrès internationaux depuis celui de 1889. La commission a été
 unanime à penser qu'il fallait maintenir les décisions qui
 
-MA Lui
 ont été prises par ces différents Congrès internationaux
 de Zurich, de Bruxelles, de Londres. Nous proposons
 la résolution suivante : (1)
@@ -3197,7 +3147,6 @@ est. Nous sommes d'avis d'agir, en Amérique, avec les
 
 - syndicats, même avec toute la corruption qu'ils contiennent. (Approbation) (1)
 
-Le citoyen JEAN BERTRAND. (P. O.F.) — Je demande
 la parole pour une motion d'ordre. J'ai une proposition
 à faire au Congrès au sujet de cette question. Je suis
 étonné de voir que la troisième commission nôus
@@ -3248,7 +3197,6 @@ adressés au Comité général; s'il y a ici quelqu'un qui
 puisse répondre pour le Comité général, nous lui trans_ mettons bien volontiers la proposition du citoyen Bertrand; le bureau serait bien heureux d'avoir toutes ses
 propositions imprimées ; non seulement celles dont il
 s'agit, mais les autres.
-Le citoyen DEcory. (P. O. F.) — On pourrait faire
 appel à la presse. ({nterruptions)
 Le citoyen PRÉSIDENT. — Le citoyen Delory a dit ceci:
 Qu''au lieu de faire imprimer, nous officiellement, ces
@@ -3358,7 +3306,6 @@ la difliculté d'organiser presque simultanément deux
 aurait lieu vendredi prochain, à huit heures et demie; Fe
 ce rendez-vous groupera certainement les militants de
 toutes les fractions et de toutes les nationalités. (Vifs
-Le citoyen SECRÉTAIRE. — Le secrétaire de la Fédé-
 ration des travailleurs socialistes belges se tient à la
 disposition des délégués des autres nationalités pour qe:
 leur fournir des renseignements sur l'industrie textile, 4
@@ -3409,7 +3356,6 @@ nera largement occasion aux différents pays représentés
 k d'indiquer leur manière de voir sur les moyens efficaces. _
 Nous engageons donc les Français à voter également la
 résolution proposée par la commission tout entière.
-Le citoyen LAFARGUE. (P. O. F.) — Vous ne devez
 pas vous en rapporter à ce qui a été imprimé dans le (
 journal, sur la résolution qui a été prise hier par la
 commission; c'est seulement sur le texte qui vous est
@@ -3511,7 +3457,6 @@ taliste, et non pas d'appliquer les principes de la SOCIété
 socialiste de l'avenir. Je vous demande d adopte la RE TR
 à voter la résolution; j'engage les orateurs à ne pré- Éne.
 senter que de très brèves observations. (Voixnom—
-brenses : La clôture!) FLE
 La clôture, mise aux voix, est prononcée.
 Je donne la parole à Xrüchevsky, qui était inscrit “4
 avant la clôture. ea.
@@ -3552,14 +3497,12 @@ Lafargue, le Parti Ouvrier Français doit en prendre sa
 Le citoyen PRÉSIDENT. — Je vais mettre aux voix la
 proposition faite, en y joignant l'amendement Xrit-
 chevsky qui ne peut donner lieu à aucune discussion.
-Le citoyen ELLENBOGEN. — Je proteste sur ce qu'un
 amendement serait ajouté par un membre de la com
 mission à une proposition qui a été déjà discutée et
 acceptée ; il n'est pas admissible d'agir ainsi. l
 L'amendement est rejeté.
 Le citoyen PRÉSIDENT. — Nous votons maintenant sur j
 le texte de la résolution. — Adopté à l'unanimité moins
-Le citoyen ADLER (1). — La majorité de la neuvième
 commission (2) a désigné le citoyen Vandervelde pour
 faire le rapport de la majorité et le citoyen Enrico Ferri
 pour le rapport de la minorité. Certains membres dela
@@ -3921,7 +3864,6 @@ Kautsky pour la participation au pouvoir, qui est tort
 à fait défendue en principe, mais qui est tout à fait
 permise en tactique; (Nouveaux applaudissements sur
 
-5H _ citoyen Kautsky a retiré la moitié de sa moti( n, qu ‘qi
 48 __ concernaït les alliances et les coalitions; et alors la
 commission, qui avait voté en majorité la participation ‘
 304 __ aupouvoir, a voté à l'unanimité la défense pres. be
@@ -4343,7 +4285,6 @@ ment de l'expédition de Chine, pas un socialiste, dans
 le Parlement français, n'a protesté contre les crédits...
 (Applaudissements sur certains bancs. Protestations sur
 Le citoyen SemBar. (P. S. R.) — C'est une erreur. “
-Le citoyen Enrico FERRI. — Si je me trompe, VOUS
 rectifierez ; mais si c'est exact, je maintiens ce que j'ai
 dit contre cette entreprise de pillage international. Le
 J'arrive à la deuxième résolution. Je trouve que la
@@ -4883,7 +4824,6 @@ ne le premier orateur inscrit, mais il ne reste plusquecinq
 à 4 devons à notre camarade Guesde de ne pas l'obliger à .
 arler dans de pareilles conditions et que nous serons
 5 ‘is tous d'accord pour lui donner la parole demain matin.
-#4 * (Approbation)
 1180 La séance est levée à six heures. j
 
 Séance du jeudi 27 septembre 1900
@@ -4929,7 +4869,6 @@ naux ; ch bien, c'est parce que nous ne les organisons
 
 pas assez souvent; avec l'habitude, on les fera mieux.
 : J'estime que trois ans, c'est bien assez long.
-de Le citoyen VANDERVELDE (Belgique). — Je n'ai pas
 eu l'occasion de discuter la question avec mes amis
 
 “2 belges, pour appuyer la proposition de nos camarades
@@ -5020,7 +4959,6 @@ notre expérience à nos amis de toutes les nationalités.
 (Applaudissements) Au point de vue de la solidarité et
 des rapports internationaux du prolétariat, nous pensons que la proposition anglaise doit être acceptée.
 
-Le citoyen PRÉSIDENT. — Je propose de clore la
 discussion. Chaque nation a deux voix, comme il a été
 décidé : il y a trois propositions en présence, une de
 deux ans, anglaise ; une de cinq ans, allemande; et
@@ -5083,7 +5021,6 @@ même, avec un gouvernement où il y a un ministre socialiste, on a créé des d
 à Bebel pour leur permettre d'assister à ce Congrès. Je
 dois reconnaître que l'Autriche est encore plus policière
 que la France (1).
-Le citoyen PrÉsIDENT. — Je mets la proposition de la
 
 Le citoyen PoLak. — Je vous remercie, au nom de la
 délégation hollandaise, cordialement du vote que vous
@@ -5099,7 +5036,6 @@ parole est au citoyen Jules Guesde.
 est salué par des applaudissements, des acclamations de
 la gauche de l'assemblée et des cris de : Vive la Commune ! À droite, on crie : Vive la République!)
 
-Le citoyen Jures GuEspe. (P. O. F.) — Je n'ai que
 quelques mots à dire relativement à la résolution des
 alliances, que j'approuve d'autant plus qu'elle interdit,
 au nom de la lutte de classe, toute alliance avec une
@@ -5351,7 +5287,6 @@ passé, mais qu'on pouvait recoudre ce que nous avions
 -décousu, confondre ce que nous avions séparé... (Bruit,
 En dehors de la lutte de classe, en dehors de ceterrain, il n'y a place que pour la duperie, que pour la
 conservation sociale ! (Applaudissements prolongés et
-Le citoyen AxsrELE (Belgique) (1).— Je suis un de
 () Le 14 juillet 1899, le citoyen Anseele écrivait à Millerand
 « Laissez-moi, mon cher Millerand, vous féliciter pour votre
 courage d'avoir accepté le poste de combat au ministère dans les
@@ -5477,7 +5412,6 @@ tout entier des défaillances... Je proteste, au nom du
 Congrès, contre ce mot de « défaillance » qui est
 inexact ! (Applaudissements) Le mouvement socialiste
 grandit ; et s'il y a des défaillances en France, je vous
-assure qu'il n'y en a pas en Belgique, où nous em-
 ployons tous les moyens de lutte, ceux mêmes que
 quelques-uns d'entre vous ne veulent pas employer...
 ({nterruptions sur certains bancs)
@@ -5567,7 +5501,6 @@ j capitalisme, par l'intermédiaire de notre délégué? C'est
 pourquoi nous disons que la participation au pouvoir
 central de la bourgeoisie, même d'un délégué du prolé-
 tariat, dans n'importe quelle circonstance, est une
-impossibilité. Ne
 Nous concevons que le citoyen Xautsky, dont nous
 admirons tous la profondeur de pensée, ait pu rédiger
 sur ce sujet un article et qu'à cet article il ait donnéla
@@ -5831,11 +5764,9 @@ de l'autonomie. +.
 du citoyen Andrea Costa.)
 A). À: Le citoyen PRÉSIDENT approuve cette protestation et
 À È prie le citoyen Costa d'arrêter là ses observations. ‘4
-Sa 4 Le citoyen PrÉsibENT. — Le bureau a tâché de
 résoudre les difficultés que nous avions à vaincre. Il se
 1 25 ” trouve en présence de deux résolutions qui se com
 battent, et la règle générale, dans tous les Congrès, est
-Ve qu'on donne la priorité à la proposition de la majorité
 ‘4 de la commission. Le citoyen Vaillant, qui avait proce posé de mettre aux voix la résolution de la minorité, 4
 ee | "a acquiescé à cette manière de faire. Maïs il a dit que
 K , la résolution Guesde constituerait alors un amendement -
@@ -5857,7 +5788,6 @@ Ceux qui voteront pour la proposition de la majorité
 de la commission voteront : « majorité »; ceux qui sont
 pour la minorité, voteront : « minorité », c'est-à-dire la
 
-Le citoyen VANDERVELDE (Belgique). — Au nom de la
 commission, je me rallie au mode de votation proposé
 par le président. Nous aurions le droit de réclamer, en
 vertu du règlement, la priorité pour la résolution de la
@@ -5908,7 +5838,6 @@ Le citoyen VANDERVELDE. — J'appuie cette proposi-
 tion de notre camarade Vinck. (Vive approbation) —
 
 Le citoyen PRÉSIDENT. — Nous passons à la question
-suivante, et je prendrai la parole, en ma qualité de la
 cinquième commission, sur la politique coloniale. s
 
 Le citoyen VA Koz. — Camarades, je suis heureux
@@ -6059,7 +5988,6 @@ poursuit notre nation en Afrique, que nous la haïssons,
 
 me k et que nous offrons notre sympathie et qu e nous xpli_ quons notre honte à nos camarades hollandais, pource
 quise passe dans l'Afrique du Sud. (Vifs applaudisse- A
-a ments) LES RE
 <i Nous sommes le plus grand pouvoir colonial d di
 monde; trois cent cinquante millions d'êtres humains
 a peu près sont opprimés par notre joug. Je déclare que
@@ -6213,7 +6141,6 @@ que le problème colonial est de plus en plus imminent
 dans sa solution, et qu'il ne se posera pas seulement au
 point de vue économique, mais au point de vue de
 l'action de classe du prolétariat colonial.
-Le citoyen PrésmenT. — Comme la résolution de la t
 commission n'a pas été attaquée, je n'ai pas à la
 défendre; je n'ai qu'à faire une constatation précieuse
 c'est que dans ce congrès mondial, où le prolétariat dem F1
@@ -6242,7 +6169,6 @@ délégués de l'Union socialiste révolutionnaire n'ont pas
 pris part au vote de cette délégation et demandent au
 Nous déclarons en même temps que des organisations
 existantes en Russie et représentées au Congrès, les socialistes démocrates seuls seront représentés au secrétariat
-Ont signé
 La citoyenne Rosa LuxemBurG (Allemagne). — Les
 membres de la quatrième et de la cinquième commis181
 
@@ -6313,7 +6239,6 @@ citoyens, la solidarité internationale socialiste consistait
 surtout dans des déclarations de principes et dans des -
 délibérations périodiques des représentants socialistes
 aux Congrès; quant à l'action propre, elle se bornait
-ne ANA AIT 2 as
 
 à terrain syndical. Et ce n'est pas sans raison que la
 
@@ -6671,7 +6596,6 @@ nous disposerons d'une force immense. En effet, nous
 pouvons comparer les transports à la troisième colonne.
 qui soutient toute la société, toute la production. Donc, 13
 lorsque les dockers seront avec nous, lorsque nous
-à ARS RS té, ‘an ) L_ asie v LS ÉECRACÉE Mod rev Lab hr ire : + PE FE
 aurons également les marins et lorsqu'une guerre sera
 nécessaire, nous pourrons disposer d'eux pour batailler
 plus victorieusement contre le capitalisme.
@@ -6901,7 +6825,6 @@ que nous sommes d'accord avec le citoyen Terwagne.
 Notre pensée était de rapporter ce secrétariat au secré-
 tariat permanent déjà existant.
 La résolution, ainsi amendée, est adoptée à l'unanimité.
-Le citoyen PRÉSIDENT. — Je donne la parole au
 rapporteur de la onzième commission sur la question
 des trusts.
 Le citoyen WigaurT (Hollande). — Voici le texte du .

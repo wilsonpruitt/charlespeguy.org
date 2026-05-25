@@ -8,37 +8,18 @@ isAvertissement: false
 wordCount: 22177
 ocrSource: "fr.wikisource.org — Vie de Michel-Ange, Partie II (Hachette, 1908), subpages Amour/Foi/Solitude 2026-05-25"
 ---
-
-
 Vie de Michel-Ange
-
-Libr. Hachette et Cie, 1908 (p. 105-136).
-
-◄  Le Désespoir
-
-Foi
-  ►
 
 Deuxième partie. L’Abdication
 
 bookVie de Michel-Ange
 Romain RollandLibr. Hachette et Cie1908ParisVDeuxième partie. L’AbdicationRolland Vie de Michel-Ange.djvuRolland Vie de Michel-Ange.djvu/7105-136
 
-# I
-
-AMOUR
-
-*I’ me la morte, in te la vita mia*.[1]
-
 Alors, dans ce cœur dévasté, après que le renoncement fut accompli à tout ce qui le faisait vivre, une vie nouvelle se leva, un printemps refleurit, l’amour brûla d’une flamme plus claire. Mais cet amour n’avait presque plus rien d’égoïste et de sensuel. Ce fut l’adoration mystique de la beauté d’un Cavalieri. Ce fut la religieuse amitié de Vittoria Colonna, — communion passionnée de deux âmes en Dieu. Ce fut enfin la tendresse paternelle pour ses neveux orphelins, la pitié pour les pauvres et pour les faibles, la sainte charité.
 
 L’amour de Michel-Ange pour Tommaso dei Cavalieri est bien fait pour déconcerter la moyenne des esprits, — honnêtes ou malhonnêtes. — Même dans l’Italie de la fin de la Renaissance, il risquait de provoquer des interprétations fâcheuses ; l’Arétin y faisait des allusions outrageantes.[2] Mais les injures des Arétins — (il y en a toujours) — ne peuvent atteindre un Michel-Ange. « Ils se font dans leur cœur un Michel-agniolo de l’étoffe dont leur propre cœur est fait. »[3]
 
 Nulle âme ne fut plus pure que Michel-Ange. Nulle n’eut de l’amour une conception plus religieuse.
-
-J’ai souvent entendu,
-
-disait Condivi,
 
 J’ai souvent entendu, Michel-Ange parler de l’amour ; et ceux qui étaient présents disaient qu’il n’en parlait pas autrement que Platon. Pour ma part, je ne sais pas ce que Platon en a dit ; mais je sais bien qu’après avoir eu si longtemps et si intimement commerce avec lui, je n’ai jamais entendu sortir de sa bouche que les propos les plus honorables, qui avaient la force d’éteindre chez les jeunes gens les désirs déréglés qui les agitent.
 
@@ -83,8 +64,6 @@ dit Vasari,
 
 Tommaso dei Cavalieri, gentilhomme romain, jeune et passionné pour l’art ; il fit sur un carton son portrait, grandeur nature, — le seul portrait qu’il ait dessiné ; car il avait horreur de copier une personne vivante, à moins qu’elle ne fût d’une incomparable beauté.
 
-Varchi ajoute :
-
 Quand je vis à Rome messer Tommaso Cavalieri, il avait non seulement une incomparable beauté, mais tant de grâce de manières, un esprit si distingué et une si noble conduite, qu’il méritait bien d’être aimé, d’autant plus qu’on le connaissait davantage.[8]
 
 Michel-Ange le rencontra à Rome, dans l’automne de 1532. La première lettre, par laquelle Cavalieri répondit aux déclarations enflammées de Michel-Ange, est pleine de dignité :
@@ -117,8 +96,6 @@ Je pleure, je brûle, je me consume, et mon cœur se nourrit de sa peine…
 
 *I’ piango, i’ ardo, i’ mi consamo, e ’l core*
 
-*Di questo si nutriscie*…[21]
-
 Toi qui m’as pris la joie de vivre,
 
 dit-il ailleurs à Cavalieri.[22]
@@ -130,8 +107,6 @@ Mon cher seigneur, ne t’irrite pas de mon amour, qui s’adresse seulement à 
 Et certes, cette passion de la beauté n’avait rien que d’honnête.[27] Mais le sphinx de cet amour ardent et trouble,[28] et chaste malgré tout, ne laissait point d’être inquiétant et halluciné.
 
 À ces amitiés morbides, — effort désespéré pour nier le néant de sa vie et pour créer l’amour dont il était affamé, — succéda par bonheur l’affection sereine d’une femme, qui sut comprendre ce vieil enfant, seul, perdu dans le monde, et fit rentrer dans son âme meurtrie un peu de paix, de confiance, de raison, et l’acceptation mélancolique de la vie et de la mort.
-
-⁂
 
 C’était en 1533 et 1534,[29] que l’amitié de Michel-Ange pour Cavalieri avait atteint son paroxysme. En 1535, il commença à connaître Vittoria Colonna.
 
@@ -150,8 +125,6 @@ Vittoria fut une des âmes les plus exaltées de ce petit groupe idéaliste, où
 Vous avez vu le chaos d’ignorance où j’étais, et le labyrinthe d’erreurs où j’allais, le corps perpétuellement en mouvement pour trouver le repos, l’âme toujours agitée pour trouver la paix. Dieu a voulu qu’il me fût dit : *Fiat lux !* et qu’il me fût montré que je n’étais rien, et que tout était en Christ.[41]
 
 Elle appelait la mort, comme une délivrance. — Elle mourut, le 25 février 1547.
-
-⁂
 
 Ce fut à l’époque où elle était le plus pénétrée du libre mysticisme de Valdès et d’Ochino qu’elle fit la connaissance de Michel-Ange. Cette femme, triste et tourmentée, qui avait toujours besoin d’un guide sur qui s’appuyer, n’avait pas moins besoin d’un être plus faible et plus malheureux qu’elle, pour dépenser sur lui tout l’amour maternel dont son cœur était plein. Elle s’appliqua à cacher son trouble à Michel-Ange. Sereine en apparence, réservée, un peu froide, elle lui transmit la paix qu’elle demandait à d’autres. Leur amitié, ébauchée vers 1535, fut intime à partir de l’automne de 1538, et toute construite en Dieu. Vittoria avait quarante-six ans : il en avait soixante-trois. Elle habitait à Rome, au cloître de San-Silvestro in Capite, au-dessous de Monte Pincio. Michel-Ange habitait près de Monte Cavallo. Ils se réunissaient le dimanche dans l’église San-Silvestro au Monte Cavallo. Le frère Ambrogio Caterino Politi leur lisait les épîtres de saint Paul, qu’ils discutaient ensemble. Le peintre portugais François de Hollande nous a conservé le souvenir de ces entretiens dans ses quatre *Dialogues sur la Peinture*.[42] Ils sont le vivant tableau de cette amitié grave et tendre.
 
@@ -229,8 +202,6 @@ L’autre sonnet est plus tendre, et proclame la victoire de l’amour sur la mo
 
 Quand celle qui m’a arraché tant de soupirs s’est dérobée au monde, à mes yeux, à elle-même, la nature qui nous avait jugés dignes d’elle tomba dans la honte, et tous ceux qui le virent, dans les pleurs. — Mais que la mort ne se vante pas aujourd’hui d’avoir éteint ce soleil des soleils, comme elle a fait des autres ! Car Amour a vaincu, et la fait revivre sur terre et dans le ciel, parmi les saints. La mort inique et criminelle croyait étouffer l’écho de ses vertus et ternir la beauté de son âme. Ses écrits ont fait le contraire : ils l’illuminent de plus de vie qu’elle n’en eut en sa vie ; et par la mort, elle a conquis le ciel, qu’elle n’avait pas encore.[54]
 
-⁂
-
 C’est pendant cette grave et sereine amitié,[55] que Michel-Ange exécuta ses dernières grandes œuvres de peinture et de sculpture : *le Jugement Dernier*, les fresques de la Chapelle Pauline, et — enfin — le Tombeau de Jules II.
 
 Quand Michel-Ange avait quitté Florence, en 1534, pour s’installer à Rome, il pensait, délivré de tous ses autres travaux par la mort de Clément VII, pouvoir terminer en paix le tombeau de Jules II, puis mourir, la conscience déchargée du fardeau qui avait pesé sur toute sa vie. Mais, à peine arrivé, il se laissa remettre à la chaîne par des maîtres nouveaux.
@@ -264,15 +235,11 @@ Enfin, le monument de Jules II fut inauguré à San Pietro in Vincoli, en janvi
 
 Du moins, c’était fini. Michel-Ange était délivré du cauchemar de toute sa vie.
 
-↑ *Poésies*, LIX.
-
 ↑ Le petit-neveu de Michel-Ange, dans sa première édition des *Rime*, en 1623, n’osa pas publier exactement les poésies à Toramaso dei Cavalieri. Il laissait croire qu’elles étaient adressées à une femme. Jusqu’aux récents travaux de Scheffler et Symmonds, Cavalieri passait pour un nom supposé, qui cachait Vittoria Colonna.
 
 ↑ Lettre de Michel-Ange à un personnage inconnu (octobre 1542). *Lettres*, édition Milanesi, CDXXXV.
 
 ↑ Donato Giannotti : *Dialogi*, 1545.
-
-↑ *Poésies*, CXXXXI.
 
 ↑ Gherardo Perini fut spécialement visé par les attaques de l’Arétin. Frey a publié de lui quelques lettres très tendres, de 1522 :* «… che avendo di voi lettera, mi paia chon esso voi essere, che altro desiderio non o. »* ( «… Quand j’ai une lettre de vous, il me semble être avec vous : ce qui est mon désir unique. » ) Il signe :* « vostro come figliuolo. »* ( « Votre comme un fils. » ) — Une belle poésie de Michel-Ange sur la douleur de l’absence et de l’oubli semble lui être adressée :
 
@@ -298,11 +265,7 @@ Voir aux *Annexes*, XII. — *Poésies*, XXXV.
 
 ↑ Lettre de Michel-Ange à Sébastien del Piombo.
 
-↑ a, b, c, d et e Vasari.
-
 ↑ Varchi en commenta deux en public, et il les publia dans ses *Due Lezzioni*. — Michel-Ange ne faisait pas mystère de son amour. Il en parlait à Bartolommeo Angiolini, à Sébastien del Piombo. De telles amitiés ne surprenaient personne. Quand mourut Cecchino del Bracci, Riccio cria son amour et son désespoir à tous : « Ah ! mon ami Donato ! Notre Cecchino est mort. Tout Rome pleure, Michel-Ange fait pour moi le dessin d’un monument. Écrivez-moi, je vous prie, l’épitaphe, et envoyez-moi une lettre consolante : mon chagrin m’a perdu l’esprit. Patience ! Je vis avec mille et mille morts en chaque heure. Ô Dieu ! Comme la Fortune a changé d’aspect ! » (Lettre à Donato Giannotti. Janvier 1544) — « Dans mon sein, je portais mille âmes d’amants », fait dire Michel-Ange à Cecchino dans une de ses épigrammes funéraires. (*Poésies*, édition Frey, LXXIII, 12)
-
-↑ Scheffler.
 
 ↑ *Poésies*, CIX, 19. Voir aux *Annexes*, XIV.
 
@@ -314,20 +277,9 @@ Voir aux *Annexes*, XII. — *Poésies*, XXXV.
 
 (Je suis prisonnier d’un cavalier armé.)
 
-↑
 *Onde al mio viver lieto, che m’ha tolto*…
 
-(*Poésies*, CIX, 18)
-
-↑
 *Il desiato mie dolce signiore*…
-
-(*Ibid.*, L)
-
-↑
-*Un freddo aspetto*…
-
-(*Ibid.*, CIX, 18)
 
 ↑ Le texte exact dit : « Ce que toi-même tu aimes le mieux en toi. »
 
@@ -396,8 +348,6 @@ Michel-Ange était nourri de Dante. « Personne ne le comprenait mieux, dit Gia
 ↑ Vasari. — Il se brouilla, pour un temps, avec un de ses plus chers amis, Luigi del Riccio, parce que celui-ci lui faisait des présents, malgré lui :
 
 « Je suis plus oppressé, lui écrit-il, par ton extrême bonté, que si tu me volais. Il faut de l’égalité entre amis : si l’un donne plus, et l’autre moins, alors on en vient au combat ; et si l’un est vainqueur, l’autre ne le pardonne pas. »
-
-↑ a et b Condivi.
 
 ↑ Voir aux *Annexes*, XIX. (*Poésies*, CI)
 
@@ -469,27 +419,12 @@ Voir aux *Annexes*, XXI. (*Poésies*, CIX, 63)
 
 ↑ Lettre à un *Monsignore* inconnu (octobre 1542). (*Lettres*, édition Milanesi, CDXXXV)
 
-## Foi
-
-Romain Rolland
-
 Vie de Michel-Ange
-
-Libr. Hachette et Cie, 1908 (p. 137-160).
-
-◄  Amour
-
-Solitude
-  ►
 
 Deuxième partie. L’Abdication
 
 bookVie de Michel-Ange
 Romain RollandLibr. Hachette et Cie1908ParisVDeuxième partie. L’AbdicationRolland Vie de Michel-Ange.djvuRolland Vie de Michel-Ange.djvu/7137-160
-
-# II
-
-FOI
 
 *Signior mie caro, i’ te sol chiamo e ’nvoco*
 
@@ -514,8 +449,6 @@ Ses ennemis ne désarmaient point ; et la lutte, un moment, prit un caractère 
 
 Ne le plaignons pas. Il savait se défendre ; et, mourant, il était capable, à lui seul, comme il disait jadis à son frère Giovan Simone, « de mettre en pièces dix mille de cette engeance ».
 
-⁂
-
 En dehors de la grande œuvre de Sant-Pierre, d’autres travaux d’architecture occupèrent la fin de sa vie : le Capitole,[12] l’église Santa Maria degli Angeli,[13] l’escalier de la *Laurenziana* de Florence,[14] la Porta Pia, et surtout l’église San Giovanni dei Fiorentini, — dernier de ses grands projets, avorté comme les autres.
 
 Les Florentins l’avaient prié d’élever l’église de leur nation à Rome ; le duc Cosme, lui-même, lui écrivit une lettre flatteuse, à ce sujet ; et Michel-Ange, soutenu par son amour pour Florence, entreprit l’œuvre avec un enthousiasme juvénile.[15] Il dit à ses compatriotes « que s’ils exécutaient son plan, ni les Romains, ni les Grecs n’auraient jamais rien eu de semblable : — paroles, dit Vasari, telles qu’il n’en sortit jamais de sa bouche, ni avant, ni après ; car il était extrêmement modeste ». Les Florentins acceptèrent le plan, sans rien y changer. Un ami de Michel-Ange, Tiberio Calcagni, exécuta, sous sa direction, un modèle en bois de l’église : — « c’était une œuvre d’un art si rare, qu’on n’a jamais vu une église pareille, pour la beauté, la richesse et la variété. On commença la construction, on dépensa 5.000 écus. Puis, l’argent manqua, on en resta là, et Michel-Ange en éprouva le plus violent chagrin. »[6] L’église ne fut jamais construite, et même le modèle a disparu.
@@ -523,8 +456,6 @@ Les Florentins l’avaient prié d’élever l’église de leur nation à Rome�
 Telle fut la dernière déception artistique de Michel-Ange. Comment eût-il pu avoir l’illusion, en mourant, que Saint-Pierre, à peine ébauché, serait jamais réalisé, qu’aucune de ses œuvres lui survivrait ? Lui-même, s’il eût été libre, peut-être les eût-il brisées. L’histoire de sa dernière sculpture, la *Déposition de Croix* de la cathédrale de Florence, montre à quel détachement de l’art il était arrivé. S’il continuait encore de sculpter, ce n’était plus par foi dans l’art, mais par foi dans le Christ, et parce que « son esprit et sa force ne pouvaient s’empêcher de créer ».[16] Mais quand il eut fini son œuvre, il la brisa.[17] « Il l’eût détruite entièrement, si son serviteur Antonio ne l’avait supplié de la lui donner. »[18]
 
 Telle était l’indifférence que Michel-Ange, près de la mort, témoignait à ses œuvres.
-
-⁂
 
 Depuis la mort de Vittoria, nulle grande affection n’éclairait plus sa vie. L’amour était parti :
 
@@ -578,8 +509,6 @@ Elles sont belles, surtout la toile, et elles me plaisent fort. Mais je suis fâ
 
 Viennent bientôt les enfants : le premier, appelé Buonarroto,[36] sur le désir de Michel-Ange, — le second, nommé Michelangelo,[37] qui meurt peu après sa naissance. Et le vieil oncle, qui invite le jeune couple à venir chez lui, à Rome, en 1556, ne cesse de prendre part affectueusement aux joies comme aux douleurs de la famille, mais sans jamais permettre aux siens de s’occuper de ses affaires, ni même de sa santé.
 
-⁂
-
 En dehors de ses relations de famille, Michel-Ange ne manqua point d’amitiés illustres ou distinguées.[38] Malgré son humeur sauvage, il serait tout à fait faux de se le représenter comme un paysan du Danube, à la façon de Beethoven. Il fut un aristocrate italien, de haute culture et de race fine. Depuis son adolescence passée dans les jardins de San Marco, auprès de Laurent le Magnifique, il resta en rapports avec tout ce que l’Italie comptait de plus noble parmi ses grands seigneurs, ses princes, ses prélats,[39] ses écrivains[40] et ses artistes.[41] Il faisait assaut d’esprit avec le poète
  Francesco Berni ;[42] il correspondait avec Benedetto Varchi ; il échangeait des poésies avec Luigi del Riccio et avec Donato Giannotti. On recherchait sa conversation, ses aperçus profonds sur l’art, ses remarques sur Dante, que personne ne connaissait comme lui. Une dame romaine[43] écrivait qu’il était, quand il voulait, « un gentilhomme de manières fines et séduisantes, et tel qu’il existait à peine son pareil en Europe ». Les dialogues de Giannotti et de François de Hollande montrent sa politesse exquise et l’habitude qu’il avait du monde. On voit même, par certaines de ses lettres aux princes,[44] qu’il lui eût été facile d’être un parfait courtisan. Le monde ne l’a jamais fui : c’est lui qui le tint à distance ; il ne dépendit que de lui de mener une vie triomphale. Il était pour l’Italie l’incarnation de son génie. À la fin de sa carrière, dernier survivant de la grande Renaissance, il la personnifiait, il était à lui seul tout un siècle de gloire. Ce n’étaient pas seulement les artistes qui le regardaient comme un être
  surnaturel.[45] Les princes s’inclinaient devant sa royauté. François Ier et Catherine de Médicis lui rendaient hommage.[46] Cosme de Médicis voulut le nommer sénateur ;[47] et, quand il vint à Rome,[48] il le traita en égal, le fit asseoir à côté de lui, l’entretint confidentiellement. Le fils de Cosme, don Francesco de Médicis, le reçut, sa barrette à la main, « témoignant d’un respect sans bornes pour un homme aussi rare ».[49] On n’honorait pas moins en lui son génie que « sa grande vertu ».[50] Sa vieillesse fut entourée d’autant de gloire que celle de Goethe ou de Hugo. Mais il était un homme d’un autre métal. Il n’avait ni la soif de popularité de l’un, ni le respect bourgeois de l’autre, — si libre qu’il fût, — pour le monde et pour l’ordre établi. Il méprisait la gloire, il méprisait le monde ; et s’il servait les papes, « c’était par contrainte ». Encore ne cachait-il pas que « même les papes l’ennuyaient et le fâchaient parfois, en causant avec lui et le faisant chercher », et que, « malgré leurs ordres, il négligeait de venir, quand il n’y était pas disposé ».[51]
@@ -589,8 +518,6 @@ Lorsqu’un homme est ainsi fait par la nature et par l’éducation qu’il ha�
 Il n’avait donc avec le monde que les relations indispensables, ou des rapports tout intellectuels. Il ne lui laissait pas accès dans son intimité ; et les papes, les princes, les gens de lettres et les artistes tenaient peu de place dans sa vie. Même avec le petit nombre d’entre eux, pour qui il éprouvait une réelle sympathie, il était rare qu’il s’établît une amitié durable. Il aimait ses amis, il était généreux envers eux ; mais sa violence, son orgueil, ses soupçons lui faisaient souvent de ceux qu’il avait le plus obligés, des ennemis mortels. Il écrivit, un jour, cette belle et triste lettre :
 
 Le pauvre ingrat est ainsi fait, de nature, que si vous lui venez en aide dans sa détresse, il dit que lui-même vous a avancé ce que vous lui donnez. Si vous lui donnez du travail pour lui témoigner votre intérêt, il prétend que vous avez été forcé de lui confier ce travail, parce que vous n’y entendez rien. Tous les bienfaits qu’il reçoit, il dit que le bienfaiteur y a été obligé. Et si les bienfaits reçus sont si évidents qu’il est impossible de les nier, alors l’ingrat attend assez longtemps pour que celui dont il a reçu du bien tombe dans une faute évidente ; alors il a un prétexte de dire du mal de lui et de se libérer de toute reconnaissance. — Ainsi, on a toujours agi envers moi ; et pourtant pas un artiste ne s’est adressé à moi sans que je lui aie fait du bien, et de tout mon cœur. Et puis ils prennent prétexte de mon humeur bizarre, ou de la folie, dont ils prétendent que je suis atteint et qui ne fait tort qu’à moi, pour dire du mal de moi ; et ils m’outragent : — c’est le lot de tous ceux qui sont bons.[52]
-
-⁂
 
 Dans sa propre maison, il avait des aides assez dévoués, mais en général médiocres. On le soupçonnait de les choisir médiocres à dessein pour n’avoir en eux que des instruments dociles, et non des collaborateurs, — ce qui, au reste, eût été légitime. Mais, dit Condivi,
 
@@ -618,15 +545,11 @@ Messer Giorgio, mon cher ami, il se peut que j’écrive mal ; cependant, en r�
 
 Dans son désarroi, il pria son neveu de venir le voir à Rome. Lionardo et Cassandra, inquiets de son chagrin, vinrent, et le trouvèrent fort affaibli. Il puisa une force nouvelle dans l’obligation que Urbino lui avait imposée de se charger de la tutelle de ses fils, dont l’un était son filleul et portait son nom.[60]
 
-⁂
-
 Il avait d’autres amitiés, étranges. Par ce besoin de réaction, si fort chez les natures robustes contre toutes les contraintes qu’impose la société, il aimait à s’entourer de gens simples d’esprit, qui avaient des saillies inattendues et de libres façons : des gens qui ne fussent pas comme tout le monde : — un Topolino, tailleur de pierres à Carrare, « qui s’imaginait être un sculpteur distingué, et qui n’eût jamais laissé partir pour Rome une barque, chargée de blocs de marbre, sans envoyer trois ou quatre petites figures modelées par lui, qui faisaient mourir de rire Michel-Ange » ;[61] — un Menighella, peintre à Valdarno, « qui venait de temps en temps chez Michel-Ange, pour qu’il lui dessinât un saint Roch ou un saint Antoine, qu’il coloriait ensuite et vendait aux paysans. Et Michel-Ange, dont les rois avaient tant de peine à obtenir le moindre travail, laissait tout pour exécuter ces dessins, sur les indications de Menighella, entre autres, un *Crucifix* admirable » ;[61] — un barbier, qui se mêlait de peinture, et pour qui il dessina le carton d’un *saint François aux stigmates ;* — un de ses ouvriers romains, qui travaillait au tombeau de Jules II, et qui crut être devenu un grand sculpteur, sans y avoir pris garde, parce qu’en suivant docilement les indications de Michel-Ange, il avait fait sortir du marbre, à sa stupéfaction, une belle statue ; — le facétieux orfèvre Piloto, dit Lasca ; — le fainéant Indaco, ce peintre singulier, « qui aimait autant à bavarder, qu’il détestait de peindre », et qui avait coutume de dire que « travailler toujours sans prendre de plaisir était indigne d’un chrétien » ;[6] — surtout, le ridicule et inoffensif Giuliano Bugiardini, pour qui Michel-Ange avait une sympathie spéciale.
 
 Giuliano avait une bonté naturelle, une façon simple de vivre, sans méchanceté et sans envie, qui plaisait infiniment à Michel-Ange. Il n’avait d’autre défaut que d’aimer trop ses propres œuvres. Mais Michel-Ange avait coutume de l’estimer heureux pour cela ; car il se trouvait lui-même très malheureux de ne pouvoir se satisfaire pleinement de rien… Une fois, messer Ottaviano de Médicis avait demandé à Giuliano de lui faire un portrait de Michel-Ange. Giuliano se mit à l’œuvre ; et, après avoir tenu Michel-Ange assis deux heures, sans parler, il lui dit : « Michel-Ange, viens voir, lève-toi : l’essentiel de la physionomie, je l’ai déjà attrapé. » Michel-Ange se leva ; et, quand il vit le portrait, il dit en riant à Giuliano : « Que diable as-tu fait ? Tu m’as enfoncé un œil dans la tempe : regarde un peu. » Giuliano, à ces mots, fut hors de lui. Il regarda plusieurs fois le portrait et son modèle, alternativement ; et il répondit hardiment : « Il ne me semble pas ; mais remets-toi à ta place, et je le corrigerai, s’il y a lieu. » — Michel-Ange, qui savait ce qui en était, se replaça en souriant en face de Giuliano, qui le regarda à diverses reprises ainsi que sa peinture, puis se leva, et dit : « L’œil est tel que je l’ai dessiné, et la nature le montre ainsi. » — « Eh bien donc, fit Michel-Ange en riant, c’est une faute de la nature. Continue, et ne ménage pas la couleur. »[6]
 
 Tant d’indulgence, dont Michel-Ange n’était pas coutumier avec les autres hommes, et qu’il prodiguait à ces petites gens, ne suppose pas moins d’humour railleuse qui s’égaye des ridicules humains,[62] que d’affectueuse pitié pour ces pauvres fous qui se croyaient de grands artistes et qui lui inspiraient peut-être un retour sur sa propre folie. Il y avait là bien de l’ironie mélancolique et bouffonne.
-
-↑ *Poésies*, CXXIII.
 
 ↑ Lettre de Michel-Ange à Vasari. (19 septembre 1552)
 
@@ -635,10 +558,6 @@ Tant d’indulgence, dont Michel-Ange n’était pas coutumier avec les autres h
 ↑ Il s’agit ici d’Antonio da San Gallo, architecte en chef de Saint-Pierre, depuis 1537 jusqu’à sa mort en octobre 1546. Il avait toujours été ennemi de Michel-Ange, qui le traita sans ménagements. Ils se trouvèrent opposés l’un à l’autre, à propos des fortifications du Borgo (quartier du Vatican), pour lesquelles Michel-Ange fit abandonner les plans de San Gallo, en 1545, et lors de la construction du palais Farnese, que San Gallo avait bâti jusqu’au second étage, et que Michel-Ange termina, imposant en 1549 son modèle pour la corniche et éliminant le projet de son rival. — (Voir le *Michelangelo* de Thode)
 
 ↑ Le futur pape Marcel II.
-
-↑ a, b, c, d et e Vasari.
-
-↑ Bottari.
 
 ↑ À la fin de l’enquête de 1551, Michel-Ange, se tournant vers Jules III qui présidait, lui dit : « Saint-Père, vous voyez quel est mon gain ! Si les ennuis que j’endure ne servent pas à mon âme, je perds mon temps et ma peine. » — Le pape qui l’aimait, lui mit ses mains sur les épaules, et s’écria : « Tu gagnes pour les deux, pour ton âme et pour ton corps. Sois sans crainte ! » (Vasari)
 
@@ -656,13 +575,7 @@ Affecté par les critiques de ses propres amis, il demanda pourtant, en 1550, «
 
 ↑ On exécuta le modèle de Michel-Ange en pierre, et non en bois, comme il voulait.
 
-↑ En 1559-1560.
-
-↑ Vasari.
-
 Ce fut en 1553 qu’il commença cette œuvre, la plus émouvante de toutes ses œuvres ; car elle est la plus intime : on sent qu’il n’y parle que pour lui, il souffre, et s’abandonne à sa souffrance. Au reste, il s’est représenté lui-même, semble-t-il, dans le vieillard, au visage douloureux, qui soutient le corps du Christ.
-
-↑ En 1555.
 
 ↑ Tiberio Calcagni la racheta à Antonio, et demanda à Michel-Ange la permission de la réparer. Michel-Ange y consentit, Calcagni rajusta le groupe ; mais il mourut, et l’œuvre resta inachevée.
 
@@ -672,13 +585,9 @@ Cependant, quelques poésies, qui semblent dater de son extrême vieillesse, mon
 
 ↑ Elle épousa, en 1538, Michele di Niccolò Guicciardini.
 
-↑ Une propriété à Pozzolatico.
-
 ↑ Cette correspondance commence en 1540.
 
 ↑ … *stare a spasimare intorno alle tue lettere.*
-
-(*Lettres*, 1536–1548)
 
 ↑ Lettre du 11 juillet 1544.
 
@@ -686,29 +595,11 @@ Cependant, quelques poésies, qui semblent dater de son extrême vieillesse, mon
 
 ↑ *L’amore del tarlo !*
 
-↑ 6 février 1546.
 Il ajoute : « Il est vrai que, l’an passé, je t’ai tant semoncé que tu as eu honte, et tu m’as envoyé un petit tonneau de Trebbiano. Ah ! cela t’a assez coûté !… »
 
-↑ De 1543 à 1553.
-
-↑ Et ailleurs :
 « Tu n’as pas à chercher l’argent, mais seulement la bonté et la bonne renommée… Tu as besoin d’une femme qui reste avec toi, et à qui tu puisses commander, une femme qui ne fasse pas des embarras et n’aille pas tous les jours en noces et en festins ; car là où on leur fait la cour, il leur est facile de se débaucher *(diventar puttana)*, surtout quand elles n’ont pas de famille… » (*Lettres*, premier février 1549)
 
-↑ … *Storpiata o schifa*… (*Lettres*, 1543–1552)
-
-↑ *Ibid.*, 19 décembre 1551.
-
 ↑ Il ajoute pourtant : « Mais si tu devais ne pas te sentir assez sain, alors il est mieux de te résigner à vivre, sans mettre au monde d’autres malheureux. » (*Lettres*, 24 juin 1552)
-
-↑ Le 16 mai 1553.
-
-↑ *Lettres*, 20 mai 1553.
-
-↑ Lettres, 5 août 1553.
-
-↑ Né en 1554.
-
-↑ Né en 1555.
 
 ↑ Il faut bien distinguer entre les périodes de sa vie. On trouve dans cette longue carrière des déserts de solitude, mais aussi quelques périodes d’amitiés. C’est, vers 1515, à Rome, un petit cercle de Florentins, libres et bons vivants : — Domenico Buoninsegni, Lionardo sellajo, Giovanni Spetiale, Bartolommeo Verazzano, Giovanni Gellesi, Canigiani. — C’est, un peu plus tard, sous le pontificat de Clément VII, la spirituelle société de Francesco Berni et de Fra Sebastiano del Piombo, ami dévoué mais dangereux, qui rapportait à Michel-Ange tous les bruits qui couraient sur son compte et attisait son inimitié contre le parti de Raphaël. — C’est surtout, au temps de Vittoria Colonna, le cercle de Luigi del Riccio, marchand florentin, qui le conseillait dans ses affaires et fut son ami le plus intime. Il rencontrait chez lui Donato Giannotti, le musicien Archadelt, et le beau Cecchino. Ils avaient l’amour commun de la poésie, de la musique et des bons plats. C’est pour Riccio, désespéré de la mort de Cecchino, que Michel-Ange écrit ses quarante-huit épigrammes funéraires ; et Riccio, pour l’envoi de chaque épigramme, expédie à Michel-Ange des truites, des champignons, des truffes, des melons, des tourterelles, etc. (Voir *Poésies*, édition Frey, LXXIII) — Après la mort de Riccio, en 1546, Michel-Ange n’eut plus guère d’amis, mais des disciples : Vasari, Condivi, Daniel de Volterre, Bronzino, Leone Leoni, Benvenuto Cellini. Il leur inspirait un culte passionné ; de son côté, il leur témoignait une affection touchante.
 
@@ -732,15 +623,9 @@ Il ajoute : « Il est vrai que, l’an passé, je t’ai tant semoncé que tu 
 
 ↑ En 1552. Michel-Ange ne répondit pas : — ce qui blessa le duc. — Quand Benvenuto Cellini en reparla à Michel-Ange, celui-ci répondit d’une façon sarcastique.
 
-↑ En novembre 1560.
-
-↑ En octobre 1561.
-
 ↑ Vasari. (À propos de la réception que Cosme fit à Michel-Ange)
 
 ↑ a et b François de Hollande : *Entretiens sur la peinture*.
-
-↑ A. Piero Gondi, 26 janvier 1524.
 
 ↑ Vasari décrit ainsi les aides de Michel-Ange : « Pietro Urbano de Pistoie était intelligent, mais ne voulut jamais se donner de peine. Antonio Mini eût bien voulu ; mais il n’était pas intelligent. Ascanio della Ripa Transone se donna de la peine ; mais il n’arriva jamais à rien. »
 
@@ -750,11 +635,8 @@ Il ajoute : « Il est vrai que, l’an passé, je t’ai tant semoncé que tu 
 
 ↑ Le tableau qu’il avait fait pendant le siège, pour le duc de Ferrare, mais qu’il refusa de lui donner, parce que l’ambassadeur de Ferrare lui avait manqué de respect.
 
-↑ En 1531.
-
 ↑ Le 3 décembre 1555, peu de jours après la mort du dernier frère de Michel-Ange, Gismondo.
 
-↑ 23 février 1556.
 Michel-Ange termine ainsi : « Je me recommande à vous, et vous prie de m’excuser auprès de messer Benvenuto (Cellini), si je ne réponds pas à sa lettre ; mais ces pensées me causent tant de douleur que je suis incapable d’écrire. »
 
 Voir aussi la poésie CLXII :
@@ -767,27 +649,12 @@ Voir aussi la poésie CLXII :
 
 ↑ Comme presque toutes les âmes sombres, Michel-Ange avait parfois l’humeur bouffonne ; et il écrivit des poésies burlesques, dans le goût de Berni. Mais sa bouffonnerie reste toujours rude, et tout près du tragique. Ainsi, sa lugubre caricature des infirmités de l’âge. (*Poésies*, LXXXI) Voir aussi sa parodie d’une poésie d’amour. (*Ibid.*, XXXVII)
 
-## Solitude
-
-Romain Rolland
-
 Vie de Michel-Ange
-
-Libr. Hachette et Cie, 1908 (p. 161-173).
-
-◄  Foi
-
-La Mort
-  ►
 
 Deuxième partie. L’Abdication
 
 bookVie de Michel-Ange
 Romain RollandLibr. Hachette et Cie1908ParisVDeuxième partie. L’AbdicationRolland Vie de Michel-Ange.djvuRolland Vie de Michel-Ange.djvu/7161-173
-
-# III
-
-SOLITUDE
 
 *L’anima mia, che chon la morte parla*…[1]
 
@@ -842,8 +709,6 @@ La vérité, c’est qu’il ne haïssait plus. Il ne pouvait plus haïr. Il ét
 
 Malheur à moi, fatigué d’une trop longue attente, malheur à moi, qui parviens trop tard à ce que j’avais désiré ! Et maintenant, ne le sais-tu pas ? Un généreux, fier et noble cœur pardonne, et offre à qui l’offense, amour.
 
-⁂
-
 Il habitait au Macel de’ Gorvi, sur le forum de Trajan. Il avait là une maison, avec un petit jardin. Il l’occupait avec un valet,[6] une servante, et ses animaux familiers. Il n’avait pas la main heureuse, avec ses domestiques. « Ils étaient tous négligents et malpropres », dit Vasari. Il en changeait souvent et s’en plaignait amèrement.[7] Il n’eut pas moins de démêlés avec eux que Beethoven ; et ses *Ricordi* (Notes), comme les *Cahiers de conversation* de Beethoven, gardent encore la trace de ces querelles de ménage : — « Oh ! qu’elle n’ait jamais été ici ! » écrit-il, en 1560, après avoir renvoyé une servante, Girolama.
 
 Sa chambre était sombre comme un tombeau.[8] « Les araignées y créaient mille travaux et dévidaient leurs petits fuseaux. »[9] — Au milieu de l’escalier, il avait peint la Mort, portant sur l’épaule un cercueil.[10]
@@ -874,8 +739,6 @@ Cette pompe me déplaît. Il n’est pas permis de rire, quand le monde entier p
 
 Et il le félicita, l’année suivante, d’avoir perdu un second fils en bas âge.
 
-⁂
-
 La Nature, que sa fièvre de passions et son génie intellectuel avait jusque-là négligée,[18] fut, dans ses dernières années, une consolatrice pour lui. En septembre 1556, fuyant Rome menacée par les troupes espagnoles du duc d’Albe, il passa par Spolète et il y resta cinq semaines, au milieu des bois de chênes et d’oliviers, se laissant pénétrer par la splendeur sereine de l’automne. Ce ne fut qu’à regret qu’il revint à Rome, où il était rappelé, à la fin d’octobre. — « J’ai laissé là-bas plus de la moitié de moi-même, écrivait-il à Vasari ; car véritablement la paix ne se trouve que dans les bois. »
 
 *Pace non si trova senon ne boschi.*[19]
@@ -889,8 +752,6 @@ Il n’est pas vrai, comme on a voulu le faire croire,[25] que sa foi ait été 
 
 Le cours de ma vie est arrivé, sur la mer orageuse, par une fragile barque, au port commun où l’on débarque pour rendre compte et raison de toute œuvre pie et impie. Aussi, l’illusion passionnée qui me fit de l’art une idole et un monarque, je connais aujourd’hui combien elle était chargée d’erreurs ; et je vois clairement ce que tout homme désire pour son mal. Les pensées amoureuses, les pensées vaines et joyeuses, que sont-elles à présent que je m’approche de deux morts ? De l’une je suis certain, et l’autre me menace. Ni peinture ni sculpture ne sont plus capables d’apaiser l’âme, tournée vers cet amour divin, qui ouvre, pour nous prendre, ses bras sur la croix.[28]
 
-⁂
-
 Mais la fleur la plus pure que la foi et la souffrance firent pousser dans ce vieux cœur malheureux fut la divine charité.
 
 Cet homme, que ses ennemis, accusaient d’avarice,[29] ne cessa, toute sa vie, de combler de ses libéralités les malheureux, connus et inconnus. Non seulement il témoigna toujours la plus touchante affection pour ses vieux serviteurs et pour ceux de son père, — pour une certaine Mona Margherita, qu’il recueillit après la mort du vieux Buonarroti, et dont la mort lui causa « plus de peine que si c’était une sœur »,[30] — pour un humble menuisier, qui avait travaillé à l’échafaudage de la Chapelle Sixtine, et dont il dota la fille…[31] Mais il donnait constamment aux pauvres, surtout aux pauvres honteux. Il aimait à associer à ces aumônes son neveu et sa nièce, à leur en inspirer le goût, à les faire accomplir par eux, sans le nommer lui-même : car il voulait que sa charité demeurât secrète.[32] « Il aimait mieux
@@ -898,11 +759,7 @@ Cet homme, que ses ennemis, accusaient d’avarice,[29] ne cessa, toute sa vie, 
 
 « Tâche donc de connaître un bourgeois dans le besoin, qui ait une fille à marier ou à mettre au couvent, écrit-il à son neveu. (Je parle, — ajoute-t-il, — de ceux qui, dans le besoin, ont honte d’aller mendier.) Donne-lui l’argent que je t’envoie, mais en secret ; et fais en sorte de ne pas te laisser tromper… »[34]
 
-Et ailleurs :
-
 « Informe-moi si tu connais encore quelque autre noble bourgeois dans un très grand besoin, surtout s’il a des filles à la maison ; il me serait agréable de lui faire quelque bien, pour le salut de mon âme. »[35]
-
-↑ *Poésies*, CX.
 
 ↑ « Les poules et messer le coq triomphent, — lui écrit Angiolini, en 1553, pendant une de ses absences ; — mais les chats se désolent de ne plus vous voir, bien qu’ils ne manquent pas de pâture. »
 
@@ -910,7 +767,6 @@ Et ailleurs :
 
 ↑ Lettre à Lionardo, son neveu (1547).
 
-↑ *Poésies*, CIX, 64.
 Michel-Ange suppose ici un dialogue du poète avec un banni florentin. — Il est possible qu’il ait écrit cette poésie après l’assassinat d’Alexandre de Médicis par Lorenzino, en 1536. — Elle parut pour la première fois, en 1543, avec la musique de Giacomo Archadelt.
 
 ↑ Parmi ses domestiques, je note, à titre de curiosité, un Français, Richard, *Riccardo franzese*. (18 juin 1552. — *Ricordi*, page 606
@@ -918,8 +774,6 @@ Michel-Ange suppose ici un dialogue du poète avec un banni florentin. — Il es
 ↑ « Je voudrais, écrit-il à Lionardo, une servante qui fût bonne et propre ; mais c’est bien difficile ; elles sont toutes sales et débauchées. *(Son tutte puttane e porche)*… Je donne dix jules par mois. Je vis pauvrement ; mais je paie bien. » (*Lettres*, 16 août 1550)
 
 ↑ *La mia scura tomba…* (*Poésies*, LXXXI)
-
-↑
 
 *Dov’ è Aragn’ e mill’ opre et lavoranti*
 
@@ -932,8 +786,6 @@ Michel-Ange suppose ici un dialogue du poète avec un banni florentin. — Il es
 *L’anima e ’l corpo e lo spirto ’nsieme :*
 
 *In questa cassa oscura è ’l vostro lato.*
-
-(*Ibid.*, CXXXVII)
 
 « Je vous le dis, à vous qui avez donné au monde l’âme, le corps et l’esprit à la fois : dans cette caisse obscure vous tenez tout entiers. »
 
@@ -951,13 +803,9 @@ Un autre sonnet sur la nuit, — (*Poésies*, LXXVII) — est de la plus grande 
 
 ↑ Voir aux *Annexes*, XXIV. (*Poésies*, CIX, 32)
 
-↑ *Annexes*, XXV. (*Poésies*, CIX, 34)
-
 ↑ Lettre à Vasari, datée : « Je ne sais quel jour d’avril 1554 ». *(A di non so quanti d’aprile 1554.)*
 
 ↑ Il avait toujours prêté assez peu d’attention à la nature, malgré les années qu’il passa hors des villes, à Carrare, ou à Seravezza. Le paysage tient une place intime dans son œuvre ; il se réduit à quelques indications abrégées, presque schématiques, dans les fresques de la Sixtine. En cela, Michel-Ange est à part de ses contemporains : de Raphaël, de Titien, de Pérugin, de Francia, de Léonard. Il méprisait les paysages des artistes flamands, alors fort à la mode : « des chiffons, disait-il, des masures, des champs très verts ombragés d’arbres, des rivières et des ponts, — ce qu’on appelle paysages, — et beaucoup de figures par ci, par là ». (*Dialogues* de François de Hollande)
-
-↑ *Lettres*, 28 décembre 1556.
 
 ↑ Je veux parler de la très longue poésie, inachevée, de cent quinze vers, qui débute ainsi :
 
@@ -981,8 +829,6 @@ Sébastien del Piombo ayant à peindre un moine à San Pietro in Montorio, Miche
 
 Il écrivit d’âpres poésies, d’un sentiment savonaroliste, contre les sacrilèges et les simonies de Rome. Ainsi, le sonnet :
 
-*Qua si fa elmj di chalicj e spade,*
-
 *E ’l sangue di Christo si vend’ a giumelle…*
 
 « Là, avec les calices, on se fait des épées et des heaulmes ; et le sang du Christ se vend à deux mains… » (*Poésies*, X, vers 1520)
@@ -995,13 +841,9 @@ Il écrivit d’âpres poésies, d’un sentiment savonaroliste, contre les sacr
 
 (Fra Benedetto : *Vulnera diligentis*, troisième partie. Mss. Riccardianus 2985. — Cité par Thode, d’après Villari)
 
-↑ Henry Thode.
-
 ↑ Quand Leone Leoni, en 1560, grava une médaille à l’effigie de Michel-Ange, celui-ci lui fit tracer sur le revers un aveugle, conduit par un chien, avec l’inscription : *Docebo iniquos vias tuas et impii ad te convertentur*. (Vasari)
 
 ↑ *Crucifix, Ensevelissement du Christ, Déposition de croix, Pietà*.
-
-↑ *Annexes*, XXVI. (*Poésies*, CXLVII)
 
 Ce sonnet, que Frey juge, non sans raison, le plus beau de tous ceux de Michel-Ange, date de 1555–1556.
 
@@ -1010,8 +852,6 @@ Un grand nombre d’autres poésies expriment, avec une moindre beauté de forme
 ↑ Ces bruits étaient mis en circulation par l’Arétin et par Bandinelli. L’ambassadeur du duc d’Urbin racontait à qui voulait l’entendre, en 1542, que Michel-Ange était devenu immensément riche, en prêtant à usure l’argent qu’il avait reçu de Jules II, pour le monument qu’il n’avait pas exécuté. — Michel-Ange avait donné prétexte, dans une certaine mesure, à ces accusations, par la dureté qu’il montra parfois en affaires, — [par exemple, avec le vieux Signorelli, qu’il poursuivit en 1518, pour un emprunt fait en 1513], — et par une rapacité instinctive de paysan thésauriseur, qui s’alliait en lui à sa générosité naturelle. Il amassait de l’argent et des biens ; mais c’était, pour ainsi dire, d’un geste machinal et héréditaire. En réalité, il était d’une extrême négligence en affaires ; il ne tenait aucun compte ; il ne savait pas ce qu’il avait, et il donnait à pleines mains. Sa famille ne cessa de puiser dans son capital. Il faisait des présents royaux à ses amis, à ses serviteurs. La plupart de ses œuvres ont été données, non vendues ; il travailla gratuitement à Saint-Pierre. Personne ne condamna plus sévèrement que lui l’amour de l’argent : — « L’avidité au gain est un très grand péché », écrit-il à son frère Buonarroto. — Vasari proteste avec indignation contre les calomnies des ennemis de Michel-Ange. Il rappelle tout ce que son maître a donné : — à Tommaso dei Cavalieri, à Bindo Altoviti, à Sebastiano del Piombo, à Gherardo Perini, des dessins sans prix ; à Antonio Mini, la *Léda*, avec tous les cartons et tous les modèles ; à Bartolommeo Bettini, une admirable *Vénus avec Cupidon qui la baise ;* au marquis del Vasto, un *Noli me tangere ;* à Roberto Strozzi, les deux *Esclaves ;* à son serviteur Antonio, *la Déposition de Croix*, etc. — « Je ne sais pas, conclut-il, comment on peut traiter d’avare cet homme qui faisait largesse de telles œuvres, valant des milliers d’écus. »
 
 ↑ Lettres à Giovan Simone (1533), — à Lionardo Buonarroti. (Novembre 1540)
-
-↑ Vasari.
 
 ↑ « Il me semble que tu négliges trop l’aumône », écrit-il à Lionardo (1547).
 
@@ -1025,11 +865,7 @@ Un grand nombre d’autres poésies expriment, avec une moindre beauté de forme
 
 « Vieux comme je suis, je voudrais faire un peu de bien en aumônes. Car je ne puis et ne sais pas faire de bien d’une autre façon. » (18 juillet 1561)
 
-↑ Condivi.
-
 ↑ Lettre à Lionardo. (Août 1547)
-
-↑ *Ibid.* (20 décembre 1550)
 
 Ailleurs, il s’informe d’un des Cerretani, qui a une fille à mettre au couvent. (29 mars 1549) — Sa nièce Cecca intercède auprès de lui pour une pauvre fille, qui entre au couvent ; et il lui envoie, tout heureux, la somme qu’elle demande. (À Lionardo, 31 mai 1556)
 

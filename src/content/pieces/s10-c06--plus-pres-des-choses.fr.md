@@ -7,25 +7,13 @@ author: rene-salome
 isAvertissement: false
 wordCount: 23578
 ---
-Dee DE LA DIXIÈME SÉRIE | |,
 plus près des choses
 # paraissant seize fois par an \ i|
 Er: B, rue de la Sorbonne, au rez-de-chaussée
 
-CRE MIS RER MUR FATS PARA ENS ee at e GE RE) eine Le
-OT } A re PAR NO ss DAS UD ERA
-tes At ‘LRO YA
-
-Re ln ce os ! re
-# : 00
-#10 L
-#
-
-ce Hre Mie RE RES e PA SET TEA ins LIRE RENTE ES 42 MOINE,
 Nous avons publié dans nos éditions antérieures et n
 dans nos cinq premières séries, 1900-1904, un Sù
 grand nombre de documents, de textes formant dos-
-- siers, de renseignements et de commentaires; — ur w
 ; si grand nombre de cahiers de lettres, — nouvelles,
 | romans, drames, dialogues, poèmes et contes; — un
 si grand nombre de cahiers d'histoire et de philo-
@@ -55,11 +43,6 @@ s'abonnait rétrospectivement à la sixième série le recevai , par le fait mê
 série; nous l'envoyons contre un mandat de cin ancs
 à toute personne qui nous en fait la demande. à
 
-x EEE Sad hi ES TES MEL 5 E
-à Ne Ft Fer RCE te
-| NT 1À
-
-#1
 à aux Cahiers de la Quinzaine
 er Le présent petit index donne automati-
 # quement pour tout volume et pour tout
@@ -71,7 +54,6 @@ LL du cahier lui-même, dans la série ainsi
 - déterminée, en chiffres arabes, de sorte
 n] que V-17 par exemple doit évidemment se
 1 lire dix-septième cahier de la cinquième
-k b) la date du bon à tirer, ou, à son dé- :
 t- faut, la date du fini d'imprimer, ou, à son
 « défaut, la date du cahier même;
 L _ c) le prix actuel;
@@ -80,25 +62,17 @@ d) quand il y a lieu, c'est-à-dire pour nos
 ; mières séries, la page du catalogue analytique sommaire où ce cahier se trouve
 ve René Salomé, — Vers l'action (I-2, 17 décembre 1900...
 — — courrier de Belgique (I-18, mardi 10 juin 1902.
-à un franc 153
 E — — Monsieur Matou et les circonstances de sa vie,
 …—. avec le portrait authentique de M. Matou (IV-8, samedi
 È — — par le chemin des souvenances (IX-7, mardi 24 dé-
 007 on cute mpe 19 à JON
 ,
 
-SE AT PSS ES PR 2 PT er a CE Le et Re | 4 acte E
-RÉ EU Dee DA QUE RSA Ce te CSS ENT NT OT LOI CR STORE ENCRES
-D NP de D
-
 plus près des choses
-
-ss 2 M or RS RE di ne
 
 à la mémoire de notre ami Eddy Marix
 plus près, — 1,
 
-#0 MI F ES
 HER Île feuillue, ceinturée de porphyre A
 ARE | ba feuillue, ceinturée de porphyre et d'algues, -
 “ Faisant traîner sur le flot qui rit et divague ; :
@@ -108,7 +82,6 @@ ARE | ba feuillue, ceinturée de porphyre et d'algues, -
 Ile feuillue où se vivifient les narines s F1
 __ Aux baumes résine:'x des cèdres et G2s pins, 4
 
-DRE PR" DL Pet PAR EPA EEE RE ESS ER
 Et dans la même bouffée d'air, au soufile sain
 Des eaux salées qui de toutes parts s'entrebâillent, :
 Tu nous as dit, du haut de tes rouges murailles, ;
@@ -129,8 +102,6 @@ Fugitive et défie leur appel et leur course
 Et la prise de leurs mains griffues et velues.
 Et vers le soir g »rçons el filles se äiluent
 
-5 D RTE TMS Ut BU rm RÉ a ET SA TE SIP
-8 RSR EE et LT PISE EN
 ; _ En poudre mauve ou ambrée que l'on voit s'étendre :
 ; Au ras du sol, ou disparaissent dans les antres À rer,
 Que dérobent le lierre et les vignes sauvages. 4 AU
@@ -199,7 +170,6 @@ Soulevée en troupeau de fumantes génisses ;
 
 La brume sans lumière et sans voix où l'on glisse
 
-EP CRT Cv Te TE EE Ze TL de: SE
 | Parmi les ombres des défunts; les eaux changées me #
 _ En sang visqueux; la nef lente à se dégager Fe >
 EDS l# plaine liquide étoupée d'herbes grasses; re
@@ -256,7 +226,6 @@ Or là, sous les rosiers grimpants et les glycines,
 Ce petit clos où la lune frôleuse étire
 Son léger voile ourdi par des femmes de Tyr,
 
-PLUS PRÈS DES CHOSES é ste
 Est la maison d'un artisan qui vint des îles à 1
 _ Qu'on dit flotter sur des flots d''hydromel ou d'huile
 Au pays qui sait l'art de façonner l'argile
@@ -288,8 +257,6 @@ _  Tendent la toile humide aux angles d'un rocher
 _ Du fleuve qui circule en son âme tranquille, +
 _ Ce potier fait tourbillonner la molle argile,
 
-A3 _ La bombant de la paume et la creusant du pouce, N
-
 _ Et l'eflile, et l'évase en calice, et retrousse :
 
 ; 14 Les bords déchus et effondrés et — la nuit douce
@@ -318,9 +285,6 @@ O diligente, il est l'heure de reposer,
 Car le dieu seul parmi la lune et la rosée
 Peut sans péril se répandre en clartés fuyantes.
 Toi, tu es lasse, et l'huile a tari dans la lampe
-
-A RU ne Ne SN LR au ne TES A
-|. NÉS RIRES MEL
 
 Re Daiotre que ton père a façonnée jadis ;
 _ Tes yeux ne suivraient plus tes doigts en leur office,
@@ -371,7 +335,6 @@ Elle y songe pourtant ; car un jour, au marché,
 Des vendeurs de peaux d'ours, de cailloux verts et d'ambre, à
 Massifs, vêtus de poils conquis parmi les antres, |
 
-PA 00 Merus rRès DES cross + ©
  L'œil aigu et les bras cerclés d'or et de cuivre, y JS RER
 _ L'ont frôlée et lui ont fait signe de les suivre, Eee k
 _ En souriant et décelant des dents pointues, se
@@ -414,7 +377,6 @@ Car plein de ton image glissante, hanté
 Des mouvements divins que ton labeur accuse,
 Plus fier, il pétrira le sol au gré des Muses.
 
-FES ET ee
 _ La bibliothèque a deux fenêtres File
 + A bibliothèque a deux fenêtres qui s'ouvrent, LÉ
 4 L'une au gazon bordé de tilleuls chuchotants, Ces
@@ -424,10 +386,6 @@ Jusqu'au mur où le poulailler caquette et glousse. tr
 Dar s la bibliothèque il fait moile et tranquille, sa
 Le. 25 plus près. — a f
 
-RUE RQ M ANR or CEA ET NE FE
-
-Me ne NS Om doi
-ÉVÉRNTEEA ne MERE RASE IAE PEL ARE OR PR eo Et
 a _ Il y règne une odeur de cuir, d'encre de Chine,
 pee è De vieux bois que jadis on nommait bois des Îles SCENE
 __ … Et aussi le parfum des livres qui somnolent
@@ -438,7 +396,6 @@ TUE Ou des vieillards ou des ombres des jours passés. Ne Se ;
 
 Pa qi Le petit être obscur et f'ou dont les pensées
 ne Ressemblent aux buées qu'on voit sous les ramures
-Ne Se faire et se défaire aux jeux du crépuscule, À LL Ra
 Fa Est là souvent juché sur un haut tabouret 1 La é
 . ., D'architecte et s'occupe à d'àpres écritures KE RS
 
@@ -449,18 +406,14 @@ es d - Les iivres n'ont pour lui pitié ni indulgence Re.
 re Férus d'orthodoxies, de disciplines rances. a So .
 “ROSE Ils s'indignent des doigts saccadés et brouillons, SSH
 se Des petits doigts sans méthode et sans assurance,
-dd . Je SRRTATERSE
 Pr _ Car ce sont livres d'assurance et de méthode, Se ras Ds
 “A 3 Leurs raisonnements sont de bons raisonnementst
 He 4 É. Leurs jugements sont des lois et des vérités : RÉ ER
 RS Et ils n'ont de penchant que pour l'autorité, ('IALeS #0
-ne Le mot aflirmatif et le gouvernement; \ Fa VAS
 LS Surtout ceux-là qui recherchent et qui expliquent SR
-; RE Les liens du physique et du psychologique LE re
 
 Le (Car tout dans leur esprit s'enchaîne avec rigueur).
 
-| PLUS PRÈS DES CHOSES roi
 Mais l'enfant persévère en sa damnable erreur a
 … Et n'entend point leurs critiques et leurs murmures. on
 Ses lettres et ses mots ne font ni rues, ni murs, La
@@ -471,14 +424,12 @@ Où l'on cheminerait en pensant aux atomes 2
 En des jardins purgés de rêve et de mystère, is
 _ Etaux façons de se représenter l'éther LE
 … Par des schémas qui nous sont venus d'Angleterre Sr
-AN ÉCISRRES L ho
 … Et qui sont des engins de sport ou des machines. En
 _ L'enfant, loin du courroux qui mijote en sourdine, .
 _ S'extasie au fouillis noir de son écriture s TA
 _ Etil y voit tout ce qu'il sait de la nature, :
 _ Tout ce qui tous les jours le hante et le caresse |
 - Etfait monter en lui des joies et des détresses ;
-à Et se condense et s'évapore en un moment. ù
 _ y voit les fourrés au sein du bois dormant .
 _ Avec des troncs moussus qui sortent des arbustes
 - Et des licornes ou des guivres qui s''embusquent ; LE
@@ -536,7 +487,6 @@ kr Mais ce courroux lointain ne trouble pas l'enfant 1 OCR
 Et du dehors voici qu'avec un long murmure eat
 _ Et des parfums, les arbres el les arbrisseaux « _ S'allongent et font un grand voyage et pénètrent ra
 _  Discrètement, comme un zéphyr, par la fenêtre #
-£ _ De la bibliothèque et viennent au bureau L
 Ds. Et là, feuillus, chargés de fleurs, grouillants d'oiseaux, =
 4 ne penchent au cahier où l'enfant fait éclore Ù
 Ce noirâtre univérs dont la faune et la flore :
@@ -569,7 +519,6 @@ La femme de Pierrot, notre garde-champèêtre ;
 Et sous le bercement des trembles et des hêtres,
 Voici venir un cerf escorté de trois biches;
 
-nu Et fi
 _ Et voici tout le long des chaumes et des friches 6
 E tout le long des haies noires des chemins creux, .
 | S'approcher de vieux paysans qui sont noueux, Je
@@ -595,7 +544,6 @@ Ki Sous l''envahissement des choses en démence ;
 _ Etle reflux des multitudes végétales
 R a Et des bêtes se répandent en Bacchanales ni
 2 Et en forme de houle et en courses sous bois 4
-x Et en chants de pipeaux, de cor et de hautbois
 _ Eten lumière ou en frissons de chairs dorées
 
 Et en beaux déploiements de cheveux décorés
@@ -605,8 +553,6 @@ De se voir submergé parmi ces flots vivants
 De nature imprégnée de parfums et d'aromes,
 Et où dans la feuillée que hante un léger vent 2
 Pointent ici et là les oreilles d'un Faune.
-
-|
 
 2 Ce parchemin bruni et ridé
 
@@ -654,10 +600,6 @@ Er La clarté monte en jets diffus de houblonnière. TRS] "4
 ” Et sur le chapiteau d'un pilier nain le lierre AE
 és Et la vigne parmi les fuseaux de lumière ii LS
 
-ET MO en CAES MSC EE
-NÉ RES enr EE ER CE
-Ter. ne
-PLUS PRÈS DES CHOSES ; vu
 _ Tendent leurs bras chargés de feuilles et de grappes AS
 % Qui chuchotent bizarrement et d'où s'échappent £
 | Les souflles végétaux des champs — Et la cellule
@@ -685,7 +627,6 @@ Du son des flots heurtés sur les dunes frisonnes
 . Les saints moines ont baptisé, absout, bénit
 … Les mers crayeuses, les étangs, les forêts, nids
 
-NN 2 Ro A ARS a A OA a PR EG NE Ace ee
 Se _ De dieux glauques et verts qui rampent et qui grimpent,
 Le Les cavernes hantées de naïns riches en feintes GRIS
 se Et en métiers, les idoles taillées dans l'orme, CA.
@@ -713,9 +654,7 @@ Dont le sang noir s'égoutte au duvet de leurs joues; De ‘1
 De cèdre et des dauphins et des juments piaffantes < D
 Et des filles vêtues de coquillages fendent L'1RUteS
 36 44
-#4
 
-| PLUS PRÈS DES CHOSES DAT
 Agilement parmi les rires et les rides :
 Entrebäillés sur l'eau = Et sur le plan liquide ' |
 Se mire une cité blanche qui est sans doute ;
@@ -739,13 +678,10 @@ Et le manuscrit d'où ces apparus rayonnent, :
 Le manuscrit gonflé, palpitant, divisé,
 … S'éparpille en essaim de colombes, rosées
 
-#4
-
 D aurore, qui vont indolemment se poser
 Sur les rameaux jaillis de la terre du rêve —_—
 Et la liseuse sent des bras qui la souièvent!
 
-‘5 Fille entrevue.
 ExILLE entrevue sur des feuillets de parchemin
 > Remplis de votre apport et de vos hoirs futurs,
 Et noircis d'un grimoire touffu, par la main
@@ -754,8 +690,6 @@ Vous n'éliez pas si bien dissoute et endormie
 L ans ces dossiers fleurant la vieille encre et la poudre,
 Jar vous ne cessez plus, à lointaine, d'en sourdre
 En eau fraîche ou en bourgeonnement d'émeraude
-
-es ë L
 
 à Et votre image autour de moi s'installe, et rôde et
 A pas discrets de souris et de Carmélite.  :
@@ -813,7 +747,6 @@ Qui tinte et carillonne et siffle et ronfle et grince,
 Un mail planté d'ormeaux où s'élouffe la brise.
 d Et vous êtes là-haut taillant une chemise
 
-: René Salomé LES
 Dans la toile de Flandre au coin du feu tissée +
 Et qu'à la foire on vous a vendue l'an passé, 5
 A Saint-Denis, devant que d'aller, à Javotte, L
@@ -840,8 +773,6 @@ Car votre père est avocat au Châtelet
 Et cite les auteurs d'Italie ou des Gaules
 Fort proprement, quand il a griffonné ses rôles
 
-ER Le D mie à MOINE nb es MR
-| à * x ° 100
 On bavarde. On m'apprend que vous serez quêteuse L'ARE
 A Ja Saint-Jean, et vêtue d'un damas genêt, es
 En l'église Saint Nicolas du Chardonnet, Eur
@@ -861,12 +792,9 @@ A la Saint-Jean, vous ayant prêté mon laquais %
 P our vous servir de page, et tous vos afliquets FN
 Seront choisis par moi chez les bonnes faiseuses. A Œ
 Pour la première fois vous semblerez heureuse \4
-4 ci on
-#4
 
 De me voir, et je vous conduirai par la main,
 Fille entrevue sur des feuillets de parchemin |
-| S
 
 À VF Le vieux porte-carte en crocodile
 {4 Bien des années parmi l'ombre du secrétaire;
@@ -876,8 +804,6 @@ EL: Comme au sein d'une Administration d'État.
 Son cas est vraiment si moderne et si banal!
 F _ N'envions point sa vie dormante de canal,
 
-© René Salomé Le
-LR LE ER EN ee ee tp gp
 N'envions point le crocodile bureaucrate, c 1
 Car son histoire sans événements ni dates, b:
 Son histoire sans dieux, ni héros, ni martyrs, 5
@@ -905,11 +831,9 @@ Puis la carte (sur bristol fin) d'un pédicure
 Et l'avenir qui germe chez nous aura cure
 Des confidences de ce précieux paquet.
 
-+ RP Se qe RE LU Eee NME à Cet de ee UT Le # DNS SE
 O porte-carte en peau rugueuse, tu craquais : “à
 Autrefois de métaphysique et d'aveux FOR
 D'amour et de grands vers tirés par les cheveux ci
-Et de projets de tragédies et de romans Lt
 _ Et de billets sertis de feuillus ornements +4
 … Où roucoulaient des colombes sentimentales +70
 Tu étais un boudoir qui rit, un hôpital <
@@ -925,7 +849,6 @@ Des hasards trouvés et cueillis Le long des jours, 4
 14 Et te voici fonctionnaire et bureaucrate, 1e
 4 Parmi la nuit et la poussière qui te cernent ! #
 _ Ton cas est vraiment si banal — et si moderne L
-j DR SA L se
 
 nu piquais dans la soie des épingles ténues ; à
 “L L'Automne aux alentours et sur les avenues : ÿ
@@ -934,8 +857,6 @@ Tu nr'as dit : « Au fin fond de mes primes années,
 Lorsqu'enfant j'habitais un vieux logis bien sage
 Et que par les casiers des boîtes à ouvrages
 
-PR RTE A UE UT D RC SJ Se ne D Met s
-ie ft PRIT een D Ut au PT ET
 Mes doigts faiseurs de désarroi se promenaient ie
 .% Palpant les souples écheveaux, le cordonnet, ee
 Le ruban, les boutons d'os et de porcelaine, : ss
@@ -944,11 +865,9 @@ Les dés, 1 d a ards, les bas de laine à
 { _ Qu'on tricotait au coin du feu en devisant, n ï
 ‘4 J'ai trouvé ce qu'on ne trouve plus à présent, |
 _ Des épingles à double tête, au corps trapu,
-._ A la pointe inflexiblement droile, et j'ai pu |
 “010 Dialoguer avec elles dans leur langage. L
 _ Car muettes aux vieux, ces épingles ménagent :
 __ Aux petits des leçons charmantes et des contes +1
-ne
 _ Et s'abstiennent de toucher au bel acier mat |
 nu Elles avaient ces épingles de vieille date i
 Es. Uni sur de tendres cœurs nourris de fadaises È
@@ -962,7 +881,6 @@ _ Ah! ces épingles, je revois leur front qui pense
 _ Et connaît; je revois leur taille ronde et forte!
 Pour moi chacune était faite et marquée de sorte
 Pa. Qu'elle était une vraie personne, différente
-ne”
 
 ec En traits, mœurs et goûts de Mesdames ses parentes SEE
 Ou compagnes logées dans le même réduit. FES
@@ -980,9 +898,7 @@ Le grimoire des soies plissées où ils cheminent, “e
  -
 Fixaient les petites épingles anonymes. FES
 
-L'outillage menu ——
 4 -
-|
 
 -
 .
@@ -993,12 +909,9 @@ L'outillage quotidien dont Lu ne penses
 ê Ni bien ni mal, dont on ne pense rien ou guère,
 [ Parce que ce seraient des pensées terre-à-terre,
 | L'outillage dont tu ne saurais Le passer
-| l
 | Pour tes ouvrages ondoyants de gynécée,
 | Rien n'en reste dans les choses ni les mémoires
-|
 ,
-|
 
 Quand il a disparu des coffrets, des tiroirs, 2
 ; Des étuis, du vieux linge en charpie et des loques Ne
@@ -1024,7 +937,6 @@ Ne sont plus là pour te raconter les vieux ans, |
 Les fileuses, les brodeuses, les artisans
 Minutieux qui des ciseaux et de la lime
 
-re SOU NES es et CRE ; « F TVR vi
 _Taïllaient les membres fins de l'outillage infime Pa Re
 Dont le maniement s'accompagne de légendes, 4 Fe FR
 De chansons, de récits d'un autre âge, et se scande , CE,
@@ -1033,8 +945,6 @@ _  L'outillage menu des elfes et des fées ù si
 Fe) S'est dissout dans l'éther où tant de passé vogue, LL. #
 Pour n'être point classé par les archéologues. Aie
 
-#
-: _ Tu te ris de ma bibliothèque ___—
 1h {e ris de ma bibliothèque tournante
 L'hiver, lorsque nous devisons près de la lampe
 Et que tes doigts manient des chiffons écroulés. -
@@ -1042,19 +952,15 @@ Et tu me dis, laissant ta douce voix couler . 1
 En eau fraîche qui tasse et peigne son lit d'herbes
 « Tes livres sérieux et recueillis s'énervent |
 
-f KL e À D LE RE PTE 2 UNE Nbr Tor
-JUNE ARS si S PEN QUE
 _ A la longue de leur sagesse d'écoliers ; He
 _ Is rêvent de feuillets minces éparpillés A - 5
 ; _ Dans la brise et de majuscules qui tournoient + FRS
 Fe Et de signes menus présentant leur minois ; piece
 _  Enfantin au cristal imagier des fontaines es
-ie É ou
 _ « Ils se donnent un peu les âmes incertaines : 1
 -_ Des tout petits qui se plaisent à imiter Me 10
 # La danse des objets dansant à leurs côtés es
 _ Et pour eux seuls, des danses pour nous invisibles. Poe
-_ Car l'Histoire, la Littérature et la Bible USE
 5 _ Savent que le délire est aux sources de l'Etre es ©.‘
 4 14 Et qu'il faut délirer quelquefois pour connaître : de
 _ Ce que n'atteint jamais la bovine raison ph
@@ -1090,7 +996,6 @@ Be: Déchiquètent, le diaphane et vaste pré
 ï: né Du ciel où les tempêtes sans merei chevauchent.
 ; 5 Elles ont pris jadis un élan roide et gauche,
 +4 Jadis au fond des temps où croissaient leurs aïeules {
-D Et ont de degré en degré, de seuil en seuil, Fr ë
 -s Laissant les frêles et les blessées à mi-pente, EE
 Ex Atteint la roche austère et glacée dont les fentes Les
 Lie Abritent leur pelit corps nerveux et tassé. à
@@ -1123,7 +1028,6 @@ Vers les étoiles défilant, rieuses naines,
 Entre les pignons et les flèches écarlates.
 Mais, vois ces autres fleurs, pinceaux noirs à stigmates
 
-PATES A DNS Vire moe RE Le) Let ou Vie
 PiGr sâtres, qui tragiquement dressent la tête 1 ÉFOIRE
 . Comme pour écouter la venue des tempêtes PES
 _ Ou l'approche de la destinée aux pas lourds. . =
@@ -1146,7 +1050,6 @@ _ Mais vaincues et flétries, les obstinées remächent LR
 Ÿ Profondément leur appétit de libre espace, 1 ë
 Et sûres du prochain désastre, elles s'enchässent Ë
 Mieux que jamais entre les dalles congelées,. LE
-# a = te
 
 O frileuse qui vas glissant dans les allées
 De nos tièdes jardins et dans les chambres closes, à
@@ -1160,9 +1063,6 @@ Et les efforts constants et les travaux obscurs
 Écarlates et nus que la tempête hante ————
 Autour du vieux chapeau se meurent les vaillantes.
 
-TE TENTE SES ag LEP
-
-‘4 Feu du ciel, je l'ai vu.
 4 | Fa du ciel, je l'ai vu souvent dans l'humble vie
 Fe Doucement cadencée aux rêves du logis, .
 _ Les soirs d'hiver quand rôde en moi la nostalgie
@@ -1172,7 +1072,6 @@ _ C'est dans la salle ornée d'assiettes et de cruches
 _ Cependant que les doigts ravaudent et tricotent
 … Et que discrètement bourdonne la parlote :
 Où lon gémit de ce que les mœurs dégénèrent ;
-# pe
 
 Et le chat blane, familial et sanguinaire, ox
 : Ronronne près de moi devant le bois qui chante a
@@ -1207,8 +1106,6 @@ Ta voix close dans la fonte semblait poursuivre ;
 
 Un discours violent de nuée qui s'approche.
 
-Je V'ai revu en banderoles et en floches
-
 Ondoyantes rôder sur l'or d'une omelette, ,
 
 Gondole naviguant dans la nuit violette
@@ -1223,8 +1120,6 @@ Tu te jouais en phosphorescence marine
 
 EL tu grimpais vers les épaules, vers les yeux,
 
-AT LA QE NS SAONE TAN ten Re Dan :
-. ee RSS Ce à Pè Sa tÉe PAT NE
 Vers les nez étonnés des enfants curieux, LR
 Vers les cheveux cendrés et bouclés d'une aïeule. |
 Et les cloisons vêtues de rameaux et de feuilles, “si
@@ -1249,8 +1144,6 @@ _ Pendant la course des aiguilles sous la lampe, -
 … Bien des choses et bien des âmes murmurantes, |
 _Agni le bienfaisant, l'éternel, feu d'ici,
 
-LRO HAT ue As RE An NE ds RAR rs EU
-Feu de chez nous, chanteur de mythiques LÉ Hes) ni AU
 Fe “2 _ Confident des jours clos jadis entre nos murs, da a a
 Se ne. Ame des actes et des ouvrages qui durent Us $
 ne Et dureront tant qu'il y aura la maison, DEL 1208
@@ -1262,8 +1155,6 @@ HN Pr Et fais que les petits se tenant à genoux SUN
 ss RE Devant toi quand un soir d'hiver cause ettricote, _
 _ Entendent dans tes voix la rumeur des Cyclopes ——
 
-> i ds"
-. #2 Le thé chante —— è Mr
 4 n" LE thé chante, la soie filtre l'or, la soie craque; 5
 # Tes doigts précis me jouent des fugues du vieux Bach
 _ Et ton âme joyeuse et féconde s'épand. ni
@@ -1294,8 +1185,6 @@ Dès l'aube visiter les pauvres des villages, 8
 Sourit à la beauté des petiles mésanges 3
 Et prend dans son bissac un pain de chien, qu'il mange À
 
-PR de non ne
-RAT leLus Rés DES cross "2
 D'un cœur humble et joyeux, en admirant la grâce ie
 Qu'il a reçue de réparer ses forces lasses. He .
 Et tous deux dans cette solitude automnale, ae
@@ -1322,7 +1211,6 @@ Et l'enfant inquiet des choses qui l'enivrent : :
 … Par les cygnes ployant leur long cou sinueux,
 f Par la buée qui voile, en rôdant, les prairies.
 
-D NN ne RP AR PRE EE
 LE a 7% Mais le vieux maître est plein d'onction, et sow IR
 En signalant des oies sauvages dans l'espace. “
 Ayant fini son pain de chien, il ditses grâces, NÉE
@@ -1334,10 +1222,6 @@ STE La ville de clinquant ne tient plus nos pensées. Dee
 ne Je sens tout près de moi ton âme balancée, MU.
 st Et les ombres des solitaires se dessinent RL
 ta TES Dans ton salon de ménagère accorteet fine. ne Re
-| x | oc À EE
-
-NS 20 hate te) Ta
-#
 
 4 Levlong du Jour d'été
 + long du jour d'été qui bourdonne en suspens
@@ -1348,7 +1232,6 @@ L. Le marronnier dans la paisible cour épand
 Ë D'un côté le jardin, en face la cuisine
 | 69
 
-| à René Salomé e :
 Où sifflote la voix constante des bouillottes ; 34
 Puis un mur où le lierre obseurément chemine, 5
 ? Au plâtre lézardé agrippant ses menottes ; 6 724
@@ -1369,8 +1252,6 @@ Et l'ouvrage ruisselle et jaillit, et des flots %
 De gaîté par accès montent du sein des femmes. 14
 Le grave marronnier semble étaler des palmes
 
-NT Re CU à Pre NE à ci ME
-PT ee hMr.#A ES bé es EP ee + APiL Ce Ut
 Ri tuellement sur des têtes de sultanes, ER Le
 Car son bois est hanté d'une âme orientale, “AS Ne
 E etqre dieu hindou y continue son rève ë o = L
@@ -1411,7 +1292,6 @@ Dont les filles ont le secret et la cadence. à
 Et tout cela frémit de sourires et danse
 Une danse étouffée de Naïade entrevue. : ; À
 Au loin, ce sont les vêpres des champs qui remuent |
-À peine, et la respiration du village. à
 Ici près, le jardin aux arbustes bien sages |
 Qui méditent les actions du jardinier,
 Et la cuisine où le murmure coutumier :
@@ -1421,12 +1301,7 @@ Et les rires et les gestes vaillants y volent,
 Et la toile blanchie est une voix qui chante.
 Le marronnier déploie son ombre bienfaisante.
 
-RUE PS) SAR eng te en) Cas RUE QUES a. L70 5%
-> ee PS PT PNTEeE nr zut WLURS Mr » CE Es Ts
-UNE NPA LUE À gore VARIE MR Et AN ce
-A, ‘ RP Te ne he
 ke A. La chambre bleue dormait —— RAM <
-ER u Moi CODES
 + A chambre bleue dormait sur la petite cour A - « 11 Où le bon marronnier avec ses rameaux lourds cf * ‘
 Versait de l'ombre et de la fraicheur aux laveuses. 4e
 es feuilles, éventails de reines paresseuses, A: #4
@@ -1436,7 +1311,6 @@ Sur le marbre rafraichissant du secrétaire, Sn:
 Meuble empire, tenancier des graves mystères LP
 Familiaux qui font que la maison chuchote. Je
 
-Sa René Salomé : DJS GRAS
 O chambre bleue, douce et somnolente dévote, “
 Amoureuse de vieux parfums ei de pénombre, :
 Te revoici, volets clos, et des mèches blondes 8
@@ -1462,8 +1336,6 @@ Comme accablées de paralysie et de goutte,
 Poursuivent néanmoins d'un pas constant la route
 Qu'elles firent pour nos aïeux et nos aïeules.
 
-LA CRÉe ; que
-| PLUS PRÈS DES CHOSES : |
 _O chambre bleue qui sens la sauge et le tilleul
 Et le camphre et la désuète bergamote
 . Grâce aux deux montres dont les aiguilles tremblotent
@@ -1481,7 +1353,6 @@ _ Et ressassées, mais qui plaisamment se déclenchent ;
 …_ Sa voix a des trottinements de souris blanche ï
 . Et des empressements de petite bourgeoise
 Qui reçoit des cousins de province et, grivoise, l
-#1 ? -
 Leur narre en caquetant les scandales du jour.
 # Elle sait pénétrer les meubles d'alentour
 _ De son humeur dansante et parfois querelleuse ;
@@ -1519,10 +1390,6 @@ Des musiques de marche et des bruits de métal.
 O chambre bleue révant d'un rêve végétal
 Et te parant de perles de feu qui s'étalent
 
-fs ES D AE 0 1 Du nt LE PS Perd) RER ee -NT par tri re
-de de A TIR et DR TRS PTE AT ET NEA
-L se Babe ER A ET ET RAS LT ECS 2 AT © EEE
-AÉEr TO Less Mes RL tr D APE ARANE LA
 En écli 8 sur ton tapis et sur tes murs, PE pri
 pe mes plus que tout somnoler au murmure . ee
 De luth ou de satin froissé que font les heures 1%. 5
@@ -1535,8 +1402,6 @@ QT es efforts patients des mains et des pensées VAS 4
 2 , de sa persistante et robuste poussée, ar
 Fait craquer les cloisons de ton rêve fermé, NE
 . O chambre bleue, dormeuse obscure et parfumée. <e
-pe Le
-#i e
 
 J'ai révé que le marronnier
 - ?A1 rêvé que le marronnier de notre cour,
@@ -1549,7 +1414,6 @@ Avec des ombres de géants et de vieux mythes,
 J'ai rêvé que le marronnier, paisible ermite
 Qui poursuit dans nos murs ses premières exlases,
 
-#4 PLUS PRES DES CHOSES Ç
 é _Commençait un voyage très lent et dont les phases
 4 Duraient chacune beaucoup plus de cent années.
 _ O voyageur feuillu de mon rêve étonné,
@@ -1569,9 +1433,6 @@ Et sur tout el sur Lous, ton ombre se déverse
 - Avec la mème paix et la même bonté.
 Je Le vois somnolent auprès d'une cité
 Qui mire le tissu fin de ses pierres blanches
-
-|
-|
 
 En des flôts ciselés et bombés d'où s'épanche
 Le chœur léger des voix de déesses qui jasent.
@@ -1598,7 +1459,6 @@ Tu muses, pèlerin songeur et délicat
 Sur les chemins que l'humaine cohue marqua
 De pas fuyants tournés vers le déclin des jours.
 
-: _ de te retrouve au pied de l'église d'un bourg Fee FES F.
 *, ae gros remparts, de tours et de fossés. Ne g 4
 _ Les cloches, dans la cage obscure balancées F0
 ‘a Disent un chapelet de proses monastiques. , ER
@@ -1676,7 +1536,6 @@ Sous la fenêtre du philosophe tranquille,
 
 Tu poursuis près de moi tes premières extases.
 
-Lie Ne Ne Nite Nite Née Wice ES
 E La bague des aïeux — :
 BON A bague des aïeux me confie sa pensée;
 2 1F La bague des aïeux, lourde et cadenassée
@@ -1726,7 +1585,6 @@ De la voir tout-à-coup rompue et dispersée :
 l Renaissent finement sous l'intime silence
 À Des heures d'autrefois, un peu sèches et prudes,
 | S'installent, se dérident volontiers, racontent
-Ce qu'il en a coùté d'audaces, de mécomptes,
 De jours patiémment taillés et ciselés
 ] Pour faire la maison durable et bien calée,
 ; Et comment tel vieux bisaïeul ou trisaïeul
@@ -1759,7 +1617,6 @@ Qui peuvent féconder les faits et les discours.
 Aux filles, aux garçons elle apprend le retour
 Dans les mêmes instants des mêmes disciplines.
 Son geste, selon qu'il se relève ou s'incline,
-Dit la Loi de l'effort, du manger, du repos,
 Soit qu'il faille pousser au pâtis les troupeaux,
 Soit qu'il faille rogner les pousses des arbustes,
 Soit qu'il faille arracher les herbes qui s'incrustent
@@ -1769,7 +1626,6 @@ La violence aux biens qu'ont fondés les ancêtres,
 Soit que le père, dispensateur, juge et prêtre
 Divise les quartiers de brebis et de porc,
 
-Ce: 2 ne DPI ADR RTE paie ea)
 _ Soit qu'aux pointes des peupliers qui s'évaporent RAS Ur as
 | Vesper luise, annonçant le cortège des ombres, 1 ES Fa
 Fe La bague des aïeux empêche de se fondre, » }
@@ -1794,7 +1650,6 @@ ka4 Ton rêve se balance un peu flou, un peu ivre pe
 ; Sur les torches, les cris, les danses, les étreintes D +
 - 89
 
-|
 La noce va dessous la nuit d'étoiles ceinte;
 Elle conduit au seuil de l'époux l'épousée;
 Mais dans ton rêve fou de déesse grisée,
@@ -1810,8 +1665,6 @@ Des destinées couvant leurs embüches de bêtes;
 I! est le tourbillon d'amour et de conquête
 Allant dans l'avenir ambigu s'enfoncer
 La bague des aïeux me confie ses pensées.
-
-#4 ,
 
 ; Les grands soleils du petit jardin
 
@@ -1847,15 +1700,12 @@ Tu ne lis plus, il te semble que tu l'éveilles
 Dedans un crépuscule archaïque de livre. à
 Les grands soleils du mur et les soleils de cuivre
 
-LEE tes PRÈS DES KE ENS Fer Er
 Te salnent en princesse et te font les yeux doux; Fr 4
 Les rameaux d'un laurier s'approchent de ton cou FA +4 "
 Et huchotent des compliments en madrigal; FIM à
 "La petite maison basse et fourbue s'égale re ns
-. Par l'ampleur et le style au palais de Versailles. : ER pa
 Au jardin clos sont un Amour et des rocailles, : SP
 Elles et lui moussus, mutilés et noircis, 1. IN
-ER. Ras JE ë FR SENS
 _ Mais tout se régénère au miracle précis ; ! dei
 _ De la soirée qui feint d'être une renaissance. TA É
 _ Les grands soleils du mur et les autres l'encensent; SUR
@@ -1868,10 +1718,7 @@ _ Aux vasques fin veinées d'un pare imaginaire.
 x Que feras-tu pour te divertir et berner s #
  L'ennui si naturel aux personnes bien nées? |
 
-ne ÉTEUE
-
 ss Les grands soleils ondoient, à majesté récente;
-# fl
 _ Ceux de cuivre sourient de leur bouche décente; } s
 2 les cloches te carillonnent du Lulli. PS
 
@@ -1902,11 +1749,6 @@ _ Les grands soleils dorés l'approchent et tournoient ;
 Ne _ Pronostiquent, pendant que l'ombre s'accélère, .
 __ L'automne des grandeurs et des pompes solaires.
 
-#
-Les
-de
-
-ie : je PR ee
 | ET noir, le chat blanc et le Terre-Neuve,
 Avec l'enfant, voilà les seules gens qui peuvent
 Être admis aux secrets paisibles de l'album. ;
@@ -1928,13 +1770,11 @@ $ a vec des visions l'enfant et les trois bêtes, L EN
 Le plus sage, le plus calme, le plus honnète Cr LT
 _ En sa façon d'écouter et d'être courtois, - ANT LE
 Celui qui rend le plus simplement ce qu'il doit Per
-…_ À l'âge et à l'expérience de l'album, % Rs
 _ Le plus homme du monde et le plus galant homme, une ic
 _ Le plus grave sans aucun air impertinent, "FUN
 me | est classique, il est correct, on a soigné Ne Na !
 _ Son éducation, outre que sa lignée 1 ral a
 _ Est fameuse par l'élégance des manières. Ha
-#08 vor
 _ Je présume qu'il eut des tantes douairières ‘ so
 _ Et des oncles dont on conserve les portraits 5 Ph
 _ En quelque galerie d'aïeux où les secrets 1
@@ -1972,7 +1812,6 @@ Inquiets pour leur étalage et leur vitrine.
 Le chien, de son enfance et de ses origines
 Garde un balancement houleux, pesant et rude.
 
-#0 PLUS PRÈS DES CHOSES
 4 Les meubles du salon sont pris d'inquiétude
 + Quand il va les toucher de sa tête de phoque,
 Surtout le guéridon, fantôme sans époque,
@@ -1981,7 +1820,6 @@ Surtout le guéridon, fantôme sans époque,
 à Contre le Terre-Neuve aux bourrades lourdaudes,
 4 Il souffre doucement son museau qui maraude
 À Tout près du fin bristol et des portraits jaunis,
-y Car il connaît la Surhumaine et l'infinie
 4 Bonté du chien nageur à la tête de phoque.
 s Et les meubles tassés dans le salon baroque
 2 N'osent pas critiquer les avis de l'album.
@@ -2020,7 +1858,6 @@ Somnoler, cacher son nez rose en sa fourrure, Û
 Dès qu'ayant pris congé de la fauve nature
 Il redevient l'hôte du logis qu'il connaît.
 L'album inquisiteur le trouve un peu benêt
-De ronronner et de se ramasser en boule
 Au lieu de préciser les rêves qui s'écoulent
 Dans son âme affinée de chat visionnaire.
 Dans le salon peuplé de choses qu'on vénère,
@@ -2037,7 +1874,6 @@ ee Qui s'érigent silencieux dans les cartons, ; # 4
 _ Si grêles, si fanés, si päles avortons, nd
 L Si loin du monde où chiens et chats vivent leur vie. » à <
 4 L'enfant qui ne sait rien des chemins qu'ont suivis .
-F: _ Ces fantômes de la monarchie de Juillet, 4 |
 Pa Les explique, les commente, les étiquette, ei
 Dit leur âme d'un geste ou d'un mot qui s'envole. x
 {2 Et l'album goûte sa mimique et ses paroles |
@@ -2068,7 +1904,6 @@ Ils semblent regarder les vivants qui héritent
 * Les images ne causent plus qu'avec les simples,
 , 103
 
-PRE ON AR SA AM ef MUR
 Les meubles d'autrefois, le chat qui voit les minces '
 Clartés des revenants et qui entend leurs plaintes :
 Chantonnées dans la soie des tentures éteintes,
@@ -2095,9 +1930,6 @@ Pour l'oncle Antoine, il est vraiment comme un cheval |
 Nous n'aurions pas voulu nous piquer à sa barbe.
 On m'a conté qu'il aimait beaucoup la salade
 
-é D RAIN E SL Nr de PSS PS Eat
-OL TE SES ete SUN EE EE LAS Pin a 8 Re ARR Pre reC ED: M 7
-42 2: TE Ses NANTES À F = Koere 04
 On aime ce qui est très-fort quand on est brave. 21"
 Que viennent faire ici Monsieur Thiers et le pape à ges
 Qui ne sont rien à ces Messieurs et à ces Dames? FAIRE
@@ -2120,7 +1952,6 @@ Maïs les gens de l'album à l'enfant et aux bêtes ve
 | Enseignent les idées et les faits des ancêtres ï
 Et que ces actions sont vieilles et dointaines —
 Cet album est sorti de la mémoire humaine, RL
-#2
 
 Servantes, lavez bien ——
 ERVANTES, lavez bien le perron et Le seuil.
@@ -2157,9 +1988,6 @@ Vu qu'ils furent nourris aux préceptes des grâces
 Et parent les instants de la journée qui passe
 Avec le souvenir des antiques journées.
 
-ET tt Dao RE ue TE An -
-| UE ne pe) Fa ; DA A RE mb 2 CA
-_ PLUS PRÈS DES CHOSES se
 _ Sa pensée vers des bois, des collines, des sources,
 _ Des nymphes couronnées d'hyacinthe, des courses L
 _ De Faunes et de daims le long d'un fleuve émule,
@@ -2205,14 +2033,7 @@ Ni poules picorant ou gloussant, ni ramage
 De feuilles, ni enfant rêvant à des images
 De Faunes emmiellés qui sautent et qui rient
 Le figuier n'était plus qu'une tige pourrie.
-ces
 
-ie, AVE ENT CAS APR MA At RAA ERA nt TRANS CARMEN
-HR NOT Se ARE RAIN Le Are ni LA DAS VS CS ANA AA IAE RER
-| US “ M Lea NRC
-
-Fi PPS or De EEE Mes MANS Eee LE ITR 2
-#
 20 _Le vignoble qui ceint
 1h vignoble qui ceint les ormeaux de nos rêves,
 à A Amie, aura toujours sa douce et jeune sève,
@@ -2236,8 +2057,6 @@ Viens; mords la grappe où le soleil bouillonne et vois
 Ta face au ruisselet où se mirent les chèvres :
 C'est notre sang mêlé qui roule sur tes lèvres.
 
-ORNE NS EAU ne SN CO émulu ”e s Fo
-
 4 ; Bergers, quand vous cuisez 1
 
 74 : ERGERS, quand vous cuisez les courges ou les fèves À!
@@ -2252,7 +2071,6 @@ ne ' L'étincelle cachée n'attend qu'un dieu propice; . e
 
 & D'un des arbres aimés qui déploie ses bras torses
 7 Au-dessus des pensées où nos âmes s'enlacent.
-#. À 117 plus près. — 7,
 
 Et bientôt vous entendriez la tige grasse
 Pétiller et craquer dans le bois assoupi.
@@ -2302,8 +2120,6 @@ Puis nous embrocherons les entrailles fumantes È
 Du bouc mangeur de notre dieu —— pour les griller
 Suspendues aux scions du Ksse coudrier.
 
-L Le vignoble a tendu —
-
 17 vignoble a tendu ses grappes de lumière :
 4 Nous avons bu la joie et la flamme guerrières
 . Du raisin fait de notre joie, de notre flamme:
@@ -2311,7 +2127,6 @@ L Le vignoble a tendu —
 … La tiédeur des maisons n'a point rompu nos forces.
 4 Voici que notre sève, amie, bout dans l'écorce
 
-: René Salomé + L.
 Du plant divin qui multiplie de jeunes plants; je
 
 Et c'est le temps d'aller émondant ou sarclant |
@@ -2337,16 +2152,6 @@ Viens —— quêtons les sarments, les dépouilles sans force
 Qui ne menacent plus nos œuvres ou nos joies =
 Et qu'un feu de bois sec à l'horizon rougeoie. Re
 
-| Vn)
-
-je
-
-#
-
-ce
-
-| 52 : K _ n re NC - Mi
-
 et Ma D nets
 _ Il a été tiré de ce cahier seize exemplaires sur
 PU éarnan ainsi distribués : Fa
@@ -2366,17 +2171,7 @@ _s Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon- E
 _  derie Mayeur (Allainguillaume et compagnie succes- ë
 ‘El seurs), 21, rue du Montparnasse, à Paris, sixième “
-É arrondissement. Le
 
-PAP, PT NOR store Le
-A pra JE NAÈES OS e ARR
-te à SAT ES LP Neue MN NE er s
-te (HAN RP RA TE DUT ASS D LA : ter DATE, (REA
-ET ed At es : î L'NTERR PRE
-
-| # V { 2 5 da Hate ES, N
-
-#2 | CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 _ rez-de-chaussée, Paris, cinquième arrondissement.
 _ Nos Cahiers sont édités par des souscriptions men- 3
  suelles régulières et par des souscriptions extraordi3 naires; la souscription ne confère aucune autorité sur
@@ -2403,9 +2198,6 @@ _ automatiquement par le rang même qu'elles occupent
 … naturellement aux premières inscriptions; c'est ce nu_ méro d'inscription qui devient automatiquement le
 —._ numéro du tirage réservé à chacun des souscripteurs;
 b.  l'édilion sur whatman est strictement limitée au
-
-AR ONE ACC SO RE NRA ANIES Erin EU RE te RAS DRE LA !
-nO7 PAUE ; ne LR nr,
 
 | Pour tout changement d'adresse envoyer soixante |
 centimes, six timbres. de dix centimes. , 9

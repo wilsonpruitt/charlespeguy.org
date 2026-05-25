@@ -7,32 +7,12 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 39960
 ---
-|  QUINZIÈME CAHIER DE LA NEUVIÈME SÉRIE
 Û paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-4 { } Ps LE LAN Pa AR mr # pure
-| k re \400 1} | f) ay “ic
-
-HAS RES nr Sn Se PS LE TETE DIOR
-Lu x AS < ‘ ja av LA
-PAS ; A FINE ne
-Es “ 3 PMRiS Lai ne
-SE du] IT CNRC A Dre ve CE T %
-
-RAT RE LE J 2 1 RPAPRQNR LE RE « are ie EM NAT TES
-A VE PRIT Ÿ PERS ST ANR ET ANRTANLL 7 MR ee td,
-2, ok NES st Â Ne
-
-rh PR PE DA PR UE à NE EN LEE See
-A RS RO A ne ne SOU Ve ten LS = PES
-ve 2 Le LE % è KT SE ‘Ru dar Pa
-ie “Ho : è ne re ACER AT
 
 Nous avons publié dans nos éditions antérieures et 4 |
 _ dans nos cinq premières séries, 1900-1904, un Si 4
 - grand nombre de documents, de textes formant dos- 4
-+  siers, de renseignements et de commentaires; — un À
 _ si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un @
 si grand nombre de cahiers d'histoire et de philo- 1
@@ -76,20 +56,12 @@ n vait, par le fait même de son abonnement, en tête de la
 
 à toute personne qui nous en fait la demande. :
 
-| y
-
-| I “+ FR 5
-
-AS É 724 RP EN PE NS ie PT ARRC UE ER RE don à ENS AT SEE Les NES
 Porte de DRE, 2
 
-Lits NES LALPNEE" He RSS cale Le LS Va LES de RE NE. à +.
-LR AE TE ET TEE EN HRSLOLEORE. ire nd Ni 1 5 1 ES NON
 De aux Cahiers de la Quinzaine M.
 mo, Le présent petit index donne automati- FRS
 | ‘4 quement pour tout volume et pour tout Fe ra ”.
 | (#RRS cahier indiqué : SRE de &
-: 1 a) le numéro d'ordre de ce nd is AUTRE
 - LS le classement général de nos collec pa RE | ñ
 © * complètes, le numéro d'ordre de la série Re
 Te “ capitales de romain et le numéro d'ordre
@@ -98,24 +70,17 @@ on terminée, en chiffres arabes, de sorte
 | ; déterminé hiff abes, à fe: ESS
 Le RUE que V-r7 par exemple doit évidemment se TRS
 Lo * lire dix-septième cahier de la cinquième 2
-|. 0 < PLU TRR TERRE
-LÉ Mr b) la date du Von à tirer, ou, à son dé-
 D 271: faut, la date du fini d'imprimer, où, à son à
 Dr : défaut, la date du cahier même; ESP HEENE
-‘ES c) le prix actuel; ; PA
 | 1e À d) quand il y a lieu, c'est-à-dire pour nos
 . > | éditions antérieures et pour nos cinq pre- EC L
 4 He : k mières séries, la page du catalogue ana- È RU
 +. lytique sommaire où ce cahier se trouve AA
-| | ir : catalogué. WU: TE
-| 3e L'ANUTES El
-| er . AP OL X €
 …_ Romain Rolland, — Aërt, — trois actes, — premier août Sr Si
 _ 1898, un volume en voie d'épuisement.. sept francs 2 Lies
 | 4 rt — le Triomphe de la Raison, — trois actes, — 20 oc FN
 _ tobre 1899, un volume en voie d'épuisement.............. VS
 Mn — — les Loups, — trois actes, — octobre 1898.:..:..4 LOU
-| ‘LESEER à épuisé, | 235000
 " un cahier épuisé, n'est plus mis en vente que dans les col 1e
 | lections complètes de la deuxième série............... 29 &e
 
@@ -133,24 +98,20 @@ deuxième édition, sans le masque (IV-10:, mardi 22 sep \
 1903, un cahier épuisé, n'est plus mis en vente que dans - Æ
 __ les collections complètes de la cinquième série 1.039770
 Éart _ — — — Je même sous couverture Fischbacher me |
-_ … — — Jean-Christophe. — I. — L'aube (V-9, mardi 2 J Er)
 Rs — — Jean-Christophe. — I. — L'aube, — édition Ollen- …
  dorff, en vente à la librairie des cahiers.........,. 0)
 Ge — — Jean-Christophe: — II. — Le matin; la mort d La
 e — — Jean-Christophe. — I. — Le matin, — édition, "à
 _ Ollendorff, en vente à la librairie des Cahiers .....rrrsèe |
-| Lie ‘AC a « d F £ } & 1E PA * Ra A ee”
 
 a pmain Rolland, — Jean-Christophe. — Il. — l'adolescent; Fe
 
 M La maison Euler; Sabine; Ada (VIS, mardi 10 janvier 1905, Dax:
-| RS y ER ra
 Es. _ — — Jean-Christophe. — I, — l'adolescent, — édition
 SE Ollendorf, en sente à la librairie des cahiers..." \
 M — — Vies des hommes illustres, — la vie de Michel. …
 M. — — Vies des hommes illustres, — la vie de Michel. a
 É _ Ange, — I. — l'abdication (VIlI-2, mardi 16 octobre 1906... à Re
-Lo — — Jean-Christophe. — IV. — la révolte. — tr. A SAS
 L_ Sables mouvants (VIIL-, mardi 13 novembre 1906.......... ESA
 .  — — Jean-Christophe. — IV. — la révolte. — 2. — Be.
 | gi (VIIL-6, mardi r1 décembre 1906.. trois francs Rs
@@ -159,24 +120,9 @@ la délivrance (VIL-9, mercredi 2 janvier 1907.. trois francs Æ à
 … Ollendorff, en vente à la librairie des cahiers. .......... RAT
 _  — — Jean-Christophe à Paris. — I. — La Foire sur la 20
 Wn — — Jean-Christophe à Paris. — I. — La Foiresurla
-|:0 Place. — 2. — (IX-14, mardi 24 mars 1908... trois francs Nr
-| LR pe ré à: FTP
 
-RC M PTT VAE Pr RÉEL Ter PS TA
-
-tres SA
-
-# Le VENTES |
-Dit A D
-
-Her n 2 de.
-Fe ne: CET. as.
-
-A EL Se Ce FRE ns st ME Re ANSE
-M #4 KA = Y CAT Pas A "+3 + EN ro te ER AT Dur CAS Ne
 a Note du gérant. — De ce petit index il résulte que
 _ Jean-Christophe se compose de quatre livres : NT
-|: 2 è ‘ TRS
 ; Le premier livre, Yaube, formait le neuvième cahier
 _ de la cinquième série; marqué deux francs, ce cahier
 _ Le deuxième livre, le matin, formait le dixième cahier NS.
@@ -185,18 +131,14 @@ _ de la cinquième série; marqué deux francs, ce cahier se es
 | Le troisième livre, l'adolescent, formait le huitième
 _ cahier de la sixième série; marqué trois francs cin-
 à quante, ce cahier se vend aujourd'hui trois francs en
-| cinquante; RSR
 “ Le quatrième livre, la révolte, se composait lui-même FER
 à de trois parties qui formaient respectivement trois RU
-| cahiers : gs
 La première partie de ce quatrième livre, Sables AG
 |  mouvants, formait le quatrième cahier de la huitième
 | série; marqué trois francs, ce cahier se vend aujourd'hui |
 _ La deuxième partie de ce quatrième livre, l'enlisement,
 _ formait le sixième cahier de la huitième série; marqué te
 … trois francs, ce cahier se vend aujourd'hui trois francs; RES
-| 1684 IX Anloinette. —1. A
-| 480 à FE
 | 1
 
 _ quinzième cahier "ee de la neuv ème série 4
@@ -223,9 +165,6 @@ dernier, la révolte, un volume à trois francs cinquante En |
 _: Non seulement ces quatre volumes de l'édition (] len- |
 _ dorff sont en vente à la librairie des cahiers; mais n ous -
 
-« Pet CS Ne rs LT ErAE « Di TER dpt % ST PAT US Es sas :
-er. RS NOTE D D'CRRANES UNS ET UP TO RRS
-# FES S SRUR F | \ - 3 DR OP ER TAC
 4 _ demandons naturellement à nos amis et à nos abonnés rue
 , de continuer à se pourvoir de ces volumes, autant gui Ne
 _ M. André Bourgeois à la librairie des cahiers.
@@ -235,9 +174,7 @@ _ Avec le treizième cahier de la présente neuvième R:
 | série commençait un deuxième ouvrage, intitulé Jean_ Christophe à Paris. : FAR
 à. < Ce nouvel ouvrage se composera lui-même de deux
 livres, séparés par un épisode : k Pet
-LS _ PREMIER LIVRE : La Foire sur la Place, treizième et Re
 | quatorsième cahiers de la neuvième série; LR Ne
-Re" Antoinette, ÉPISODE : La
 = présent quinzième cahier de la neuvième série;
 : a Deuxième Livre : Dans la Maison, cahiers à paraître te
 “6 la dixième série. se NOl
@@ -247,71 +184,21 @@ $: cahiers en est la première édition; qu'elle en est une
 “3 _édition complète; qu'elle en est la seule édition com
 _p lète; qu'elle est tirée à un petit nombre d'exemplaires; “4
 _ qu'elle ne sera pas réimprimée. / LT
-| Me PE k ECUER
-| dy * De. TOMEET D te LR
 
 _ quinzième cahier _ de la neuvième s érie à
 Enfin en même temps que ces trois cahiers parait
 chez Hachette un volume de critique musicale intitulé %
 Musiciens d'aujourd'hui. Sommaire de ce volume : de:
-| 8. — Dom Lorenzo Perosi; ER |
 9. — Musique française et musique allemande; 434
 … 10. — Pelléas et Mélisande de Claude Debussy; ns 3 Il
 11. — Le Renouveau : Esquisse du mouvement musical ta ]
 un volume à trois francs cinquante, en vente à la |
 librairie des cahiers. RE T
 
-ONE TO Er ee NI En
-… RDERE 5 SE SMETESS de PR Pr me EX Er KX PAC SES ere
-#2 ; L NS - tu LL 4 A
-v° Dr Lol d) Waxs A TL es Le GR ei :, Ta ei me ss
-NS SAR PO Le A ie, 1! NS PC RSREEES
-
-| ” - | HÉSS
-
-et pe
-| z : + = L5E DAS
-
 Jean-Christophe à Paris
 
-+: CA as FREE SR CRE 10 PÈRE Cet
-
-À 2 Dot PS ver MOT TES DR ANR RES HE RENTE ARC re
-
-LA FU A Lie és
-de 4 Pre
-
-#: . lire À se |
-
-APN RS CE Mal * s : “ir IP
-
 PREMIER LIVRE. — la Foire sur la Place;
-Antoinette, épisode;
 DEUXIÈME LIVRE. — Dans la Maison.
-
-us Dper) : KT:3 TES
-PL PACS fine Ta ns
-#10 M. -
-M ENV LP 4 59 Aa) rage ROUSRSSS de
-
-WE Peer Le RAC LE un 1 Ces SU rte UT AR AS
-
-LL Sn NE et ar TA ET HERT NET CR AU à ASS T8 RC NAT ES Ca dt :
-CARE apr POS. DE DARESSNE ANA CPPE FO. à PE ARTE Fri RL AS "
-
-| 7” NE e
-es ANTOINETTE es
-et Et
-
-ee 2 See PROS P LE A MS eo
-ET CE 6 Rat ROLE QE ARRET : x cs NT Tor res RÉNOPTE :
-fe 5 AUTRE à eo N k ; 0: LE
-
-AS ne MEN
-
-| % | 142 Er.
-(CR LS j ne we.
-| Em 1
 
 Les Jeannin étaient une de ces vieilles familles fran- 4
 
@@ -426,7 +313,6 @@ _  mentles entreprises commencées,qui allaient en s'agran- M
 _ dissant, chaque jour, par le seul fait de leur durée. 4
 I bénéficiait dans le pays d'une réputation d'affaires, : 4
 +) bien qu'il fût pour peu de choses dans leur succès; il 08
-n'y apportait que de l'application et de la régularité. Du M
 4 reste, il était parfaitement honorable et inspirait pare :
 FE tout une estime méritée. Ses manières affables, toutes Ne |
 à rondes, un peu trop familières peut-être pour certains, Æ. ;|
@@ -455,7 +341,6 @@ la guërre des ménages, une forme détournée de cette He. û
 | 0 Antoine Jeannin avait aussi des prétentions litté ë
 | | raires. Comme les gens de province de sa génération, il t
 _ était nourri de classiques latins, dont il savait par cœur SD:
-| une quantité de proverbes, — de La Fontaine, de Boi- See À
 “ leau, (le Boileau de l'Art Poétique et surtout du Lutrin), 14
 I. de l'auteur de la Pucelle, et des poetae minores du dix
 | 3 huitième siècle français, dans le goût desquels il s'effor- Ge:
@@ -469,7 +354,6 @@ nu en chair. Les mystères de la digestion n'y étaient pas RR
 LE - oubliés : la Muse des pays de la Loire embouche volon- +
 | tiers sa trompette, à la façon du diable fameux de *
 | Rs. . « ... Ed egli avea del cul fatto trombetta. » "A at
-| LAC CORRE cie 6" A NAS FRS
 
 des RE Jean-Ghristophe à Paris
 ë Ce petit homme robuste, jovial et actif, avait pris une Le
@@ -528,7 +412,6 @@ et très mal armé pour la vie. Il restait seul, par sauvage-
 Lu il y était mal à l'aise; il répugnait à leurs jeux, à leurs
 KA batailles : leur brutalité lui faisait horreur. Il se laissait
 Era battre par eux, non par manque de courage, mais par pions
-| DRE
 
 z Jean-Christophe à Paris va
 timidité, parce qu'il avait peur de se défendre, de faire
@@ -629,10 +512,6 @@ __ | priété de famille, à quelques lieues de la ville. Là, on
 A _ pouvait rêver tout à son aise: on ne voyait personne. …
 va Comme la plupart des petits bourgeois, les deux enfants 5
 
-ee ee Ni
-
-ie ie é WE 3 eva OINERTE RE See SERA ST
-
 | étaie nt tenus à l'écart des gens du peuple : domestiques, st
 
 _ fermiers, qui leur inspiraient au fond uv peu de crainte Le
@@ -695,8 +574,6 @@ semblent dévorées du désir d'arriver quelque part... Où Re
 cela? Elles l'ignorent. N'importe où! Quelque part... Oli- DE
 
 …—vier avait un frisson, au milieu de cet univers aveugleet 4
-
-SES ne
 
 Jean-Christophe à Paris
 ennemi. Il tressaillait, comme un levraut, au bruit due :
@@ -763,7 +640,6 @@ _ pleurer, elle dégringolait en bas, se jetait sur lui, le
 Mr terre, én lui frottant le nez avec des poignées À we
 | Me herbe. Il essayait bien de lutter; mais il n'était pas ne
 
-RE RS Rae PP NORNER LA DRE HERAULT ES
 ROME Huses : Jean-Christophe à Paris à ri É A
 ; _ de force. Alors, il ne bougeait plus, couché sur le dos,
 Us comme un pauvre hanneton, ses bras maigres cloués
@@ -837,8 +713,6 @@ IFRS des prières en cachette pour que son père fût touché de
 
 avec lui une église de campagne, il le vit faire machi-
 
-| Se 21
-
 * Jean-Christophe à Paris
 > nalement un signe de croix. Les récits de l'Histoire Ÿ
 Sainte s'étaient mélés en lui aux merveilleuses histoires
@@ -889,7 +763,6 @@ _vait son testament. de, FASO
 _nal, chaque soir, en cachette, — il ne savait pourquoi, re
 car il n'avait rien à dire, et il ne disait rien que des
  niaiseries. Écrire était chez lui une manie héréditaire, A
-# . A . . . . pe ER
 _ce besoin séculaire du bourgeois de province française, LS ES
 — la vieille race indestructible — qui, chaque jour, CAO,
 « écrit pour lui, jusqu'au jour de sa mort, avec une pa- 2
@@ -897,8 +770,6 @@ _ce besoin séculaire du bourgeois de province française, LS ES
 | de ce qu'il a, chaque jour, vu, dit, fait, entendu, mangé K£
 et bu. Pour lui. Pour personne autre. Personne ne le lira ET
 | jamais : il le sait ; et lui-même ne se relit jamais. | Là
-| Ke. ? Antoinette, = 3 * | Lee
-| F0 y Ÿ SR
 
 d La musique lui était, comme la foi, un abri contre M
 js Dis la lumière trop vive du jour. Tous deux, le frère et.
@@ -939,7 +810,6 @@ mo element, — comme elle savait qu'il n'y avait pas Ge.
 s'asseoir au piano, d'un petit air décidé, et galopait sg
 | | son rondo, à la diable, bredouillant certains passages, Û EUR » à d'autres pataugeant, s'interrompant, tournant la tête, 4 #
 disant avec un sourire : MERE
-_ — Ah! je ne me souviens plus. re
 | puis, reprenant bravement, quelques mesures plus 54
 “loin, et allant jusqu'au bout. Après, elle ne cachaït pas
 Son contentement d'avoir fini; et, quand elle revenait à PE
@@ -962,7 +832,6 @@ insis lances plus vives et plus narquoises ; les objurga- EPA LE
 | laques, quand l'esprit de révolte soufllait trop imperti-
 | ne mme nt. Et il devait toujours finir par jouer, — natu- À ne
 lement en dépit du bon sens. Ensuite, il souffrait, la Fa Fe
-| Le - > PAR.
 
 Jean-Christophe à Paris = Cu
 nuit, d'avoir mal joué, parce qu'il avait de l'amourpropre, et parce qu'il aimait vraiment la musique.
@@ -1028,10 +897,7 @@ gen s de bon sens voudraient se le faire accroire. C'est F3
 - de cas très faciles. Que survienne quelque cas imprévu, it
 où il faut prendre parti promptement et vigoureusement,
 Ê les voilà désarmés. +
-| LATE J is
-L re A tt j \ EE
 
-45 ® RES e, OU des es du: Re Su
 ra PRE Jean-Christophe à Paris TES
 ee Le banquier Jeannin était de cette espèce. Tout était
 si bien prévu d'avance, tout se répétait si exactement |
@@ -1053,8 +919,6 @@ PRE Dans leur molle province, dans leur famille riche, 4
 considérée, avec un père aimable, gai, cordial, entouré À » d'amis, jouissant d'une des premières situations du M
 Ra pays, la vie était si facile et si riante ! 4
 
-si RSS M ot US RE fS TES RS DER Ra Le SR
-
 _ Antoinette avait seize ans. Olivier allait faire sa première communion. Ii s'engourdissait dans le bourdon- 0
 lu nement de ses rèves mystiques. Antoinette écoutait
 M chanter le voluptueux ramage ée l'espérance enivrée, HE
@@ -1068,7 +932,6 @@ sufli à lui tourner la tête. D FLCEVENRES FT
 miroir, de ses roueries innocentes et malignes. Il la pre- ES
 nait sur ses genoux, il la taquinait au sujet de son petit Sen Fi
 
-| LEE 2 : , .7s SEE 3
 mcœur, des conquêtes qu'elle faisait, des demandes en
 mariage qu'il prétendait avoir reçues pour elle; il les” PSE
 ui énumérait : des bourgeois respectables, tous plus 1 0
@@ -1082,11 +945,9 @@ les sept péchés capitaux, ou bien le gros notaire. Elle 1e
 | lui donnait de petites tapes pour le faire taire, ou lui A dl
 
 | rmait la bouche avec ses mains. Il baisait les menottes, er À
-| FAP SERIES He
 
 x = Jean-Christophe à Paris
 g et chantait, en la faisant sauter sur ses genoux, la
-chanson connue : TA]
 ; « Que voulez-vous, la belle? YA
 Est-ce un mari bien laid? » "04
 Elle répondait, en pouffant, et lui nouant les favoris M
@@ -1105,7 +966,6 @@ d'argent. Mais le poisson risquait fort d'être pour eux - |
 - perdait rien de leurs manèges, et elle s'en amusait : elle | È
 voulait bien se faire prendre; mais elle ne voulait pas
 qu'on la prit. Dans sa petite tête, elle avait déjà décidé « qui elle épouserait. À
-La famille noble du pays — (il n'y en a généralement ÿ
 qu'une par pays : elle se prétend issue des anciens sei- 4
 gneurs de la province; et elle descend, le plus souvent, 4
 3 de quelque acheteur des biens nationaux, intendant du
@@ -1114,7 +974,6 @@ ville, un château, avec des tours pointues aux ardoises
 -  Juisantes, au milieu des grands bois, semés d'étang 9.
 l poissonneux, faisaient eux-mêmes des avances aux
 
-L va At 2 Le EN PRES NÉE Abe Qu 4 k : EN
 ea inin. Le jeune Bonnivet était très empressé auprès SCT RS
 d'A ntoinette. Il était beau garçon, assez fort et corpu- M fr 4
 ler pour son âge, ne faisant toute sa sainte journée que FRE 4
@@ -1141,9 +1000,6 @@ l'appeler toujours : « Petit... », en lui pinçant la joue. Il FENG
 le détestait surtout, — sans le savoir, — parce que cet CERROA
 “étranger aimait sa sœur : … sa sœur, son bien à lui, à. RES.
 lui, et à nul autre! CHARS pe
-L'LNNES ae
-
-en x SA
 
 : Cependant, la catastrophe arrivait, Tôt ou tard, il en
 NE. vient toujours une dans la vie de ces vieilles familles. |
@@ -1169,8 +1025,6 @@ FPS jamais de prêter de l'argent à des amis; et ce n'était
 À pas bien difficile d'être de ses amis. Il ne prenait même
 Me. pas toujours la peine de se faire donner un reçu;l
 > . tenait un compte négligent de tout ce qu'on lui devait,
-
-et qu'il ne réclamait guère, si on ne le lui offrait point. AUS
 
 gi comptait sur la bonne foi des autres, comme il enten-
 
@@ -1251,8 +1105,6 @@ entraîner les autres. — N'y eût-il pas eu d'autres mOutons avant lui, monsie
 FR était de la bonne espèce porte-laine, qui est faite pou
 qu'on la tonde. Il fut séduit par les belles relations, par
 
-Re EC ne ne
-
 la a onde, par les flatteries de son visiteur, et aussi | "
 
 à _par les premiers bons résultats que donnèrent ses con- a a:
@@ -1294,7 +1146,6 @@ clients. Il essaya de divers expédients, avec une préci- Be |
 , pitation maladroite, qui Ini eût enlevé toute chance de #4
 réussir, s'il avait pu en avoir. Les prêts qu'il demanda “ES
 à faire lui furent partout refusés. Les spéculations à
-DE hasardeuses, où, en désespoir de cause, il engagea le ‘à
 peu qui lui restait, achevèrent de le perdre. Dès lors, ce M !
 fut un changement complet dans son caractère. Il tomba
 Le dans un état de terreur effrayant : il ne parlait de rien; |
@@ -1321,7 +1172,6 @@ _ froissée dans son orgueil, n'insista plus. Mais elle trem=.
 $ blaïit, sans savoir pourquoi. 4
 Les enfants ne pouvaient se douter du danger, Antoi- M |
 
-D NL UN cent Jen
 nette, sans doute, était trop intelligente pour ne pas Na
 — avoir, comme sa mère, le pressentiment de quelque
 “ malheur; mais elle était toute au plaisir de son amour
@@ -1348,7 +1198,6 @@ volontiers comme l'autruche : ils se cachent la tête der- j L
 —…. rière une pierre, et ils s'imaginent que le malheur ne
 P les voit pas. ER
 
-#1
 , Des bruits inquiétants commençaient à se répandre. Al
 On disait que le crédit de la banque était entamé. Le
 
@@ -1406,8 +1255,6 @@ ma nda pourtant rien, par orgueil : elle attendait qu'il Ke rat
 lui en parlât le premier. Mais il ne dit pas un mot de. REA
 H ce qui les tourmentait tous deux. Il écarta silencieu- C'ER
 ; _sem ent le désir qu'elle avait de se confier à lui et d'at- AD
-À: rér ses confidences. Il parla de la chaleur, de sa “ à à
-« fatigue, il se plaignit d'un mal de tête fou; et l'on se AE
 Fa mit à table, comme à l'ordinaire, AA 4
 Il causait peu, las, absorbé, le front plissé; il tapotait +
 k. des doigts sur la nappe; il s'eflorçait de manger, se SKS
@@ -1449,7 +1296,6 @@ comme pour ranger quelque chose. Brusquement, elle. à |
 ; la peur que les domestiques n'entendissent, et par sa {
 — Enfin, Antoine, qu'est-ce que tu as ? Tu as quelque
 chose. Si! tu caches quelque chose. Est-ce qu'il y a |
-un malheur? Est-ce que tu es souffrant ? à n
 $ Mais monsieur Jeannin, encore une fois, l'écarta, en 1
 | haussant les épaules avec impatience, et disant d'un ‘4 |
 — Non! Non, je te dis! Laisse-moi! 4
@@ -1512,15 +1358,12 @@ La voix affectueuse de l'enfant reprit : .
 U — Il ne faut pas tant te fatiguer, papa. À
 Monsieur Jeannin attira à lui la tête d'Olivier, et
 l'appuya contre sa poitrine, en murmurant : LAC
-—'Mon pauvre petit! A
 Mais déjà les pensées d'Olivier avaient pris un autre
 cours. L'horloge de la tour sonnait huit heures. Il se À.
 dégagea, et dit : à
-— Je vais lire. D |
 Le jeudi, il avait la permission de lire, une heure si
 après diner, jusqu'au moment de se coucher : c'était
 
-AUS Mint no ANTOINETTE y Mr
 | son plus grand bonheur ; et rien au monde n'eût été
 “ capable de lui en faire sacrifier une minute.
 " de long en large, sur la terrasse obscure. Puis il rentra, è
@@ -1568,8 +1411,6 @@ pas une domestique. D |
 Et elle continua sur ce ton, énuaérant ses griefs, avec
 | ‘une volubilité âpre et rancunière. nn |
 ; Il eut un geste lassé, sourit amèrement, et s'en alla. É- |
-
-Mes
 
 F Personne n'entendit le coup de revolver. Le lendemain
 f - seulement, quand on sut ce qui s'était passé, quelques
@@ -1669,7 +1510,6 @@ ignoble vie lui paraît monstrueux; et elle appellerait Le
 volontiers toutes les rigueurs de la loi sur celui qui
 Lu. — Il n'y a pas de malheur qui vaille celui de vivre ès °°
 | avec vous. LORS
-> l Lu AA
 
 Jean-Christophe à Paris NAS .
 . Les plus lâches ne sont pas les moins empressés à
@@ -1695,8 +1535,6 @@ la mère, à toute leur fortune personnelle, afin de rem.
 _ bourser, autant que possible, les dettes du père. Et, ne.
 - pouvant plus rester dans le pays, ils se décidèrent à
 
-D CR UN Pen Re du C7 AR
-a on
 Po Le départ fut comme une fuite. SES =.
 _ La veille au soir, — (un triste soir de la fin de sep
 . tembre : les champs disparaissaient sous le voile des FE
@@ -1720,7 +1558,6 @@ Mais Antoinette pensait : : y ae
 à e brouillard s'obscurcissait, l'humidité les pénétrait. : nos
 Mais madame Jeannin ne pouvait se décider à partir. : 4e
 Antoinette vit Olivier qui frissonnait, et elle dit à sa re
-- Ils se levèrent. Au moment de s'en aller, madame REA ie
 
 é ei nni n se retourna, une dernière fois, vers la tombe: ie #5
 _— Mon pauvre ami! dit-elle. 1:77 ADS
@@ -1795,9 +1632,7 @@ x Il soupira, ouvrit les yeux, vit le visage de sa sœur re
 penché vers le sien : elle lui sourit mélancoliquement,
 e lui caressa le front avec sa main. Elle répétait : A
 
-Liée “e NE NeRt Re A Aie es TND NUS
 Jean-Christophe à Paris
-Il se leva. FE x TR
 Ils sortirent de la maison, sans bruit, comme des
 voleurs. Chacun d'eux avait des paquets à la main. La,
 vieille bonne les précédait, roulant leur malle sur une
@@ -1854,7 +1689,6 @@ M. aimait beaucoup, et qui était richement mariée avec un
 ” è - tion qu'ils avaient reçue, et leurs dons naturels, sur
 —— lesquels elle se trompait, comme toutes les mères, n'au-
 -—… raient point de peine à gagner honorablement leur vie.
->] À
 
 L'impression d'arrivée fut sinistre, Dès la gare, ils. |
 furent consternés par la bousculade des gens dans la … |
@@ -1886,7 +1720,6 @@ dans le corridor, des portes qu'on fermait, des sonneries 13 ÿ
 électriques, le cerveau meurtri par le roulement incessant des voitures et des lourds camions, — ils eurent w |
 54 0
 
-Re Ni MU td herins
  l'imp: ession terrifiée de cette ville monstrueuse, où Isis
 étaient venus se jeter, et où ils étaient perdus. RER
 _ Le lendemain, madame Jeannin courut chez sa cousine, madame Poyet-Delorme, qui habitait un luxueux GES
@@ -2003,7 +1836,6 @@ ment, et qu'il n'y avait pas de raison pour qu'elle En
 sortit jamais, coupa court, et termina par deux accords a. |
 \ qui n'étaient pas justes, et un troisième qui était faux.
 Monsieur Poyet dit : 4
-x Et il demanda le café. # |
 Madame Poyet dit que sa fille prenait des leçons avee |
 | Pugno. La demoiselle, « qui prenait des leçons avec
 — Très joli, ma petite. 4 Pi
@@ -2023,7 +1855,6 @@ heures et demie : ils avaient une soirée, qu'ils n'avaient
 é annonça des amis des Poyet, des voisins, qui habitaient 1 |
 pe à l'étage au-dessous. 11 y eut des coups d'œil échangés M" M
 À entre Poyet et sa femme, et des chuchotements précipités #
-# D LA $ :# a à
 
 PE quelco nque, fit passer les Jeannin dans une chambre à e
 " côté. (Il voulait cacher à ses amis l'existence, et surtout
@@ -2153,7 +1984,6 @@ inutiles. Madame Jeannin était retournée voir les |
 offrirent des places. II s'agissait pour madame Je annin |
 d'entrer comme lectrice chez une vieille dame, qu
 
-{D des OR PR (TPM, ET 5 HS À MN RM US LÉO Les
 | passai Yhiver dans le Midi. Pour Antoinette, on lui 70202
 _ trouvait un poste d'institutrice chez une famille de Ro
 . l'Ouest de la France, qui vivait toute l'année à la cam- KL
@@ -2186,7 +2016,6 @@ sénateur dit qu'il savait bien que ce n'était pas par ; :
 mal honnêteté, mais par bêtise que le banquier avait HAE à
 agi, que c'était un niais, un pauvre hanneton, ne
 
-sea 2 res Dé Pos LT 28 6 Fene LE TARN EE SE RE
 ‘Jean-Christophe à Paris
 F sachant rien, et ne voulant jamais en faire qu'à sa |
 tête, sans demander conseil à personne et sans
@@ -2251,7 +2080,6 @@ conservés. Et le pire fut que cet argent, dont on avait à
 tant besoin, fut volé à madame Jeannin, le jour même Et |
 qu'elle venait de le toucher. La pauvre femme, qui était +
 js le étourderie perpétuelle, s'était avisée, pour utiliser \ 5
-sites FOR De
 
 Jean-Christophe à Paris |
 sa course, d'entrer au Bon Marché, qui était sur son
@@ -2285,9 +2113,6 @@ _ Antoinette et Olivier se précipitèrent juste à temps pour
 la recevoir dans leurs bras. Ils étaient comme fous, et |
 — Maman! Ma petite maman! 04 |
 
-PRE PET ps CAR TA PCR Len Fe a ET ef ne TUE D de
-
-#4 AGE INR RS OS Pan AE CAN ox à REIN NS PEUT
 Antoinette serrait convulsivement le corps de sa mère,
 . l'embrassait, l'appelait. Olivier ouvrit la porte de lap114 ‘ ART ARLES
 _ partement, et cria : Yi et
@@ -2297,13 +2122,10 @@ Mais lorsque le médecin arriva, il ne put que constater
 _ que c'était fini. La mort avait été immédiate, — heureu
 . sement pour madame Jeannin, — bien qu'on ne püt
 _ savoir tout ce qu'elle avait eu encore le temps de -
-ET: . sis “dl
 = penser, dans ses dernières secondes, en se voyant
 mourir et en laissant ses enfants, seuls, dans une telle
-sr L À ist
 ne. Antoinette. 5.
 
-Re de
 Seuls pour soutenir l'horreur de la catastrophe, seuls M
 pour pleurer, seuls pour veiller aux soins affreux qui
 suivent la mort, La concierge, bonne femme, les aïdait R
@@ -2326,14 +2148,12 @@ __ — Pourelle, dit Antoinette— (elle montraitsamère.)— M
 Elle est toujours avec nous. Pense. Après tout ce
 _ qu'elle a souffert pour nous, il faut lui épargner la pire “3 » des douleurs, celle de nous voir mourir malheureux... |
 \ Ah! (reprit-elle, avec emportement).. Et puis, il ne faut 4 à
-#7 4 F xt
 
 __ passe résigner ainsi! Je ne veux pas. Je me révolte, à
 Ja fin. Je veux que tu sois heureux un jour!
 
 à — Si, tu seras heureux. Nous avons eu trop de mal4 heur. Cela changera, il le faut. Tu te feras ta vie, tu
 4 auras une famille, tu auras du bonheur! je le veux!
-_ je le veux!
 
 H — Comment vivre? Nous ne pourrons jamais...
 # — Nous pourrons. De quoi s'agit-il? De vivre jusqu'à
@@ -2344,7 +2164,6 @@ H — Comment vivre? Nous ne pourrons jamais...
 à — Que vas-tu faire? Je ne veux pas que tu fasses des
 Æ choses humiliantes. Tu ne pourrais pas, d'ailleurs.
 
-À Ê — Je pourrai... Et il n'y a rien d'humiliant, — pourvu
 2 ». que ce soit honnête, — à gagner sa vie en travaillant.
 — Ne t'inquiète pas, je t'en prie. Tu verras, tout s'arranté gera, tu seras heureux, nous serons heureux, mon cher
 Fe Olivier, elle sera heureuse par nous,
@@ -2397,7 +2216,6 @@ la remplir tout entière. La vie de solitude et de misère,
 qu'elle allait mener, et qu'elle voyait distinctemient se |
 dérouler devant elle, n'était possible que grâce à l'exal-
 
-# ï ANTOINETTE
 “_Ù tation passionnée, qui s'empara d'elle : sauver son
 La frère, faire que son frère fût heureux, si elle ne pou-
 Ë »  vait plus l'être. Cette petite fille de dix-sept à dix-huit
@@ -2409,7 +2227,6 @@ Hé crise de la femme, ces premiers jours de printemps
 La le baignent, comme un ruisseau caché qui bruit sous
 Æ le sol, l''enveloppent, l'inondent, le tiennent dans un
 à état d'obsession perpétuelle, l'amour prend toutes les
-FE formes; il ne demande qu'à se donner, à s'offrir en
 A pâture : tous les prétextes lui sont bons, et sa sensuakS lité innocente et profonde est prête à se muer en tous
 ki à les sacrifices. L'amour fit d'Antoinette la proie de
 :4 Son frère, moins passionné, n'avait pas ce ressort.
@@ -2443,7 +2260,6 @@ crise, — éet Age redoutable où succombent des milliers D.
 de jeunes gens, qui s'abandonnent aux aberrations de F3
 leurs sens et de leur cerveau, et, pour deux ou trois
 ans de folie, sacrifient irrémédiablement toute leur vie.
-S'il avait eu le temps de se livrer à sa pensée, il fût à . |
 tombé dans le découragement, ou dans la dissipation : 4
 chaque fois qu'il lui arrivait de regarder en lui, il était E. |
 : repris par ses rêveries maladives, par le dégoût de la . 7 4 |
@@ -2452,9 +2268,7 @@ d'êtres qui se mêlent et pourrissent ensemble. Mais la Re: |
 . vue de sa sœur dissipait ce cauchemar; et, puisqu'elle ‘1
 ne vivait que pour qu'il vécût, il vivrait, oui, il serait
 heureux, en dépit de lui-même. * É
-| 5%
 
-LU 1 AT AV ITS NU TE ss NE LR ET ee er is dE He ñ
 _ Ainsi, leur vie fut bâtie sur une foi brûlante, faitede à
 EE oïicisme, de religion, et de noble ambition. Tout l'être
 . des deux enfants fut tendu vers ce but unique : le suc- re
@@ -2761,7 +2575,6 @@ vent avant qu'il fat dégagé des brouillards. Antoinette,
 savait qu'il ne faisait rien; mais elle n'osait pas trop 4
 
 - regarder de son côté, de peur de l'impatienter, en ayant  .
-S l'air de le surveiller. sa
 … I était dans l'âge ingrat, — l'âge heureux, — où les
 … journées se passent à flâner. Il avait un front pur, des 2
 | yeux de fille, roués et naïfs, souvent cernés, une grande ETES
@@ -2852,7 +2665,6 @@ Sa débile santé ne se rétablissait pas. Elle semblait #2
 pl utôt s'altérer davantage. Il souffrait constamment : de # 14
 
 Jean-Christophe à Paris 15
-la gorge, de la poitrine, de la tête, du cœur ; le” |
 moindre rhume chez lui risquait de dégénérer en bronchite; il prit la scarlatine, et faillit en mourir; même |
 sans être malade, il présentait de bizarres symptômes" |
 de maladies graves, qui heureusement n'éclataient pas"
@@ -2879,7 +2691,6 @@ Elle se tendait de tout son corps. | M
 déjà, quand on était sur le point d'arriver, quand il
 allait être heureux, non, cela ne se pouvait pas, ce M
 
-LD NS CE at ANS SE EEE TRES AS RAS
 Olivier ne tarda pas à lui donner d'autres inquié- QU'A
 Il était profondément honnête, comme elle, mais de $
 b volonté faible et d'intelligence trop libre et trop com
@@ -2904,7 +2715,6 @@ de son frère. Mais bientôt, elle cessa de sourire, et son £
 sang s'arrêta. Ils parlaient de choses brutales, avec une
 | crudité d'expressions abominable; ils semblaient sy ns
 …complaire. Elle entendait rire Olivier, son petit Olivier; PEL
-| DU 85 LE
 
 Jean-Christophe à Paris
 et de ses lèvres, qu'elle croyait innocentes, sortaient |
@@ -2963,7 +2773,6 @@ rapporter quelque travail de copie, ce lui était une À |
 | suivie, comme il lui arrivait, et d'entendre des proposi- "M
 x tions grossières. Toutes les fois qu'elle pouvait emme- …
 ner son frère avec elle, elle le faisait, sous prétexte "
-P de le forcer à se promener; mais il ne s'y prêtait pas
 : volontiers, et elle n'osait insister; elle ne voulait pas
 _ troubler son travail. Son âme virginale et provinciale M
 ne pouvait $e faire à ces mœurs. Paris, la nuit, était "
@@ -2982,8 +2791,6 @@ donner la main pour lui dire bonsoir. Il n'imaginait M |
 
 | reprochait elle-même. ARE
 
-ON Rene
-AR AS PME TEL Len EAU PR Lt RAT je A à
 De. Sans être très jolie, elle avait un grand charme, et
 
 “ attirait les regards, quoiqu''elle ne fit rien pour cela
@@ -3115,7 +2922,6 @@ Nathan de lui rendre un grand service, de l'accom- 4
 mit à lui parler, avec une courtoisie affectée. Elle le
 ; regarda fixement, en silence. Quand il eut fini, ül lui
 demanda en plaisantant pourquoi elle le regardait ainsi. M
-Elle répondit : o C4
 — Je regarde un lâche. D
 ; Il ne fut pas interloqué pour si peu, et commença à Es |
 ” devenir familier. Elle dit : |
@@ -3143,7 +2949,6 @@ _ de sa vie intérieure et des souffrances de sa pudeur “
 … à personne. L'aventure en resta là; et madame Nathan au”
 … n'eut même pas besoin de fermer son salon au person- de
 … nage : car il se garda de revenir. #
-ER ses
 
 Fr A peu près dans le même temps, Antoinette eut un
 autre chagrin, d'un genre bien différent. %
@@ -3206,7 +3011,6 @@ ont le plus chères dans l'être aimé. Il cessa de la voir; À
 |: ne lui écrivit plus, après qu'il fut parti ; elle n'eut plus te
 ucun e nouvelle de lui, jusqu'au jour où elle apprit, — ‘ %E
 inq ou six mois plus tard, — par une lettre de faire- *
-# 95 Antoinette, — 7 à
 
 Jean-Christophe à Paris D
 part, dont l'adresse était de sa main, qu'il avait épousé |
@@ -3275,9 +3079,7 @@ cènes, le bruit, les rires, les chants, la puanteur, la /
 imée du tabac. Antoinette et Olivier, qui n'avaient, |
 | Vun ni l'autre, l'âme populaire, revenaient dégoûtés, F
 mor a isés. Olivier suppliait Antoinette de ne plus
-# 97
 
-z 2" cv PR L'OORRIERES
 Jean-Christophe à Paris D:
 recommencer ces promenades; et Antoinette n'avait M}
 plus le cœur de le faire, avant un certain temps. Elle
@@ -3329,8 +3131,6 @@ ait é rêve, dans les nuits qui précédaient, et il y dé- . ne:
 ensai toute son énergie : aussi, ne lui en restait-il 3e
 
 lus pour l'examen réel. FRS
-
-ne ds - Ne QUE
 
 Jean-Christophe à Paris TS
 Mais il n'arriva même pas à ce terrible oral, dont la -
@@ -3599,7 +3399,6 @@ M _ d'Olivier; tant qu'ils pourraient tenir tous deux, il fallait
 É 4 tenir, Elle n'avait plus l'énergie de prendre une déci- à
 = sion : le matin, sa vaillance renaissait; mais à mesure
 _ qu'approchait l'ombre du soir, sa force défaillait; elle
-> #Y ;
 
 Jean-Christophe à Paris
 pensait à fuir. Elle avait le mal du pays, — de ce pays
@@ -3624,7 +3423,6 @@ disposés à admettre toutes les suppositions désobli- 4
 geantes sur le compte de la jeune Française, et exaspérés NN M
 contre Christophe, à la suite de certaines circonstances ÿ
 qu'il est inutile de rappeler, donnèrent brutalement
-congé à Antoinette. D:
 
 Cette âme chaste et rougissante, que son amour L
 fraternel avait tout entière enveloppée, sauvée de toute
@@ -3637,7 +3435,6 @@ Elle ne savait rien de lui, sinon qu'il était musicien, et
 qu'on en disait beaucoup de mal; mais dans son igno- ; À
 rance de la vie et des hommes, elle avait une intuition il K
 
-| HR RSS ANTOINETTE À LEE
 + naturelle des âmes, que la misère avait aiguisée, et qui
 | À lui avait fait reconnaître dans son voisin de théâtre,
 _ mal élevé, un peu fou, une candeur égale à la sienne, |
@@ -3653,7 +3450,6 @@ souffrir la distrayait un peu de son propre chagrin. +
 Jui écrire : un sentiment de pudeur et de fierté le lui
  défendait. Elle se dit qu'il ignorait le tort qu'il lui avait
 | causé; et, dans sa bonté, elle souhaïta qu'il l'ignorât
-| toujours. | |
 …. Elle quitta l'Allemagne. Le hasard voulut qu'à une
 - heure de la ville, le train qui l'emportait se croisât avec $
 . celui qui ramenait Christophe de Francfort, où il avait ?
@@ -3680,7 +3476,6 @@ centre desquelles souriait une lumière voilée, qui sem-
 - blait rayonner doucement de la terre, une lumière pâle ;
 et tendre, pareille à celle qui baigne les Ombres « Elyséennes de Gluck. : Ce
 
-. EME TER PO SN LUI Te Pat SP NU es bte eme t AMEN EEE
 i Elle revit Olivier. Il était temps qu'elle rentrât. H
 M venait de tomber malade; et ce petit être nerveux et
 M tourmenté, qui tremblait devant la maladie, quand
@@ -3798,7 +3593,6 @@ quand ils y rentreraient, ils sauraient, et que peut-être
 moins ils espéraient encore. Quand ils aperçurent la
 : Sorbonne, ils sentirent leurs jambes fléchir. Antoinette, &
 ne si brave, dit à son frère : Re”
-| — Pas si vite, je l'en prie... | L
 Olivier regarda sa sœur, qui s'efforçait de sourire. » Il lui dit : J
 — Veux-tu que nous nous asseyions un instant sur ce
 IL aurait voulu ne pas aller jusqu'au bout. Mais, après 3
@@ -3816,7 +3610,6 @@ _ mot:ils détalèrent chez eux; elle lui avait saisi le bras, 3
 M. l'un contre l'autre, ils couraient presque, sans rien voir \
 | . autour d'eux; en traversant le boulevard, ils faillirent ES
 | | être écrasés. Ils se répétaient : ; je ;
-_ — Mon petit! Ma petite!… ja
 _ Ils remontèrent, quatre à quatre, leurs étages. Ren- Sin
 . trés dans leur chambre, ils se jetèrent dans les bras
 … l'un de l'autre. Antoinette prit son frère par la main, et s
@@ -3832,7 +3625,6 @@ ue. sa sœur, ou sur ses genoux, se faisant câliner commeun
 # petit enfant. Ils parlaient à peine. Ils n'avaient même
 plus la force d'être heureux; ils étaient brisés tous deux.
 Ds se couchèrent avant neuf heures, et dormirent d'un 4 x:
-_ sommeil de plomb. Ù RAR à
 _ Le lendemain, Antoinette se sentait cruellement mal ES
 "à la tête, mais un tel poids enlevé de dessus le cœur! pes
 . Il semblait à Olivier qu'il respirait enfin, pour la pre

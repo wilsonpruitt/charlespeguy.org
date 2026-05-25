@@ -11,11 +11,6 @@ de [a Quinzaine
 
 8, rue de la Sorbonne, au rez-de-chaussée L #2
 
-RUE DE tErS & LACS RE rs RP TT JET
-$ ne. RSS es Men Fra RSA) Pa Et.
-
-| YN NEA
-> NS NU M *
  L'avertissement qui suit devait passe en, tfte du
 És cahier précédent, dix-septième cahier de la quatrième
 le Journal officiel, de l'intervention Jaurès dans l'invalidation Syveton, Chambre des députés, séances du ;
@@ -148,8 +143,6 @@ j image est forcément le résultat d'une réduction; c'est à
 À nous, quand nous avons en mains le résultat de cette:
 a réduction, de faire autant que nous le pouvons l'opéra-
 
-is TE OR CO Le en, Ne LAN UT RE
-
 tion inverse, la restitution du réel. C'est à nous, quand +
 nous avons le compte rendu sténographique, de nous ge:
 représenter autant que nous le pouvons, d'autant mieux 3
@@ -245,7 +238,6 @@ REA jamais la tribune afin d'y prononcer un grand discours
 
 sr ou d'y faire quelque déclaration sans avoir en lui- .
 
-| : DÉBATS PARLEMENTAIRES W
 Ÿ même arrêté dans le dernier détail son texte et son Ent
 action. Telle n'est pas la question d'art et de méthode A
 oratoire que je veux noter aujourd'hui. Nous traiterons ;
@@ -322,7 +314,6 @@ qu'une image textuelle dans un débat où tout compte,
 l'accent, le ton, le geste, la force de la voix, le timbre, et 1
 non seulement ce qui s'entend, mais les traits, mais le É
 regard, mais la taille, mais le port de tête, et les épaules,
-et tout le corps, et la veste, et la cravate. Une image E
 textuelle n'est pas une image totale. Une image textuelle É.
 n'est qu'une image linéaire textuelle de ce qui s'entend. he
 Elle ne rend ni tout ce qui s'entend, ni ce qui ne s'entend Qi
@@ -490,7 +481,6 @@ en séance; mais dans les couloirs il ne doit pas feindre; a
 je lai vu dans les couloirs; oubliant, comme il est
 naturel, comme il est humain, les coups terribles qu'il
 avait portés pour ne se rappeler plus que ceux qu'on
-# i
 
 de dix-huitième cahier de la quatrième série
 
@@ -622,7 +612,6 @@ Pr demandez un peu au concierge, au fossoyeur, au jardinier, si une statue de br
 doigts, et crier. Qu'est-ce qui vous arriverait, si vous
 teniez de tels propos au modeste fonctionnaire ?
 
-# |
 Ainsi parlaient ces provinciaux, parce qu'ils étaient 1
 Les véritables historiens, ceux qui ont fait de l'his- ga
 toire ou tâché d'en faire, non pas ceux qui ont fait sur
@@ -679,7 +668,6 @@ Se garanties pour l'accusé à tel point qu'il n'en reste plus
 ti divers bancs au centre et à droite. — Exclamations à
 Me l'extrême-gauche)
 
-PEN js Gas Me Lutte SU ES LME Enes PONS AMEN LA Pr dE Le sh dir: \ Ÿ
 _ [line s'agit ici, bien entendu, que de la tenue, du ton, : 04
 du maintien : nous n'endossons nullement les affirma- “5
 tions de M. Cavaignac; dans sa rage antidreyfusiste, 1,
@@ -776,8 +764,6 @@ Non, il n'y a pas de danger que l'honorable M. Brisson accumule jamais les garan
 accusés honnêtes, pour les accusés ordinaires, pour les
 accusés pauvres, pour lés accusés faibles.
 
-|
-
 à dix-huitième cahier _ de la quatrième série ee
 fe > M. Goprrroy CAvVAIGNAC. — Peut-être aussi, monsieuür Henri Brisson, à quelqu'une de ces enquêtes par- è
 : lementaires dont on nous parle aujourd'hui, dont vous |
@@ -812,7 +798,6 @@ j a gulièrement imprudent de porter ici, monsieur Henri Hs:
 | pièce dont a parlé M. Jaurès, je n'ai jamais, quant à F #3
 moi, connu cette pièce ; aucune des personnes avec qui ‘4
 
-j'ai été en rapport au ministère de la guerre, ne m'en pl:
 a jamais soufflé un seul mot. 1
 Mais s'il s'agit de la lettre du général de Pellieux, en 14
 quoi cette lettre était-elle une pièce du dossier ? (Excla- À de
@@ -937,7 +922,6 @@ ge : Ainsi les panamistes les plus avérés flétrissaiént tumul-
 “4 A tueusement leur malheureux collègue M. Baïhaut, et leur
 
 ÿ 4 À collègue robuste M. Rouvier, futur ministre des finances ;
-à È i de la défense républicaine, et le président de leur Cham-
 
 ‘#3 bre, l'honorable M. Floquét, ancien ministre, ancien
 
@@ -996,8 +980,6 @@ politiques, dans les relations privées, dans les népo- ‘4
 * tismes et dans les flatteries, dans les haïnes et dans les pe de
 faveurs, et dans ce que M. Combes a nommé si heu- A
 _ reusement les faveurs gouvernementales, dans les rela- ; 1
-
-|
 
 dix-huitième cahier de la quatrième série
 
@@ -1092,13 +1074,11 @@ des séances capitales.
 Ce n'est pas seulement parce qu'elles étaient des
 | séances historiques, des grandes séances, des séances
 
-Len IS ce LA ES LE SE A 0
 éclatantes et tumultueuses, passionnantes, émouvantes, è 1 |
 | entraïnantes, que nous en avons publié dans ces cahiers 1
 le compte rendu sténographique in extenso d'après le ‘14
 Journal officiel ; mais c'est aussi parce qu'elles étaient ee
 des séances capitales. Nos cahiers sont des cahiers M
-de renseignements, de documents et de textes, je. 4
 oublie moins que personne. Trois abonnés de Tou- ‘4
 ï louse veulent bien me demander pourquoi ils ne trou- h. La
 vent pas dans la quatrième série de nos cahiers ces #4
@@ -1205,7 +1185,6 @@ mais inévitables. On ne peut pas faire autrement que
 : ries sont des tranchées à ciel ouvert. Il s'acharne à tra-
 : vailler sourdement, lentement, obscurément dans ces
 cavernes ; il fore, il taille, il creuse et il abat ; il geint; et
-pd il se cogne le front à la voûte. Et il n'y a pas de voûte. Et
 ; sur le bord de la tranchée les badauds s'arrêtent. Ils ont
 3 les pieds dans les terres que le noir terrassier a rejetées.
 Et tout le monde voit qu'il travaille au grand jour, et
@@ -1247,12 +1226,9 @@ effet il y avait menace de débâcle ou de déroute, qu'en D.
 ainsi non pas même un mouvement tournant, mais un ù M
 mouvement saxon. Pendant que M. Francis de Pressensé D
 triomphait de M. Lasies, les radicaux triomphaient enfin MORE |
-de M. Jaurès. .
 
 Qu'on relise attentivement le texte. On sent très bien % 4
 le moment où l'éloquence de la tribune devint de parade FA
-
-_toute et de masque, et ne servit plus qu'à masquer la à de
 
 réalité du jeu. Visiblement les orateurs nationalistes et 4
 
@@ -1456,7 +1432,6 @@ tion. Il fallait donc choisir un ennemi, laisser les autres, ‘4
 et totalement écraser celui que l'on aurait marqué. Ce #
 sont là faits de guerre, coutumiers, et qui ne relèvent
 
-| ous ns MA
 4 ix-huitième cahier de la quatrième série
 FN que de l'immoralité de la güerre. Mais le coup de
 Ke génie, politique et parlementaire, de Jaurès, fut de
@@ -1608,7 +1583,6 @@ $ amis. Le courage des hommes courageux peut presque ;
 Ke toujours se mesurer. La lâcheté des foules, en parti-
 & culier des foules parlementaires, est incalculable.
 ak Jaurès pouvait ne pas se tromper quand il tablait sur
-| 45 Tir.
 
 FAR dix-huitième cahier de la quatrième série
 Fe le courage de ses compagnons dreyfusistes. Mais il
@@ -1639,7 +1613,6 @@ Re que ces mêmes radicaux et que ces mêmes radicaux-
 A maudire, et d'exterminer verbalement. Il s'agissait de
 px se prononcer, de prendre parti, de se compromettre
 
-EE LR RL a VO ADE ECS À A be su EN AS RON LA DR à AT
 par un acte, par le peu d'acte qu'est un vote parlemen- FOR
 taire. On sait quelle était la teneur de cet ordre du |
 jour en sa seconde partie : La Chambre... et résolue à Ù
@@ -1692,12 +1665,10 @@ s'agit de courage et de décision courageuse. Le courage qu'il n'avait pas, quan
 Re que M. Brisson n'avait pas quand il était chef du gouk vernement, M. Brisson journaliste la trouve. M. Brisson
 14 journaliste n'a pas la plus petite hésitation sur les
 ne devoirs et sur les responsabilités d'un chef de gouver4 nement. Tous les jours M. Brisson nous explique le
-À matin dans Le Siècle ce qu'il avait à faire, et qu'il n'a
 fe, pas fait, pendant les semaines terribles, quand il avait
 * la charge, l'autorité, le pouvoir. Dans deux ans
 de M. Brisson nous expliquera, dans le Siècle, par les
 
-Er ch TN SO l Te DAME TER vita dE tige > AR PE CFE RAS PART EN TRACE
 —_ raisons les meilleures du monde, qu'il a eu tort, le
 mardi 7 avril 1903, à telle heure du soir, de s'abstenir
 dans le scrutin sur la seconde partie de l'ordre du jour
@@ -1754,7 +1725,6 @@ Il faut pouvoir dire aux électeurs dreyfusistes qu'on a
 pi Mais il faut pouvoir dire aux élecieurs nationalistes
 “2 radicaux et radicaux-socialistes que l'on a voté contre
 
-Ce pose oi MR EN to EN RON pi ON RS PS
 Il nous reste à examiner au point de vue dreyfusiste,
 et non plus seulement au point de vue de l'histoire par-
 ‘lementaire, au point de vue de la justice et du droit, et
@@ -1770,12 +1740,6 @@ ments officiels, à mesure qu'ils se présenteront. La
 sténographie des récents débats parlementaires ouvrait Ÿ
 \ ce dossier. Nous publions aujourd'hui la lettre de M.
 \ Alfred Dreyfus au ministre de la guerre :
-
-4 EN Br RAS SEXY fut AE MAROC th pe HR 2 Ft ET a PURE 0 #
-| REINE REA NU PA TN AE VE ADP EP AL cl à
-LAN RO ANRT : Le ts
-ni SN NE A REA ss +: LIT TTC SEES
-NT NES SSP Aer TT TNT AMENER 55 TANT En
 
 Le Temps daté du jeudi 23 avril publiait le texte
 . On nous communique la lettre suivante, qui vient d'être
@@ -1825,13 +1789,11 @@ FR le serment fut prêté. »
 te Ù Et maintenant, rappelez-vous la note que M. Hanotaux,
 a alors ministre des affaires étrangères, enferme dans l'ar-
 } moire de fer. « IL y a, écrit-il, plusieurs semaines déjà que
-A j'ai rappelé au président de la République et au président
 { du conseil les engagements pris au sujet du document en
 question. » Le mardi 4 décembre, à l'issue du conseil, il
 S rappelle de nouveau les engagements pris à ce sujet. (Voir
 ( procès de Rennes, Figaro, du 18 août 1899)
 
-se LETTRE AU MINISTRE DE LA GUERRE |
 Rappelez-vous la fameuse soirée où le ministre de la
 guerre, peu de jours après la condamnation de Dreyfus,
 s'apprête à donner l'ordre de mobilisation en vue d'une
@@ -1865,9 +1827,7 @@ mon pays vis-à-vis de l'étranger mal renseigné...
 À L'empereur d'Allemagne aime sa patrie, je l'admire. :
 ét Quant à moi, je me fais gloire d'être patriote aussi, d'aimer
 À la France, et même, au besoin, d'essayer de la faire aimer
-Qt. et de la défendre,
 Du: Que Dieu la protège!
-#4 « J 55
 
 Let Il résulte des déclarations contenues dans la lettrede .
 000 M. Ferlet de Bourbonne qu'il a existé une pièce portant
@@ -1881,15 +1841,12 @@ D démonstration est d'autant plus probante qu'elle émane
 71808 attribuée à l'empereur Guillaume II.
 4 L'influence de cette pièce est manifeste dans toutes
 te k les phases de la lutte engagée contre moi parles ennemis
-; # de la vérité et de la justice. !
-| 4 Dès le 4 novembre 1897, au moment de la campagne
 à : pour la revision, en vue de m'aliéner l'opinion publique,
 El la Libre Parole raconte que la pièce produite devant le
 “ conseil de guerre de 1894 n'est pas l'original qui consti-
 és tuait « une preuve si décisive de la culpabilité de DreyLL \ fus », que M. de Münster se rendit chez le général
 Mercier et le somma de la restituer.
 
-F é Le 16 novembre 1897, le commandant Pauflin de
 à Saïnt-Morel vint trouver M. Rochefort afin de le
 
 Fe documenter. Une interview de M.'Rochefort publiée
@@ -1901,8 +1858,6 @@ L supérieur lui dit: « En ce qui concerne Dreyfus, je
 mi. lait l'existence de prétendues lettres de l'empereur d'AId ÿ. lemagne.
 # M. Paléologue, dans sa déposition à la Cour de cas2e 56
 
-4} En "Ne LS RENE) Ver MENT À URSS Ar Lau aid) tirs at 7, WE AUX:
-|
 sation, dit que le lieutenant-colonel Henry, le 2 ou
 3 novembre 1897, a fait allusion à une lettre de l'empereur d'Allemagne.
 Le 15 février 1898, M. Millevoye, dans une réunion
@@ -1958,7 +1913,6 @@ k À Rennes, le commandant Merle, a fait une déclaration
 # des dépositions. On ne peut pas se faire une conviction
 1 -
 
-# “a Li GÉRÉE FL PAST PES E MAT AS épis À #0 ne De PTS DU RM APM NT RICE
 avec elles. Nous avons eu des éléments que vous ne pouvez pas connaître et qui nous ont fixés. » Le docteur
 Dumas, lui demandant alors si cet élément n'était pas
 le bordereau sur papier épais annoté par l'empereur {
@@ -2076,7 +2030,6 @@ b. : pays et qui, d'un instant à l'autre, voit flétrir son nom,
 | arracher son honneur, celui de ses-enfants ? On le jette
 $ dans un précipice, on le sépare des hommes, on l'ou-
 
-| LETTRE AU MINISTRE DE LA GUERRE
 | trage, on le condamne sur des pièces qu'on ne lui fait
 pas connaître.
 On lui fait subir pendant cinq ans les souffrances les
@@ -2165,22 +2118,12 @@ nous reproduisons ci-après fait éminemment partie
 4 d'un dossier Dreyfus, complète indispensablement le ”
 _  comple rendu des récents débats parlementaires :
 
-LE en NP ER PRES PTE Pat Le LA TRS AR VE BA
-Le à Ve RAR De tnt 147 E Fes Es RSC TEEN ; LENS
-Pa En de se QUE RS
-LE ERTINRE ETS DARAT AR ENT ner RS ne |
-Ne en: ENT
-RUE UE DT RTE MERE À k et DURE PO
-F RE EANE Ne Dre NN STATE. ri ar < à f Le LENS TU “
-| SLT SENTSS EDR Rs US 1'R PTE PR
-
 La Dépêche, de Toulouse, datée du samedi 11 avril,
 publiait l'article suivant : L J
 La clôture de la session a été en même temps la clôture :
 de la « reprise » de l'affaire Dreyfus.
 Cette « reprise » avait été annoncée, non sans fracas,
 commé un des événements sensationnels de la politique |
-de demain. $ 4 4
 Sans doute, beaucoup d'excellents républicains se demandaient quelle utilité pouvait bien avoir, quelques jours H
 avant l'application difficile et délicate de la loi de rgor, la
 réouverture de débats qu'avaient clos, tant bien que mal, |
@@ -2195,7 +2138,6 @@ Socialement, l'on pouvait aussi se demander si la VA ER
 l'impôt sur le revenu et les retraites ouvrières, qui passionnent à juste titre le prolétariat tout entier. ù
 se) L'heure paraissait donc assez mal choisie, à tous les
 
-11 A CS RE À de, FA du + NE A ER EEE TR MASTER APN ET RE RAT CAE
 dt points de vue, pour reporter la bataille sur des terrains
 “à j abandonnés par l'inertie même des intéressés. à
 sn à Le parti républicain se donnait ainsi les apparences d'une
@@ -2209,7 +2151,6 @@ a eux des documents sensationnels, décisifs, à révéler au
 rs pays. S'il en est ainsi, ne vaut-il pas mieux accueillir d'un
 WA seul coup toute la lumière, et disperser ainsi les suprêmes
 nf à fantômes d'une Affaire qui, si longtemps, obséda la nation
-4e et l'humanité ? »
 pi Ces scrupules, qui honoreront toujours la conscience
 Fee française, prévalurent. La Chambre admit que la question -
 Let 1 Elle l'a été, mais il faut bien convenir que ce fut sans
@@ -2228,7 +2169,6 @@ Li Seule, la communication secrète de cette fausse lettre au
 fe aurait menacé de déchaîner une nouvelle tempête judiciaire
 ns et politique. Mais cette communication n'est rien moins
 “à. que certaine jusqu'à présent, et la conversation du comEx : mandant Merle, transcrite par le docteur Dumas, ne conrs stitue pas un témoignage décisif, ni même très probant.
-RÈ Alors ?
 ; Alors, la Chambre, à une énorme majorité, s'est prononcée
 
 contre toute reprise politique de l'Affaire. Elle a laissé le à
@@ -2256,7 +2196,6 @@ Il ne faut pas essayer de faire revivre après coup les
 époques héroïques. On n'en évoque plus que la caricature
 L'intérêt de la vie s'est porté ailleurs, sur des problèmes ÿ
 d'une humanité plus large. ÿ
-En dehors des professionnels de la politique ou de la M
 jurisprudence, ce que la France veut maintenant savoir, 33
 c'est si le mouvement de libre pensée anticléricale et sociale, 572
 né d'ailleurs bien avant l'Affaire, et qui la dépasse comme “
@@ -2268,10 +2207,8 @@ Peuple par la Raison sera rétréci, canalisé, finalement 5
 La « reprise » de l'Affaire ne pouvait guère être qu'un +
 . épisode rétrospectif et même une déviation assez dange- Ÿ
 
-Pr T os SA PSN Da CORRE
  rense de la politique générale qui triompha aux élections
 
-PER d'avriligors 24 0 RE à ! PHP RENT CE
 La majorité républicaine de la Chambre Fa très bien Re
 1 compris. Elle a clos la « reprise » inopportune d'une
 % « Affaire » qui regarde surtout maintenant M. Alfred
@@ -2280,12 +2217,9 @@ ne: $ voulu clore sa session avant d'avoir signifié au ministère ke
 10 à Combes sa confiance dans l'action décisive contre l'Église
 _ et pour la Démocratie. \ A
 : #8 Noire collaborateur Bernard-Lazare nous & envoyé
-4408 . . A . . « ‘La \ du Midi, où il poursuivait sa convalescence, la lettre
 ts FE | suivante, que je gardais pour le premier cahier de
 _: 1108 courriers, mais dont je ne puis ajourner plus longtemps
 Ùù_ la publication:
-
-Mon cher Péguy à
 
 Reçu le cahier de courriers. J'ai lu le courrier 5e
 
@@ -2334,7 +2268,6 @@ Pourquoi ? Parce qu'elle montra : É
 1 que les usuriers maltais, italiens, espagnols, mozabites
 
 ‘# n 2° Que c'étaient ceux qui prenaient l'intérêt le plus
-ne bas; <
 we 2 3 Qu'ils n'expropriaient pas et ne ruinaient pas
 3 l'arabe, parce qu'ils restent dans le pays tandis que les
 à : autres usuriers fuient après avoir épuisé un village et

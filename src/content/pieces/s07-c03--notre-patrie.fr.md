@@ -7,19 +7,8 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 22578
 ---
-eu. LES ST AR
 lu paraissant vingt fois par an |
-l <-1#tpties on ASSET F Ÿ :
 _ 8, rue de la Sorbonne, au rez-de-chaussée
-
-RS SRE NET CR ee PCR a: DL NE NP EI
-sÿl Ware MEN 1£ ” 4 Ps k LS Le Br 1
-#5 XD TOR
-Ne Rex
-
-DRE CNNTE OM RATS U et A Se
-
-| FÉSMNENEN : \ RES er UE
 
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, I900-I904, un si
@@ -75,26 +64,14 @@ ki. peut consulter, — provisoirement, — la petite table
 n_ analytique très sommaire que nous avons publiée en fin
 LS de ce cahier index.
 
-> ARCS
-
-ta
-
-| ERLES <
 n. cahier pour le voyage
 a de visite
 “14 du président de la République \
 ie (et en Portugal)
 ‘1 Alors dans Besançon, vieille ville espagnole. ? ñ
 
-| RE PAS EE ARC MArAU LOWER EURE RARE A el ONE
-
 4 notre patrie |
-ni!
-| ià (| ; Ps
 
-RPACARS AUTONET, VOD SENS M. ts et 01 Pa y<:2ns
-| Ce ? TER es
-| 5/2 cé
 , 4
 
 Ce fut une révélation, et je ne ferai pas pour cette fois
@@ -147,7 +124,6 @@ deckisme; sincèrement peut-être, au moins pour Certains hommes, et pour certai
 
 10 4
 
-fi NOTRE PATRIE
 1e certaine partie, et pour certaines idées; mensongèreJi ment certes, pour presque toutes les per$onnes, en
 k4 presque toutes les circonstances, pour la plus grande -
 fs part, et pour presque toutes les idées ; mesurer, doser
@@ -268,10 +244,8 @@ votée assez juridique, c'est-à-dire, en un certain sens, i
 un peu waldeckiste; quélle fut la politique du Gouver- ù
 
 14 24
-| :
 
 10 4
-#
 il nement envers le Saint-Siège; et quelle avait été la polik tique du Saint-Siège envers le gouvernement français ;
 À comment les anticléricaux se conduisirent ; comment les
 F :  anticatholiques se conduisirent ; comment les cléricaux
@@ -385,8 +359,6 @@ tique, plus voulu qu'on ne l'a généralement pensé; qu'il +À
 ne l'a montré lui-même ; ou laissé voir; que le rusé petit 4
 18 4
 
-ik NOTRE PATRIE
-
 populaire sentait approcher les difficultés, venir les
 il _impossibilités ; qu'étant tout de même chef du gouverl nement il avait des raisons, que nous ignorions, de
 sentir monter cet orage que nous ävons connu depuis;
@@ -418,7 +390,6 @@ n'avait pas eu beaucoup plus d'importance, et surtout
 beaucoup plus d'importance réelle, que l'attribution,
 
 demi spontanée, demi calculée, demi négligée, du porte- -
-feuille de l'intérieur et de la présidence du conseil à un F
 sénateur ancien ministre de l'instruction publique, À
 vague, de piètre souvenir, M. Justin-Louis-Émile Combes ; É
 j'aurais examiné, plus généralement, et plus durablement, si la politique financière de M. Rouvier n'a point
@@ -527,7 +498,6 @@ monde, avait reçu le roi d'Espagne ; événement à la fois
 glorieux, solennel, et inaperçu ; un roi : sous la Répu- :
 blique, nous en avons tant vus, de rois; semaine
 { singulière, événement habituel, demi-réjouissance, demifête, demi beau temps, demi travail; sans rien interrompre, parce que l'année n'était pas finie, parce qu'il
-\ y avait eu beaucoup de travail, et qu'il y en avait
 \ encore beaucoup en train, tout de même on allait voir
 un peu passer je roi, histoire de le visiter, comme avait
 dit l'un de nos bons collaborateurs ; demi beau temps,
@@ -809,7 +779,6 @@ conformément au même rythme horizontal, toute rou- à
 lante et passante d'un même rythme sacré; le roi ï
 n'était plus un roi, ni les soldats des soldats, mais ÿ
 
-| NOTRE PATRIE
 ensemble ils étaient des mobiles, comme le disent nos
 mécaniciens, des mobiles en mouvement, ensemble ils
 formaient un cortège indivisible, comme le peuple formait un peuple de spectateurs indivisible ; et le cortège
@@ -871,9 +840,6 @@ aujourd'hui, parce qu'il fut démocrate sur la fin de ses M
 ; jours ; mais, dans la démocratie même, sénateur et pro- É
 cessionnel ; manifestant de manifestations et manifestant de cérémonies; comme le peuple, avec le peuple,
 34 4
-
-À RG bte SET ES EEE Le ee LT NT MORE
-fr NOTRE PATRIE
 
 : dans le peuple, un Hugo se dérangeant pour aller voir
 ({ passer des chevaux, fussent-ils militaires, de préférence
@@ -961,7 +927,6 @@ k place du Panthéon, rue Soufflot, en demi-cercle, en
 ') peloton, en ligne, et füt-ce Pour y assurer le plus banal
 (À des services d'ordre, sans qu'aussitôt ce soient des vers
 . de Hugo qui des profondeurs impérieusement vous
-n, remontent à la surface de la mémoire; en de tels
 … moments, publics, dans ces publiques solennités, quand
 ÿ l'homme n'est plus lui-même, un homme, un citoyen, une
 … conscience, un cœur, mais lui-même, lui aussi un homme
@@ -1085,8 +1050,6 @@ $ Une fille, aux baisers du crime habituée,
 Paris 1905, nous apportera des vers comme ceux qui
 nous remontaient à la mémoire en ce commencement de
 
-RP ee de
-Charles Péguy "TA
 juin, je proclamerai qu'il est, comme on nous le fait dire,
 le Hugo de cette génération. ‘4
 Plus présent encore le bourdon, et plus retentissant 4 |
@@ -1108,7 +1071,6 @@ Voici les rats et les belettes, -
 Pourquoi t'es-tu laissé lier de bandelettes ? }
 Ils te mordent dans ton cercueil ! 1
 De tous les peuples on prépare 3
-Le convoi... — ne.
 Lève-toi ! à ;
 Quelle exacte reconstitution de cloches, du bourdon,
 par le rythme, par la rime, par les assonances et par « les consonances, par tout le mouvement, par toute la
@@ -1243,7 +1205,6 @@ pacifisme qui réussira, au moins officiellement et dans À
 les déclarations verbales, quand il voit que c'est le paci- : M
 fisme qui fera les gloires et les universelles popularités, À
 les internationales circulations, quand il voit que dans 4
-la guerre de la paix et de la guerre en définitive c'est la 4
 paix qui, formellement au moins et officiellement, a fait 1
 à la guerre une guerre victorieuse, quand la victoire de ‘M
 la paix est assurée officiellement, il n'hésite plus : il se |
@@ -1256,8 +1217,6 @@ popularité où il mourut, cette gloire indiscutée où il 4
 triompha, il prépare cette apothéose inouïe où il se 24
 survécut plusieurs semaines. Les militaires en firent k
 les frais. Ce sont des braves gens, tout de même, ces 4
-
-ka ? NOTRE PATRIE
 
 ï militaires, et bien utiles pour ces sortes de cérémonies.
 
@@ -1397,7 +1356,6 @@ Et leur âme chantait dans les clairons d'airain ! 4
 mémoire si souverainement, qu'ensuite ils se repré- hs.
 sentent tous ensemble, sur un seul et vaste plan de M
 représentation, et qu'il n'importe plus par quel bout À
-l'on se prend à se redire le poème : à
 En un clin d'œil, L
 Comme s'envole au vent une paille enflammée, É
 S'évanouit ce bruit qui fut la grande armée, À
@@ -1494,7 +1452,6 @@ n'a-t-il aucune tendresse, aucune faiblesse, aucune affection, secrète, pour le
 
 litaires. Sa situation est parfaitement loyale, étant parfaitement simple. Pour moi, prévoyant que nous aussi
 nous aurions à parler cette année de la guerre et de la
-paix, de la patrie et de l'humanité, et de la relation de
 la patrie à l'humanité, je tenais expressément à ce que la
 thèse du pacifisme le plus pur fût présentée dans ces
 cahiers au commencement de cette série; qu'elle en fit
@@ -1502,7 +1459,6 @@ pour ainsi dire l'ouverture, ou, pour parler un langage
 plus noble, étant plus contemporain, l'introduction ;
 sans abuser d'un mot qui a été galvaudé irrémédiablement depuis trente années, je tenais expressément à ce
 
-| Charles Péguy Fa
 que la thèse du pacifisme intégral fût intégralement "3
 aussi la thèse qui apparaîtrait ici au commencement de 4
 cette nouvelle année de travail. J'ai donc été particu- ‘à
@@ -1532,7 +1488,6 @@ Pair du royaume. Pair de France. Vieux malin. Sénateur de la République. Séna
 Seine. Sénateur de Paris. Le peuple aussi est sénateur 1
 de Paris, parce que tout le monde ne peut pas être :
 
-| NOTRE PATRIE à
 En même temps le peuple veut rêver de guerres; il
 | se délecte autant que jamais aux narrations des guerres :
 | passées; il aime autant que jamais les guerres, pourvu
@@ -1595,8 +1550,6 @@ adorations. Et durant ces cinq longues semaines du j
 mois de juin dernier passé, aujourd'hui nous savons, k
 par des infiltrations ultérieures, qu'un certain nombre 1
 
-(te NOTRE PATRIE
-
 h. de Français se dirent que si enfin le fait imminent
 D devait se faire, il aurait tout de même été plus agréable
 14 d'avoir pour ‘général en chef un certain général
@@ -1616,7 +1569,6 @@ N situation personnelle de Hugo envers Napoléon. Et en
 À n'est aussi curieux. Rien n'est aussi saisissant. Disons
 \h le mot, car le vieil Hugo ne s'embêtait pas tous les ;
 a. jours comme un burgrave, rien n'est aussi amusant. IL
-‘4 n'y à pas un homme au monde, il n'y a jamais eu un
 \f homme dans toute l'histoire du monde, qui ait rendu
 ‘4 autant de services à Victor Hugo que Napoléon Bona4 parte, si ce n'est Napoléon premier, aucun homme, non
 4 pas même Dieu, dont pourtant il s'est beaucoup servi,
@@ -1628,7 +1580,6 @@ le non pas même Hugo même. Admirable, unique fournis-
 à ments ; c'est-à-dire, les lisant dans le livre ou dans votre
 l mémoire, sur le texte, luttez un peu, si vous le pouvez,
 
-Charles Péguy L:
 contre l'entraînement formidable de l'image et du L
 rythme : et alors, sous la farieuse colère apparente et À
 réelle, sincère, contre Napoléon III et contre le #
@@ -1781,7 +1732,6 @@ k. Il compte de ton sein les battements sans nombre. ù
 FE Et, comme un loup rôdant, comme un tigre qui guette,
 … Par moments, de Satan, visible au seul poète,
 * La tête monstrueuse apparaît à ton seuil!
-# VIIL
 … Hélas !si ta main chaste ouvrait ce livre infâme,
 1 4 Tu sentirais soudain Dieu mourir dans ton âme.
 ; . Ce soir tu pencherais.
@@ -1791,7 +1741,6 @@ aussi mauvais. Ils sont là, pourtant. Ils sont dans son
 Œuvre, au même titre que le reste. Au même titre que <
 le reste, ils entrèrent dans nos mémoires d'enfants.
 Ain si au même titre que le reste ils resteront éternellem ent dans nos mémoires d'hommes.
-k qi y a eu le Victor Hugo du sacre.
 | Crest une des forces de Hugo, peut-être sa force prin-
 “cipale, on peut dire que ce fut la force de Hugo que :
 cel te impudence tranquille. Plus que cette impudence
@@ -1926,7 +1875,6 @@ if L'un sur l'autre à grands cris fondre deux camps rivaux.
 È Le roulement des chars, le sifflement des balles,
 Et, de monceaux de morts semant leurs pas sanglants,
 à Je voyais se heurter, au loin, par intervalles,
-4 î Les escadrons étincelants!
 h Avec nos camps vainqueurs, dans l'Europe asservie
 4 J'errai, je parcourus la terre avant la vie;
 4 Et, tout enfant encor,.…
@@ -1992,12 +1940,10 @@ il Comme des fleurs de pourpre en l'épaisseur des blés; »
 [he Je tremble, et dans ma bouche abondent les paroles
 
 11 uand son nom gigantesque, entouré d'auréoles,
-ta o D
 tr Se dresse dans mon vers de toute sa hauteur.
 À Là, je le vois, guidant l'obus aux bons rapides ;
 
 LA Là, massacrant le peuple au nom des régicides ;
-|
 
 Là, consul jeune et fier, amaigri par des veilles
 Que des rêves d'empire emplissaient de merveilles,
@@ -2020,15 +1966,12 @@ Au sacre du malheur il retrempe ses droits, ;
 Tient au bruit de ses pas deux mondes en haleine, 4
 Et mourant de l'exil, gêné dans Sainte-Hélène, ;
 Manque d'air dans la cage où l'exposent les rois ! É
-il
 Qu'il est grand à cette heure où, prêt à voir Dieu même, ]
 Son œil qui s'éteint roule une larme suprême! ;
 Il évoque à sa mort sa vieille armée en deuil, à
 Se plaint à ses guerriers d'expirer solitaire,
 Et, prenant pour linceul son manteau militaire, à
 Du lit de camp passe au cercueil ! °
-
-Lie nt Cet RES ne
 
 4 A Rome, où du sénat hérite le conclave, :
 4 A l'Elbe, aux monts blanchis de neige ou noirs delave,
@@ -2112,7 +2055,6 @@ du mot Bonaparte, surtout si vous l'écrivez Buonaparte et si vous le prononcez 
 “ Avant de nous rasseoir pour dépouiller le courrier de
 
 ce jour, écoutons la prière à Bounaberdi; grand comme |
-le monde : \
 
 Souvent Bounaberdi, sultan des Francs d'Europe,
 Que, comme un noir manteau, le semoun enveloppe,
@@ -2140,7 +2082,6 @@ Car je suis libre et pauvre, un Arabe du Caire,
 Et quand j'ai dit : Allah! mon bon cheval de guerre 4
 Vole, et sous sa paupière a deux charbons ardents! L
 
-| NOTRE PATRIE
 Novembre 1828.— Décidément mon cahier serait un
 cahier très sage, qui ferait plaisir à tout le monde, k
 même à mes amis, et qui me vaudrait les compliments
@@ -2231,7 +2172,6 @@ _ assombri la fin de ces fêtes, il n'avait pas seulement
 e _ grave, il avait rompu la trêve; il faut redire le mot, il
 ' avait rompu le charme; on eut immédiatement l'impres_ sion que cette intervention brusque avait rompu tout un
 4 enchantement, que c'était lui, l'attentat, qui était réel, et
-#3 37
 
 que c'étaient les fêtes qui étaient imaginaires, feintes, que É
 l'enchaînement de cette année pénible n'avait point été ;
@@ -2301,7 +2241,6 @@ Nous étions donc venus à Paris débarrassés tout de
 bon état; c'était un gros souci de moins; il ne restait
 plus qu'un monde connu, le monde exploré des soucis
 
-#4 a
 quotidiens, le moride ennemi et parent des soucis fami- |
 
 Comment en l'espace d'un matin tout le monde,
@@ -2336,7 +2275,6 @@ qui se rencontraient se communiquaient, ce n'était pas
 la nouvelle, ce n'était que la confirmation, pour chacun #4
 d'eux, d'une nouvelle venue de l'intérieur; la connais- È
 
-|
 : sance de cette réalité se répandait bien de proche en
 proche; mais elle se répandaït de l'un à l'autre comme
 une contagion de vie intérieure, de connaissance inté-
@@ -2356,39 +2294,21 @@ une commune reconnaissance intérieure, une connais-
 + nance profonde, cette voix qui n'était pas une voix du
 dehors, cette voix de mémoire engloutie là et comme
 É amoncelée on ne savait depuis quand ni pour quoi.
-de.
-
-= ne Ci le NT 2 FU RER
-PTE NT Le DE OUT OT ET (Mel CR PO API
-
-LE - : re LRU ST SNINRRS
-
-LATE Er ni) ms HA 14) ri TNA
 
 # Notre catalogue analytique sommaire, notre petit :
 ) index alphabétique provisoire du catalogue analy- :
 &: tique sommaire; notre petite table analytique provi-
 
 À soire très sommaire de notre sixième série......... 2
-À CARPEnOUrR le POTALe e eue Jde es b eue 5
-
-à CxHarLes Péeuy. — Notre patrie.............. 7
-Wet Habiede ce Cahier. 22. Net er ee 83
 
 k Nous avons donné le bon à tirer après corrections
 
 sl pour deux mille exemplaires de ce troisième cahier le
 
-é: * Le gérant : CHARLES PÉGUY
-
 1 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-
-SR CLR TE TS - NE RE ps PEN wi CE |
 
 7 720
 
-# ‘at , ;
-“à GAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 8 rez-de-chaussée, Paris, cinquième arrondissement.
 És. Nos Cahiers sont édités par des souscriptions menEE suelles régulières et par des souscriptions extraordii naires ; la souscription ne confère aucune autorité sur
 ; la rédaction ni sur l'administration ; ces fonctions

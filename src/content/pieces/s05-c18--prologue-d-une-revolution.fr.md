@@ -10,7 +10,6 @@ wordCount: 94113
 0 _- paraissant vingt fois par an BE
 8, rue de la Sorbonne, au rez-de-chaussée
 
-| | Ro
 Nous prévoyons que le premier cahier de la sixième LE TPE
 série, paraissant le dimanche 2 octobre prochain, sera 5
 le catalogue analytique sommaire de nos cinq premières ne ‘#4
@@ -36,8 +35,6 @@ temps cette personne ; elle recevra en octobre notre +3
 Nous demandons particulièrement à nos abonnés 4
 d'utiliser les déplacements des vacances pour nous
 chercher des abonnés nouveaux. E 2 4
-
-NS SES re SE
 
 Notre collaborateur Émile Buré nous avait proposé |
 de nous faire un cahier de la double révolution de |
@@ -152,7 +149,6 @@ Louis Ménard; cette réaction, qui défend l'homme L
 contre la série, est légitime et salutaire ; cette diver- ' F
 gence de résultat traduit exactement une divergence ‘4
 
-|: 10m
 _ de situation dans le travail; et elle est, aussi, une À
 _ résultante et une manifestation de notre commune
 à Heureuse et juste liberté de travail; parce que ce
@@ -162,12 +158,9 @@ _ mais parce qu'elle est une notice biographique de Louis
 _ Ménard, elle marche un peu contre l'avertissement que
 - j'ai fait pour le cahier.
 
-ne
-
 Chacun sait que Louis Ménard mérite une renommée
 qu'il n'a pas, et le respecte infiniment sans cesser
 ; de l'ignorer. Cette notoriété singulière est pourtant
-L explicable.
 __ ‘ Le public adresse une double demande à ceux qui
 4 font profession d'écrire. Il veut qu'on l'instruise, car la
 * vie impose le travail; il veut qu'on le distraie, car le
@@ -180,7 +173,6 @@ On sait qu'il fut polythéiste, commentateur de tous
 3 les mythes, divinateur de tous les mystères; qu'il
 À célébra les rites de Vénus et révéra dévotement la
 * chaste sœur de cette déesse, Marie, vierge et mère de
-De Jésus.
 É: Fleur du paradis, Vierge immaculée,
 4 Puisque ton chaste sein conçut le dernier Dieu,
 4 Règne auprès de ton fils, rayonnante, étoilée,
@@ -281,7 +273,6 @@ celle des vivants. » 1}
 Que ce langage est mélancolique, et, malgré les ap- 4
 parences de la profondeur et de la sérénité, comme il
 
-Le 2 2 LE pe RE nr d'ltre NÉ RÉEERES Do ESRSS SP ASENE ME A TD AE
 _ est amer et borné! Il est assez beau d'être un homme,
 -  dirions-nous, et il n'est que trop diflicile d'être de son
 ! pays et de son#emps. Nous ne savons, nous ne pou1 vons savoir si notre époque est stérile : nos successeurs
@@ -299,14 +290,6 @@ approuver. Il se souviendrait de sa jeunesse militante,
 % de sa vie, et il nous saurait gré d'avoir choisi dans son
 : œuvre oubliée, pour le réimprimer ici, ce travail d'ado4 lescent, ce petit livre irrité, le Prologue d'une Révo-
 
-CRE Re Ar US De RAT dE HP rare
-Le date æ E RES re 2: ne PRE 2 TAPER
-je SES LOFT ENS L
-| & na cs
-rs TES RSS
-ne:
-
-, ve RER Le: # Fa cage À : Pr + A SA ' ET Se
 É. prologue d'une luti +
 Pr révolution ne
 
@@ -342,20 +325,12 @@ des aspects topographiques et sociaux. (1)
 compris aujourd'hui dans les premier, deuxième et neuvième |
 arrondissements. La mairie en était rue Pinon, aujourd'hui rue |
 
-| D'UNE
-|
 | Une révolution qui n'a pas pour
 
 le sort du peuple n'est qu'un
 | crime remplaçant un autre
 
-| PALS DA, RE
-| PARIS, \ M. \
 | 1849
-
-: NE ts SEE TT NN è) ARS PRET
-; + LUN \\ [7 A ÈRETPERN LÉ PORALS C Mie on
--! TANT è hs KE nes
 
 ,
 
@@ -377,7 +352,6 @@ guerre aux bureaux de la Réforme. -
 Journée du 22 février. — Rassemblements populaires. —
 Préparatifs du pouvoir. — Hésitation des troupes et de
 | la garde nationale. — Premières barricades.
-|
 La Révolution française avait été brusquement
 - arrêtée dans sa marche le 9 thermidor, au moment où,
 … victorieuse de ses ennemis, elle préparait la solution
@@ -504,7 +478,6 @@ ennemies et d'entraînements aveugles, par lesquels le
 discours de la couronne avait flétri les banquets. Le
 | ministère, rassuré, voulut en finir avec ces manifesta- :
 tions inquiétantes, et déclara s'opposer au banquet
-| annoncé.
 4 Ici, l'arbitraire devenait flagrant et intolérable; depuis
 | plusieurs années on avait exhumé de vieux décrets
 9 contre les associations, mais le droit de réunion avait
@@ -514,7 +487,6 @@ F toujours été reconnu, et rien dans notre législation
 % députés et trois pairs de France, d'Alton-Shée, de
 
 Boissy et d'Harcourt, manifestèrent l'intention de
-passer outre. L
 Au milieu de l'agitation des esprits, une telle résolu- ;
 tion pouvait amener une émeute; le gouvernement ne :
 l'ignorait pas; toutes ses mesures étaient prises depuis
@@ -539,8 +511,6 @@ De toutes les maladresses de l'opposition constitutionnelle, aucune peut-être n
 livrait sans défense à leurs ennemis ceux qui répondaient à son appel; si le ministère eût dirigé le
 mouvement, il n'eût pas agi autrement. Enfin, les |
 commissaires du banquet, pour rendre la manifestation
-
-| D'UNE RÉVOLUTION
 
 | plus imposante, invitèrent tous les membres de la garde
 nationale qui partageaient leurs opinions à se rendre
@@ -578,8 +548,6 @@ ramifications parmi les ouvriers, se décidèrent à se
 porter au lieu du rendez-vous, sans armes et par petits
 groupes, pour agir sur l'esprit des masses, profiter des
 
-| 9 de ,
-
 circonstances, et imprimer une direction au mouve- |
 
 La veille du jour fixé pour le banquet, une réunion e
@@ -593,7 +561,6 @@ tergiversations de ses représentants. Dans la matinée
 du mardi 22, des groupes nombreux d'ouvriers se ré- :
 pandirent sur les boulevards et dans les environs des À
 Champs-Élysées. A dix heures, des étudiants, au \
-nombre de 150, partent de la place du Panthéon et se L
 ! réunissent sur les quais à un cortège de plus de deux
 mille ouvriers descendus des faubourgs. La colonne se |
 dirige, par la rue Saint-Honoré, vers la place de la :
@@ -648,8 +615,6 @@ partagea les armes. Les rassemblements dissipés par
 
 , les charges de cavalerie se reformaient sur d'autres
 
-| II
-
 points, et bientôt le mouvement se répandit dans tout %
 Paris. A l'exception d'un poste de municipaux désarmé 1
 au carré Marigny, aucun engagement n'avait eu lieu, et ;
@@ -688,7 +653,6 @@ Massacre du boulevard des Capucines.— Journée du 24. —
 Défection de la troupe. — La garde nationale entraînée
 dans le mouvement. — Concessions tardives du roi. —
 Ministère Thiers. — Ministère Barrot. — Abdication du F
-roi. — Sa fuite.
 Combat du Château-d'Eau. — Prise des Tuileries. — Probité du Peuple.
 La nuit fut calme : les patrouilles de garde nationale
 et de ligne parcoururent les rues et opérèrent de nombreuses arrestations. Le lendemain 23, le ciel était
@@ -773,11 +737,9 @@ Que l'application de l'armée à la compression des
 troubles civils est attentatoire à la dignité d'un Peuple 1
 libre et à la moralité de l'armée elle-même;
 
-Qu'il y a là renversement de l'ordre véritable et
 négation permanente de la liberté ;
 
 Que le recours à la force seule est un crime contre
-le droit; 1
 
 Qu'il est injuste et barbare de forcer des hommes
 de cœur à choisir entre le devoir du militaire et celui du !
@@ -864,7 +826,6 @@ court à cheval les rues de Paris avec Odilon Barrot et j
 Horace Vernet, et essaie en vain de persuader au ï
 Peuple de mettre bas les armes; partout on leur À
 répond : « Nous avons assez des endormeurs. » Et le |
-|
 
 | Le roi, d'après le conseil de M. Crémieux, se décida
 alors à élever Odilon Barrot à la présidence du conseil.
@@ -947,10 +908,6 @@ respect pour la propriété, qu'il comprenait la sainteté
 
 de sa cause.
 
-TR NE me A PS À f: Qui
-
-Syta + i) L si dt 7
-
 Efforts suprêmes de la royauté. — La duchesse d'Orléans
 à la chambre. — Dupin parle en faveur de la régence. —
 Marie et Crémieux demandent un gouvernement provi-
@@ -1005,8 +962,6 @@ nombre de voix l'appellent à la tribune, maïs la tribune
 est occupée par M. Marie, qui prend la parole.
 « Messieurs, dans la situation où se trouve Paris,
 
-|
-
 vous n'avez pas un moment à perdre pour prendre des
 mesures qui puissent avoir autorité sur la population.
 Depuis ce matin le mal a fait d'immenses progrès, et
@@ -1044,7 +999,6 @@ chambre. Enfin, M. Odilon Barrot monte à la tribune.
 … nation; il s'adresse à ce qu'elle a de plus généreux et
 de plus intime : à son courage, à son honneur. La coui 25
 
-OT 2 fr nat à A LACES } * ; AE ARE D COM PAPE EN NE NRETEES oA TOR
 ronne de Juillet repose sur la tête d'un enfant et d'une 1
 A ce moment la duchesse salue l'assemblée, elle |
 invite le comte de Paris à en faire autant. Puis elle fait
@@ -1072,7 +1026,6 @@ tion exorbitante, au moment de la victoire du Peuple, i
 fut accueillie par des rires ironiques. Ce parti était 4
 tombé deux jours auparavant sous le poids du mépris: Ÿ
 le ridicule l'achevait. Si
-M. de la Rochejacquelein succède à M. Barrot. |
 « Il appartient peut-être, dit-il, à ceux qui dans le
 
 passé ont toujours servi les rois de parler maintenant
@@ -1175,8 +1128,6 @@ bas la chambre! pas de députés!
 
 À tribune ; il était dirigé contre Lamartine, qu'on prenait
 
-|
-
 de loin pour Guizot. Le président Sauzet, épouvanté, 4
 quitte le fauteuil et s'enfuit. Des voix nombreuses E
 s'écrient : Un autre président! Dupont (de l'Eure!) à
@@ -1205,7 +1156,6 @@ noms furent proposés par des hommes du Peuple, entre *
 autres celui de Louis Blanc.
 Presque tous les députés étaient sortis; le tumulte 4
 
-1e is ai D'UNE RÉVOLUTION ee
 __ était au comble; de tous côtés on crie : à l'Hôtel-de-Ville! x À
 vive la République!
 : Un ouvrier, montant sur le bureau, s'écrie : — A bas 1
@@ -1218,11 +1168,7 @@ _ détruire? s'écrie-t-il. Nous avons montré qu'il ne faut
 Enfin la foule commence à diminuer. On se dirige
 
 vers l'Hôtel-de-Ville, et bientôt la salle est complètement
-|
 4 4
-
-Lil PU AE Aie A Et A AA Fe han Se
-tÆ de: $ ne HCERU 7
 
 Première proclamation. — Distribution des Ministères. —
 à Le Peuple impose la République au Gouvernement provisoire.
@@ -1289,7 +1235,6 @@ aux besoins les plus pressants.
 « Fait à Paris, en l'hôtel de la préfecture de police, le
 
 « Les délégués au département de la police,
-« CAUSSIDIÈRE et SOBRIER. »
 
 Comme on le voit, cette proclamation ne contenait
 
@@ -1323,7 +1268,6 @@ le Moniteur. 1
 d'être renversé par l'héroïsme du Peuple de Paris. Ce ;
 gouvernement s'est enfui en laissant derrière lui une
 trace de sang qui lui défend de jamais revenir sur ses
-pas.
 
 « Le sang du Peuple a coulé comme en Juillet ; mais #
 cette fois, ce généreux sang ne sera pas trompé. Il a à
@@ -1359,13 +1303,11 @@ sauf ratification par le peuple qui sera immédiatement
 
 | « L'unité de la nation, formée de toutes les classes
 
-| À APS Be SUN AT PAR PEAR CT AA ANT ETES RS
 de citoyens qui la composent ; le gouvernement de la |
 nation par elle-même ; la liberté, l'égalité et la fraternité pour principe; le Peuple pour devise et mot |
 d'ordre, voilà le gouvernement démocratique que la
 France se doit à elle-même et que nos efforts sauront È
 lui assurer. : |
-: « Dupont (de l'Eure), LAMARTINE, CRré- L
 MARIE, ARAGO, membres du gouvernement provisoire.
 On remarque que dans cette proclamation le Gou- 3
 vernement provisoire est formé exclusivement d'anciens
@@ -1407,7 +1349,6 @@ F entière, et recevoir le gouvernement qui émanerait de » cette décision.
 … barricades. Un peuple n'a qu'un jour pour réclamer ses
 ……._ droits: c'est le jour qui suit la victoire; attendre au
 - lendemain, c'est consacrer par sa faiblesse l'éternelle
-—_ usurpation de la ruse et de la violence.
 —._ L'insistance du Peuple prenait à chaque heure de
 - retard un caractère plus menaçant; les barricades
 . n'étaient pas encore détruites, et on parlait déjà de
@@ -1516,9 +1457,6 @@ Cependant, ceux contre lesquels on prenait tant de ;
 
 précautions, le lendemain deleur victoire, se montraient
 
-SES Lee
-es D'UNE RÉVOLUTION
-
 % sublimes de pardon, de clémence et d'oubli. Le Peuple
 7 embrassa tous ses ennemis dans une amnistie univer-
 } de Février étaient noyés dans un déluge de proclamations à la garde nationale, à l'école polytechnique,
@@ -1557,8 +1495,6 @@ cha la question par un misérable subterfuge. On .
 conserva le drapeau tricolore, mais on changea l'ordre k
 des couleurs, puis, quelques jours après, on le rétablit |
 tel qu'il était avant la Révolution. \
-
-Ces souvenirs de 93, qu'on invoquait en faveur du
 
 drapeau tricolore, on semblait s'efforcer de les faire 4
 oublier : ainsi on proscrivait le bonnet phrygien, symbole glorieux et sacré qui, certes, représentait aussi ;
@@ -1612,8 +1548,6 @@ d ministres déchus, et on publia une proclamation de
 Quatre mois après, les vaincus de Février recon-
 è nurent cette amnistie par l'assassinat de trois mille
 
-is NE Ale HER À ( OUT SUR RE le SR NES
-
 4 La curée des places. — Inquiétude du Peuple. — Proclama-
 | tion socialiste dictée au Gouvernement provisoire. — La
 question sociale posée par le Peuple à l''Hôtel-de-Ville. —
@@ -1635,7 +1569,6 @@ bien placer leurs amis.
 : On reprocha à M. Crémieux, ministre de la justice,
 *4 la préférence marquée qu'il montra pour ses coreli-
 à gionnaires. On se plaignit aussi du grand nombre
-| ÿ
 
 d'emplois confiés aux anciens rédacteurs du National. 1
 Ce journal était l'organe des opinions de la bourgeoisie À
@@ -1665,7 +1598,6 @@ avec la signature de Sobrier. À
 « 1° Droit au travail. Obligation pour le pouvoir public |
 de fournir du travail, et au besoin un minimum à tous
 
-| D'UNE RÉVOLUTION
 : les membres de la Société que l'industrie privée n'oc-
 à cupe pas.
 
@@ -1701,7 +1633,6 @@ Le gouvernement avait pris, dès le lendemain de la
 Révolution, un engagement qu'il fallait remplir. Lorsqu'il était encore sous la pression du Peuple, il avait
 
 rendu le décret suivant dont les deux premières lignes “4
-indiquaient le but et le sens de la Révolution : ù Ê
 « Le gouvernement provisoire de la République fran-
 çaise s'engage à garantir l'existence de l'ouvrier par le l
 « Il s'engage à garantir du travail à tous les citoyens ; « « Il reconnaît que les ouvriers doivent s'associer
@@ -1777,12 +1708,9 @@ Le premier acte de la commission du Luxembourg Ë
 fut de faire rendre par le gouvernement provisoire le 4
 décret suivant, dont les termes avaient été fixés d'un 1
 commun accord par les délégués des patrons et des |
-ouvriers : L
-« Sur le rapport de la commission du gouvernement e
 pour les travailleurs, 1 d
 « 1° Qu'un travail manuel trop prolongé, non-seulement ruine la santé du travailleur, mais encore, en ;
 l'empêchant de cultiver son intelligence, porte atteinte É
-à la dignité de l'homme ; L
 « 2° Que l'exploitation des ouvriers par les sous-entre- 1
 preneurs ouvriers, dits marchandeurs ou tâcherons, est k.
 
@@ -1893,7 +1821,6 @@ communion des esprits, n'y renonce plus. Quand on
 empêcha les chrétiens de s'assembler au grand jour, 4
 ils descendirent dans les catacombes : les clubs fermés 4
 deviennent les sociétés secrètes.
-|
 
 + Établissement de la République dans les départements. —
 4 Les Commissaires de Ledru-Rollin.
@@ -1948,7 +1875,6 @@ compter, sinon sur les armées, du moins sur la protection diplomatique de la Fr
 et ils avaient espéré mieux que cette politique de métaphore. Mais il y avait dans le Peuple une telle effervescence d'enthousiasme pour les Peuples opprimés qui
 parlaient de soulèvement, qu'on s'inquiéta peu du langage officiel du pouvoir.
 Chaque jour des bandes de patriotes étrangers s'as-
-- semblaient sur la place de la Révolution, (1) et de là se
 rendaient, leur drapeau en tête, à l'Hôtel-de-Ville : ils
 sollicitaient l'appui de la France, et des armes pour la
 campagne démocratique qu'ils allaient entreprendre.
@@ -2031,8 +1957,6 @@ nationale et introduire dans son organisation certaines
 
 . geoisie et ses représentants que les fantômes de com-
 
-munisme et de 95.
-
 ” - La monarchie avait laissé en héritage à la Répu-
 
 « blique une dette considérable et une situation financière
@@ -2088,7 +2012,6 @@ d'eau dans la mer. On se décida à demander des
 - d'hypothèques. Le mécontentement fut universel; pour
 … les paysans, assez indifférents, en général, aux ques-
 … tions politiques, la République, c'était l'impôt des
-| 45 centimes.
 | C'est au milieu de ces dispositions des esprits que
 devaient avoir lieu les élections pour l'Assemblée
 
@@ -2191,12 +2114,6 @@ Les gardes nationaux s'en retournèrent chez eux
 
 L à cette journée le nom de journée des bonnets à poil.
 
-ee à! Ne PAU AT PARU NE Or CPE ER AE NE Er ARBRES Pat de 5
-‘4 HAN ER er PRO RU A LE r AS TS REURAN PLANTE Re Nan
-
-Et RE ele pr GTS Fa ñ + TUE TU :
-ERA 4 ; de” MARS ae (L NS
-
 Journée du 17 mars. — Marche du Peuple vers l'Hôtel-de-
 
 Ville. — Conférence des délégués du Peuple avec le Gou4 vernement provisoire. — Lamartine promet l'ajourne-
@@ -2247,7 +2164,6 @@ en danger la paix publique. Hier, une manifestation
 menaçante avait pour but de vous ébranler; nous y
 répondons par une manifestation pacifique, pour vous
 défendre et nous défendre avec vous ; que le gouvernement s'appuie résolument sur le Peuple; qu'il lui donne
-l'exemple de l'union, de l'unité, de la confiance et de la
 fermeté, et l'ordre sera solide comme la liberté, et la
 
 Ce conseil d'union et de concorde donné au Gouver-
@@ -2359,8 +2275,6 @@ Arrivé à la hauteur de la rue Montmartre, le cortège
 ÿ d'avant, l'aristocratie financière après une fête donnée :
 * par le duc de Montpensier : A bas les voleurs!
 
-| à
-
 Le soir les maisons furent illuminées : des groupes
 à parcouraient les rues en criant : Des lampions ! Fêtez
 la victoire du Peuple! Ce fut en effet le dernier beau
@@ -2452,7 +2366,6 @@ permanent, qui, sous le titre de club des clubs et de
 comité révolutionnaire, s'établit au siège du journal de
 Sobrier, la Commune de Paris.
 
-pre Î Le
 Ce comité envoya dans les départements et dans
 l'armée des émissaires chargés de répandre les idées
 républicaines. Le ministère de l'intérieur fit les frais de
@@ -2478,10 +2391,6 @@ gouvernement. Grâce aux clubs, l'esprit démocratique
 —… avait pénétré dans les masses : leur influence fut com-
 À battue par une conspiration réactionnaire qui aboutit à
 Ë un coup de théâtre.
-
-RS APRES ERREUR ra ae ES Le URLS QE
-Ne F. ms AU WA FU er
-De Cat: HE
 
 Complot réactionnaire du 16 avril. — Le rappel battu dans
 tout Paris. — Cris de mort contre les communistes. —
@@ -2566,8 +2475,6 @@ menaçante eut lieu contre la société fraternelle des
 communistes icariens ; avant l'ouverture de leur séance,
 : les gardes nationaux de la banlieue annoncèrent qu'ils
 
-re 11 FACTTIETS RON LEE L
-
 viendraient fermer la salle, et le propriétaire du local
 
 déclara qu'il ne pouvait plus le louer ; en même temps
@@ -2603,7 +2510,6 @@ affaire; Lamartine, Ledru-Rollin et Marrast revendiquèrent, chacun pour son com
 
 80 4
 
-ire D'UNE RÉVOLUTION
 : sauvé la France en faisant battre le rappel ; il est vrai-
 | semblable que Ledru-Rollin fut plutôt dupe que com-,
 à plice. Cependant il voulut persister dans l'esprit de son
@@ -2723,7 +2629,6 @@ Peuple envahit la salle où s'opérait le dépouillement,
 brisa l'urne et brûla les bulletins. Les gardes nationaux
 se rassemblent sans être convoqués et chargent leurs
 
-‘es D'UNE RÉVOLUTION
 fusils; quelques-uns tirent même des coups de fusil et
 chargent le Peuple à coup de baïonnettes. Aussitôt les
 ouvriers saisissent des bâtons et des pierres, s'emparent
@@ -2764,7 +2669,6 @@ nommé Douche, sans consulter l'administration, ordonne
 | aux dragons de charger le Peuple; puis, rencontrant un
 garde national arrêté par erreur dans la foule, le |
 frappe par derrière d'un coup d'épée et l'étend raide 1
-| mort.
 Le bruit de cet assassinat se répand dans la ville,
 et, ne songeant plus qu'à se défendre contre l'invasion |
 de la garde nationale armée, le Peuple élève des barricades dans la rue de Robec, dans la rue Martainville Ë
@@ -2846,8 +2750,6 @@ cherché à se reconstituer au milieu de la décomposition Ë
 de l'Autriche. à
 Maintenant ce magnifique mouvement s'arrêtait; les Ë
 
-D de. OL Pen Daert T " is ai È ct *
-
 1 bandes républicaines parties pour la Belgique, le Rhin
 1 et les Alpes, avaient été décimées, dispersées ou emD prisonnées; la Lombardie se jetait de désespoir dans
 À les bras d'un roi deux fois parjure; l'Autriche, galva-
@@ -2861,13 +2763,6 @@ k M. de Lamartine. Les espérances des Peuples et les
 # terreurs des pouvoirs oppressifs s'étaient dissipées en
 1 _ voyant les progrès de la réaction en France; on avait
 K cru à une révolution sérieuse, tout se bornaïit à un chank gement de cabinet.
-
-LIU RARE AE RE OM Le cel RSR AU SARA
-
-LES STAR ùr fe: ; SALE NCA PTLRRT ES DRE 7 MRRLIE LOGS 2 ET Le
-| 10e F- : É Le TI EN ANERES NES
-
-Ne à FAR] re MORE ÿ AE TES
 
 : Réunion de l'Assemblée nationale. — Acclamation una-
 | nime de la République. — Le Gouvernement provisoire
@@ -2917,8 +2812,6 @@ et d'ailleurs le Peuple était là. Aussi tout le monde se
 leva pour adopter la proclamation suivante, proposée .
 par des représentants de la Seine : {
 
-« L'Assemblée nationale,
-
 « Fidèle interprète des sentiments du Peuple qui vient
 de la nommer,
 
@@ -2935,7 +2828,6 @@ Français de toutes les opinions d'oublier d'anciens res- ;
 sentiments, de ne plus former qu'une seule famille. Le À
 jour qui réunit les représentants du Peuple est pour i
 
-| D'UNE RÉVOLUTION
 tous les citoyens la fête de la concorde et de la fraternité. Vive la République ! »
 
 Cependant, le Peuple attendait au dehors avec une
@@ -2975,8 +2867,6 @@ une tâche difficile, l'organisation du suffrage universel.
 
 L actes de leur gouvernement. L'Assemblée les écouta
 
-|
-
 avec faveur et bienveillance : cependant bien des
 objections s'élevaient dans l'esprit des républicains, 1
 surtout quand Marie parla des ateliers nationaux, ce ;
@@ -3005,7 +2895,6 @@ Barbès monte à la tribune : |
 s'écrie-t-il, je viens protester contre une foule d'actes
 qui ont été accomplis par le Gouvernement provisoire, :
 et qui l'ont rendu impopulaire. Je citerai les massacres 1
-de Rouen... » à
 
 De violents murmures s'élèvent de la droite et du j
 centre. On crie : A l'ordre! à l'ordre! i
@@ -3022,7 +2911,6 @@ Des imprécations couvrent la voix de Barbès; le
 vante la modération de la garde nationale de Rouen, et
 prétend qu'on a bien exagéré le nombre des morts. Il |
 4 était réservé à cet homme de glorifier tous les mas-
-| sacres.
 Crémieux annonce qu'une enquête est commencée
 - sur ces événements ; un membre propose à l'Assemblée
 de se déclarer satisfaite des explications. Barbès
@@ -3080,10 +2968,6 @@ Son premier soin fut de s'entourer de précautions Û
 contre le Peuple; elle mit à la disposition de son prési- À
 dent toutes les forces militaires de la France, elle ÿ
 
-ne
-
-#4 kg, A + \
-| D'UNE RÉVOLUTION
 | décréta que les pétitions ne pourraient lui être présentées que par un de ses membres, que jamais les pétitionnaires ne seraient admis à sa barre, etc. Elle
 | s'occupa du signe extérieur qui devait distinguer les
 représentants du reste des hommes dans les fêtes
@@ -3097,7 +2981,6 @@ moins à s'opposer au développement de la Révolution ; à
 | tive, prendre dès les premiers jours la direction de
 | VAssemblée; son plus grand tort fut de s'isoler du
 | Peuple; à l'exception de Barbès, aucun des représentants républicains ne se montrait dans les clubs.
-# VI
 
 Défaite générale de la révolution en Europe. — Massacre
 des Insurgés Polonais. — Huber organise une manifesta-
@@ -3111,7 +2994,6 @@ jusqu'à la place Bellechasse.
 Envahissement des tribunes et de la salle des séances. —
 Efforts de Louis Blanc pour contenir le Peuple. — Raspail
 lit une pétition en faveur de la Pologne. — Barbès engage
-VAssemblée à délibérer et le Peuple à se retirer.
 
 . Cependant la situation du pays s'aggravait de jour
 
@@ -3170,7 +3052,6 @@ grand ordre; personne n'avait d'armes. Les seuls cris :
 | pont de la Concorde, et qu'une députation de cinq délé-
 È gués s'en détacherait pour aller présenter la pétition à
 l'Assemblée, Mais au moment où le Peuple arrivait sur
-L. la place de la Révolution, un détachement de la
 1° légion, arrivant au pas de course, se mit en devoir
 | de lui barrer le passage; des explications eurent lieu,
 ; et le Peuple, exaspéré de l'attitude menaçante de la
@@ -3264,10 +3145,6 @@ couvre, puis se découvre un instant après, et cherche à
 
 | se faire entendre du Peuple. Barbès et Clément Thomas
 2 103
-
-#
-
-#
 
 se disputent la tribune. Enfin, profitant d'un instant de :
 silence, Raspail lit, sur l'invitation de Buchez, la proclamation suivante :
@@ -3395,7 +3272,6 @@ désemparer que la France ne mettra l'épée au fourreau
 1 , que lorsque la Pologne tout entière sera reconstituée
 | 107
 
-PROLOGUE je
 dans ses vieilles limites de 1772, et brillera de nouveau,
 comme une nation grande et indépendante, au soleil de
 l'Europe.
@@ -3453,7 +3329,6 @@ cruels qui se sont passés dans une ville qui est maintenant aux portes de la ca
 communications. Le Peuple sait qu'au lieu de panser
 les cruelles blessures qui ont été faites dans cette ville,
 ‘on semble prendre plaisir à les envenimer tous les
-jours, et que ni la modération, ni la clémence, ni la
 fraternité n'ont succédé aux fureurs des premiers jours,
 même lorsque trois semaines se sont écoulées depuis
 ces sanglantes collisions ; il sait que les prisons sont
@@ -3463,9 +3338,6 @@ vidées ; il demande que s'il y a quelqu'un à punir, cene
 0 Le Peuple applaudit, et, de tous côtés, part le cri de :
 S « Le Peuple demande aussi, continue Blanqui, que
 …. vous pensiez à sa misère. Il a dit qu'il avait trois mois
-# va
-
-RAP DAT RE CT ee PAP PR DL TU CETTE
 
 de souffrance à offrir à la République. Ces trois mois 1
 sont bientôt écoulés, et il est possible, il est probable
@@ -3568,7 +3440,6 @@ vos portes demande à défiler devant vous. Je demande
 que vous le lui accordiez, et que, de plus, pour montrer …
 que vous vous associez à ses vœux, nous descendions,
 
-Les re + né *
 _ nous, les représentants du Peuple, pour lui dire que la
 | cause de la Pologne est la nôtre, et que, partout où il
 y aura des opprimés, la France interviendra. »
@@ -3590,7 +3461,6 @@ Les représentants quittaient peu à peu la salle ; ceux
 prenaient pour de la dignité. Le Peuple attendait toujours une réponse, et, malgré ses délégués, refusait de
 sortir avant de l'avoir obtenue. Enfin Raspail dit à
 ceux qui envahissaient la tribune : « Une dernière fois,
-— au nom de la République, de la fraternité et de la
 liberté, je vous supplie de sortir; je ne suis plus avec
 vous si vous ne quittez pas la salle. » Après ces
 | paroles, il sortit lui-même, ne voulant pas consacrer
@@ -3704,8 +3574,6 @@ de lui au point de l'étouffer, Louis Blanc parvint à
 retourner, accablé de fatigue, sur les bancs de la Montagne. Un ouvrier vint alors lui dire : « Vous n'avez
 plus de voix, mais si vous voulez écrire sur un morceau
 
-| D'UNE RÉVOLUTION
-
 4 de papier qu'une dernière fois vous conjurez la foule
 de se retirer, peut-être parviendrai-je à lire ce papier
 
@@ -3747,13 +3615,6 @@ k milieu de l'Assemblée. Deflotte s'approcha d'Huber, et
 | lui dit : « Tu es un homme de cœur, et cependant, tu
 viens de perdre ton pays. »
 
-VA MTS ARE) ii 4 jai pit 2 HAT 1e a 1e Lui ba MEN f
-40 A NI RE Li AT SH AREA Er PARUS nee
-L EC #è me à Ÿ 1 F Tia Vds ÿ Ar
-Fire ; à BASANT LE SENS
-Eux ' “Ua pi LEUR DU NES HA ce
-
-|
 t Les Représentants quittent la salle des séances. — On prok: pose un gouvernement provisoire. — Barbès et Albert
 | sont entraînés à l'Hôtel-de-Ville par le Peuple. — La
 É garde nationale ne leur oppose aucun obstacle.
@@ -3771,7 +3632,6 @@ le combat sont des traîtres! On va venir nous fusiller
 | s'ils ne sont pas avec nous! Ils répondent pour nous. »
 Les représentants s'échappèrent cependant par
 | diverses issues et se réfugièrent à l'Hôtel de la
-| Présidence.
 Cependant, le tumulte de la salle était à son comble.
 : Barbès et Sobrier furent portés en triomphe, malgré
 | leur résistance. On proposa de former un nouveau
@@ -3848,8 +3708,6 @@ sur lequel il était monté, on s'élance sur lui : l'un lui
 
 he. arrache son épée et la brise, l'autre lui arrache ses
 
-#i:
-
 épaulettes et l'en frappe au visage; des baïonnettes 4
 sont dirigées contre sa poitrine, et, malgré son grade 4
 
@@ -3889,7 +3747,6 @@ entra couvert de lambeaux. Il monta à la tribune : il y 5
 fut accueilli par des cris de fureur. FA
 « Citoyens, dit-il, c'est votre liberté, c'est votre droit, | |
 
-Le re c
 c'est votre dignité que je viens défendre en ma per4 sonne... »
 On lui répond par une explosion de murmures : « A
 | l'ordre! vous insultez l'Assemblée ! assez! descendez de
@@ -3948,7 +3805,6 @@ régime de force aveugle et bestiale dont l'Assemblée se s.
 fit depuis un rempart permanent contre le Peuple. On À
 
 : commença par voter, sur la proposition de Lamartine, |
-la reconnaissance de la patrie à la garde nationale, à j
 
 la garde mobile ; à l'armée, puis, Armand Marrast ayant 7
 annoncé l'arrestation de Barbès et d'Albert, on justifia $
@@ -3959,7 +3815,6 @@ en décrétant, sur la réquisition des procureurs-généraux ps
 
 124 4
 
-| D'UNE RÉVOLUTION
 Portalis et Landrin, leur arrestation, ainsi que celle de
 
 On sut depuis que Portalis et Landrin avaient été,
@@ -3988,9 +3843,6 @@ ration de ses paroles, il fut assez mal reçu. Cependant,
 l'Assemblée sentit elle-même qu'elle n'était pas en état
 de délibérer, et, bien qu'elle se fût déclarée en permanence, la séance fut levée à neuf heures.
 
-nn” HR je AQU . ) 4 2) PNMRÉCTORRREESS
-
-|
 Arrestation de Sobrier. — Pillage de sa maison et de celle
 de Cabet. — Quatre cents arrestations. — Les chefs de la :
 | s démocratie enfermés à Vincennes. — Fête de la Concorde
@@ -4104,7 +3956,6 @@ assez impertinente, sous les noms de Club Blanqui et d
 () Entre la rue Saint-Martin et la rue Quincampoix (troisième 4
 arrondissement actuel, quartier Sainte-Avoye). — Note des éditeurs. ‘4
 
-# D'UNE RÉVOLUTION
 * Club Raspail; elle prit pour prétexte que ces clubs
 J étaient armés ; assertion notoirement fausse. Elle crut
 avoir beaucoup fait ; mais le lendemain, un représentant
@@ -4259,8 +4110,6 @@ Beaubourg qui va de la rue Michel le Comte à la rue au Maire. — ÿ
 Note des éditeurs. 4
 136 4
 
-| D'UNE RÉVOLUTION
-
 le prince Louis Bonaparte. Toutes les ressources de la
 réclame furent employées pour prôner cette candidature; sept journaux impérialistes fonctionnèrent à la
 fois. Les royalistes voyaient avec plaisir ces intrigues
@@ -4289,8 +4138,6 @@ que l'Assemblée voterait une Constitution monarchique,
 sa présence était un danger sérieux pour ceux qui aspiraient à la Présidence, parmi lesquels Lamartine et
 Marrast se trouvaient alors en première ligne. De là la
 résistance maladroite du Pouvoir à l'élection de Louis
-
-| 197 VIN.
 
 Bonaparte. Le jour où l'Assemblée devait valider cette
 élection, il y eut un coup de théâtre qui rappela les |
@@ -4462,8 +4309,6 @@ du pouvoir. Le véritable remède ent été l'organisation
 
 | du travail, mais ni l'Assemblée, ni le pouvoir exécutif
 
-| n'en voulaient.
-
 | On savait bien que la dissolution des ateliers nationaux, en condamnant à la fois cent mille hommes à
 mourir de faim, donnerait le signal d'une guerre civile :
 
@@ -4484,8 +4329,6 @@ l'expulsion des ateliers nationaux de tous les ouvriers
 célibataires de dix-sept à vingt-cinq ans.
 
 Cette mesure monstrueuse fut le signal de l'insurrection.
-
-fe JE AE pen Has di DNA ea En
 
 Conférence entre Marie et les délégués des ateliers natio-
 
@@ -4510,8 +4353,6 @@ des travaux malsains, et en les disséminant pour
 
 “ Une députation de délégués et de chefs de brigades
 « des ateliers nationaux se réunit devant la grille princi4 pale du palais du Luxembourg, siége de la commission
-
-| IX
 
 j exécutive, pour protester contre l'enrôlement forcé des ; Ÿ
 | ouvriers et leur exil dans les départements. Ils obtinrent …
@@ -4565,8 +4406,6 @@ devise du Peuple de Lyon : Vivre en travaillant ou
 mourir en combattant; et ils parcoururent la ville par
 
 groupes nombreux en criant : « Du pain, du travail ou à
-
-du plomb! » p 1
 
 | Paris prit en quelques heures cet aspect d'inquiétude
 vague qui précède les jours d'émeute. Les partis royalistes, pressentant pour le lendemain la lutte qu'ils pré-
@@ -4624,7 +4463,6 @@ chercher des pièces de canon à Vincennes, mais le À
 canon n'arriva que onze heures après. Des officiers M
 supérieurs de la garde nationale vinrent au Luxembourg
 
-| ; D'UNE RÉVOLUTION
 prévenir qu'on faisait des barricades et demander des
 troupes pour les enlever. On leur répondit : laissez
 faire, avec une colonne on enlèvera ça. — La Commission exécutive n'était plus rien et Cavaignac ne
@@ -4682,8 +4520,6 @@ bijoutier, dont l'étalage était aussi complet que s'il eût ;
 régné le plus grand calme, tandis qu'à quelque distance À
 de là le Peuple cherchait à enfoncer la boutique d'un |
 marchand de fer. Ce contraste est significatif. Sur M
-
-| D'UNE RÉVOLUTION
 
 - quelques-unes des boutiques fermées, le Peuple avait
 
@@ -4772,7 +4608,6 @@ cades. Ses efforts pacifiques pour arrêter l'effusion du
 ; parti réactionnaire et par ses conseils de guerre.
 
 Arago parlementa également sur la place du Pan-
-| théon :
 
 « On nous a déjà tant promis, disaient les ouvriers,
 et on nous a si mal tenu parole que nous ne nous
@@ -4792,7 +4627,6 @@ La rue Saint-Jacques (3) et toutes les rues avoisinantes
 Cité. — Note des éditeurs.
 | (2) Aujourd'hui quartiers des cinquième, quatorzième et treizième.
 | (3) La partie basse qui subsiste encore entre la Seine et le boulevard Saint-Germain, et celle qui va de la rue Soufflot à la rue
-| ‘153 IX.
 
 étaient barricadées dans toute leur étendue, ainsi que
 ; la rue de la Harpe, (x) jusqu'au pont Saint-Michel;
@@ -4831,8 +4665,6 @@ des éditeurs. Ë
 depuis 1848. Il faut l'étendre par la pensée à tous les quartiers
 avoisinants de la rive gauche, où il n'existait alors aucune grande F
 artère ouvrant des vues étendues. — Note des éditeurs.
-
-| D'UNE RÉVOLUTION
 
 ; Le chef du 4° bataillon de la 11° légion de la garde
 nationale y fut tué au moment où il attaquait une barricade, et non pas en voulant parlementer, comme on
@@ -4908,7 +4740,6 @@ démarche collective pour rétablir la paix, un tumulte
 demanda qu'une proclamation fût adressée au Peuple
 | pour empêcher Paris de s'égorger pendant la nuit, l'As-
 
-| PROLOGUE
 rendirent isolément sur le théâtre de la lutte, soit pour
 se mettre en tête des bataillons de la garde nationale,
 soit dans un but de conciliation. Trois d'entre eux
@@ -5016,7 +4847,6 @@ leurs enfants sur les barricades : « Puisque nous ne
 pouvons plus les nourrir, disaient-ils, il vaut mieux
 qu'ils meurent avec nous. » Au milieu de ce sombre
 
-k désespoir, on a lieu de s'étonner de la modération du
 Peuple. Dans plusieurs quartiers, quelques ouvriers
 proposaient de porter des pavés dans les maisons pour
 
@@ -5069,8 +4899,6 @@ mourut quelques jours après. Le canon brisa les portes ;
 du Panthéon et renversa une statue colossale qui se L
 trouvait à l'extrémité du monument. Pendant le combat, 3
 des gardes mobiles qui avaient occupé l'école de droit, ÿ
-
-| D'UNE RÉVOLUTION
 
 à en sortirent tout à coup la crosse en l'air; puis, au
 . moment où les insurgés s'apprêtaient à les recevoir
@@ -5227,10 +5055,6 @@ au grand jour et devant témoins, on frémit en pensant
 à ceux qui durent être ensevelis dans l'ombre des vastes
 caveaux des Thermes de Julien.
 
-318 ut A) PR Se Fat HN LS HUNOT, LUY Que A ie } N VA LTÉE AC 4.
-| « EL LARMDE OPA LIRE TII FR SU RE re RON
-
-F Mr bis 0 LE dd PÉTER TEE ", d LEA
 + Proclamations promettant l'amnistie. — Massacres des prisonniers rendus sur ces promesses.
 Journée du 25. — Le général Bréa à la barrière Fontainebleau. — Irritation des insurgés à la nouvelle des massacres du Panthéon. — Mort de Bréa.
 Assassinat de deux parlementaires du Peuple pendant une
@@ -5249,10 +5073,7 @@ Les ouvriers étaient avertis du sort qui les attendait;
 … vous serez sacrifiés de sang-froid ; venez à nous, venez
 A comme des frères repentants et soumis à la loi, et les
 
-7 per AG hud jai dv #41 ; Le dd)
-
 bras de la République sont tout prêts à vous rece- *
-os voir. » j À
 Lorsque cette proclamation fut connue des ouvriers,
 
 un grand nombre d'entre eux se rendirent prisonniers.
@@ -5305,7 +5126,6 @@ l'Hôtel-de-Ville au quai aux Fleurs, le pylône sur la pointe de l'ile
 
 Saint-Louis, où le terre-plein existe toujours. — Note des éditeurs. 1
 
-_s ROSE NE ME ri ich
 __ la place de l'Hôtel-de-Ville et causaient avec des offi-
 ; ciers. Des soldats de la garde républicaine qui amenaient un convoi de prisonniers leur demandèrent ce
 qu'il fallait en faire? Ils répondirent: Fusillez!
@@ -5330,7 +5150,6 @@ il faut donner du travail aux ouvriers, sans cela ils
 feront encore des barricades.
 On s'explique difficilement comment le quartier de
 …  l'Hôtel-de-Ville, où commandait le général Duvivier, fut
-| un de ceux où l'on massacra le plus de prisonniers : on
 
 ne saurait accuser non plus M. Marrast, qui, assuret-on, aimait mieux laisser les prisonniers entassés à
 l'Hôtel-de-Ville que de les confier à la garde nationale
@@ -5358,7 +5177,6 @@ d'officiers supérieurs, les jugeait à mesure qu'on les
 des coups de crosses et de baïonnettes, quelques-uns
 furent pendus dans le corridor à des barreaux de fer.
 Tous ceux qui avaient les mains noires étaient condam172
-ne
 
 | nés à mort par le tribunal; le mot d'ordre était:
 
@@ -5537,7 +5355,6 @@ opposaient une vigoureuse résistance. Le général
 Négrier y fut tué. Les ouvriers envoyèrent un parlementaire à Lamoricière, en demandant seulement à
 sortir sans être faits prisonniers. Le général lui répondit
 
-l'A IS SR PAS EP PTE NE COR de
 que les insurgés devaient se rendre à discrétion, que
 l'armée et la garde nationale étaient fortes et bien
 pourvues dé poudre et de plomb. « Et nous aussi »,
@@ -5568,8 +5385,6 @@ ne fusillent personne, » leur fut-il répondu.
 
 Le Peuple était maître de deux mairies, celle du 8° et
 
-re Gerets de AE En L
-
 celle du 9e arrondissement. (1) A la prise de la première,
 située place des Vosges, les employés s'imaginaient,
 d'après les bruits répandus par la réaction, que tout
@@ -5578,7 +5393,6 @@ au contraire que les scellés fussent apposés sur tous les
 meubles contenant de l'argent. Ayant appris que les
 actes de l'état civil étaient menacés par un incendie,
 rue des Tournelles, ils s'empressèrent d'aller éteindre
-le feu.
 
 j A la prise de la place des Vosges par le Peuple, les
 troupes rendirent leurs armes : les soldats furent traités |
@@ -5654,8 +5468,6 @@ autres une femme qui tenait son enfant dans ses bras,
 insurgé alla, pendant le combat, chercher du pain pour
 
 , une pauvre femme, à travers les balles et au péril de
-
-; sa vie.
 
 Il y eut encore des prisonniers fusillés rue Saint-Paul,
 
@@ -5743,7 +5555,6 @@ Que signifiaient, après cela, les hypocrites proclama-
 qui s'étaient rendus sur une solennelle promesse d'am-
 - nistie, qu'il y avait un mot d'ordre comme lors des
 - massacres de septembre, et que l'assassinat était
-| organisé au vu et su de toute la ville?
 @" (1) À la même place qu'aujourd'hui, mais large seulement de
 “vingt mètres. On l'avait ouverte en 1837, date des constructions
 neuves qui formaient la façade orientale de l'Hôtel-de-Ville. Les
@@ -5755,8 +5566,6 @@ deux casernes qui bordent aujourd'hui cette rue, en face de l'Hôtel-
 occupe, entre les deux portes, tout le rez-de-chaussée de la façade
 orientale de l'Hôtel de Ville. — Note des éditeurs.
 
-RE 1 AN + va LS ji À K A7 SR ne 14 A
-
 | Attaque et prise du Clos Saint-Lazare. — Attaque du fau-
 : bourg Saint-Antoine. — Probité du Peuple.— La caserne
 de Reuilly prise par le Peuple et reprise par les troupes.
@@ -5766,7 +5575,6 @@ Ivresse des mobiles et bruit d'empoisonnement. — Analyse
 Propositions de paix faites par les ouvriers. — Mort de
 l'Archevêque. — Proclamation du Peuple. — Journée
 du 26. — Capitulation du faubourg. — Massacre des prisonniers. — Adieu des insurgés à leurs frères morts.
-|
 Parsuite de la funeste tactique du Peuple, qui se dis-
 | séminait derrière chaque barricade au lieu de se porter
 en fortes colonnes sur quelques points importants, le
@@ -5876,7 +5684,6 @@ gagnées par les démocrates, vendaient de l'eau-de-vie
 Des analyses faites par les plus illustres chimistes, notamment par M. Pelouze, démontrèrent l'absurdité de
 ces bruits, aussi bien que de ceux qu'on répandait sur les
 
-+ jar dd Le fu 2 à bis + ou hr QE
 balles empoisonnées dont se seraient servis les insurgés. Mais plusieurs cantinières faillirent payer de leur
 - vie cette déplorable calomnie : un représentant, Germain
 Sarrut, sauva une de ces malheureuses femmes en lui
@@ -6126,8 +5933,6 @@ ES Où le pauvre est esclave, où sa race est proscrite, NT
 à Ù -Et la sanglante orgie, et les froides colères; a
 à A Frères, dormez en paix : vous êtes morts à temps. F4
 
-#4
-
 Suites de l'insurrection. — Récompenses données aux
 2 vainqueurs. — Dénonciations, perquisitions et arrestations. — Prisonniers fusillés dans les maisons, les rues
 
@@ -6225,7 +6030,6 @@ Commines. — Note des éditeurs.
 de largeur : le boulevard Saint-Germain l'a fait disparaître. La
 caserne se trouvait à l'angle de la rue Boutebrie. — Note des édi-
 
-a LU = FES "TU et. el PL Rs
 rue des Grés, (1) occupée par la garde républicaine ; un
 habitant de cette rue qui causait avec le commandant
 de cette caserne, s'écria, en entendant une décharge :
@@ -6356,7 +6160,6 @@ cacher dans les chantiers de bois qui sont auprès du
 () Haute maison isolée qui subsistait encore à cette époque sur
 
 : la place du Carrousel. — Note des éditeurs.
-#1 203
 
 Louvre : quand le jour fut venu, des femmes les dénoncèrent à des gardes nationaux, qui les lardèrent de
 
@@ -6413,9 +6216,6 @@ savent ce qui les attend et ils s'entendent pour ne pas
 faire de bruit »; les prisonniers en conclurent que le
 moindre bruit serait le prétexte d'une exécution.
 
-de
-
-# PROLOGUE cu
 ‘24 Dans une des caves de l'École-Militaire, un prison-
 é nier, devenu fou, s'étant mis à crier, la sentinelle tira
 d au hasard dans le tas : plusieurs tombèrent. Un des
@@ -6428,7 +6228,6 @@ CAN par une chaleur étouffante, sans pain, sans eau; ils se
 devant le soupirail de cette cave ; il les entendit.
 — Qui se plaint? dit-il.
 — Nous avons faim, faites-nous donner du pain.
-| — Attendez...
 Aussitôt il prit le fusil d'un factionnaire et le
 ) déchargea par le soupirail; un des prisonniers tomba.
 — Qui a encore faim, dit l'officier en ricanant, je vais
@@ -6500,7 +6299,6 @@ Dieu devant les créneaux; c'était un vieillard; il dit :
 son assassin fut récompensé : on le fit passer dans une
 compagnie d'élite. Un autre soldat subit quatre jours
 de cachot pour avoir refusé de faire feu sur un prisonnier qui demeurait devant les barreaux pour prendre
-l'air.
 
 Dans une casemate où on avait enfermé des enfants
 (car quelques prisonniers avaient moins de treize ans)
@@ -6510,8 +6308,6 @@ un de ces pauvres petits s'étant accroché pour respirer,
 fusil. Dans une autre casemate du même fort deux coups
 de fusils furent tirés sans prétexte par la lucarne. Un
 des prisonniers fut tué. Au fort d'Ivry, on fit descendre
-
-| AH EN UOTE LS É: Fe
 
 des prisonniers dans des carrières où ils avaient de
 l'eau jusqu'aux genoux. Quelques-uns y moururent; et
@@ -6535,13 +6331,6 @@ cinq cents insurgés sur les barricades, mais le nombre
 des prisonniers égorgés s'éleva environ à trois mille,
 d'après les calculs les plus modérés. Cela rendait le
 
-1 (! F? Ve ET EN TOR APX 1 AD p'Av + ds hate: ÿ
-see lys de RE ON EE nm
-ME à Es RUE LeNRs BA Pot fe "x A Ke NE L AS SA)
-M: pr ee LEA AT jet) VO ESANTS we # et Ph 3.50
-Run LA x û 14 Î ; \ Mu Pa EME Ex D is, :
-LENS À 3 FREE L Fra
-
 Punition des vaincus. — Anéantissement de la Montagne.
 É — Pierre-Leroux et Caussidière parlent de clémence. —
 Article de Lamennais contre la terreur. — Article de
@@ -6564,8 +6353,6 @@ nommée à ce sujet combina les deux propositions : elle (
 | proposa d'envoyer les chefs de barricades aux conseils
 | de guerre et de transporter les autres; Cavaignac crut
 
-ù UN AG tte PP SRI ER VAN IE FETES
-PROLOGUE on
 qu'on regardait sa proposition comme trop excessive
 pour être généralisée, il dit qu'il repoussait le rôle
 violent qu'on lui donnait devant l'histoire : il paraît que
@@ -6596,7 +6383,6 @@ rires indécents et des rappels à l'ordre. î
 Le général Lebreton dit que pendant trois jours il
 avait fait tous ses efforts pour empêcher la garde i
 nationale de fusiller sans jugement, mais qu'elle ne !
-|
 
 s'était quelquefois rendue à ses instances que sur la
 promesse d'une punition exemplaire infligée aux coupables. L'Assemblée vota le décret : tous ceux qui
@@ -6629,9 +6415,7 @@ leur dit : « Il y a un Dieu qui vous demandera compte
 de tant de sang ! » Dans la bouche d'un vieillard et
 d'un prêtre, ces paroles prenaient l'autorité d'une pro-
 
-| ; PROLOGUE
 phétie. Quelques jours après, Lamennais écrivit ces
-| lignes :
 « Le Peuple constituant (journal de Lamennais) a
 commencé avec la République, il finit avec la Répuk blique. Car ce que nous voyons, ce n'est pas, certes, la
 République, ce n'est même rien qui ait un nom : Paris
@@ -6707,7 +6491,6 @@ Proudhon terminait par une espérance d'amnistie. Le
 taire n'existe plus, on l'a jeté à la voirie. Il faut sauver
 la bourgeoisie; la question est aujourd'hui pour la
 bourgeoisie ce qu'elle était le 23 juin pour le prolé-
-| tariat.
 
 « Que les auteurs des ordres impitoyables, que les
 grands politiques qui ont repris la tradition exécrée de
@@ -6757,7 +6540,6 @@ en accusation, formellement demandée par Cavaignac,
 fut prononcée. Ils parvinrent à se soustraire à une
 condamnation certaine par l'exil. ë
 
-| PROLOGUE
 La commission d'enquête avait essayé de faire condamner aussi Ledru-Rollin : elle avait poussé l'enquête
 jusqu'au commencement de la Révolution, et critiqué
 ; tous les actes accomplis depuis Février; quant à l'or
@@ -6838,7 +6620,6 @@ se firent dans les prisons en faveur des familles des
 détenus les plus pauvres. Les soldats eux-mêmes
 étaient parfois touchés de tant de souffrances ; après
 l'irritation des premiers jours, ils se lassaient quelquefois du métier de geoliers et de bourreaux ; quand
-on s'en apercevait on changeaïit la garnison. On
 poussait les précautions jusqu'à placer dans les forts
 des agents de police jouant le rôle d'insurgés.
 
@@ -6995,7 +6776,6 @@ place, sinon à la pitié et au remords, du moins à la
 crainte incessante d'inévitables représailles. Les journaux de la réaction rêvent chaque jour de complots
 imaginaires : c'est le commencement de l'expiation.
 L'armée est dégoûtée et mécontente. Au lieu d'une glorieuse guerre de propagande, les soldats n'ont en
-perspective qu'un métier de gendarmes ou de bourFEaux.
 
 Quant au Peuple, il ne confond pas, il est vrai, la
 République avec les vampires qui la saignent et les
@@ -7019,8 +6799,6 @@ Voilà l'œuvre des hommes qui depuis Février ont
 Î accaparé le pouvoir; lâcheté chez les uns, trahison chez
 les autres, tous, à des degrés divers, ont perdu la Ré-
 
-D RADBLAMNe à Et er ASE Le ri il b FES tb à
-“4 7 AO QE ANSE LS dE ER NN QG nant Es din R ds ten, ve
 ‘FER volution. Désormais le Peuple sera le seul acteur du
 1448 drame révolutionnaire, et ilne lejouera qu'à sonheure:
 108 il repoussera les provocations de ses ennemis, et, si
@@ -7030,18 +6808,6 @@ Me Le Peuple n'est pas en cause : il regardera calmeet
 28 impassible cette tempête amoncelée par de mesquines
 ÿ, 4 intrigues et des ambitions furieuses, et laissera passer
 5 a il à ses pieds ce ruisseau de boue et de sang.
-# Si \ : |
-
-F: CURSEUR SUR Are PV FEU RE HAT
-4 shape! ri & \ \ Et PURES ANT RE
-| 20 DATA L +. NT
-ii LA
-
-| EU ne N Fo 4 is
-
-Res CET k à ÿ 6 ns mate
-
-| CHAPITRE I. — Page [3].
 
 Introduction. — Causes générales de la révolution de
 Février. — Agonie de la vieille société. — Corruption
@@ -7069,7 +6835,6 @@ Défection de la troupe. — La garde nationale entraînée
 
 dans le mouvement. — Concession tardive du roi. —
 Ministère Thiers. — Ministère Barrot. — Abdication du
-roi. — Sa fuite.
 Combat du Château-d'Eau. — Prise des Tuileries. — Probité du Peuple.
 Efforts suprêmes de la royauté. — La duchesse d'Orléans
 à la chambre. — Dupin parle en faveur de la régence. —
@@ -7092,7 +6857,6 @@ Manœuvres du Gouvernement contre les journaux. —
 Développement de la presse républicaine. — Ouverture
 des clubs. — Initiation du Peuple à la vie démocratique.
 
-# DES MATIÈRES
 Établissement de la République dans les départements. —
 - Les Commissaires de Ledru-Rollin.
 La circulaire de Lamartine. — Mouvement général des
@@ -7117,8 +6881,6 @@ la garde nationale. — Rappel de l'armée. — Toute-puis- Fe
 sance de la réaction. — Ses manœuvres électorales. — Le À
 | Troubles en province à l'occasion des élections. — Victoire E
 L. pacifique du peuple de Limoges. — Massacres de Rouen. 1
-
-| | Fa (EMIRe
 
 Réunion de l'Assemblée nationale. — Acclamation unanime de la République. — Le Gouvernement provisoire
 rend ses comptes. — On lui vote des remerciments. —
@@ -7217,7 +6979,6 @@ Ivresse des mobiles et bruit d''empoisonnement. — Analyse |
 de l'eau-de-vie et des balles par les chimistes.
 Propositions de paix faites par les ouvriers. — Mort de F
 
-| $ Pal le PAPA RUES PRIE RU ve 0e MÉQL/ CRM NES A PONTS RATE ASFETEUS re
 YArchevêèque. — Proclamation du Peuple. — Journée du
 26. — Capitulation du faubourg. — Massacre des prisonniers. — Adieu des insurgés à leurs frères morts.
 f Suites de l'insurrection. — Récompenses données aux vain-
@@ -7226,7 +6987,6 @@ f Suites de l'insurrection. — Récompenses données aux vain-
 - Le fédéralisme. — Invasion des gardes nationaux de province. — Les prisonniers des caveaux des Tuileries. —
 Massacre du Carrousel. — Translation des prisonniers
 dans les forts. — Leurs souffrances. — Derniers mas-
-| CHAPITRE XX. — Page [arr].
 Punition des vaincus. — Anéantissement de la Montagne.
 — Pierre Leroux et Caussidière parlent de clémence. —
 Article de Lamennais contre la terreur. — Article de
@@ -7238,24 +6998,6 @@ Dictature militaire. — Vote de la Constitution sous l'état
 de siège. — Contre-coup des journées de juin en Europe.
 — Élection du Président. — Promesses d'amnistie. — État
 de la France.
-
-a NS P ES AE) D A re NON ee PO ARE LE NE TU FD (ESA
-
-“30e SR RE A AN gi ct FR D PAR EU MENT
-ne RAS PAIE 1 < LM NORRREEEES
-A ‘ sa%s DA E ONE: à et
-Li He Lie ï fe Lx LA “RÉ PU
-
-‘CS ne Due RS
-
-LL NE LRERRR E DR RE PRE ON re TRE 4 LEA
-
-che PNA ARR PEN te RUE de AU NUE ARTE
-
-re MAMMA TRNE Ltau NT RE ee DC CAE re SSP ET RSS) Mae NES PIN SO PRE TU RNA
-| LPS : \ € j'a 1 Re
-
-|
 
 Louis Ménard a écrit deux pièces de vers sur les de
 - journées de Juin. L'une estreproduite dans le Prologue #4
@@ -7284,7 +7026,6 @@ Püût être oubliée une fois,
 Pour absoudre le ciel, l'homme a cru que Dieu même
 , Dût s'immoler sur une croix.
 La revanche viendra : le jour inévitable
-. Des justes expiations
 Luira pour balayer une race coupable
 Au vent des révolutions ;
 | Alors on nous dira : « La vengeance est impie,
@@ -7310,7 +7051,6 @@ Agitaient vers eux le mouchoir. 4
 Et puis le lendemain de la victoire impie
 L''insulte et la délation ;
 Après l'assassinat, la lâche calomnie,
-L'implacable proscription.
 Comme ils ont bien d'avance absous nos représailles !
 k Quand nos bras seront déchaînés,
 Pensons aux morts : il faut de grandes funérailles
@@ -7325,20 +7065,16 @@ Ne vous empêcheront de baiser chaque place
 Toi, l'aveugle instrument de leur froide colère,
 Pourvu qu'à ton chevet le spectre de ton frère
 | Se lève, le peuple est vengé.
-|
 Vous, serfs de tout pouvoir, automates stupides,
 Qui tournez sans remords vos armes parricides
 Contre vos frères enchaînés,
 Et vous, vils trafiquants, race basse et rampante,
 Qui, dans ces jours maudits, alliez
 Soülant d'or et de vin la horde rugissante
-Des égorgeurs stipendiés,
 Loin d'ici ! vous souillez l'air pur de la patrie.
 Déjà terrible et menaçant,
 Le peuple est là qui veille : oh! fuyez, qu'il oublie
 Que le sang seul lave le sang.
-
-À Le procès
 
 Le Prologue d'une Révolution avait paru en feuilleton
 dans le journal Le Peuple, que dirigeait Proudhon.
@@ -7362,7 +7098,6 @@ Tous les chapitres qui suivent furent jugés délic-
 Le Peuple du 4 mars 1849 publie la lettre suivante :
 
 Au citoyen secrétaire de la rédaction du Peuple. |
-Mon cher ami, |
 
 Les feuilletons que j'ai publiés sous le titre de Prologue \
 
@@ -7385,7 +7120,6 @@ Salut et fraternité.
 Le Peuple du 25 mars publie la lettre suivante :
 
 Au secrétaire de la rédaction.
-Mon cher ami,
 
 Deux commissaires de police se sont présentés jeudi
 dernier chez mon père, pour saisir le Prologue d'une Révolution. Comme mon père, parfaitement étranger à la publication de cet ouvrage, protestait contre la violation de son
@@ -7410,8 +7144,6 @@ parler; avant quinze jours le procureur général croira
 comme moi aux fusillades. Que fera-t-il alors?
 
 Salut et fraternité.
-
-| Louis Ménard.
 
 Dans le supplément au Peuple du lundi 2 avril 1849
 Louis Ménard publia l'article suivant :
@@ -7442,7 +7174,6 @@ cades. C'était, dit-il, un moyen de leur sauver la vie. .
 M. Edmond Adam croyait donc qu'un massacre était orga- }
 nisé contre les habitants du faubourg, puisqu'il cherche ;
 
-2 pit L'rau 9 2 Pis TURC à ré < TANT LL)”
 un expédient pour les sauver ? Je n'ai rien dit d'aussi violent dans mon livre. On devrait bien poursuivre M. Edmond
 
 qu'on voulait fusiller; il s'y opposa en disant qu'on pourrait en obtenir des renseignemens. Que dites-vous du
@@ -7628,7 +7359,6 @@ empoisonnée, ajoute qu'il est faux que depuis la fin de la
 lutte on ait fusillé un seul prisonnier. Ah! et combien y en
 a-t-il eu pendant les quatre jours qu'a duré la lutte? On. k
 
-| Daniel Haléoy ;
 devrait poursuivre ceux qui communiquent des notes
 comme celle-là.
 
@@ -7712,7 +7442,6 @@ fusillades de la place du Lycée Descartes, (2) de la rue des
 Mathurins, des Tuileries, du Luxembourg, du Panthéon;
 
 il raconte en détail celles de la place Saint-Jean et de la
-| rue Lobau.
 Dans une brochure imprimée à Liége sous l'état de siége
 | et intitulée : Faits inédits sur les événemens de Juin, par
 | un détenu politique échappé aux persécutions, se trouve
@@ -7773,7 +7502,6 @@ de ces citoyens M. Bianchi ajoute ceux de M. Marchand,
 
 capitaine, de M. Arbout, membre du büreau de bienfai-
 
-sance de Lille, de M. Caillons, de Lille, de M. Lestocart, de r
 Roubaix, qui sont prêts à confirmer les détails fournis par
 
 M. Champon sur la situation des prisonniers, la consigne
@@ -7790,7 +7518,6 @@ de fusil; il répétait : Rendez-moi mon fils! Un second coup
 lui fracassa l'épaule : Rendez-moi mon fils! Et la cervelle
 du pauvre vieillard jaillit sur ses voisins. M. Cazavant
 cite comme témoins MM. Martin, concierge, rue Grangeaux-Belles, Larroque, même adresse, Thomas, gazier, rue
-Bichat, 1 ou 2.
 
 M. E. Foucaud, rue Corbeau, 2, m'a adressé une lettre de
 M. Durier, dont le père a recu 14 coups de feu et trois
@@ -7953,7 +7680,6 @@ M. Guenau, maître d'hôtel n° 16 de cette rue, et M. Cotillon,
 Î libraire de droit, même adresse, ainsi que MM. Theil, chef
 de bataillon, professeur au collége Henri IV, et Joubert,
 libraire, rue des Grès, 14, qui leur ont entendu raconter les
-| faits.
 | M. Poulet Malassis, journaliste, arrêté chez lui, rue du
 | Cloître-Saint-Benoît, 4, (2) fut sauvé par M. Oudinot, capi-
 ( taine dela 11° légion, qui l'emmena avec un autre prisonnier ;
@@ -7970,7 +7696,6 @@ Mathurins, Devant le mur de la maison démolie. On voit
 b (rue Du Sommerard) et la vieille Sorbonne; la rue de Cluny
 | actuelle en suit le tracé entre la rue Du Sommerard et la rue des
 Écoles. — Note des éditeurs.
-| 257 \
 
 encore, dit l'auteur, des traces de balles, maïs seulement à
 six pieds au-dessus du sol, « car les poitrines étaient nombreuses, et il n'y a de traces que des balles perdues. »
@@ -8072,7 +7797,6 @@ Je ne cite qu'à titre de renseignement une lettre de
 Mme M. W. sur les fusillades du Luxembourg. Cette dame,
 après avoir donné à la personne à laquelle elle écrit (qui
 n'est pas celle qui m'a transmis la lettre, bien entendu) des
-nouvelles de M. de Loudun, de M. Berryer, de M. Dieudonné,
 qu'elle appelle ses amis — de hautes relations comme on
 voit, aflirme que 400 forçats ont été fusillés au Luxembourg. Ce chiffre me semble très exagéré, mais il paraît |
 tout simple à cette dame, qui ajoute qu'il y en a encore
@@ -8195,7 +7919,6 @@ Barbès (dix-huitième arrondissement). — Note des éditeurs. :
 qui s'ouvre entre la Bourse du commerce (ancienne Halle au blé) È
 et la rue Coquillière. — Note des éditeurs. ;
 
-de
 encore fumant d'un prisonnier qu'on avait fusillé et jeté à
 l'eau malgré les cris de grâce des personnes présentes sur
 le quai de l'Hôtel-de-Ville.
@@ -8267,7 +7990,6 @@ Réforme et jetés à l'eau après l'exécution.
 
 M. Lamiable, rue de la Roquette, 51, m'écrit avoir vu
 rue Saint-Antoine trois hommes fusillés sur le trottoir, en
-face du n° 22.
 
 M. Carette, rue de Paris, 14, à Boulogne, m'a adressé un
 mémoire détaillé sur sa captivité. J'ai un grand nombre de
@@ -8339,12 +8061,9 @@ assuré avoir vu des exécutions de prisonniers, oh alors, je
 n'ai plus douté, et j'ai dit à mon fils, que s'il écrivait, il
 fallait dire la vérité quoiqu'il arrivat. \
 (1) 11 comprenait, avons-nous dit, les quartiers du Luxembourg, }
-de l'Ecole de Médecine, du Palais de Justice et de la Sorbonne, k
 qui appartiennent maintenant aux sixième, premier et cinquième ‘
 arrondissements. La mairie était rue Garancière. — Note des éditeurs. 4
 .
-
-RE TA de PAR
 
 J'ai và les documents qui ont servi à son histoire et je
 puis affirmer qu'il n'a pas assombri le tableau, au contraire.
@@ -8385,7 +8104,6 @@ Comment en effet pour un aussi grand nombre de faits
 qui sont énoncés faire assigner des témoins? Il s'agit des
 événements de Rouen, il s'agit des déplorables événements &
 
-| Daniel Haléoy
 de Juin. On attaque toutes les légions de la garde nationale
 de Paris, toutes les légions de la garde nationale de la banlieue. /Signes de dénégation au banc de la défense.)
 Nous vous l'avons dit, Messieurs, nous sommes les premiers
@@ -8397,7 +8115,6 @@ lesquels on nous doit spécialement faire entendre des
 des témoins.
 La défense déposa des conclusions auxquelles il fut
 ainsi répondu par la Cour :
-La Cour,
 Considérant qu'en matière de poursuite des délits commis
 k par la voie de la presse, les lois obligent le ministère public
 à énoncer dans la citation les écrits et les délits, objets de
@@ -8438,7 +8155,6 @@ Cette publication n'était pas destinée à paraître en feuilleton; elle était
 | Peuple. Le hasard seul, des circonstances tout à fait impré-
 Î vues firent publier sous cette forme un travail qui ne
 * devait paraître que sous forme de livre tel que vous l'avez
-| reçu.
 
 Enfin, je dois à mon honneur de vous dire, citoyens, le
 motif pour lequel j'ai révélé ces faits. J'ai cru devoir les
@@ -8459,7 +8175,6 @@ l C'est dans ces circonstances où il y avait péril à dire la
 k. en raison même du péril, que je les ai publiés. J'ai eu le
 | 269
 
-premier ce courage, et je m'en félicite, et je m'en glorifie. ,
 Il ne me reste plus qu'une chose à vous dire, citoyens :
 mon père, qui ne partage pas mes opinions politiques, ne
 voulait pas croire à ces fusillades. IL n'a voulu y croire
@@ -8496,8 +8211,6 @@ qui appartiennent aujourd'hui aux cinquième, quatorzième et *
 treizième arrondissements. La mairie était rue Saint-Jacques. — 4
 Note des éditeurs. YŸ
 
-UN ua NT Ne SE A ee ee
-| PROCÈS DU 7 AVRIL 1849
 avocat-général excite à la haine contre la classe des parri-
 | cides et des voleurs; moi, j'ai excité à la haine contre la
 | classe des assassins, et plus encore surtout à la haine contre
@@ -8507,25 +8220,11 @@ avocat-général excite à la haine contre la classe des parri-
 L. Ménard et G. Duchêne furent condamnés, le pre1 mier à trois ans, le second à quinze mois de prison, et
 ) tous deux solidairement à 10.000 francs d'amende.
 
-kbA À du Mir Dr #, ÿ 4 a
-Ar k PONT UN, pl
-
-na it È LA 4 RESTO REIQUNE ONE
-RAY DEN Rp nr NE)
-ni HET
-
-| ÉD ARR
-
-#2 : He
-# fe
 3 55
-he, il
 
-AUDE 10273 te Ne RSS CORPS se QUE M7 rt NA e Céi à NN C ANT SRE à
 7 Notre catalogue analytique sommaire
 rl ; de la couverture 2
 Rs Avertissement, notre collaborateur Émile Buré. . 11
-| Louis Ménard... 449200 RUL 0 RUE CPP Eur |
 .  DanxEL HaLÉvy. — Louis Ménard . . . .. . . vu ;
 ni un amuseur, ni un maître ; un curieux des
 | choses de l'esprit ; apprécié de ces seuls curieux ; É
@@ -8539,14 +8238,7 @@ anciens; monde discontinu, forces indépen- F
 dantes; accent de tristesse; le Polythéisme Ph
 hellénique; mais jeunesse révolutionnaire. Ê
 Louis Ménarp. — Prologue d'une révolution k.
-| Annotations de M. Paul Dupuy. . . . . - . . . . x
 
-Ton LOMME Qt PU ET AUUTE
-MD re IL NN A RU. or 24e. 0E
-pre VIE IS ET ee pe in
-RARE EX de ue, PRE re CO
-DRE ERA EE VAR RER CE, À PR Ra or,
-CG pbee XX. 25 LR ee ne EE CRT or
 Phipierex et dernier 1}. 00 Mens rE
 
 L — Adrastée; II. — Le procès; en feuilleton
@@ -8574,18 +8266,10 @@ S Seine à l'audience du 7 avril 1849; prévenus è
 avocat-général Meynard de Franc fait opposi-
 | tion ; conclusions de la défense ; répondu par la
 : Cour; plaidoirie Madier de Montjau; protestation de Louis Ménard; réponse du jury; arrêt.
-Table de ceicahier 2 SN EN RANCE RE
 Nous avons donné le bon à tirer après corrections Î
 pour deux mille exemplaires de ce dix-huitième cahier $
 le mardi 28 juin 1904. ï
-Le Gérant : CHARLES PÉGUY |
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
-IMPRIMERIE DE SURESNES (Ep. GRENIER, directeur), 9, rue du Pont. — 8999 Ë
-je
-
-MARRAINE Le : fr. "HA RORRE
-
-ji: CAHIERS DE LA QUINZAINE, 8, rue de la Sor-
 
 Û bonne, rez-de-chaussée, Paris, cinquième arrondisse-
 
@@ -8616,13 +8300,6 @@ pour la série; tous les cahiers de l'abonnement recommandé sont empaquetés à
 poste ; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
 
-# 4 RE | vx F rt Fu
-| IN: VEN Des ET:
-NE LATE Fur +
-#4 Re t À < ES 12
-ne Hot LESC} - 1 . « LCR
-
-> ERA « à ré OA FO PRO PRES NA FR PEN
 de L'abonnement ordinaire cesse de fonctionner pour
 _ chaque série au plus tard le 3r décembre qui suit
 l'achèvement de cette série ; ainsi du premier juillet au
@@ -8652,10 +8329,6 @@ et d'institution. Toute correspondance d'administration
 adressée à M. Péguy peut entraîner pour la réponse
 un retard considérable.
 
-File te NE HE Lt VO PR ET NISRTES UV 2 HE
-ep PÂTE ‘ PE PAR ee BR ‘#00
-| 4 LATINE fS
-
 L'an mil neuf cent quatre, le vingt-cinq juin;
 A la requête de M. l'abbé Dissard, Chanoïne de la
 Cathédrale demeurant à Laval. Avenue de la Gare.
@@ -8682,7 +8355,6 @@ quatre publié fin mars 1904, portant la mention :
 a, sous la signature de M. Felicien Challaye publié
 un article diffamatoire pour le requerant; — le dit É
 
-du
 article intitulé « la France vu de Laval » commençant
 par ces mots « Vers la psychologie d'une petite ville »
 et finissant par ceux-ci « les hypocrisies de Laval-laMorte ».
@@ -8773,20 +8445,6 @@ Sous enveloppe fermée ne portant d'autre indication,
 d'un coté, que les nom et demeure de la partie, et de
 l'autre, que le cachet de mon étude apposé sur la fermeture du pli le tout conformément à la loi.
 
-AUS EU UN qi A RAR ee RO NS
-LE LES pes 6 ga Ë
-| KT | UE
-| Ie OSR É 1 LE
-mie Ne EN [: j * ie CAS 4
-|. NTMNINENES DE 6 PH
-
-j PIN ON UE AS ER PT ES ur CRE TN PRES
-
-Les ns K 24 f
-
-| PONS RNA CRT ! ; AS ANUS ES ts M4 Ÿ
-
-Mon Caliers;s0nt" édiés SL ET SN A RAT
 L'an mil neuf cent quatre, le vingt-cinq juin. . 282
 Les distributions de prix vont commencer dans les
 établissements d'enseignement ; aussi longtemps que
@@ -8814,26 +8472,10 @@ $ il suffit d'envoyer un mandat de trois francs cinquante Ë
 à M. André Pourgeois, administrateur des cahiers, ÿ
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième À
 arrondissement. On recevra en spécimens six cahiers {
-de la deuxième, de la troisième et de la quatrième |
 Nous mettons ce cahier dans le commerce; dixhuitième cahier de la cinquième série ; nous le vendons 5
 
-#
-
-|
-| CAHIERS DE LA QUINZAINE
 | | paraissant vingt fois par an
-| PARIS
 | 8, rue de la Sorbonne, au rez-de-chaussée
-
-TR RL Don M shui gp AMG DA La
-PA ATEN Be tte NPTRCAUNT SES DRE LT NE A RM EE DEA ri IN & Ré
-j'AMEnE dE TU TA HR } ( 4 NN NE pull ve (a
-AMENER h ; 4 À PARENT Ce ht
-Kiss f è LS LA AT ONE
-
-. Rs. Ra PAR TN ‘ñ ire 4% as Ye qe ga te
-BAR ra re LUS LAS PUS FPT NET LE ER
-TE AE bé GR Ta ar,
 
 Nous prévoyons que le premier cahier de la sixième
 série, paraissant le dimanche 2 octobre prochain, sera
@@ -8864,33 +8506,9 @@ d'utiliser les déplacements des vacances pour nous
 
 chercher des abonnés nouveaux. 1
 
-ne Se x Ke ne SNS g'iSen LAN MAR PR UE j
-
-|: {ONPREESS ñ LUETR SE
-
-S ÉAUS HR LL soit ï9 is WA ne à } L A px È Er
-
-RU Le v'ORCS VERS re RE < CROES 1 SRE SE te) à LE A DEN
-MT 1 ; ce * Lie TERRES
 . RES notre ami Pierre Baudouin
-RATER VA ble RARES EN ER ET LAN ñ fs A.
 
-| NC A AE FA TA D AR LR
-Tes TE es MA NL M CRAN AE ER RENAN “NE
-
-A Te A ART fs POP ANT ER ÉTAPE A TE de
-Les hobereaux 0
-PSE FANS SES (R ne es
-
-à Was pt de 1e QE AN RE EE SE LE SN A
 AS ri | à la mémoire de monsieur Jean de Monéis
-
-Lee ne A us,
-MAR eu AE UN AT Fo LRO EN AE) fr et
-
-::FARLINS st FS LUI ATNNSSS
-
-AM PTAPEN EME TA TA \A jt RAGE nil
 
 ‘ La table du curé de Villefaignes était célèbre dans
 le pays : quatre fois par an, aux grandes foires, il
@@ -8914,7 +8532,6 @@ de guerre est écartée.
 n Jérôme et Jean Tharaud AU:
 à — Ma foi, je le regrette, répondit Jean de Vivans. É:
 Les Prussiens méritaient une lecon... Vous avez lu Æ
-è | le Conservateur ?.….. à
 ÿ Du Landier s'étonna d'entendre parler de guerre.
 \ Il vivait à trente kilomètres du bourg, comme un ;
 1 loup, dans une bicoque où n'arrivait jamais ni un
@@ -8962,7 +8579,6 @@ quitte. Il monte à cheval, court à Bergerac, joue %
 toute la nuit, perd tout ce qu'il a, remonte à cheval. Fr
 La pluie tombait. La goutte le prend. La douleur y:
 le tord. Il enfonce, long comme ça, ses éperons ;
-#
 
 | Jérôme et Jean Tharaud Le
 dans Péchard... la bête s'effare, le jette la tête la
@@ -9012,13 +8628,11 @@ Borgnes empoignèrent Dagoury par les cuisses, le
 soulevèrent au bout de leurs bras; Montcharmin
 embrassait la métayère ; du Landier, coniplètement
 ivre, pleurait; le curé versait à boire.
-Tous criaient :
 — Vive l'empereur ! à
 — Lâchez-moi, dit le maire, je vais faire battre le
 — Et moi sonner les cloches, dit le curé.
 
 4 Jérôme et Jean Tharaud j 4
-‘3h Des Borgnes et du Landier le suivirent. LS
 ; A la fenêtre, Jean de Vivans criait : « La guerre 1
 k ‘ la guerre ! » du ton dont il annonçait : « Un lièvre! 3
 : un lièvre ! » à la chasse. #4
@@ -9045,9 +8659,6 @@ k 11 monta sur une table, recommenca de parler: D
 " On se pressait pour l'entendre dans l'auberge
 {l enfumée. On montait sur l'évier, sur les portes.
 | Vivans se grisait de ses paroles et de cette passion à
-A À je HE OR
-
-3 RSR NE: 6H Aa De Die Les DS ST RCE ESS * 2 154
 
 que sa voix dégageait peu à peu des forces endor- .
 
@@ -9099,7 +8710,6 @@ A la côte de la Barde, quand leurs chevaux
 | prirent le pas, Pierre, qui n'avait pas encore parlé, ÿ
 > dit à Jean : À
 — Je m'ennuie ici, il faut profiter de l'occasion. |
-Je m'engage.
 — T'engager ! et notre mère ?.… )
 — Tu restes, toi. !
 Jean rougit, comme si les paroles de son frère :
@@ -9115,7 +8725,6 @@ perdrix, suivie de ses petits, traversa la route, des ÿ
 lapins se terrèrent dans un fossé, un faisan s'en- 4
 : vola sous le nez de leurs chevaux. Ces bêtes ne À
 
-PREMIER PU RP ET AA je SANTE
 purent distraire Jean de sa méditation mélancolique.
 
 — Allons, pas de tristesse, lui dit Pierre. Nous
@@ -9152,11 +8761,7 @@ massifs, les hobereaux dominaient le pays.
 
 È clair de leurs chevaux s'assourdit dans l'allée, où
 
-|
-
 | 19
-
-|
 
 1 Jérôme et Jean Tharaud “
 1 l'ombre des arbres entretenait une humidité d'hiver,
@@ -9167,7 +8772,6 @@ ne du feu : madame de Vivans avait toujours froid. |
 4 Une lourde couronne de cheveux noirs penchaït sa …
 7% tête sur un métier à tapisserie; elle leva sur ses fils
 3 É son visage au teint de rouille, éclairé par des yeux. ;
-Ne fiévreux. |
 1 — Vous arrivez bien tard, mes enfants. ;
 ‘à — Vous connaissez la nouvelle ? demanda Pierre. …
 if — Je sais. Mais je n'aime pas vous savoir sur …
@@ -9176,7 +8780,6 @@ if — Je sais. Mais je n'aime pas vous savoir sur …
 d: demanda-t-elle après un silence. 1
 ï We — Avec enthousiasme, répondit Pierre. ‘
 a — Oui, on m'a dit... Vous n'y êtes pas étranger, « x 4 Jean... On vous a traîné, paraît-il, dans une voiture 1
-, de charlatan… 4
 de Elle retroussa ses lèvres sur ses dents en ruines.
 4 — Je doute que cette guerre nous apporte rien € Bi
 d à bon, reprit-elle en regardant le haut portrait d'un,
@@ -9212,7 +8815,6 @@ Jean pensait au déjeuner tumultueux du curé, à
 la surprenante nouvelle qui l'avait grisé et qui
 n'éveillait plus en lui que le désespoir d'être boiteux.
 
-“in #7 Lu ane A * PAR Ge. M LATE
 } \ Jérôme et Jean Tharaud FETE 4
 ÿ / Jamais il n'avait senti comme ce soir la gravité F
 ne d'un misérable accident d'enfance : à!
@@ -9239,10 +8841,6 @@ Madame de Vivans regarda Jean avec hauteur :\
 — Je vous prie de changer de ton... u
 Emprunté dans une vieille redingote à Pierre, un
 nœud blanc remonté sur son cou mal rasé, le domes-
-
-#
-
-| LES HOBEREAUX |
 
 tique promenait autour de la table des pièces d'une
 argenterie lourde et dépareillée.
@@ -9308,7 +8906,6 @@ A la porte du petit salon, madame de Vivans
 " pendant qu'elle faisait ses prières, la liberté d'aller « | fumer sur la terrasse. :
 Pierre décrocha sa trompe dans le vestibule; la
 
-ES PT PER EM pe Ru AR NE HQE
 nuit était noire ; ils marchèrent avec la sûreté |
 d'aveugles dans le dédale des massifs de fleurs :
 campagnardes jusqu'aux fauteuils de châtaignier
@@ -9362,7 +8959,6 @@ mer entre la houle et le ciel orageux.
 Les langues de feu jouaient avec le portrait, le
 léchaient de leurs lueurs intermittentes, l'animaient
 
-| LES HOBEREAUX
 quelques secondes de leur vie et l'abandonnaient à
 son ombre.
 
@@ -9469,7 +9065,6 @@ heureux de sentir que le temps passait et que ces
 — Maintenant, mon cher enfant, il ne me reste
 plus qu'à vous dire de vous confesser et de vous
 confier à Dieu quand vous sentirez le danger
-dE proche.
 Pierre ouvrit de nouveau les bras avec la joïe que ;
 dans quelques secondes la porte retomberait sur ces Î
 
@@ -9511,8 +9106,6 @@ di on aurait une terre magnifique, on cultiverait ce
 TE — Laisse donc le pays comme il est, il y a du
 0 oisson et du gibier. Que veux-tu de plus ?
 
-x t du gibie tu de plus?
-
 "4 — Tiens ! regarde celle-là. Elle a encore mis ses
 
 “AR moutons dans mes chênes!
@@ -9547,7 +9140,6 @@ we pièces de son domaine. Ce sont les seules qui soient.
 48 bien tenues... Mais je n'aime pas les Boucille.
 no — Ce sont pourtant de bons métayers. 4
 
-48 A Cr et 1 2 dos ce) AE ACL Ga TEAM EN : ST
 — Sans cela, il y a longtemps que je les aurais Ë
 mis dehors ! Ses fils et lui ont un air faraud. Dès #1
 que les paysans cessent d'être des brutes, ils 1
@@ -9602,7 +9194,6 @@ vers l'unique wagon de voyageurs. Sur une banquette un militaire dormait. À
 — Eh bien ! dit Jean, tu ne partiras pas en fan- |
 Pierre se tenait debout sur le quai les yeux tournés |
 
-PE PRE és ER LP PT ee À, »: (FE Die l:
 vers le chef de gare qui chargeait des cercles de ré M:
 barrique. L'impatience qu'il eût fini les irritait tous J
 les deux. #.
@@ -9618,8 +9209,6 @@ les dindes. 4 8
 Pierre éclata de rire : 7
 
 — C'est la mobilisation des volailles ! !
-
-Le sifflet roula. j
 
 — Ah ! cette fois. | a
 Jean suivit quelques pas le train qui s'ébranlait. #
@@ -9670,9 +9259,7 @@ F toit. — Mais à quoi bon? Il ne lui en reviendrait
 1 sa jument, des nuages dorés couraient sur l'étang ;
 É des crapauds annonçaient le soir. Il continua sa
 1 route. La petite bergère avait ramené ses bêtes dans "
-#31
 
-er LT RE LES HOBEREAUX Es LES
 la plantation de chênes ; Jean l'aperçut au milieu de DES
 ses moutons au pied de son arbre. Il haussa les HA.
 épaules. Pourquoi crier, se fâcher, injurier, tout . RES
@@ -9683,7 +9270,6 @@ ses terres d'être pauvres, à ses paysans de leur “SE
 routine, à sa mère d'être malade, à lui-même d'être 12
 boiteux et à Pierre d'être parti. #1 #8
 
-LS Cfa MR SNA SES à ER NL LS à GO EN du)
 fi Le facteur n'arrivait à Vivans que le soir, souvent
 il à la nuit tombée. Jean lui commanda de laisser à
 [uet Villefaignes ses lettres et ses journaux chez le curé.
@@ -9697,7 +9283,6 @@ passer les Alpes. |
 | — Sapristi! ma messe! criaitle curé.Ils'esquivait « vers l'église. Le crâne rocheux de Sourdille,
 | l'épicier, apparaissait à la fenêtre. |
 ki — Quelles nouvelles dans la Gazette, père Sour-
-# F.-
 0 — L''épicier, déployant sur l'appui de la croisée la
 ï Gazette libérale du Périgord déclarait que la guerre We
 1 s'annonçait comme devant être surtout navale.
@@ -9733,7 +9318,6 @@ après le dîner quand il avait fumé sa pipe, il relisait à
 des journaux vieux d'une semaine.
 39 4
 
-D er à MY ta A
 , Jérôme et Jean Tharaud he:
 La nuit, plus que la distance, plus que les collines,
 | plus que les vallées, plus que les boïs, l'isolait du
@@ -9799,7 +9383,6 @@ ailes à travers la chambre. "10
 
 — Nom de Dieu! cria du Landier, se jetant à ‘À
 quatre pattes aux pieds de Jean. si
-— Eh bien, qu'y a-t-il? un
 — Ils sont foutus! dit du Landier, montrant dans 4
 ses mains deux jeunes perdreaux que Vivans avait 1 4
 écrasés par mégarde. ‘æ.
@@ -9808,9 +9391,7 @@ Jean saisit du Landier par la nuque. à *
 oui ou non? à É
 — Eh bien oui, nous sommes vainqueurs. N k
 L Ses doigts s'engluaient dans une bouillie desang |
-et de plumes. n |
 Vivans, sûr de la victoire, partit d'un éclat de rire. RE:
-Des Borgnes entrait. 4 4
 — Te voilà! cria Jean. Impossible de rien tirer
 de ce hibou! Enfin, nous sommes vainqueurs. ‘3 4
 — Sûr? demanda des Borgnes. 4 $
@@ -10023,7 +9604,6 @@ roulements de tambour. Francillou s'avançait en À
 de sa blouse un papier et ânonnant les syllabes:
 « Au nom de l'Empire français. » il lut la convocation qui appelait les réservistes des communes
 de Villefaignes, Bourgueil et Chamboreau, à l'ar- \
-— Pas d'autres nouvelles ?
 — Si, monsieur Jean, nous avons été battus. f
 — Oui, oui, je sais, à Wissembourg. 1
 
@@ -10047,7 +9627,6 @@ répondit Francillou. Et il s'éloigna sur la route,
 jetant à la campagne l'appel sourd et impérieux de
 son tambour. ;
 
-#1 ; S ÿ 4
 ut Beaucoup de métayers partirent à l'armée : on
 4 finit lentement la moisson. Jean ne s'en occupait
 Le plus, il vivait dans les rochers de la rivière, les
@@ -10150,7 +9729,6 @@ Il voulait paraître supérieur à son infortune et
 depuis le matin courait chez ses amis, tâchant de
 mettre les rieurs de son côté. Mais Jean le sentait
 
-RUN ul Ne ESA PA OO CT CAN ER RON UNE
 60 Jérôme et Jean Tharaud Vis
 4, humilié, furieux. Il lui servit une tranche de galan-
 ‘ — Fameux!... je mourais de faim... A propos, ça
@@ -10218,7 +9796,6 @@ mains, ils n'attendent qu'une occasion pour proclamer la République.
 sont partis en chantant {a Marseillaise, à tue-tête.
 À: Un clairon dans la guérite du serre-frein…
 ) — La Marseillaise! interrompit des Borgnes en
-à faisant la moue; l'empereur a eu la faiblesse de la
 ' tolérer à l'armée. |
 L . — À l'armée, ça n'est rien! s'écria Vivans, mais |
 34 chez nous, dans nos campagnes, c'est la révolution. ;
@@ -10227,7 +9804,6 @@ saluaient plus. l
 — L'autre jour il a fallu que j'enlève avec ma
 | cravache le chapeau d'un paysan. Depuis que M
 leurs fils sont à l'armée, ils se croient les maîtres 4
-du pays. \
 — Ils n'ont peut-être pas tort, dit lentement ;
 | Vivans; le pays est à ceux qui le défendent. ;
 Ë — Je te trouve bien démocrate, mon bon Jean. |
@@ -10236,8 +9812,6 @@ Ton grand-père aussi a voulu faire le patriote. Ça
 4 et ils l'auraient rôti si un grand oncle à moi ne
 l'avait caché dans sa cave... Tu étais impérialiste, « te voilà républicain! D
 | Vivans se leva furieux. 1
-
-4 ÈS 0 fes ÉMARL ENS ou c | 2e SE RENE A TE TEEN
 
 — Républicain? moi! Je ne permets à personne
 de me traiter de républicain! mais je peux bien
@@ -10307,10 +9881,6 @@ fe travail, repartait dans une autre ferme et ainsi
 
 | jusqu'au soir. Sa mère l'attendait dans sa chambre
 Fast le Conservateur sur ses genoux. ne.
-
-de — Rien. 3
-
-| LES HOBEREAUX
 
 La métairie des Ages eut fini de battre la
 première. Jean faisait avec sa mère le compte des
@@ -10434,8 +10004,6 @@ Quand il arriva à des Borgnes:
 
 — Comment va ta jambe, Simon ?
 
-— Je te remercie, citoyen !
-
 ) Les convives éclatèrent de rire.
 
 Jean haussa les épaules,
@@ -10455,7 +10023,6 @@ De sa place, chacun, en mangeant, jeta des lambeaux de nouvelles : L'empire renv
 envahie par le peuple des faubourgs, l'impératrice
 disparue, Gambetta et ses amis maîtres de Paris.
 
-| LES HOBEREAUX 6
 La république c'était la ruine achevée du pays, le
 résultat terrible des défaites, la catastrophe plus
 irréparable que Sedan. Enfin saisissant une chaise
@@ -10513,7 +10080,6 @@ Jean imagina Paris, la descente des faubourgs,
 les rues parcourues par des foules chantant la |
 | Marseillaise, les discussions passionnées dans les
 cafés, sur les places; les mairies envahies, les
-| 64 :
 
 Que devient Pierre ?.. Mort ou prisonnier ?
 Il se représenta sur des routes pareilles à celle
@@ -10583,7 +10149,6 @@ entendit la voix de Martin, l'aubergiste, qui disait :
 
 Des ricanements partirent au fond de la salle. ;
 
-ee M NL OC PE PE D, 0e ee On
 — Le premier qui criera devantmoi vive la Répu- À
 blique, s'écria Vivans, je lui frotterai les oreilles ; et 1
 s'il recommence, je l'assomme. |
@@ -10604,7 +10169,6 @@ paysan, leva la main sur lui, mais avant qu'il l'eût :
 souffleté, d'un coup de bâton le paysan lui brisa le Es
 poignet et, d'un autre coup sur la tête, il l'étourdit. j
 Vivans chancela, des lumières s'allumèrent dans ses 4
-yeux : Il cria : ;
 __ — Vive l'empereur! a
 
 Qui pourra dire ce qui se passa dans ces cervelles k
@@ -10646,29 +10210,11 @@ sera resté pour l'éteindre. |
 Et sa pensée s'en alla vers son autre fils, vers |
 l'armée en déroute, l'empereur prisonnier et la
 
-| Fa TU RSS Pa EU APT DE F US CN
-
-$ HE FL Mn et are, it an oué à PA LE
 Fini d'imprimer trois mille exemplaires de ce ‘25788
 _ dix-neuvième cahier le samedi 16 juillet 1904 Sn.
-SES fe
-‘a à l'Imprimerie de Suresnes a
 AR 9, rue du Pont : 00
-Mit ù k { Es D'un
-|. : 7 00
 
 puis it : PTS
-DAME NE / er
-
-DR D a Aer A OP Hs SA l'O AT Ne cins RAR LA >
-SA el Th LS SPNEERS
-% at ee AE SES : NL f.
-AE e Gare A Le 7 2 HER re
-
-| YA ‘ÉDITIONS D'ART NN
-nl JÉROME ET JEAN THARAUD \: :
-
-il °5 COMPOSITIONS DE D. VIERGE
 
 Fe TA In-4° etin-8°, imprimé par Lahure, tirage à la presse à bras
 
@@ -10686,7 +10232,6 @@ rE une aquarelle originale de D. Vierge, plus une collectic
 es. 25 exemplaires — de 15 à 39 — sur chine, au prix #
 
 15 !à 186 exemplaires — de 40 à 225 — sur vélin à la cuve
-: LRO papeteries du Marais, filigrané KTHMA ES AEl,a
 (1 Il sera tiré en outre : a 4
 
 ni 5 collections d'épreuves d'artiste signées, sur ja pon ane
@@ -10694,17 +10239,9 @@ NES au prix net de | 1178 raness
 1 pa 10 collections d'épreuves d'artiste signées, sur ch ne,
 
 l'a prix net de j 10 Fran
-ke À 4 : Ni ne VA
 
-| en préparation
-| LA À
-
-FAST TOP SORT LINEAR TES rit AU CNET Apr AM Re De ORALE TRE
-| HAL ASE TASER D PAT TARN RQ ME LENS NE NES Dr # ji I NAFTUR
-ne De PACS fs 2
 4 10
 
-| CAHIERS DE LA QUINZAINE, 8, rue de la Sor-
 | bonne, rez-de-chaussée, Paris, cinquième arrondissement.
 | Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordid naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
@@ -10727,18 +10264,12 @@ L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
 : l'achèvement de cette série ; ainsi du premier juillet au
 
-fus PANNE 1, TU
-0 ii POEL Que site
-| TIRE L'PPUTER
-s 1 ÉTAPES : Lan la
-
 31 décembre 1903 on pouvait avoir pour vingt francs
 les vingt-deux cahiers de la quatrième série complète.
 ‘ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi depuis le premier
 É janvier 1904 la quatrième série se vend trente-cinq
-| francs.
 M. André Bourgeois, administrateur des cahiers,
 _ reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de huit

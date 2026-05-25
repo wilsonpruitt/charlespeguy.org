@@ -7,44 +7,7 @@ author: paul-milliet
 isAvertissement: false
 wordCount: 36595
 ---
-| \? [2 |
-| 4|
-
-£ + a, Lake Sn ne Es À a Cu \ t
-
-CR ne at dc SL Geo
-Li4 Lie Are LAMPE RE + AA Les BEST NT PR D FPT
-aie ti on + jap, deb) 4 y PT (ES \
-on LAN ü CAS
-dt Fi: DUT LA D pd LA8R en:
-
-LE fe FRS no NN: PA EN CUS AÈe NEC RE
-LS Mie 2 PP ; UE re LAdl, nrU dE RU
-> ph Ne re = . 1 03 rs {3 ele
 17020 17480
-
-rl HN EE NS AQU L'ES Lut in Me Aus SENS £
-AR EE, DE TR HT. RTE EE at re HD :1733 SÉCUS ÉE “à
-AR ee en Le We A9: Le
-ai Lie rot LI C < « LA 0er : ch
-| HI00R SEE RS É ; Net
-
-PT. PER ne Mo ion NT AR NE COR LES SES RTE Ye LE , TEE
-| je 1 +10
-
-es ve! Le L b 1 PAPENEANOR ALU Fe Ve AL: » x s
-
-Les: À rt MUR":
-cn 4 3, Vie NET US:
-
-L THIN PEUR 4 st Are
-ns < CU a} NE da
-
-#2 PTE 4 A
-
-cs) CRT EU Cv x 0 ET = » Um m4 \ des Ke Fi n
-
-RS il: LA CR ANR à MS
 
 Premier tableau : une Hamadryade. — Orsel et Perrin. —
 Second voyage en Italie. — Luini à Milan et à Saronno. —
@@ -108,7 +71,6 @@ M. Perrin doit venir le voir, je tremble d'avance. Ce qu'il M
 m'a dit n'est pas fait pour m'encourager : il croit que mon * dre
 talent sera comme une porte entrebaillée qui peu à peu se LA
 
-| MSP URSS J
 Di _ referme. Modestie à part, il me semble pourtant que je suis
 _ plutôt en progrès; je ne tombe pas encore en enfance. Mais,
 tu le sais, M. Perrin a des principes très exclusifs, et avec
@@ -132,7 +94,6 @@ RUE où je me suis un peu follement engagé, je tomberais bienEY tôt dans la ma
 4 sol vient à manquer sous les pas. (2) Je crois pourtant
 Le: 5 () I avait raison.
 4 n (2) J'ai repris la même idée dans des vers intitulés :
-“ta L'ART RÉALISTE
 % * . L'idéal est bien loin, le réel est vivant.
 Rens Observe avec amour et, dans ton humble sphère,
 EUR Creuse droit ton sillon et tâche à le parfaire.
@@ -148,7 +109,6 @@ pe Te L'art grec transfigura les laideurs du vieux monde :
 | FAN Pégase sort du sang de la Gorgone immonde,
 LE ur De l'horrible peut naître une pure beauté, F
 
-Les _ voyage d'études Pie An:
 que la liberté et la puissance d'imaginer restent les 10 FA na
 beaux privilèges de l'artiste. — Comme Orsel, M. Perrin fait « + A
 bon marché de l'instinct, du sentiment et de l'imagination
@@ -169,7 +129,6 @@ Maintenant il est en Suisse. LE W:
 J'espère pouvoir partir pour l'Italie aussitôt après le “fa
 | retour de maman. Û 14 “tn
 Félix Milliet à son fils ET .
-à La Colonie, 20 août 68. ï nt dE
 Je regrette pour toi, mon cher ami, que Gleyre soit parti Ex 'h
 sans voir ton tableau, mais surtout qu'il ne prenne pas plus. Ta 4
 d'intérêt à un élève qui lui est resté fidèle (1) et qui, je 1
@@ -185,8 +144,6 @@ ps joint ce je ne sais quoi qu'on appelle sentiment mL
 DA (1) Au moment de la fondation des ateliers gratuits et HAE tt
 no de l'Ecole des Beaux-Arts. X 'MATANMEN
 
-VEN AL SC ERRE FRA CT PR OR EN MT TRS L'Oat a À ch
-|: TN Es S MILAN k
 _ lités excellentes et même nécessaires, mais n'excluent ni ne
 NE re mplacent l'imagination, c'est-à-dire la force eréatrice... -
 _ Une des qualités les plus précieuses de l'artiste c'est de ‘
@@ -203,12 +160,10 @@ __ on execusera l'orgueil maternel, — même exagéré, il :
 Le … doctoral du jeune professeur. Cette assurance est de
 - leur âge. Il ne faut pas reprocher trop sévèrement aux
 _ artistes la confiance qu'ils ont en eux-mêmes, c'est un
-Fee: MA q
 …_ précieux stimulant pour le travail. Il est si bon de
 1. croire et d'espérer! Si un peintre n'avait pas d'illusions
 | au début de sa carrière, il ne ferait jamais rien.
 _ Ma mère me voyant un peu découragé, m'écrivait :
-| ARE Paris, sept. 68.
 D Je suis allée dans ton atelier arroser tes petits
 " chênes; je ne puis te dire quelle bonne impression m'a
 … faite ton Hamadryade; la tête est charmante; le petit
@@ -220,7 +175,6 @@ de wi Ce que tu me dis de mon Hamadryade m'a fait plaisir, f
 æ dique je sache très bien que tu en parles ainsi pour me
 44 1
 
-onyrage d'études De :.
 quelque chose; tant de gens em ont de mauvaises |.
 Jaurais voniw montrer que le: num peut être chaste, &
 refusent à l'analyse et s'évaparent des qu'on essaie deles
@@ -235,7 +189,6 @@ Fai en sin l'appeler le gardien Monsieur le Conservateze,
 En Male, chaque ville à son peintre. Cest à Man ta À
 Quand vous viendrez ici, vous verrez si j'ai tort déte ©
 ON Apant fait pinsieurs voyages en [talie, pour éviter les CH
-D compter Les lcties. de ES per GR sr
 crini des letives et citations 55 Ris +
 
 ‘À + ment il n'a pas échappé à l'influence de Léonard, —
@@ -369,11 +322,9 @@ rement émue, et ce chef-d'œuvre est la meilleure réponse à ; ;
 ceux qui ne veulent voir en Léonard qu'un artiste d'une. … A)
 A côté de ces qualités supérieures du sentiment et de...
 .  l'expression, j'ai encore admiré dans le Cenacolo l'art de la EN
-#
 
 j perspective. Les lignes du plafond, celles du parquet et de
 . la table, tout ramène invinciblement l'attention vers la tête
-7) du Christ.
 | Paul M. à sa mère
 
 Me voici revenu à Luini. J'ai toujours regretté la perte
@@ -382,7 +333,6 @@ bien, Luini nous en donne peut-être une idée. Il n'a pas la
 puissance grandiose de Michel-Ange, ni cette intensité de
 vie nerveuse qui chez Léonard vous remue jusqu'à la
 moelle des os; toujours calme, exempt de la fièvre moderne,
-il conserve le charme de la simplicité et de la sincérité,
 
 + avec cette santé robuste de la pensée, que l'art a si rarement
 connue depuis les Grecs.
@@ -431,7 +381,6 @@ q limitation des fresques, et aussi grâce à mon maître et g
 ami Puvis de Chavannes, on cherche les tons mats et :
 clairs. Maïs comme tout progrès dégénère en formules,
 je crains que bientôt on en vienne à peindre à la sauce
-Paul M. à sa mère ER
 Lundi dernier je suis allé à Saronno par une pluie ê
 battante. Le pays est bien cultivé, mais peu pittoresque ; :
 c'est un vaste jardin potager, planté régulièrement de F
@@ -446,8 +395,6 @@ peintures qui la décorent sont un véritable trésor. En face À
 
 de ces délicieuses fresques, peintes par Luini dans sa verte
 vieillesse, j'ai cessé de mettre des réserves à mon admiration.
-
-Il y a là un Jésus au milieu des docteurs et surtout un
 
 Û Mariage de la Vierge ! Que t'en dirai-je? Si j'avais le prix
 de Rome, je ferais une demande pour être chargé de le
@@ -496,7 +443,6 @@ vulgaire, mais si vivant, si plein de fraîcheur, charmant en LEHErS
 Et dire qu'il n'existe pas encore de photographies d'après
 ces chefs-d'œuvre!
 Madame Milliet à son fils PAIN
-La Colonie, 21 septembre 68.
 .…… Louise dessine pendant deux heures tous les matins,
 sans compter ses petits portraits. Elle en a fait de très
 | ressemblants, mais je crois que M. Perrin trouvera son
@@ -508,7 +454,6 @@ le même plaisir. Elle est encore trop jeune pour faire un î
 voyage d'études en Italie. Il vaut mieux attendre un an ou
 deux pour que cela lui soit plus profitable. à
 ‘ Louise M. à son frère j ;
-: La Colonie, 21 septembre 68. ,
 … Deux ou trois fois par semaine il y a bal d'enfants à
 la Colonie et nous nous en donnons à cœur joie. £ |
 Nous sommes ici trois jeunes filles à peu près du même
@@ -547,7 +492,6 @@ A la suite d'un pari, que Jules a gagné, il a proposé à
 ; Rose deux questions embarrassantes, et l'on m'a demandé
 N conseil ; c'était :
 ! st _ Quelle différence y a-t-il entre le corps et l'âme de l'homme
-" et de la femme? ,
 FL) J'ai répondu : Le corps de l'homme est le symbole de la
 1 force brutale, celui de la femme de la beauté et de la grâce.
 \cÈ Le fond de l'âme de l'homme, c'est l'égoïsme, l'ambition et
@@ -564,7 +508,6 @@ toutes choses.
 Filles : — Dieu est le principe du Beau et du Bien; notre
 
 âme est une parcelle de son être, éternelle comme lui. Tout
-- ce qu'il y a de beau, de vrai et de bien dans l'univers
 émane de lui.
 
 Donnez des preuves de l'existence de Dieu.
@@ -656,8 +599,6 @@ s'accorde difiicilement. — Ma mère ne t'aurait-elle point lu
 récemment par George Sand dans la Revue des Deux
 * Mondes ? J'admire beaucoup ses descriptions de paysages et
 
-te ” CAMES LENCO, Ci dy RL ON ST NS
-| M els
 ses études de caractères, mais je t'avouerai que ce mêlimêlo sentimental et transcendantal n'était pas de mon goût :
 après quelques pages de métaphysique nuageuse, venait,
 on ‘ne sait trop pourquoi, un petit morceau de botanique
@@ -682,7 +623,6 @@ du moins comment on peut traiter les sujets les plus
 abstraits d'une façon profonde, d'un style clair et naturel,
 pas allemand du tout.
 
-Il y a une branche de la philosophie qu'on ne saurait É
 étudier trop tôt, c'est la morale, et surtout la morale pratique. En l'absence d'une religion positive, il me semble très
 nécessaire de cultiver en soi-même l'idée du bien, et de
 travailler à se rendre meilleur. Les religions ont été inventées pour fortifier la conscience et pour la remplacer un
@@ -702,7 +642,6 @@ qui les nient y croient si bien au fond, que tu les verras
 4 | s'indigner contre une mauvaise aclion, admirer le
 410 dévouement, le sacrifice, et réfuter par là leurs propres
 43 Louise M. à son frère
-Û À La Colonie, sept. 68.
 “5 . Ton enthousiasme pour Luini est contagieux; nous |,
 nr nous promettons, maman et moi, d'aller l'étudier au
 24 Louvre. Je te dirai que ma Loge de Raphaël est enfin
@@ -744,8 +683,6 @@ que cela a abrégé mes beaux discours philosophiques.
 
 Louise à son frère k
 
-La Colonie, sept. 68.
-
 Les sujets que tu m'as donnés sont trop difficiles. Je ne
 puis me représenter ces figures allégoriques.
 
@@ -758,7 +695,6 @@ que je dis : Notre âme est une parcelle de son être. Je n'en
 suis pas sûre, ce n'est qu'une supposition, attendu que
 
 Madame Milliet à son fils
-La Colonie, 28 sept. 68.
 
 Je te dirai pour le voyage de Venise ce que saint Paul
 disait du mariage : Vas-y, tu feras bien, n'y va pas, tu feras
@@ -774,23 +710,8 @@ intéressées, et nous disons toujours avec Louise : nous
 (1) Sans s'en douter, une fillette naïve trouvait ainsi le dernier
 mot de la métaphysique, Personne n'en sait rien.
 
-EE GR Sn ET RTE OT NE VIRE Ge ee RTS et NERe,
-AR TO CR we NE 0 ty} Se: 2 MMA Lemie e Yhie
-: as Est, . HET PERF A | ‘ ;: TRE. des
-+ AA rail NE F à CSS USE
-| GIOTTO. LA CHAPELLE DE L'ARENA. ALLÉGORIES. —
-# tre + RANCE e 4
-| NO RM ns (ic
-
-EAU EN Pere (n LE BE P ad ter
-Va LIN VGA dE MES, £ ERP EP hr ENANT
-HUE NE HAE I LES nee HAUTES HORS ;
-#2 CREn WwY 2 LEUR ST, CERe HE PRE M Poé
-LEE pis Des OPEL MR
-
 11080 Giotto. La chapelle de l''Arena. Allégories. —
 ‘hs Un professeur trop savant. ï
-L ; Paul M. à Louise
 qe Si je tai donné l'envie de connaître Luini, combien je
 n… désire plus encore que nous revenions ensemble étudier
 _ ici Giotto. C'est un génie d'une bien autre portée, comme L
@@ -858,8 +779,6 @@ entièrement peinte par Giotto. :
 
 Est-il besoin de vous rappeler combien deviennent rares
 
-* Fear Ne
-Le her PADOUE
 _ en Italie de pareilles occasions, et combien il serait à désirer
 - de voir un pareil maître représenté au Louvre d'une
 | manière aussi splendide ! Me défiant de mon propre enthou64 siasme, je laisse parler M. du Pays, l'auteur d'un excellent
@@ -1086,8 +1005,6 @@ seul personnage, de toutes ces conventions banales,
 
 ÿ ressembler, et qui passent à l'école pour des règles
 
-À de l'art.
-
 : Giotto nous prouve que tout cela est faux et inutile.
 
 ; Le meilleur arrangement sera toujours le plus simple
@@ -1107,7 +1024,6 @@ retrouve un peu le miniaturiste. Sa grâce florentine
 A n'est pas absolument exempte d'une sorte de manié-
 _risme inconscient, délicieux d'ailleurs; parfois ses » jeunes saintes, ses angelots et ses moinillons ont de
 … si jolis petits traits qu'ils manquent un peu de
-# 3
 | Louise à son frère
 fe .… Tu n'es pas avantageusement remplacé par M. Carré.
 . Le jour de ma première leçon, il avait mal aux dents et,
@@ -1115,7 +1031,6 @@ fe .… Tu n'es pas avantageusement remplacé par M. Carré.
 ' lui ai montré mes livres, je lui ai expliqué la méthode de
 A (1) Je wavais pas encore vu les admirables fresques qu'il a
 
-voyage d'études k Ma
 Jacquet, mais il n'y a rien compris, il n'écoutait pas. 1
 m'a interrogée sur mon cahier de César; je n'ai pas mal
 répondu, mais sur ses questions d'analyse, je n'ai pas été “
@@ -1149,17 +1064,7 @@ français n'est pas toujours très français, et lui ne laisse
 | pas échapper la moindre faute. Il m'a complètement démoli
 mon devoir; malgré cela il a dit qu'il n'était pas mal et qu'il
 en était très content.
-| pi
 
-SE Ne ET AE D AT SR AE CAR par Eee
-à LE TR MAT EURE ERA 2+8 AS FRA sh di NES ONE
-due TE en HORS é 4: N Esv A Fax LP L : 4
-ts UV RATER : : REA L ae) LYCOS
-; PRIT L À ve {ir LINE ERCORPINRES
-GRAN ie ce rs : L PR 2 ET M rRe
-PES. Ave * Mur . FÉPAAM CO MES CAE,
-
-| {
 ; Paul M. à sa mère
 Je subis sans doute l'influence du temps et de la fatigue,
 mais la ville m'a paru affreusement triste. Dans les rues
@@ -1226,7 +1131,6 @@ sorte que les lignes latérales, au lieu de converger vers un
 & _ même point, s'éloignent en divergeant. Or cette bizarrerie ne
 É: dénote pas seulement une ignorance, mais une absence totale
 d'observation, un inconcevable dédain des choses visibles et
-| tangibles.
 | Nous avons deux cerveaux, comme nous avons deux
 | yeux, le droit et le gauche. Dans l'état de santé, ces
 deux organes jumeaux fonctionnent d'accord ; mais le
@@ -1331,7 +1235,6 @@ Ici se révèle la qualité maîtresse de l'art byzantin, la
 splendeur féerique des colorations. A Saint-Apollinaire le
 Neuf, la Vierge porte une tunique et un manteau de
 pourpre; l'Enfant est vêtu de blanc; le trône est vert, blanc
-et or, le coussin orangé et or.
 
 Rien dans nos plus belles cathédrales, dans nos palais
 les plus somptueux ne peut donner une idée de la merveilleuse richesse d'une basilique byzantine entièrement vêtue
@@ -1351,7 +1254,6 @@ comme voilés de mystère, ils chantent dans la pénombre,
 sotto voce. Rien de criard, rien de clinquant, rien qui
 ressemble au luxe vulgaire de l'art turc ou de l'art
 
-Et de ces colorations à la fois si fortes et si douces, de
 ces bleus sombres, profonds comme une nuit d'été semée
 
 (1) Viollet-le-Duc s'est montré singulièrement injuste pour ce genre
@@ -1389,21 +1291,6 @@ c'est qu'elle s'applique tant qu'elle peut et s'y donne tout :
 Fr entière. Lorsque, au bout de deux heures, je lui dis qu'il
 FER _ faut partir, elle me regarde d'un air étonné, elle s'imagine
 “oe que nous venons d'arriver. :
-
-ae LE NOUS SRONNMEENE
-
-Mon e À PRE
-
-PART pb Fa LA Vtt PUCES ALT jé ia RAA
-
-(EAU Ne ASE DA } #1 } bi lT T ANTNERIQUES Aa er
-LE NN | jé AE LE Med | ARE ER
-D un LP ER NES
-LME ati rt DE! LAN À f S px ELU ar EU {Ar NS DR ES ; A jo
-
-# “ { , : : RME à X h
-
-FLAN 1 NEO PONS À ME PS ce TI PA Dante (ER AP i LE
 
 La Chapelle des Espagnols. — Andrea Pisano. — Ghiberti.
 1 — Botticelli. — Lettres de Louise.
@@ -1468,8 +1355,6 @@ de losanges quadrilobés, il a raconté la vie de saint Jean. (r)
 
 (1) 1 y travailla 9 années et la termina en 1330. |
 
-|
-
 Les fonds sont d'ordinaire tout unis, c'est alors la suppression de l'idée de lieu; ailleurs quelques détails d'architec- ”
 ture ou de paysage sont indiqués, mais avec une concision
 * vraiment sculpturale, selon les véritables lois du bas-relief.
@@ -1509,8 +1394,6 @@ Au-dessus de cette série, sept bas-reliefs figurent les
 Sacrements. Par une bizarre coïncidence, après en avoir
 
 (1) L'artiste leur a prêté ses propres sentiments, afin de les
-
-ni L'et n 9t) it
 
 fait quelques dessins, je relisais un soir le beau poème de {
 Schiller, la Cloche, et les vers du poète me semblaient ñ
@@ -2036,7 +1919,6 @@ toi-même, car c'est bien plus grave; on met un ami à la
 porte, mais quand la contradiction est en soi-même,
 comment faire ! Il n'y a qu'un moyen, ce me semble, £
 mettre un des deux soi à la porte. 4
-Tu es loin de l'exclusivisme de M. Perrin. Je me suis |
 attiré son courroux par une réponse maladroite. Il disait |
 à Louise : « Ne regardez pas les coloristes ! » — Et Louise
 de répondre qu'elle ne les aimait pas du tout. — Là-dessus, |
@@ -2049,8 +1931,6 @@ enveloppe! » Je me le suis tenu pour dit. 4
 - Louise M. à son frère .
 M. Perrin est venu chez nous, c'est bien beau de sa part. |
 11 a d'abord regardé mon Hercule et Antée et m'a montré avec 1
-
-1. LIN ON A TS RNA SEE Rene
 
 le compas des fautes d'aplomb. Mes fleurs d'après nature
 lui ont béaucoup plu, il a dit que c'était fait simplement,
@@ -2105,16 +1985,6 @@ Madame Milliet à son fils
 Berryer est fort malade, Lamartine aussi. Les grands:
 hommes du siècle s'en vont; que les jeunes se dépêchent!
 
-“HITS NRERE HER RINAUE Hi DCR et
-
-#, dB e. LEUR \ ÿ 58 PEUR ICO Fe
-or Pal fn d le r Ne MONS
-TSF RAC 1 4 KA TAC ES PAS Rat Ag no à
-#7 al ANTE n L' AE ER x ALTALES + (A
-À APRES ÿ s DU LR LA ve
-LA EE RE Cade M - Lite HAE TU A 7
-at UNE Nr" FM (LRO L
-
 Assise. — Allégories. — Rome. — Raphaël. — Mosaïque de
 Sainte-Pudentienne. — Lettres de Louise.
 
@@ -2166,7 +2036,6 @@ aux plantes, au Soleil, à la Terre notre mère. On se « . mit à contempler av
 gnées depuis de longs siècles et mal remplacées par j
 des symboles abstraits. Les yeux allaient enfin s'ouvrir « %
 sur le monde réel. ÿ
-|
 
 J'oublie donc volontiers les hallucinations et les « extases du malade déséquilibré, et je lui sais un gré « | ASSISE ET ROME
 infini de sa tendresse pour tout ce qui respire, de cette
@@ -2328,8 +2197,6 @@ très aimable, très obligeant, très spirituel. Sa peinture,
 imitée du style pompéien, ne me plaît qu'à moitié; c'est
 sage, bien fait, et ennuyeux. — A chaque visite j'ai
 
-- (1) Ami de M, Perrin,
-
 : rencontré chez lui de nouveaux curés, des jeunes, des :
 vieux, tous instruits, parlant très bien d'art et de litté-
 4 rature. Mais sitôt qu'il était question de religion ou de
@@ -2395,7 +2262,6 @@ chez Monseigneur Pacca, Majordome de Sa Sainteté, le
 k, lendemain dans les bureaux de l'Administration, et enfin
 # chez le Directeur des Musées, dont personne n'a voulu
 $ me dire l'adresse et que j'ai dû trouver comme j'ai pu.
-| Il en faut de la patience ! Ah, si j'avais eu un confesseur,
 tout aurait été bien plus facile. Enfin je suis en règle;
 gi mais cela ne dispense pas des pourboires : à chaque porte,
 il y a une grille, et à chaque grille un gardien qui n'ouvre
@@ -2422,7 +2288,6 @@ de saint François » et parlaient de lui comme s'ils eussent
 été ses contemporains.
 A Rome le jésuitisme est tout puissant. J'ai vu avec
 étonnement que la vilaine bête vit encore, cela me dégoûte .
-et m'irrite. ;
 Partout ailleurs en Italie j'ai trouvé l'obligeance et cette
 simplicité de manières à laquelle on reconnaît tout d'abord
 les gens qui ont reçu une éducation libérale. Ici au
@@ -2442,7 +2307,6 @@ Paul à sa mère
 M. Perrin aura beau dire, il me sera toujours diflicile À
 d'admettre que l'art du divin Raphaël soit le commencement de la décadence. M. Lugardon n'était pas de cet
 Ce qui est unique au monde, ce dont les copies des ;
-#
 
 frères Balze ne vous donnent pas la moindre idée, ce sont
 les fresques des Chambres du Vatican : la Dispute du
@@ -2481,8 +2345,6 @@ nombre de têtes charmantes, par exemple celles des jeunes
 distinguer les retouches du véritable maître. Les croquis
 si vivants que Raphaël a improvisés pour toutes ces
 
-| MR
-
 compositions sont en partie conservés. Quant aux gravures
 
 de Chapron, elles sont peu fidèles, Rubens a passé par là,
@@ -2492,7 +2354,6 @@ le dessin est devenu flamboyant, dans le style du dixseptième siècle; M. Perri
 : Paul à sa sœur Louise
 
 Je préfère de beaucoup les fresques des Stanse au fameux à
-tableau de la Transfiguration. Ici, je me range à l'avis de
 M. Perrin; la simplicité des Primitifs a déjà disparu, nous
 sommes sur la voie qui mène au style académique. Regarde,
 par exemple, l'homme assis à gauche et la superbe femme
@@ -2525,14 +2386,11 @@ aurait pu s'indigner de voir « les saletés des dieux peintes ;
 
 pour les Pères de l'Église ». Ê
 
-| 5 ASSISE ET ROME
-
 - Paul M. à sa mère
 
 .… Me promenant l'autre jour au hasard, je suis entré
 dans l'église de Sainte-Pudentienne, monument dont larchitecture a subi des restaurations modernes et qui ne
 semblait pas offrir un grand intérêt. Les guides n'en parlent
-pas.
 
 A peine cependant avais-je fait quelques pas dans une nef
 mal éclairée, je fus forcé de m'arrêter soudain, stupéfait,
@@ -2637,7 +2495,6 @@ qu'on doit chercher à s'élever les idées et non pas à les
 
 (1) Cette opinion me semble aujourd'hui très exagérée.
 
-si Ne
 Madame Milliet à son fils
 Cher enfant,
 
@@ -2771,8 +2628,6 @@ Phèdre. Les costumes étaient très beaux. Notre Fernand est
 bien peu classique; il a trouvé la tragédie assommante et |
 préfère ces méchantes petites pièces, comme La Cagnotte 4
 
-| 9% À
-
 ou la Famille Benoiton. Il n'a pas éprouvé la moindre
 pitié, la moindre émotion au beau récit de Théramène, qui
 raconte la mort d'Hippolyte.
@@ -2844,14 +2699,6 @@ bienveillant, suflit pour les modifier, et parfois pour les 4
 faire évanouir. Qu''y faire? Peut-être les maîtres eux-mêmes À
 ont-ils un peu tâtonné. S L
 
-£. PIRE 4 : TRADE à FRE SR "rt EURE OS CONS NE 1 MU tier
-A te Ress so NET AU NE Fou RENTE IAE VERS
-ne fr D ECHREA VTC ISSUES pire ar Er LA
-FFE) ul ni MAR 5-7 6 À
-y. vente LE 4 CAE y AT te TS et
-| 14 LIT NE SN NNENRRES
-SANTE Ra Fe TUE CAPOT TES L ax la M0 Ar
-
 Orvieto. — Signorelli. — Sienne. — Le Sodoma.
 — Fresques de Monte-Oliveto. — Parme. — Corrège.
 
@@ -2875,8 +2722,6 @@ crier, pour réveiller les gardiens, qui faisaient peut-être
 semblant de dormir, et parlementer longuement. Enfin, au
 bout d'une demi-heure, on s'est décidé à nous ouvrir.
 Le sacristain du dôme est en même temps photographe,
-
-# À En PLAT AU
 
 signe de progrès : « C'est dommage, me disait-il pour
 m'effrayer, que le chemin de fer ne soit pas fini; on assassine vraiment trop souvent les étrangers, aussi bien dans
@@ -2909,8 +2754,6 @@ des meurtres, un dessin brutal, mais plein de vie et de M
 Michel-Ange admirait ces peintures et il s'en est même 4
 inspiré, très librement d'ailleurs, pour certaines figures de 1
 la Chapelle Sixtine, et en y mettant la marque de son M
-
-#
 
 : Parmi les grandes fresques d'Orvieto, l'une des plus
 belles nous montre la Prédication de l'Antéchrist.
@@ -3027,9 +2870,6 @@ la puissance divine menacent de tirer du fourreau leur
 épée, et déjà démons et damnés saisis de terreur tombent
 précipités. — Au milieu des airs descend en planant un
 
-(1) À la Farnésine,
-
-à Me LE il
 fauve démon, aux cornes de taureau, aux larges ailes +3
 griffues; son visage haineux se retourne comme pour ;.
 
@@ -3085,7 +2925,6 @@ mais aujourd'hui, obéissant à un scrupule que nous
 
 * appelons le respect du mur, devons-nous nous interdire
 ces effets qui feraient oublier la surface à décorer ? Je
-ne sais. (1)
 
 Paul M. à sa mère
 
@@ -3108,8 +2947,6 @@ les artistes n'étaient pas les derniers à se plaindre d'être
 soumis à de lourdes charges.
 
 (1) Raphaël a peint cependant saint Pierre dans sa prison,
-
-| voyage d'études
 
 Sodoma a consigné en plaisantant ses doléances dans les
 archives de Sienne. Comme sa maison était une véritable
@@ -3145,7 +2982,6 @@ série de peintures raconte toute la vie de saint Benoît et son
 entrevue avec Totila. Reîtres et lansquenets, vêtus de costumes collants, sont crâänement plantés, la lance au poing. F
 Les scènes qui se déroulent à différents plans, dans de beaux 4
 paysages profonds, sont là gravées dans ma mémoire, mais j
-je ne sais comment te les décrire, il y en a trop. À
 
 Je me souviens pourtant d'un jeune homme que le Sodoma ;
 a figuré à genoux devant un grand moine, c'est une sorte ;
@@ -3276,31 +3112,7 @@ rieures, s'incliner avec respect devant le génie, c'est une
 grande joie. Rien en ce monde n'est parfait, les maîtres euxmêmes sont des hommes. Plaignons ceux qui ne s'aper- f
 çoivent pas que les grands hommes sont grands.
 
-; as res Rene ÉRe RU CNES PS L WE” à
-
-RETIRE 4 LP NE 54 ; LEURS fs on |
-ns TA (MES TI OR 0: RS LNÈPEL 1! Lei sx ti
-> TRES en” : È É i 1, 5% FU TANEARTE »;
-
-: NO x ‘TA fre ES 114 ir PS É 1H ul Hi AE
-
-‘Æ 2/0 its met nid 14 FA : j NAN ON ATEN PE SÉE R (AH F
-
 1869-1870
-
-4) SAUTER Ph CT +: te 4 SG LES A CUERT te
-du ARE EUE EN et A LE e
-Ur et MAR, AU) SENS) pouig EPL à
-? DAS MAR Le ARENA NT “ n 4 AA L'ERP du hace È
-ne PATES NEA L > me | ETES vr 2 4
-pt: HET ARE TS res ou 4 AA vor Han k ' F
-+" SR \EER fs CE : tee 1e 1 CHER ‘
-2 LA AT nil QUE Pine UE GE Use N'a HS Dj :
-Eten MER vi fe . , \ LS \ OT De th a BETA 4
-Ne LÉ TANERES à el PS EAN NE “HUM ;
-S ICONE AC : : Ê AS: Let LIN ne AS 154
-( Re Me da: Û « ! ma ces Mu RPM re 1e $
-Ar La Kat di£ Le Fe t 4 À un ANA K 108 (A GS NSIRSS r
 
 1869-1870
 
@@ -3367,8 +3179,6 @@ C'est mon ami Paul Milliet qui devrait m'envoyer quelques
 bribes de son superflu; lui qui ne sort de Paris que pour
 
 _ vivre à Rome et qui est continuellement dans une atmosphère saturée d'idéal..
-
-| Paul M. à J. Nicole
 
 .… Tu me demandes si le mouvement politique m'inté-
 
@@ -3450,7 +3260,6 @@ les tentures d'un autel qu'on a eu l'heureuse idée de plaquer
 
 (2) N'est-ce pas exagéré? me demande J. Nicole. — Je réponds : l
 
-ps ‘ CORRESPONDANCE DE J. NICOLE
 sur le groupe central du Jugement dernier. Et cette céré-
 monie se renouvelle à chaque fête! Que deviendrait la
 religion si la Chapelle Sixtine n'était pas tendue de blanc
@@ -3486,7 +3295,6 @@ Puis se levant : « M. Lugardon, dit-il, vous a autrefois
 recommandé à moi; à sa considération je crois devoir
 vous dire franchement la vérité. »
 
-voyage d'études c LE?
 Ce début m'effraya. Déjà au retour de mon premier
 voyage, M. Perrin m'avait conseillé de mettre à part
 deux ou trois dessins et de brûler tout le reste. Il y avait
@@ -3551,7 +3359,6 @@ qualités ni ses défauts, pour se faire une originalité factice.
 Tout ce qu'on peut lui demander, c'est d'exprimer avec
 sincérité ce qu'il voit et ce qu'il sent; réalité ou vision, peu
 importe, pourvu qu'il puisse dire en conscience : voilà ce
-que j'ai vu.
 
 Cette malheureuse scène m'a attristé; je me suis remis
 au travail sans goût. Quelques petits succès d'école, qui
@@ -3609,7 +3416,6 @@ moi je n'ai que le texte grec. (1)
 (x) Mon ami lisant une édition dont le texte était altéré, avait (
 su, au moyen de corrections ingénieuses et savantes, rétablir la F
 
-| .  CORRESPONDANCE DE J. NICOLE
 { Pardonne-moi, cher ami, de te faire la victime de mes .,
 | études. Je n'ai que toi. Quand je serai à Paris, tu en verras
 
@@ -3723,43 +3529,9 @@ Paul, l'étudiant insoucieux qui, en 1869, s'occupait
 uniquement de littérature et d'art, était loin de prévoir
 les événements tragiques auxquels il allait bientôt se ,
 
-| (|:14 Peer X 1 Ke ] 1 "AB URRE y
-
-| RE PONEt 9 Yen He CIE 414
-
-| FH INSEE SA ANNESS
-
-T'en SUR FRE LEARN? DÉTENTE NES
-
-| TPE F2 ME : ; ; cie PRISES LISTE
-
-HUE PRE vu É L Mrs Liu el SN UT he
-
-L'AIR x: jf} RAA ASH ARIENS
-
-HAL de PACE RINE AE NU nl
-
-FR, 0 Lattes IRRARTES FRE MEN VSA Pres D } Ajoe l'y ARE Fr, VEN Los
-
-| NS por. À FU TETE HOME Eee RUre gs
-
-IDE Fake LA TE ! l AAA FAT A f
-
-AT nn) le ATEN AMAR tour (AE ARR ANNEE)
-
-HAINE A AT FR NICE ju Des PARDON UMP rYL
-
-ET Pe EAU FREE pose ne REX Fe PAGE AUS Hire
-FA Le RP FUI LES EU DEEE ou PUS ANR
-LL ORNE PE EME PE Der LT FURVE OA AHASSER Fe mé LE
-Sid é ren £ - | 5 LAS LE KDE A
-PACE Le HA me NUE vu ; LUE ASE dar PA Le
-
 une famille de républicains fouriéristes ..... I
-| um ee te Dee sabot 9
 Premier tableau : une Hamadryade. — Orsel et
 Milan et à Saronno. — Lettres de deux jeunes
-MR DODES 0 DE à sors Mes dut dore ONNDE
 Giotto. La chapelle de l''Arena. Allégories. — Un .
 
 premier cahier de la treizième série

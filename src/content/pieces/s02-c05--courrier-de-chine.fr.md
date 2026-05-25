@@ -19,7 +19,6 @@ hommes et des événements pour les cahiers.
 je pourrai d'histoire.
 
 Nous publions aujourd'hui les deux premiers courriers
-Mon cher Péguy
 
 Voici des notes, faites-en ce que vous voudrez. Elles
 sont exactes autant que je l'ai pu. J'ai supprimé les
@@ -31,7 +30,6 @@ l'absence de boutique où l'on puisse acheter à peu près
 honnêtement, je ne rapporterai rien de Chine.
 
 Je tâcherai de vous écrire à chaque courrier.
-Mon cher Péguy
 Ramené à Tien-Tsin par l'hivernage, je puis enfin
 vous envoyer ces notes depuis longtemps promises.
 
@@ -135,7 +133,6 @@ on l'accuse, du moins d'acheter aux pillards, contre
 chèques payables en France, les objets les plus pré-
 cieux, qu'il a mis en vente, assez cher d'ailleurs,
 car il est connaisseur. Il pourra s'expliquer là-
-dessus à Rome, où l'on dit qu'il va.
 
 Les religieuses se firent donner des corvées d'infirmiers, qu'elles menaient aux bons endroits; elles
 ont retrouvé sous les ruines des objets de haute
@@ -232,7 +229,6 @@ donnent l'air d'avoir tout fait; que vos lecteurs
 rectifient d'eux-mêmes les exploits anglais accomplis par les journaux.
 
 Amitiés à nos camarades et à vous.
-Mon cher Péguy
 
 Je reviens un peu sur le sujet dont je vous ai
 parlé la dernière fois.
@@ -296,7 +292,6 @@ de la moralité chez tous ceux qui arrivent ici. »
 l'infanterie de marine (et ils ont des officiers qui ont
 réfléchi, qui se rendent compte des choses et qui les
 
-LE Lionel Landry
 tiennent, par exemple le capitaine D****à T°******), 1
 nos troupes sont encore celles qui ont le moins
 pillé. J'ai rencontré ces officiers allemands si chics
@@ -335,8 +330,6 @@ Ces notes ont été écrites en hâte et je n'ai pas le
 temps de les relire. Corrigez-les s'il y a lieu, vous
 savez que je vous laisse toute liberté.
 
-Votre dévoué,
-
 Irrévocablement le huitième cahier sera le Bacchus,
 drame en trois actes, dont notre ami Landry nous
 remis la copie avant de partir en Chine. ,
@@ -355,7 +348,6 @@ La Bibliothèque Socialiste, que nous annoncerons
 bientôt plus en détail, a déjà publié
 de Maurice Lauzel : Manuel du Coopérateur socia-
 Émile Vandervelde : le Collectivisme et l'évolution
-Elle promet :
 de Léon Blum : les Congrès ouvriers et socialistes
 Lucien Herr : la Révolution sociale;
 Charles Andler : traduction nouvelle du Manifeste
@@ -364,9 +356,7 @@ Lagardelle commence le lundi 28 janvier, à cinq
 heures et demie, au Collège libre des Sciences sociales,
 rue Serpente, le cours qu'il avait dès longtemps
 promis d'y faire sur le mouvement ouvrier en France.
-Le Gérant : CHARLES PÉGUY
 AÈ | Ce cahier a été composé par des ouvriers syndiqués
-MPRIMERIE DE SURESNES (G. RicHaRD, administrateur), 9, rue du Pont.—3850 , al
 
 Nous prions ceux de nos abonnés qui nous envoient
 des documents et des renseignements de vouloir bien

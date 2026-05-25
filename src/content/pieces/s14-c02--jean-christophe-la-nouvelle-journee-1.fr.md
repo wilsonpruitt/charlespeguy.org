@@ -7,68 +7,23 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 40022
 ---
-|
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-cheussée
 
-‘ne Hi 4 ru Dan oo Font “AU dl ER
-à \ ie Het de UN He
-D pi ML LE ALT PAST AT FEU nl
-AU Je il AL ! RARE ARLCX HU FE A aUtE
-DA A: AT ANR À | ( ra LHC L if Du) HE
-Ag 1 LME TIRE L ÿ M VA JE LAS ue AURA eu
-: joué j'aie A ON NET
-
-Jean-Christophe, PREMIÈRE PARTIE.
 II. — L'Adolescent (VI-8, mardi 10 janvier 1905).
-2. L'ENLISEMENT (VIII-6, mardi 11 décembre
-3. LA DéLrvrANCE (VIll-o, mercredi 2 janvier
 Jean-Christophe à Paris, DEUXIÈME PARTIE.
 I. — La Foire sur la Place (IX-13, mardi 17 mars
-II. — Antoinette (IX-15, mardi 31 mars 1908).
 , II. — Dans la Maison (X-9, mardi 16 février 1909;
-| X-10, mardi 23 février 1909).
-. La Fin du Voyage, TROISIÈME PARTE.
-LE. — Les Amies (XI-7, mardi 25 janvier 1910; XI-8,
 | IL. — Le Buisson Ardent (XII-5, mardi 31 octobre 1911;
-UT. — La Nouvelle Journée.
 | L'ensemble de Jean-Christophe sera complet en ces dix
 4 volumes dans l'édition de librairie. Ces dix volumes auront
 4 Jormé, comme on le voit, dix-sept cahiers.
-
-fa NAN edincr ELU M AS MES RS D À ET
-Fa CHAN 6. È À nu VÉ i ii « une
-| LME ! + PNR
-
-ne DA PEER QE 22 LAVAL AT ve NE EEE DU AS AA EE 7e À SAN SU 0
-
-g hs tee Rues SUR La CE LAN SATA AE f ET NCIS
-
-MOUSE QUE TE Eee OT ER e CM ET RTE
-
-| RER LEONA IT EE SANTO MIRE 4 ARIANE RU ENS
-
-AU FUR TE d k re ET
-ns “. JL \ x: DE v QUE L (RATE 3: RO A à * QU it
 
 En terminant cette œuvre,
 je la dédie :
 Aux âmes libres, — de toutes les nations, —
 qui souffrent, qui luttent,
 el qui vaincront.
-
-Het PIN La non au FU AVES UE Ne HSE ns
-ENS 1 RE La CEA HAS F osé D: pi Le
-
-| {te AUSSI 24 f ‘1 VOS
-ARE MA ASE HU ANA nant
-(y nf oeTO US Fe AE NE } Êt gs ( 1, 'ÉTMUE FAC
-Creelr 2" # PARA; f Cut à ms + DE KART
-| VRP D F0 NE SEC FN ENE TS tin: LOUIS dr
-| NUS DR OUI SES
-WAR AU ee LU ; l \ (ete ! CORNE FA Ca UE BRANEE"
-
-mi ARE KW, À ARE une VANNES M7 Var rs But. AQU
 
 [Le véritable titre de ce volume
 devait être l'Aube nouvelle, qui
@@ -101,10 +56,6 @@ rejette derrière moi, comme une enveloppe vide. La
 vie est une suite de morts et de résurrections. Mourons,
 Christophe, pour renaître.
 
-|
-
-« ee * btedec Kosff ie us sl par Ex |
-
 La vie passe. Le corps et l'âme s'écoulent comme un
 flot. Les ans s'inscrivent sur la chair de l'arbre qui
 vieillit. Tout le monde des formes s'use et se renouvelle. Toi seule ne passes pas, immortelle musique. Tu
@@ -113,7 +64,6 @@ claires prunelles, le visage morose de la vie ne se mire.
 Au loin de toi s'enfuient, comme le troupeau des nuées,
 le cortège des jours, brûlants, glacés, fiévreux, que
 linquiétude chasse et qui jamais ne durent. Toi seule
-ne passes pas. Tu es en dehors du monde. Tu es un
 monde, à toi seule. Tu as ton soleil, tes lois, ton flux
 et ton reflux. Tu as la paix des étoiles, qui tracent dans
 le champ des espaces nocturnes leur sillon lumineux,
@@ -144,23 +94,6 @@ ineffable de tes yeux, et je bois le sourire de ta bouche
 muette ; et blotti sur ton cœur, j'écoute le battement de
 la vie éternelle.
 
-ART A AR PR PRE SR GnRAnrT es VAE ION AE: 8 LE FAIM CIE La ue I A ABLE
-Que 7 4 c RASE TE Ole] HAE v Un à
-LA “ j « LA vid », Gi et KA
-LE AT M Rae AREAS" MN
-
-| \ AE ME E PR ALU PME EE EN AT ds ONE de TA
-NEA CANtE ACT ET à | dE ni L PS M NAN DIU MALE Det y CAL RUSSE LAN 8
-qu F4 NE LU NS ESA OT tes LÉ PA MN PNA LS Ar TEU
-HAT ee LC! ! ur l MARS TRUE  EXT: De
-1 PROCESS Nr ONE EU un Û TER Ent Eu
-4: SPIR hrs VAR PM ET RURERS ae DATA ATARI ES M: LATE
-| PATES Pr RAR RD TX 4° RE HAS ERA r ASE 3 “J
-‘mi DU a De EL DCS T VUE ON TN GR es 49 1 D TON CAMES RES
-TER uen ASE AUTOMNE AN MA PRRTE T0,
-KE pl A AR UT 2 PPT NAS PRENTANE CAR the 421 RE SN, HÉRENSSNESSSS
-; ñ fi OÙ Fi NCA ES (NA GPU? PALM AIRRNOE ANT PS dub
-
 Christophe ne compte plus les années qui s'enfuient.
 Goutte à goutte, la vie s'en va. Mais sa vie est ailleurs. $
 Elle n'a plus d'histoire. Son histoire, c'est l'œuvre qu'il
@@ -170,7 +103,6 @@ remplit l'âme et la rend insensible au tumulte du
 Christophe a vaincu. Son nom s'est imposé. L'âge pe
 vient. Ses cheveux ont blanchi. Il ne s'en soucie point; S
 son cœur est toujours jeune; il n'a rien abdiqué de sa 4
-force et de sa foi. Il a de nouveau le calme; mais ce À
 n'est plus le même qu'avant d'avoir passé par le Buisson co :
 Ardent. Il garde au fond de lui le tremblement de DA.
 l'orage et de ce que la mer soulevée lui a montré de E
@@ -224,10 +156,6 @@ tendance un peu maladive à s'isoler du monde.
 Cependant, les portes de l'Allemagne s'étaient rouvertes à lui. En France, l'oubli était tombé sur la tragique échauffourée. Il était libre d'aller où il voulait.
 Mais il avait peur des souvenirs qui l'attendaient, à Paris,
 Etbien qu'il fût rentré pour quelques mois en Allemagne,
-
-Aie OT RIRE L k us y à
-
-| LA NOUVELLE JOURNÉE
 
 \ bien qu'il y revint de temps en temps, pour diriger des
 
@@ -348,8 +276,6 @@ rare qu'il séjournât longtemps au même endroit; il
 changeaïit souvent de gîte : vieil oiseau nomade, qui a |
 besoin d'espace, et pour qui la patrie est dans l'air. |
 
-Un soir d'été.
-
 Il se promenait dans la montagne, au-dessus d'un
 village. IL allait, son chapeau à la main, par un
 chemin en lacets qui montait. Arrivé à un col, la route
@@ -370,8 +296,6 @@ dans leurs yeux; mais aucune parole forte, un geste
 imperceptible. Lui, très troublé; elle, .…. ses lèvres
 tremblaient un peu. Ils s'arrêétèrent. Presque à voix
 
-— Vous ici!
-
 Ils se donnèrent la main, et restèrent sans parler. La
 première, Grazia fit un effort pour rompre le silence. Elle
 dit où elle habitait, elle demanda où il était. Questions
@@ -379,8 +303,6 @@ et réponses machinales, qu'ils écoutaient à peine, qu'ils
 entendirent après, quand ils furent séparés : ils étaient
 absorbés par la vue l'un de l'autre. Les enfants l'avaient
 
-|
-à c la fin du voyagé
 rejointe. Elle les lui présenta. Il éprouvait pour eux un pe CR
 sentiment hostile. Il les regarda sans bonté, et ne dit ii
 rien ; il était plein d'elle, uniquement occupé à étudier ss
@@ -414,10 +336,6 @@ bien; qui fait attention à nous? a
 Il ne comprit pas pourquoi. Plus tard, quand il repassa |
 dans sa mémoire cet entretien, il pensa qu'elle n'avait D
 
-|
-
-|
-il
 pas confiance en lui. Mais c'était qu'elle avait une peur 1
 instinctive des scènes d'émotion; sans qu'elle s'en rendit ‘4
 compte, elle cherchait un abri contre les surprises de ‘fl
@@ -449,7 +367,6 @@ intimement. Mais entra une amie d'hôtel. Il vit l'aimable |
 politesse, avec laquelle Grazia recevait cette étrangère; À
 elle ne semblait pas faire de différence entre ses deux ES |
 visiteurs, Il en fat afiligé ; il ne lui en voulut pas. Elle |
-| fl
 
 la fin du voyagé
 rejointe. Elle les lui présenta. Il éprouvait pour eux un |
@@ -725,7 +642,6 @@ comme un baiser, l'haleine de la mer et l'odeur des
 orangers. La mer, la mer latine et sa lumière d'opale,
 où dorment, suspendues, des volées de petites barques,
 
-Sur le bord de la mer, à un village de pêcheurs, le
 train restait arrêté. On expliquait aux voyageurs qu'à |
 la suite des grandes pluies, un éboulement s'était produit dans un tunnel, sur la voie de Gênes à Pise; tous
 les trains avaient des retards de plusieurs heures.
@@ -825,8 +741,6 @@ Aussitôt arrivé, il alla chez Grazia. Elle lui demanda :
 
 — Non, dit-il. Pourquoi faire ?
 
-Elle rit.
-
 — Belle réponse! Et que pensez-vous de Rome?
 
 /  — Rien, dit-il, je n'ai rien vu.
@@ -843,8 +757,6 @@ mur, en face. Il n'y a qu'à voir sa lumière.
 
 — Vous êtes un barbare, vous ne voyez que votre
 idée. Et quand êtes-vous parti de Suisse?
-
-— Il y à huit jours.
 
 — Qu'avez-vous donc fait, depuis ?
 
@@ -863,7 +775,6 @@ que j'ai rêvé. Je crois que j'ai rêvé de vous. Je sais que
 — .. Tout, reprit-il, tout ce qui était alors, tout ce qui
 
 était avant. Je suis comme un homme nouveau, qui
-| recommence à vivre.
 
 — C'est vrai, dit-elle, en le regardant avec ses yeux
 riants. Vous avez changé, depuis notre dernière rencontre.
@@ -1277,7 +1188,6 @@ besoin, je ne trouverais plus grand monde...) Pourtant,
 ils me sont attachés; et quand je rencontre un peu de
 réelle affection, je fais bon marché du reste. Vous m'en
 voulez, n'est-ce pas? Pardonnez-moi d'être médiocre.
-Je sais faire du moins la différence de ce qu'il y a de
 meilleur et de moins bon en moi. Et ce qui est avec
 vous, c'est le meilleur.
 
@@ -1291,9 +1201,7 @@ des semaines, un jour il lui demanda : î
 — Est-ce que vous ne voudrez jamais... ? ;
 — Quoi donc? | |
 — Être à moi. -{
-Il se reprit : |
 — … que je sois à vous?
-Elle sourit : |
 — Mais vous êtes à moi, mon ami.
 : — Vous savez bien ce que je veux dire.
 Elle était un peu troublée; mais elle lui prit les mains
@@ -1346,7 +1254,6 @@ de vous moquer. C'est bon, une bonne femme, même
 qui n'a pas d'esprit. À
 
 : — Je crois bien! Voulez-vous que je vous en cherche
-une?
 
 — Taisez-vous, je vous prie, vous me percez le cœur.
 Comment pouvez-vous parler ainsi?
@@ -1384,8 +1291,6 @@ ne le veux pas, justement parce que j'ai pour vous la
 plus sainte affection; et je ne veux pas que rien au
 monde puisse la ternir.
 
-Lui, tristement :
-
 — Oui, vous dites cela, pour m'adoucir la pilule. Je
 vous déplais. Il y a des choses, en moi, qui vous sont
 
@@ -1402,8 +1307,6 @@ caractère trop accusé, tous deux, trop personnel.
 — Moi aussi. Mais c'est aussi pour cela que nous
 nous trouverions en conflit.
 
-— Mais non,
-
 — Mais si. Ou bien, comme je sais que vous valez
 plus que moi, je me reprocherais de vous gêner, avec
 ma petite personnalité; et alors, je l'étoufferais, je me
@@ -1418,8 +1321,6 @@ faute, pour moi.
 — Mon ami, ne vous affectez pas. Vous savez, je
 dis ainsi, je me flatte peut-être... Peut-être que je ne
 serais pas assez bonne pour me sacrifier à vous.
-
-— Tant mieux!
 
 — Mais alors, c'est vous que je sacrifierais, et c'est
 moi qui me tourmenterais, à mon tour. Vous voyez
@@ -1476,7 +1377,6 @@ lui fasse du mal. Je ne dirai donc plus rien.
 — Mais si! Dites-moi... Dites quelque chose.
 
 — Quelque chose de bon.
-Elle rit.
 ; — Ne riez pas.
 ; — Et vous, ne soyez pas triste.
 
@@ -1537,7 +1437,6 @@ Leurs âmes se mélaient. Le demi-sommeil de Grazia,
 : souriante en son abandon à la douceur de vivre, se
 réveillait au contact de l'énergie morale de Christophe.
 
-# LA NOUVELLE JOURNÉE |
 Elle se prenait, pour les choses de l'esprit, d'un intérêt ,
 plus direct et moins passif. Elle, qui ne lisait guère, qui
 relisait plutôt indéfiniment les mêmes vieux livres avec
@@ -1572,7 +1471,6 @@ ruinés, fleurissaient des amandiers blancs. Dans la
 Campagne réveillée ondulaient les flots d'herbe et les
 flammes des pavots triomphants. Sur les pelouses des ;
 
-la fin du voyage s à |
 villas coulaient des ruisseaux d'anémones mauves et |
 des nappes de violettes. Les glycines grimpaient autour $
 des pins parasols; et le vent qui passait sur la ville
@@ -1666,8 +1564,6 @@ amoureuse, sourire lumineux où les ombres s'effacent,
 où la passion s'endort. Forces frémissantes de la vie qui
 se cabrent et que dompte, comme les chevaux du Soleil,
 la main calme du maître...
-
-Et Christophe se demandait :
 
 — « Est-il donc impossible d'unir, comme ils ont fait,
 la force et la paix romaines? Aujourd'hui, les meilleurs
@@ -1811,25 +1707,6 @@ d'égoïsme, au point de ne penser qu'à l'intérêt de l'ami,
 Il partit. IL s'éloigna d'elle. IL ne la quitta point. ï
 Comme dit un vieux trouvère, « l'ami ne quitte son
 amie que quand son âme y consent ».
-
-DRE TRE PAR a P'aR M AU CA DRE qe &
-HUE NT es ML Het Late Ne k LS ANT ail Ê + NT He OPA 4
-| : ue * NAME AE] eV Er e (
-; x À 4 D LATTES Merad WTA MON N
-j . ne NY L# LR x + è DE AS le nr CA AD LAEUUE KE
-an ë ' Lire L RUN RTtE OI ATEN S
-| f POS RAC : Cut à PET We eue 4 AS Ft: AURA ke Al
-Ex PORTE SE 1 RAC HE à HAS RU ta EU SU rs + RE) À » LR MA
-LA 6 DT DA tr LT" HO AE ir 15, 0 SON LE À
-MEN AW \ÿe Et Fu " RO | À CAVE pue /
-AL une) PACS "êc 140
-
-k SUN SR AT Der > Ù AA ROOR OU PT GA LI LORS "T3 F Les PS
-NAT AE à Re TU Tan. ae à: MERDE lg
-Lee Ne 4 N * LA né
-#1 % d: 4 bi ; ‘ £ 16
-Re: ; ne je
-et Fe F \ à MA ue
 
 Le cœur lui faisait mal, quand il arriva à Paris. 4
 C'était la première fois qu'il y rentrait, depuis la mort 3
@@ -2065,7 +1942,6 @@ elle s'est sauvée avec son frère, pour jouer dans la
 chambre voisine; et, quelque temps après, comme
 Lionello criait, j'ai entendu Aurora qui disait : « Il ne
 faut pas faire de bruit ; maman cause avec monsieur
-Christophe. »
 « Ce que vous me dites des Français m'intéresse, et
 ne me surprend pas. Vous vous souvenez que je vous
 ai souvent reproché d'être injuste envers eux. On peut
@@ -2147,7 +2023,6 @@ des déclarations? Vous ne me parlez d'aucune femme.
 
 Seriez-vous amoureux ? Racontez-moi. Je ne suis pas
 
-« Votre amie G. » ;
 — © Si vous croyez que je vous sais gré de votre ;
 
 dernière phrase! Plût à Dieu, Grâce moqueuse, que
@@ -2652,7 +2527,6 @@ qu'il avait aimés. Mais au moment de la saisir, la
 vision s'effaçait. Et tandis qu'il s'irritait à la poursuivre
 en vain, voici qu'en tournant une page, il entendit un
 récit, que, peu de jours avant sa mort, lui avait fait
-Olivier.
 
 IL fut bouleversé. Il courut chez l'éditeur, il demanda
 l'adresse du poète. On la lui refusa, comme c'est
@@ -2714,8 +2588,6 @@ Après un moment, il continua, assombri :
 
 — Il vous aimait plus que moi.
 
-Christophe sourit :
-
 — Qui aime bien ne connaît ni plus ni moins; il se
 donne tout à tous ceux qu'il aime.
 
@@ -2751,8 +2623,6 @@ dix ans d'éducation universitaire sont impuissants à
 donner à la jeune bourgeoisie. Il en attribuait le bienfait à Olivier. D'autres l'avaient pourtant plus efficacement aidé. Mais d'Olivier venait l'étincelle qui avait |
 allumé, dans la nuit de cette âme, la veilleuse éternelle.
 Les autres n'avaient fait que verser de l'huile dans la
-
-— Je n'ai commencé de le comprendre qu'à partir du
 
 moment où il s'en est allé. Mais tout ce qu'il m'avait )
 dit était entré en moi. Sa lumière ne m'a jamais quitté. \
@@ -2905,7 +2775,6 @@ n'y parvenait point; il portait dans sa poitrine un grand
 
 la fin du voyage
 violence, capable de faire le mal. Cette lutte intérieure Ë
-et la conscience qu'il avait de ne pouvoir la terminer à
 son avantage le jetaient dans une sourde irritation, dont
 Christophe recevait les éclats.
 
@@ -3028,7 +2897,6 @@ revenir s'installer au pays. Il n'y connaissait plus personne, il y trouverait s
 parenté d'esprit que dans cette ville étrangère ; maïs ce
 n'en est pas moins le pays : vous ne demandez pas à
 
-| la fin du voyage de EE
 ceux de votre sang de penser comme vous; il y a entre
 | eux et vous mille secrets liens ; les sens ont appris à
 lire dans le même livre du ciel et de la terre, le cœur
@@ -3068,7 +2936,6 @@ en riant. Mais pourquoi êtes-vous venu ? Regardez-moi,
 est-ce que vous avez peur de moi ?
 
 Le jeune garçon retrouva son sourire, secoua la tête
-et dit :
 
 — Bravo! Alors, dites-moi d'abord qui vous êtes.
 
@@ -3125,8 +2992,6 @@ connais-tu ?
 — Ab! dit Christophe. Est-ce qu'elle sait que tu es
 venu chez moi ?
 
-sil LA NOUVELLE JOURNÉE
-
 Christophe se tut, un moment ; puis, il demanda :
 
 — Où habitez-vous ?
@@ -3154,8 +3019,6 @@ donné l'idée de venir me voir?
 Christophe sourit, pensif. Il songeait : « Elle aussi!
 Comme ils l'aimaient, tous! Pourquoi donc ne le lui ontils pas montré? »
 
-IL continua :
-
 ; — Pourquoi as-tu attendu si longtemps pour venir? €
 
 — Je voulais venir plus tôt. Mais je croyais que vous
@@ -3167,7 +3030,6 @@ fauteuils de vous; je vous ai salué; vous m'avez
 regardé de travers, en fronçant le sourcil, et vous ne
 m'avez pas répondu.
 
-— Moi, je Vai regardé? Mon pauvre petit, tu as pu
 penser ?.. Je ne l'ai pas vu. J'ai les yeux fatigués. Voilà
 pourquoi je fronce le sourcil.. Tu me crois donc bien
 
@@ -3179,8 +3041,6 @@ la fin du voyage ;
 que je ne voulais pas te voir, comment as-tu osé venir?
 
 — Parce que moi, je voulais vous voir.
-
-— Et si je t'avais mis à la porte?
 
 — Je ne me serais pas laissé faire.
 
@@ -3267,8 +3127,6 @@ intéressant... Et puis, nous voyageons. Le mois dernier,
 j'ai été en Angleterre, pour voir le match entre Oxford
 et Cambridge.
 
-42 ee AM 28" MANETTES D TRE Le ONE REA EI Tu Tnt
-| Han ae à
 la fin du voyage ÿ
 
 — Cela doit bien avancer tes études!
@@ -3322,8 +3180,6 @@ de s'enfermer, toute sa vie, dans un métier.
 
 — C'est encore la seule façon qu'on ait trouvée de le
 faire bien.
-
-— On dit ça!
 
 — Comment! « on dit ça »?2... Moi, je dis ça. Voilà
 quarante ans que j'étudie mon métier. Je commence à
@@ -3450,10 +3306,7 @@ si vous voulez encore de moi...
 
 — Vous ne me prenez pas au sérieux.
 
-— Ma foi, non.
-
 — C'est dégoûtant! Personne ne me prend au sérieux.
-Je suis découragé.
 
 — Je te prendrai au sérieux, quand je l'aurai vu au
 
@@ -3463,8 +3316,6 @@ Je suis découragé.
 
 — Non, c'est trop loin, demain. Je ne peux pas
 supporter que vous me méprisiez, tout un jour.
-
-— Tu m'ennuies.
 
 — Je vous en prie!
 
@@ -3700,8 +3551,6 @@ voulez. Vous savez bien que je le ferai, avec ou sans
 
 — Mais écoutez d'abord, entêté !
 
-| — Dites. .
-
 — C'est que d'ici là, vous ne changerez rien — rien,
 vous entendez, — à votre appartement; tout restera
 dans le même état, exactement.
@@ -3710,8 +3559,6 @@ La mine de Christophe s'allonge. Il prend l'air consterné. -
 
 — Ah! ce n'est pas de jeu.
 
-Elle rit :
-
 — Vous voyez, voilà ce que c'est de s'engager trop
 vite! Mais vous avez promis.
 
@@ -3719,7 +3566,6 @@ vite! Mais vous avez promis.
 
 — Parce que je veux vous voir chez vous, comme
 vous êtes, tous les jours, quand vous ne m'attendez
-pas.
 
 — Enfin, vous me permettrez bien ?.…
 
@@ -3733,7 +3579,6 @@ que vous veniez,
 
 — Alors, c'est promis ?
 — J'ai votre parole? |
-— Il n'y a pas de bon tyran; il y a des tyrans qu'on
 aime et des tyrans qu'on déteste. :
 — Et je suis des deux, n'est-ce pas ?
 — Oh non, vous n'êtes que des premiers. à
@@ -3835,11 +3680,8 @@ mère et d'Olivier. Sur la commode, une autre photographie : elle, Grazia, à qu
 le lui avoua, en lui demandant pardon. Elle regarda
 l'image, et dit :
 
-— Vous me reconnaissez là ?
-
 — Je vous reconnais, et je me souviens.
 
-|
 la fin du voyage
 
 — Quelle aimez-vous le mieux des deux ? ei
@@ -3865,8 +3707,6 @@ parce que j'ai bien pensé que vous n'aviez rien de tout |
 cela. Et j'ai encore apporté autre chose. Donnez-moi
 votre pardessus.
 
-— Mon pardessus?
-
 Elle tira de son sac des aiguilles et du fil.
 
 — Quoi, vous voulez ?
@@ -3882,27 +3722,19 @@ C'est si ennuyeux !
 Il apporta dans la chambre la bouillotte et la lampe
 à alcool, pour ne pas perdre un instant de son amie
 
-|
-
-|
 k Elle, tout en cousant, regardait du coin de l'œil mali- | ||
 EX cieusement ses gaucheries. Ils prirent le thé dans 1} |
 jan des tasses ébréchées, qu'elle trouva affreuses, vec li |
 üs 1 ménagement, et qu'il défendit avec indignation, parce | :
 aps qu'elles étaient des souvenirs de la vie commune avec | |
-vi Olivier. |
 nr Au moment où elle partait, il demanda : Ü
 al vtr — Vous ne m'en voulez pas ? al
 — De quoi done ? fai
 an — Du désordre qui est ici ? | il |
-ë Elle rit. ‘ail
 ei — Je ferai l'ordre. | |
 é Quand elle fut sur le seuil, et près d'ouvrir la porte, Hu
 il s'agenouilla devant elle, il lui baisa les pieds.
 ti — Que faites-vous ? dit-elle. Fou, cher fou ! Adieu. HE:
-| il
-
-il
 
 la fin du voyage
 
@@ -3929,8 +3761,6 @@ parce que j'ai bien pensé que vous n'aviez rien de tout F
 cela. Et j'ai encore apporté autre chose. Donnez-moi
 votre pardessus.
 
-— Mon pardessus? ,
-
 Elle tira de son sac des aiguilles et du fil.
 
 — Quoi, vous voulez ?
@@ -3951,7 +3781,6 @@ Elle, tout en cousant, regardait du coin de l'œil malicieusement ses gaucheries
 des tasses ébréchées, qu'elle trouva affreuses, ävec
 ménagement, et qu'il défendit avec indignation, parce
 qu'elles étaient des souvenirs de la vie commune avec
-Olivier.
 
 Au moment où elle partait, il demanda :
 
@@ -3960,8 +3789,6 @@ Au moment où elle partait, il demanda :
 — De quoi donc?
 
 — Du désordre qui est ici ?
-
-Elle rit.
 
 — Je ferai l'ordre.
 
@@ -3998,7 +3825,6 @@ monde, à se conformer aux conventions. Bien douée
 
 pour la musique, elle comprenait les œuvres de Christophe ; mais elle ne s'y intéressait pas beaucoup — (et
 il le savait bien). — Pour une vraie femme latine, l'art
-n'a de prix qu'autant qu'il se ramène à la vie, et la vie
 à l'amour... L'amour qui couve au fond du corps
 voluptueux, engourdi... Qu'a-t-elle à faire des méditations tragiques, des symphonies tourmentées, des
 passions intellectuelles du Nord ? 11 lui faut une musique où ses désirs cachés s'épanouissent, avec un minimum d'efforts, un opéra qui soit la vie passionnée, sans
@@ -4218,8 +4044,6 @@ neige, le silence et la nuit, sous les froides étoiles.
 Appuyée à son bras, aspirant avec enivrement la
 paix glacée du monde, ils échangeaïent à peine quelques syllabes. Nulle allusion à leur amour. Seulement,
 quand ils rentrèrent, sur le pas de la porte, elle
-FAI dit :
-— Mon cher, cher ami! :
 les yeux illuminés du bonheur de l'enfant sauvé.
 Ce fut tout. Mais ils sentirent que leur lien était
 
@@ -4352,8 +4176,6 @@ répondit pas et continua de tousser. Elle sauta du lit,
 
 elle vint auprès de lui. Il était irrité, il geignait, il
 disait qu'il n'était pas bien, et il s'interrompait pour
-
-— Où as-tu mal?
 
 Il ne répondait pas; il gémissait qu'il avait mal.
 
@@ -4505,10 +4327,6 @@ elle songeaïit :
 « — Mon ami pense à moi. »
 Et un grand calme les entourait.
 
-|
-#
-|
-|
 la fin du poyage
 Alors, vite, vite, ils en profitaient. Chaque heure
 qu'ils dérobaient ainsi leur était d'autant plus précieuse °
@@ -4539,8 +4357,6 @@ s'en déchargeait sur lui, et prenait en échange les peines |
 de son ami : ainsi, le chagrin même devenait joie.
 Christophe appelait Grazia « son confesseur ». Il ne lui
 cachait pas les faiblesses, dont son amour-propre avait
-|L
-|
 
 lense à souffrir; il s'en accusait avec une contrition excessive; |
 à et elle apaisait en souriant les scrupules de son vieil ni
@@ -4560,8 +4376,6 @@ une muette prière d'adoration amoureuse. Et elle, Non
 UE elle songeait : |!
 ; | « — Mon ami pense à moi. » Hd
 8 Et un grand calme les entourait. ni?
-| |
-|jf)
 
 Cependant, sa santé s'était altérée. Grazia était
 constamment alitée, ou devait passer des jours étendue |
@@ -4584,8 +4398,6 @@ il la possédait. De ce mystérieux accouplement naïissaient des œuvres musica
 fruit de leurs êtres mêlés. Il Le lui dit, un jour, en lui
 offrant un recueil de ses compositions, tissées avec sa
 substance et celle de son amie :
-
-À — Nos enfants.
 
 Communion de tous les instants, où ils étaient
 
@@ -4670,24 +4482,3 @@ Rien n'est plus. Tout est passé.
 
 Il aspira largement le brouillard. Il reprit son chemin. 4
 Rien ne passe, pour qui ne passe point.
-
-Ne ne MA LRU UE AM an CHA à f AE Fa Ft
-Rare) (HU HALLE HAL TAN ANEUT FRNNE PUR sr SR TEE SF D TA ANT
-V4 AA AUS TH, ALU CAT tn + | UNE HE TRE Et A4 ACT itier UT
-ae : °F UTNENR MURALE NE ES MARIA
-Au ARE i QUES e VER HOT A tite es ES rl CE
-Ar # SANS 1e AUS AE € FAR GA ANR Fees dr en ÉAE AR Æ
-QE 0. (ar AE ROME ARS L'AENTA tr PT AS UE LC
-AUS A (Be Nb: VAE Ni die LEA NUE TEL EE Le \ FRAC AE Par: à
-2 AU \£ Eu Apr MT en TA 1 fé ER:
-(2: ve 13 EN sit 2 ; TAN Ne W Fes ' \ PAR RON SA LE
-d NE UE à Ÿ Ur Hal PRE (ps k & PA RUE | #4) EE LS
-+ il kr Unis LAN ANSE Ar, vie? 11419 Sat TN
-Re qi rs 14 x MINES (Et Je 04 LUN HN +! Ye Phiohe à RENTE +8 1 A
-té pi ON AN A (HAE AS MAD 2 VA nn : 5110 ä
-ES ï ae Ÿ MATE rh UT AE L'LLS JEUN dr Dee PIE ER Rey: LEUR KE
-LS $ rue } 1 ; NAAUE { L'YUM (ai àS ‘tb À UT Date He te on ax
-‘44 LEE AR RE et WE CRE et MÉRIAT OT AIR pee BRN QAR
-A COHEEAn H L COR NU | RATES bn NH Te | (ii DURS un
-p. ROSE 17 SAT: 4 à DU TNT bé 74 RUN 2 HR ra
-tn dre SEE TURN pt jus PUR Ses vi ÿ UMR Ïo

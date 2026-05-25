@@ -7,26 +7,8 @@ author: emile-moselly
 isAvertissement: false
 wordCount: 39866
 ---
-LA it
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-PRET AO NE CRT NE RNA CPE NON DE ber "
-RRUN € Lie RCA RULES JET AE ACNQUE TER HAE CUIR) Lie De DPEME PASS
-
-1e “4 ë Det at AE GA CAS He ÿ AE de Re.
-
-(ONE AE Re PER à Pre et VER En SX AT +07 ANS L n \ LL CAE à
-
-LE MERS NL « le ‘ee
-
-ds " ne AA TT L
-. DEN LU Le LUS di MARS EX vien APTE PP À
-LA GATE 1 fee a RE SU BE A ce
-par FL 8 ee \ : à ee
-LCR k ta
-#1 10 ET à MA (A ENASS À, CMS
-‘1e CS Te frs on ju f 1 RAR N at} tÉAR ? 21510
 
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, 1900-1904, un Si
@@ -47,8 +29,6 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une imag'e en bref, un raccourci,
 
-pe de LA f: ii HI NEX, FR ki È
-PROS he PIRE ji RE « a dr N 4 RE) yo: ne
 _ une idée abrégée, mais complète, de nos éditions anté- : 50
 “ic ne nos cinq premières D tout y est classé ‘4 un
 dans l'ordre; il suffit de le lire pour trouver, à leur M x
@@ -63,15 +43,6 @@ _  s'abonnait rétrospectivement à la sixième série le rece- ‘dé
 | série; nous l'envoyons contre un mandat de cinq francs #4
 +] _ toute personne qui nous en fait la demande. - qu
 
-| ‘ ‘ 1 it LES à
-
-| o He An : d LV
-
-| À LA CERN
-
-nu. FA cet RNA. .
-
-Sur Sri + fa n FU ”
 aux Cahiers de la Quinzaine
 Le présent petit index donne automatiquement pour tout volume et pour tout
 
@@ -85,12 +56,10 @@ du cahier lui-même, dans la série ainsi
 que V-17 par exemple doit évidemment se
 lire dix-septième cahier de la cinquième
 
-b) la date du bon à tirer, ou, à son dé-
 faut, la date du fini d'imprimer, ou, à son
 
 F défaut, la date du cahier même;
 
-c) le prix actuel; A ; z
 L d) quand il y a lieu, @est-à-dire pour nos
 éditions antérieures el pour nos cinq pre- ‘
 mières séries, la page du catalogue analytique sommaire où ce cahier se trouve
@@ -99,30 +68,19 @@ mières séries, la page du catalogue analytique sommaire où ce cahier se trouv
 mardi 26 avril 1904, un cahier épuisé, n'est plus mis en
 vente que dans les collections complètes de la cinquième
 — — Les retours, — les haleurs, le soldat (VII-19, mardi
-UNE LUE 000 NE URL. 02 deux francs
 
-Lt PR ONU MENT FRE ON A ta 2 |! ji
-| at TERRE AURAI }! #10
-
-wi pe 4 AA L RU
-
-| NET MER PE à Silent Cantet CA AE dc ,
-sal 0 pee AE TR LE CRE TT SE
 __ Note du gérant. — De ce petit index i/ résulte que le ‘à
 4 _ Jean des Brebis ou le livre de la misère est sensible- Di
 …_ . ment épuisé dans les éditions des Cahiers; les quelques DA
 a exemplaires quien restent sont incorporés aux quelques NS.
 « fi collections complètes qui nous restent de la cinquième :1
 | sérieet ne sont plus mis en vente que dans ces collec- 210
-| tions complètes. à.
 À k À De l'annonce qui suit il résulte que le Jean des Brebis 4
 __ vient de paraître pour sa deuxième édition chez Plon- T1
 .  Nourrit et Compagnie éditeurs; cette édition est désor- D
 _ mais en vente à la librairie des cahiers et c'est la seule 1188
-n, qui y soit en vente; je me permets de recommander à go fe
 _ ceux de nos abonnés nouveaux qui n'auraient pas le 9
 __ cahier de vouloir bien commander le volume à M. André » X210R
-# Bourgeois. “43
 A Je saisis avec empressement et avec beaucoüp de 4
 10e plaisir cette occasion de remercier personnellement - : 20
 ne M. Mainguet dont j'ai apprécié, dans la préparation ‘4
@@ -130,54 +88,21 @@ _ que nous avons faite en commun de cette seconde édition, 1%
 TR _ toute la haute et courtoise bonne confraternité; que le RS
 _ respecté président du Cercle de la librairie veuille ps
 _ bien recevoir ici les remerciements respectueux d'un 2
-Ne: . le gérant, M:
 
 | L FA Jeter vin fit
 
-| Qt L0 { L'LTNIERRIRE
-
-mu, DU MÈME AUTEUR ‘4
 ts Na 1e en vente à la librairie des cahiers 08
 _ Évxe Moserzy. — Terres Lorraines, — chez Plon A
 # Re __— — La vie Lorraine, — à la librairie nationale Ut,
 Me __ — — Jean des Brebis ou le livre de la misère, —
 _ chez Plonet Nourrit........... trois francs cinquante de
-“CRDI ; le rouet d'ivoire. — x. NUE
 
-pa VAE AA ENT SR FE DU
-INC He à f AU APR Lee na 2e a RARE PAR EU Pen NT EN TT CUS (4e
-: 1100 ver nà I CAT ANA TA AN UMA D A ANTON
-AR Ofti} fe, { k x 4 L'TARE MDUr UT,
-| VANNES Ne ( 4% MENT
-
-| FANS j'asf PEU (arte HaCIÈ NON PAR VRS di
-ANR Q} $ Ê ar date) FAN EN LA FER VA 5e
-| MR 3 > FA CAVE 1; 1 à
-VOS ha à e De RTE NE
-
-4 ; EN RAA NL TES ve pi ji A NT NP
-AU) 1 A ADN ONE RAS ANT EN ni AR (l SM JEAN HE ar
-À ll N'ES } } FAN LL ANNE AE Fit AU PANNE LV S'OMPNER Le
-
-4 Ad Es A6 se abs il SE dé TU cs à Met PA Le
-| jeton dti os dat POP EU OU ARMOR
-| HR Ÿ 7% tte h. 4 1: 880
-# nr, 34
 A. à mon maître de littérature française a:
-$ VA n ne re NT AE Ÿ Me
-#00 ss £ È 11150
-
-ART EAU PAPA EN er PSE UL RENTE CHRUT AE IS SRe £ d'il
-‘44 KA Pau Pt EU LOU LA AE eh ME à (ere dite
-JA (4) 4 PARENT Furs h, Le }) f 7 nt dt MARNE E di: 17 FN
-| ETS J | ; os (4 r111N HN
-Que OAI sa. À \/ PAS ' Ce eh re A
 
 ee _ « Quand je déposai la pourpre de l'enfance, quand je 3 Hi
 2 F: suspendis ma bulle au cou des Lares familiers, à l'heure À ï
 C _ où la vie hésite et s'assied aux carrefours, je vins me À af
 ‘ réfugier vers toi: pour accueillir mes tendres années, A
-FE tu ouvris la robe de Socrate. » : RR
 # Ainsi parle le poète Perse aw philosophe Cornutus, 4
 É dans des vers encore tout vibrants d'une émotion que ‘à
 \ les ans n'ont point refroidie. Et moi aussi, 6 mon cher ‘4
@@ -194,14 +119,10 @@ d d que vous, dans l'Université, ne sut étre un éducateur Le
 F4 incomparable. Votre bonté ne connaissait pas l'ironie, ! ñ x
 10 car vous saviez bien qu'il est des sensibilités adolescentes, À
 EN qui se brisèrent, comme un pur cristal, au seul bruit | à À
-à d'un éclat de rire. Dr
 ve A l'heure où une ombre, tombant des cimes inconnues, 1
 12. : voile lentement à mes yeux la joie du chemin, et la haie ‘a k
 É 4: chantante, et le tumulte de la vie, je viens pieusement, # pr
 KA 6 mon cher maître, vous offrir toute mon enfance. ia
-
-Roue AU AS NE ANNE D'AUTRE MH TEE NES Eee AT AT Bas es à
-| “A AURA AU DRE SEAT Fa
 
 s le rouet d'ivoire (4
 Le toit sur ma tête s'étend, profond comme la voûte LA
@@ -230,8 +151,6 @@ de terreur, l'enivrement de la vie. LE:
 
 Er Dans un coin dort une chose oubliée. 6
 
-Ve ne.
-
 le rouet d'ivoire
 C'est le rouet de ma grand-mère, vieux rouet d'ivoire
 et de buis, qu'on a mis au rancart, depuis qu'on ne file
@@ -253,7 +172,6 @@ emportées dans le tourbillon, tandis que la machine fait n
 entendre une chanson monotone comme un chevrotement d'aïeule.
 O rouet du passé, dévide lentement le fil brillant de
 ma jeunesse !
-|
 
 D la cheminée lorraine Le
 3 Les cheminées lorraines sont l'âme des logis froids, 1
@@ -265,7 +183,6 @@ homme tient aisément debout sous leur manteau. La De
 : ; pierre se couvre d'un suintement humide quand le temps #10
 À Cheminées pauvres, dont l'âtre croule, où sifile un feu a:
 1 £ de bois vert; cheminées riches, qui étalent des chapelets : #3
-À de jambons et de saucisses. 1e
 À Toute mon enfance a tenu sous la cheminée lorraine. it 4
 | Dehors, il fait froid. Des bruits mystérieux ébranlent 108
 la maison, sortant des murs épais comme des murs de ‘1
@@ -297,7 +214,6 @@ S, la lampe lorraine, pendue à la cheminée par une cré- a: iQ
 de Première révélation du mystère qui bat de ses vagues { 4 4
 ae la vie humaine. He 1
 ‘M Dans l'âtre reposent des objets familiers : le cramail  :
-F1 où l'on pend la marmite du cochon, la taque de fonte ñ
 10 historiée, le soufllet, un vieux canon de fusil. Grand- j h es
 Lt père y sifflote des airs, promenant ses doigts sur le Ki
 f ke tube comme sur une clarinette. Les ustensiles parlent Hot
@@ -316,7 +232,6 @@ _  L'horloge aussi vit étrangement, tandis que le disque e
 4 ù bon ouvrier qui fait sa tâche, éparpillant la pous- h
 sière du temps sur les chaises de boïs et sur la maïe où n
 
-k l'on pétrit le pain. Hi
 \ Mais grand-père se penche vers moi. À
 ; Bonne face de vigneron lorrain, dont les lèvres, rasées 1
 soigneusement, dessinent le modelé de leur bonté sou- x
@@ -346,7 +261,6 @@ de l'ombre infinie, serrez-vous contre moi pour écouter ki
 
 les récits du vieux temps, sous la cheminée lorraine
 
-| première désillusion +
 J Quand l'automne ramène son cortège de bises hur- ï
 | lantes, quand les chdânettes des toits fouettent le pavé 24
 | de leurs trombes, quand des souffles froids rôdent ii
@@ -354,7 +268,6 @@ J Quand l'automne ramène son cortège de bises hur- ï
 
 ne leur museau au bas des portes et reniflaient avidement,
 ‘4 alors un chant, frileux et triste, se.lève au fond de Al sue
-K. l'âtre. à É ni. Ce
 1 Grand-père se penche, promène ses mains dans la. a je
 k. flamme, les frotte avec satisfaction, puis il échafaude 1
 4 les ételles de hêtre qu'il prend dans la charpagne. a
@@ -386,8 +299,6 @@ W Alors ma jeune imagination vagabondant évoquait ae
 $ un animal chimérique; il avait les ailes frémissantes el k
 4 bleuâtres de la libellule, les antennes soyeuses, les yeux ‘y
 
-| 24 ‘1
-
 D d'émail noir des sphinx, qui palpitent autour des gueules a
 4 de loup et des hémérocalles! i D:
 ; Mai$ grand-père dit un soir : (1
@@ -416,9 +327,7 @@ AL Seule la trémie d'un van, secouée au fond d'une 0
 1 grange, sème dans le silence son tic tac menu. 144 !
 | Une vague terreur palpite dans le soir. Les escabeaux, ? “3 “te
 j À _ les chaises de bois massif, la mâie où l'on pétrit le pain 750
-AU 29 Le rouet d'ivoire. — 2 a 1e
 
-À le rouet d'ivoire FREE Hal
 É sont accroupis comme des animaux fantastiques. Des. |
 ÿ choses grouillent étrangement dans les coïns ténébreux, 3
 | animées par la lueur dansante du foyer. La silhouette
@@ -451,7 +360,6 @@ de corne et son anneau de fer-blanc; et, bien qu'elle ÿ
 ne fût pas allumée, je la regardais avec adoration. “
 Premiers hommes, que la terreur soulevait de vos lits f
 
-| ENFANCES LORRAINES " 4
 | de feuilles, la lumière du jour s'éteignant; qui erriez à
 dans la nuit, poussiez des cris de terreur, sentant sur :
 votre' échine le souffle des grands fauves, j'éprouve 1
@@ -479,9 +387,7 @@ des flammes verdâtres, aux clartés diaboliques, les yeux
 à flairer avidement : ce sont les vaches repues, qui, les
 h: pattes repliées, et leurs. pis lourds s'étalant sur la
 il paille, ruminent paisiblement devant leurs crèches.
-|
 
-à à ; le rouet d'ivoire k rs A
 | « Attention, il y a trois marches », dit la voix joyeuse, : L
 très haut, au-dessus de ma tête. ï :
 ! Et nous descendons dans la cave. à ' ji
@@ -565,7 +471,6 @@ i récolte. ne
 ni Le porc grogne dans son réduit. Rangées sur des
 A perches, le long des murs, les mottes de mare sèchent
 À au soleil, les mottes qui servent à couvrir les feux dor- '
-il mants de la veillée. fi
 24 Ob la douceur du jour coulant sur les buis roussâtres, |
 41 sur les groseilliers naïns, sur les plants de cinéraires !- RAS
 1 ‘Oh la joie du grand ciel où filent en tous sens des vols 4
@@ -606,7 +511,6 @@ L dans cés nuits sonores de printemps : on croit entendre QU.
 h au loin dés piétinements d'armée et des galops dé chez At
 … vaux : chaque pli du terrain est aux écoutes!
 
-1 MN ‘le rouet d'ivoire PA Mi: à
 4 Tant de terre remuée n'inspire pas confiance. Partout
 ! des forts, des casemates, des batteries. Le silence ds s
 à . bois se dissipe, déchiré de coups de clairons, martelé | te
@@ -705,8 +609,6 @@ G É données, à travers champs. L'horizon recule : comme le
 04 $ ionde es 1! Chemin faisant, il m'apprend les
 os stiqu nettant dans cet enseignement une
 
-|
-|
 sorte de gravité, répétant la leçon que d'autres vieux h | à
 | Ini ont apprise. el
 | Il me montre à marcher dans les terres labourées ; de (à) |
@@ -739,9 +641,6 @@ Oh! la joie du matin nacré trouant les hêtres de 1
 | clartés mouvantes! Le soleil rit dans la rosée; le chemin (il
 | disparait sous des graminées, embrumées d'une pous- Al
 sière tremblante ; un creux d'eau, large comme la main, {'
-
-Liv i0 il
-|
 
 ‘à lumineuses, et j'écoute ce récit, suivant d'un œil a musé
 18 les longs rubans de feu qu'on trace dans l'air, en)
@@ -826,11 +725,7 @@ Oh! la joie du matin nacré trouant, les hêtres de 14
 disparaît sous des graminées, embrumées d'une pous- ; Li
 sière tremblante; un creux d'eau, large comme la main, , 14
 
-An Li D AA de Ans NE le FORTE
-
 le rouet d'ivoire Re
-
-| } 4 ï
 
 s'ouvrant dans une ornière, enferme un large pan‘ de
 ciel, où passent des vols d'oiseaux, où s'agitent douce-
@@ -877,7 +772,6 @@ les sorbes rouges, les bonnes sorbes qu'il s'était réser- 4
 Notre récolte terminée, le sac plein est enfoui sous la |
 # blouse de grand-père. Ÿ À
 
-4 j ENFANCES LORRAINES il
 ‘ Quelqu'un vient. 4
 4 Justement, le garde débouche d'une tranchée, le nez ;
 ‘à au vent, comme un bon chien de chasse. Il est grand, fe
@@ -1005,7 +899,6 @@ D > Ë des échalas, une chopine le soir, quand il ‘avait rangé |
 À Fi ses bêtes. Ses mains tremblaient, ses yeux pleuraient,
 5 et si la Babette, sa femme, lui faisait des reproches,
 î il emplissait son verre et le vidait d'un trait, avec un air
-4 È de défi
 É: « On lui aurait mis une mèche de chanvre dans la
 Ë bouche, que ça aurait flambé comme un brülot.
 . : « — Femme, pour boire là goutte, je reviendrais de
@@ -1013,7 +906,6 @@ D > Ë des échalas, une chopine le soir, quand il ‘avait rangé |
 ! « & Un jour, la Babette le trouva mort au fond de la
 grange, une bouteille d'eau-de-vie à demi entamée à
 j côté de lui.
-à « On l'enterra et on n'y pensa plus.
 \ « Elle avait bien du mal, la pauvre Babette, avec ses
 4 vignes, ses prés, ses chènevières, et pas d'homme pour
 les travailler. Vint une fameuse année où on récolta tant
@@ -1030,7 +922,6 @@ Babette, par une nuit d'hiver comme celle-ci, blottie
 ET Æ S contre les pierres chaudes, jetait de temps en temps une
 © La | bûche dans le fourneau
 E « Elle s'endormit à la longue, n'ayant pas l'habitude.
-#
 
 Alors, la flamme baissa, la goutte ne pleura plus au il
 bout du chalumeau. Encore un peu, et toute la cuite Us:
@@ -1070,17 +961,13 @@ pées de goutte chaude, en poussant des soupirs à lendre nt:
 « Au petit jour, il partit, et la Babette, qui se frottait (l É
 les yeux, aurait cru qu'elle avait rêvé, si elle n'avait di f
 
-#
-
 4 le rouet d'ivoire | bn bi,
 À des échalas, une chopine le soir, quand il‘avait rangé
 nn ses bêtes. Ses mains tremblaient, ses yeux pleuraient,
 | et si la Babette, sa femme, lui faisait des reproches, ;
 * il emplissait son verre et le vidait d'un trait,avecun air
-1 de défi. !
 MA On lui aurait mis une mèche de chanvre dans la
 bouche, que ça aurait flambé comme un brülot. à à
-| « Il répétait : Ë 1
 « — Femme, pour boire la goutte, je reviendrais de
 cent pieds sous la terre. » 4) 0
 « Un jour, la Babette le trouva mort au fond de la |
@@ -1219,7 +1106,6 @@ a tâtonne, cherchant les airs. Grand-père, qu'elle appelle « (ts
 ii Alors ils se regardent tristement. Le cahier reste R
 1 grand ouvert sur la table, incompris, inutile. À
 | « Un grand fleuve d'oubli enserre le monde », a dit le à
-| Sage. 4
 l'eau de Pagney à
 Ÿ Grand-mère a mis son chapeau lorrain, la capote a!
 à de paille à rubans moirés où son visage disparaît
@@ -1272,8 +1158,6 @@ et qu'elle tourne sur ses talons, cherchant le panier, É
 
 É vergers, et les belles vignes, plantées d'échalas blancs ! U
 ; Oh! la fine odeur de mirabelle que le vent nous souffle 18
-42 le rouet DOUTE EN il Ë
-de.
 
 | À le rouet d'ivoire 14 À
 au visage. Le village dégringole la pente, cahin-caha, v
@@ -1305,11 +1189,9 @@ les toits, baigne les meubles d'une lumière crue, sans |
 une ombre. Avec le soir qui tombe, le clapotement des
 ruisseaux grand au fond des vergers.
 
-| NUE ENFANCES LORRAINES
 F Et je me rappelle un vieux, assis au fond d'une chambre où les épis de maïs pendaient aux solives du plax fond, un vieux aux lèvres rasées, aux joues rondes,
 | vêtu d'une houppelande et d'une culotte à pont, comme
 Ml les bourgmestres qu'on voit dans l'almanach de Stras- |
-| bourg.
 Quelque arrière-grand-cousin, qui m'expliqua gravement nos liens de parenté.
 On apporta une bouteille de vin blanc, respectable
 | sous sa poussière. Les verres tintaient avec des sons
@@ -1350,7 +1232,6 @@ k grand-père, chaussant son nez de lunettes, prend un 4
 ( de fleurs bleues, que j'ai conservé. Les craquelures en |
 sont semées d'une poussière émouvante de souvenirs. |
 4 Mais parmi tous les autres, c'est Fanfan qui reçoit le !
-| meilleur accueil.
 + k Un homme riche, ce Fanfan, dont la maison crépie à ss
 204 la chaux avec sa large grange, est la plus belle de tout |
 (à le pays. Il a le teint rouge, avec de gros yeux à fleur de
@@ -1389,15 +1270,12 @@ D. tué le cochon : la bête suspendue à une échelle montre “4
 he. son ventre béant d'une large estafilade; un filet de sang 4
 #4 coule de son groin et forme sur le plancher une petite 1
 Ne flaque qu'un chat lèche, à coup de langue précaution- À
-4 Les d t devant le feu, où, sur 1 ;
 S. es deux compères causent devant le feu, où, sur les F
 £ charbons, rôtit une tranche de « grillade ». V? 4
-4 : Je me mêle à leur conversation, cherchant à me mé- ot
 (| nager les bonnes grâces de Fanfan. a
 
 no: le rouet d'ivoire 777
 Car Fanfan a une grande fille, qu'on appelle Louise, f
-| et avec qui j'ai formé le projet de me marier. Il y a }
 ù bien quelque obstacle venant de la différence de nos
 À âges, car elle a vingt ans et j'en ai six au plus; mais la |
 ï volonté d'un enfant ne s'embarrasse pas pour si peu. |
@@ -1471,7 +1349,6 @@ F Pourtant la douleur des vivants frappe l'enfant, parce
 4 qu'elle est réelle, et qu'elle n'échappe pas à la divina- ä
 ; tion de sa sensibilité délicate. À
 
-: Le rouet d'ivoire : 20
 4 Grand-père se tenait devant lâtre, assis àla petitetable #4
 fl où il buvait la goutte tous les matins. Pas de protes- |:
 ! tations, pas un cri de révolte : ces simples natures de
@@ -1520,16 +1397,12 @@ ment, et il dit : À
 _ gel ne lui arrachent plus un cri de révolte. Il a accepté ÿ
 } tout passivement ; il a changé; c'est presque avec un |
 À accent d'égoïsme qu'il répète : :
-| — Les jeunes se débrouilleront. F
 D Et toujours ce refrain désolé, qui revient comme une à
 obsession : ne
 1 — Je ne recommencerais pas l'existence pour une pipe M
-| de tabac. , + ;
-; Quand on essaie de le remonter, de le faire rire, de k ï
 J lui raconter les histoires qu'il aimait autrefois, il vous 5
 : regarde fixement, hébété, et on ne sait s'il va se fâcher ;
 . ou bien rire. ji
-k: Ni l'un, ni l'autre! Il regarde le vide à côté de sa ‘08
 ny Du reste, aucune peur de la mort. Il l'envisage avec CR
 1 fermeté, lui trouvant plutôt la physionomie souriante. 1
 | Et cela aussi est triste quand on y songe : il faut que L
@@ -1577,7 +1450,6 @@ souffle, cette bulle d'air qui crève dans son remous.
 La vie est méchante, parfois, elle s'acharne et piétine
 férocement les meurtris. \
 
-#. *
 s Il fallut vendre la maison.
 Elle passa entre la main d'un entrepreneur, qui y
 amena une cohue de charretiers et d'attelages. La roue k
@@ -1622,7 +1494,6 @@ il Il tient dans quatre arpents de terre, cet immense 4
 ' pas par l'ampleur de ses proportions; il enferme des #
 ! clartés insondables, qui depuis se sont éteintes. 24
 4 C'est que nous vivons, comme les enfants, au ras de D.
-# la terre. de
 ‘à Rien de trivial : aucune chose n'est inerte. Le cail- s
 | lou du chemin avec ses veines bigarrées, le casson 4
 ! de vaisselle, qui luit là-bas, comme un soleil, tombé ‘à
@@ -1653,7 +1524,6 @@ G court au ras du sol, et la souffrance vient à mesure qu'il L
 | Tout le secret du bonheur conservé dans l'enfance É.
 réside dans cette entente harmonieuse avec les choses. &
 \ Quand je songe à ces premières années, un flot de Fr:
-À joie me monte au cœur, et je me prends à m'apitoyer Fe
 à aussi sur le sort des enfants qui marchent dans les rues 1
 des villes, escortés d'une domestique, avec des airs 1,
 raisonnables de petits hommes. 4
@@ -1716,8 +1586,6 @@ obstruent les fenêtres. Seule, une rosace de vitrail surje monte la porte d'ent
 il clartés.
 k Une ombre épaisse flotte dans le chœur, et le curé 1
 y passe devant l'autel, silencieux et blanc, comme une
-| : apparition. '
-Il monte en chaire.
 | Alors il lit longuement des récits qui font passer dans
 nos âmes le frisson de l'enfer. Il dit l'histoire du Juif
 qui perça d'un poignard la sainte hostie et la vit s'envoler, emplissant la chambre de sa palpitante blan-
@@ -1726,9 +1594,7 @@ Puis vient la mort d'un athée, promettant à un ami de ;
 | lui apporter des nouvelles de l'au-delà. L'ami lisait un :
 livre; sur la page s'était soudain marquée l'empreinte
 | d'un doigt mystérieux dont le contact avait roussi le ji
-| papier.
 | Et l'ombre du curé, s'envolant sur le mur, gesticule, |
-# terrifiante. à
 Les saisons tournent, ramenant les grandes fêtes : la
 Toussaint jette dans la nuit ses lamentations de cloches,
 | î et Pâques fleuries mêle au parfum de l'encens l'odeur
@@ -1737,7 +1603,6 @@ des buis amers.
 * Une face de cire, effrayante de rigidité sous sa cor- 4
 nette. À la messe basse, quand sœur Stanislas a com- l
 
-is il ei bi ji re Fe gi Mn dE sa je PRIT fil
 D le rouet d'ivoire :  * ONE
 D: munié, un frémissement de ferveur court le long de son
 ‘4 échine; elle baisse son voile noir pour mieux conserver 1]
@@ -1772,7 +1637,6 @@ Bi Simone m'embrassa, de contentement.
 ni “ Pendant huit jours, je vécus le cœur torturé, épiant y
 10 les allées et venues de la vieille, attendant une inter- |
 
-La catastrophe m'anéantit. 4
 Il fallut comparaître devant sœur Stanislas. he
 | Penchée sur sa table, elle repassait un napperon 4
 .  d'autel. Parfois elle approchaït le fer de sa joue pâle, | 14
@@ -1790,7 +1654,6 @@ fs Enfin elle dit d'une voix blanche, sans que sa lèvre < :
 
 ; Ma main levée esquissa dans l'air le: serment : : 1
 K « Boule de gomme, boule de fer, si jen ai menti, que 1
-| j'aille en enfer. » RE
 Mais déjà la sœur cassait net dans ma bouche la pro- ‘4
 testation, me jetant un brutal : ie
 
@@ -1806,13 +1669,7 @@ rifié. Pressentant mon ignorance, sœur Stanislas À
 1 GI le rouet d'ivoire. — 4 À
 | | 0
 
-| ENFANCES LORRAINES Li
-
 EE ses ges ar: g res A |
-
-|
-
-A A le rouet d'ivoire É
 
 Souvent, jouant à la marelle, je m'arrêtais le pieden :
 
@@ -1851,8 +1708,6 @@ au fond des logis une odeur vineuse.
 | Toute une affaire, de nourrir une armée de vendan-
 | geuses et de porteurs, les porteurs surtout qui ont h
 bon appétit, car le tendelin pèse lourdement aux
-| épaules.
-On frappa.
 — Entrez, dit ma mère. 1
 La porte s'ouvrit sur un reste de jour traînant dans .
 la rue, et une longue silhouette s'encadra dans ce carré
@@ -1868,7 +1723,6 @@ L'homme prit une chaise, et s'installa près de la porte |
 Une langue d'or jaillit, léchant les ételles amoncelées ue
 dans l'âtre ; une clarté dansa sur les murs, et l'étranger d
 cligna les yeux, recevant les reflets en plein visage. |
-| 63 , |
 
 ik le rouet d'ivoire PTIT
 
@@ -1913,7 +1767,6 @@ sous son mince vêtement, et Paris, qui l'attirait, lui faisait peur. Û
 Il insistait pour qu'on l'engageät avec les autres travailleurs : il pourrait porter une hotte de raisin, tout ;
 comme un autre. |
 Ma mère eut un sourire imperceptible, en considérant À
-| Sale
 
 1 ses épaules menues, sa haute taille qni ployait, ses vé- d.
 ; tements décents et misérables. 4
@@ -1938,7 +1791,6 @@ M Faites comme nous, dit ma mère à l'étranger. |
 Il s'approcha, hésitant, inquiet, sous les regards qui 1
 l'observaient. Mais quand il eut mangé une bouchée, il f
 ; ne se contint plus, et il se mit à dévorer, comme une bête. * L
-; Par moments, il soufflait, et jetait un regard à la dé- |
 1 robée sur l'assistance, honteux de son appétit.
 Ma mère trouva un mot pour l'excuser : ;
 — C'est si dur de pâtir, quand on est jeune. 4
@@ -2003,14 +1855,11 @@ il avait promis qu'il dessinerait leur portrait, ne riaient
 plus.
 É L'homme glissa son carnet dans sa poche, simple-
 { ment, comme s'il ne s'apercevait pas qu'il portait des
-L trésors. |
 | Puis il alla coucher sur le grenier avec les iravail-
 | Le lendemain, on vendangea la vigne de Saint-Galas.
 ù Une brume ondoyait sur côte, un brouillard d'automne
 
 |,
-|
-|
 Pa | le rouet d'ivoire
 dan Î que le soleil transperçait, colorant par endroits la masse
 Ê floconneuse-d'un ton chaud de cuivre. À la cime d'un
@@ -2022,7 +1871,6 @@ H cuisses. Et Karl, il nous l'avait dit, son nom, vêtu d'une
 . grande blouse de toile que mon père lui avait prêtée,
 H l'estomac lesté d'une grande tasse de café au lait, Karl
 À riait et promenait un regard attendri sur la beauté des
-| ; choses.
 3 ù Par moments, il clignait des yeux, pour mieux voir,
 |: comme font les peintres. |
 f Le premier tendelin rempli, il voulut le porter, on lui
@@ -2042,8 +1890,6 @@ L'homme eut encore son regard, de bête reconnaissante. Dès lors une grande ami
 } creux de la haie, écrasaient sur leurs pouces le lard
 | savonneux, ou joyeusement cassaient des noix, Karl me
 
-|
-"il Il
 “ prenait à l'écart. Assis sur le talus de la route, dans :54
 l'ombre courte d'un chariot, enveloppés des essaims |
 bourdonnants de guèpes que l'odeur sucrée attirait, il k |
@@ -2077,10 +1923,6 @@ I clair, comme le chant de la grive à la cime d'un peu- { }
 plier. Il me rappelle à tout instant cette vérité profonde, Dit!
 proclamée par un loqueteux, que le plus noble effort de Fi
 
-|
-|
-
-ne le rouet d'ivoire FM D.
 ! que le soleil transperçait, colorant par endroits la masse
 À floconneuse-d'un ton chaud de cuivre. A la cime d'un | |
 L' peuplier une grive chantait, et les vendangeuses se ;
@@ -2179,7 +2021,6 @@ reviendrai avec le bon temps, et je m'arrêterai chez |
 vous. Je resterai longtemps, et je sculpterai un Dieu
 Faunus qu'on posera dans le jardin.
 | Il s'animait, les mains dessinant des formes dans }
-| l'air.
 — Un Dieu Faunus, avec des cornes, des pieds de bouc,
 la lèvre courbée sur une flûte de roseaux.
 Il n'est jamais revenu.
@@ -2193,8 +2034,6 @@ La joie de la lumière décroissait par les vitres; les 1
 ténèbres rôdaient comme des bêtes. Les moindres 4
 
 bruits avaient un retentissement mystérieux, au cœur ÿ
-
-de la maison. ‘4
 
 O nuits lorraines, tour à tour briilantes de gelée ou |
 
@@ -2231,12 +2070,10 @@ Le feu peuple les silences de son crépitement mono- 4
 
 | Soudain, un choc retentit : la vitre a sonné, frappée 1
 
-li l le rouet d'ivoire LAON FER
 par une main : de la rue monte une voix bizarrement
 A — Voulez-vous dailler ? ne
 ni — Mariez-nous. 4
 3 — Avec qui? A de ;
-hi — Le grand Charles. 4
 1 — Il est trop petit. Qu
 
 | — Il est trop bête. ‘4
@@ -2374,15 +2211,12 @@ ji montait une fumée qui s'irisait sous la lampe. Il mangea : un flot de sang c
 i ‘ nourriture absorbée, qui faisait couler en lui une chaleur M
 ( insinuante, quelque chose réapparut dans cette créature |
 ‘à affaissée, dans ce reste d'homme, quelque chose qui M
-fi ressemblait à de la vie, à de l'espoir. À
-Il parla : À
 
 à — Ah, mes pauv braves gens! Faut-y s'voir. Dire M
 % que j'ai été le Philippe, le Philippe qu'était fort, hardi, '
 | vigoureux, le Philippe qu'était dur à l'ouvrage. J'ai pas |
 osé rentrer chez le père Médard, rapport à des contes- |
 À tations, quand je l'ai quitté. Et j'ai venu chez vous où “i
-F y avait de la lumière, et me v'là. 4
 À « Pu d'jambes pour marcher. Forcé de mendier son
 
 pain au lieu de travailler, c'est ça qu'est dur. ÿ
@@ -2426,16 +2260,13 @@ D'où viennent-ils, où vont-ils, ceux qui passent der- à
 14 1 Depuis ce moment, jamais je n'ai pu la regarder sans ‘ à
 "4 un mouvement de pitié et d'effroi, tremblant qu'elle ne ‘1
 &; s'ouvriît sur une de ces apparitions, surgies du fond de ÿ
-| Linvisible. d
 ….  O vous qui avez le souper, la nappe blanche, les rires . À
 & d'enfants, pensez-vous aux vieux, aux pauvres, aux 5
 
 sit le rouet d'ivoire LT
-| … . L
 infirmes qui se traînent dans la boue d'automne, rôdent fi 4
 ï autour des maisons, murmurent des paroles craintives, f
 k et s'en vont rebutés, tendant le dos sous le cinglement
-! de la rafale? 1
 ï Pieuse et sainte coutume de mon pays, de mon vil à
 4 lage, de ma vieille maison! Chez nous les portes n'ont
 | pas de serrures, de défenses compliquées. La clanche 1
@@ -2487,11 +2318,9 @@ _ Le coq du voisin répond: « Y doit beaucoup. » L'autre re- di
 - prend : & Ÿ payera. »—Les canards qui vont à la mare Fr
 . demandent : & Quand ? quand ? quand? » Et la chèvre À
 _  delaLison qui passe son museau par la lucarne répond #
-doucement : « Jamais. » %
 f Il imite le nasillemenf des canards et le bêlement ,
 | de la chèvre. Tout le village défile, avec ses ridicules ‘2
 
-IF le rouet d'ivoire ta A
 frondés par la comédie des bêtes. Parrain, en belle We
 humeur, rit de ses inventions. h 7%
 
@@ -2501,7 +2330,6 @@ une choyotte de laveuse. Et ce spectacle me ravit, car
 je sais combien il est difficile d'enfoncer une seule
 
 Mais une voix bourrue secoue le silence. F
-La menuisière rentre. ht
 Petite, toute ronde, elle a le visage plissé de rides, si 4
 
 fines qu'on serait tenté de les regarder à la loupe. Bou- k
@@ -2537,7 +2365,6 @@ haut, je ne jurerai plus. » Et le bon Dieu, qui a pitié, lui |
 donne la force de monter tout droit dans le ciel. Quand
 elle plane très haut, elle se remet à jurer: « Bigre bougre, bigre bougre », et le bon Dieu lui casse les aïles, et
 elle tombe.
-| Bigre bougre!
 | Comme c'est vrai! L'explication s'impose par la force
 de son évidence. Le cri des oiseaux sonne sur les cam-
 
@@ -2664,7 +2491,6 @@ Et Cadet, navré, criait : Chouri, chouri, comme on :
 crie à Crépey, quand on secoue une corbeille d'avoine :
 nu pour appeler les poulains.
 
-ENFANCES LORRAINES sa.
 bre Dans sa déconvenue, un espoir lui restait : lé beau
 temps. Il prit la précieuse fiole, et la déboucha. Une /
 grosse mouche bleue en sortit, qui prit son vol dans ne
@@ -2687,7 +2513,6 @@ des équerres, des rabots, des compas de bois dont les
 branches entravent ma marche, et il dit ces mots : É
 — Allez-vous-en chez vous. Vous savez votre métier. |
 Un large rire secoue la rue sur mon passage.
-| Il me joua un tour de sa facon. #
 nr? Dans la maison voisine habitait un vieux, un ancien '
 _ soldat. Assis dans l'ombre qui tombait de l'auvent de i
 tuiles, son mouchoir à carreaux étalé sur ses genoux, il
@@ -2764,11 +2589,8 @@ Ses souliers sonnèrent sur le chemin de halage. l
 coup de sang. On le retrouva près de son établi, couché
 dans les copeaux de hêtre.
 1 87
-|
 
 à le rouet d'ivoire (TRIER
-| deux vieux
-Ÿ Père a dit : ftE r à
 — Faudra mettre tes bottes de sept lieues, mon à
 petiot. Nous allons voir nos amis, les Grangier, des 134
 + pauvres gens qui ont de la peine! L FA SI
@@ -2870,7 +2692,6 @@ Pourtant la vieille s'empressait. Son trottinement menu L
 glissa sur le plancher. Bientôt la flamme claire des
 sarments crépila joyeusement dans l'âtre, et l'omelette
 
-| (Ê ENFANCES LORRAINES |
 dorée, semée de tranches de jambon se boursoufla dans
 la poêle.
 
@@ -2918,7 +2739,6 @@ Le vieux restait à sa place, auprès du feu, les pieds
 dans la cendre.
 | 91
 
-le rouet d'ivoire su à PTE
 Les dimanches, après vêpres, on se faufilait chez 4
 Bonne dame était la veuve d'un ancien officier aux Ki
 Cent Gardes qui habitait le Château. La tombe du À
@@ -2943,9 +2763,7 @@ geaient ses doigts. Un camée fermait son corsage. Elle
 Son regard errait sur la profondeur de l'avenue, que 11
 _ le couchant emplissait d'un poudroïiement doré. À
 Elle avait été fort riche, mais l'argent fondait dans ;
-| Ê È Dr: (SE
 
-| ENFANCES LORRAINES |
 ses mains. Elle donnait sans regarder, et entretenait
 dans son château des parasites qu'elle nourrissait par
 
@@ -3094,8 +2912,6 @@ clignotaient d'aise devant l'âtre, et tendaient à la flamme
 . leurs ventres faméliques, lestés d'un bon repas. Les
 -_ bougres avaient les dents longues. et mangeaient le
 château, le parc, les bonnes vignes.
-Il fallut vendre.
-| % %
 Je me rappelle très bien ce jour-là.
 Tac, tac; le marteau d'ivoire sonnant aux mains du
 - commissaire priseur semait sur la table de la grande
@@ -3109,7 +2925,6 @@ Elles jetaient une lueur tremblotante, qui brillait un
 ' lueurs, le marteau ponctuait. — Et les volutes de fumée
 | bleue se déroulaient dans l'air immobile.
 l Elles déroulaient lentement leurs anneaux bleuâtres,
-| 97 Le rouet d'ivoire. — 6
 
 le rouet d'ivoire 218
 ces fumées légères, qui bientôt s'évanouissaient. Pourtant
@@ -3124,7 +2939,6 @@ Les sons du piano arrivaient à la salle, étouffés par »
 l'épaisseur des murs. c si
 Le château fut adjugé à un industriel, qui arracha les …
 ï vignes, fit curer la pièce d'eau, et coupa les char
-milles. SES
 Avant de quitter sa maison, Bonne dame voulut en
 faire le tour, une dernière fois. à
 C'était un dimanche d'octobre, après vêpres. Nous "
@@ -3166,8 +2980,6 @@ rives vaseuses, les déesses de marbre gisaient, comme
 
 __ dans l'air froid, pareils à des géants vaincus, son cœur
 saigna, et sa douleur creva dans un sanglot :
-
-— Ma pauvre allée!
 
 Un frémissement secouait ses épaules, et ses larmes,
 
@@ -3244,12 +3056,10 @@ Misti prit son élan, et sauta au milieu ‘d'une platebande déjà bêchée. Il
 
 touffes de poils. Par moments il bondissait, giflait le .
 _ vide de sa patte, et attrapait quelque chose qu'il grignotait longuement, le museau entre deux mottes.
-| Babette s'exclama :
 S — Le v'là encore qui mange des hannetons, des co-
 k Et toute sa tendresse était remuée. ÿ
 # Rentrant dans la cuisine, elle y prit une assiette
 A pleine de lait. :
-i 101 le rouet d'ivoire. — 6, LU à
 
 a le rouet d'ivoire Vi
 — Régale-toi ! .
@@ -3287,8 +3097,6 @@ de soïe dont le vent gonflait la coiffe, comme un ballon
 
 . La femme dit : |
 
-— Tu n'as plus le sou. La
-
 ; — Y fait si soif. 1
 
 — Tu viens te remplumer ici. & |
@@ -3318,8 +3126,6 @@ qu'on prenait dans le réservoir. On se léchaïit les doigts . |
 quand on mangeait la sauce au vin épaisse, odorante,
 
 ñ jLa vieille baïissaït la tête, tristement.
-
-il M
 
 Ë = le rouet d'ivoire À "
 L'autre redoublait. Il finit par monter au grenier, où 4
@@ -3356,13 +3162,9 @@ seur des échalas, et des voix criaient aux joueurs : !
 
 — C'est-y dans vot' chantier qu'on embauche ?
 
-|
-
 ” Mais le Tourment devenait triste. Une sorte de regret 1
 l'envahissait, lui mettant au cœur la nostalgie de la vie À
 errante, et des cuisines savourées dans les auberges. de
-
-à Et il se plaignait de rester oisif. ù,
 
 — On fait comme les autres, disait Babette. On prend ÿ
 une bêche ou une raclotte. " S
@@ -3444,7 +3246,6 @@ Alors Babette pleura, ramassant les morceaux de
 Le Tourment lui avait rapporté ce cadeau, dans son
 jeune temps, quand il se mettait encore en frais de galanterie.
 Les jours diminuaient. On rentrait les pommes de
-La porte s'ouvrit.
 La Babette s'écroula sur sa chaïse, à la vue du Tour-
 . ment qui revenait.
 Dans quel état! IL n'avait plus que la peau et les os; ,
@@ -3461,7 +3262,6 @@ cuivre accrochée à un clou, elle l'emplit de braise
 _ chaude qu'elle tassait parmi la cendre. En un clin d'œil
 le Tourment fut dévêtu, couché dans le lit chaud, avec
 
-Va le rouet d'ivoire ‘ROARSS ei.
 le bonnet de coton enfoncé jusqu'aux yeux et là couver- 1
 | ture remontée au menton. , . FRS
 
@@ -3497,14 +3297,11 @@ L'air était doux. Les poules rentraient, ramenées par
 leurs coqs. Des feux d'herbes, allumés dans les champs, ï
 exhalaient une odeur pénétrante.
 
-| 108 |
-
 Toute cette joie faisait mal à la pauvre vieille. Les À
 commères redescendaient des vignes, et posant leurs :
 - paniers à terre, elles entreprenaient de consoler la ÿ
 Babette avec des paroles bourrues : 1
 — Faut bien se faire une raison.
-Une autre glapissait :
 — Vous v'là bien débarrassée. Un malabre pareil qui t
 était toujours soûl ! Ç
 — Faut en prendre un autre, un jeune! 1
@@ -3531,7 +3328,6 @@ t ! 109 le rouet d'itoire. — 7
 le rouet d'ivoire N de.
 à _ serraït dans sa main. Quand on tardait à lui ouvrir, il
 criait d'une voix rauque : ta
-— Hé là, y a-t'y du monde dans la bagnole? me
 Il n'était jamais content, quoi qu'on lui donnât. Ilré-
 clamaït un sou, des pommes de terre, un morceau ‘à
 de lard. Le fermier grand Charles qui l'avait secoué,
@@ -3597,7 +3393,6 @@ lands trapus dont le bordage rase le flot, qui portent une
 N maisonnette aux volets minuscules, peints en vert. Des
 enfants courent sur le pont goudronné; les sonnailles |
 des chevaux s'égrènent sous les ormes du chemin de
-| halage. A7
 A vivre ainsi au bord des eaux, il semble que leur 4
 limpidité pénètre votre âme. M
 C'était jour de lessive; le cuveau avait coulé dans la
@@ -3612,13 +3407,11 @@ quand $es fers éraflaient les silex taillés de la route. La
 corde se tendait, fouettait l'eau. Des muscles saïllaient
 sur le poitrail de la bête, ceint d'une résille de ficelle,
 pour le protéger de la morsure des taons.
-— Ahi! le gris. Ahi! “
 Toute une flottille apparut; une drague ouvrait la
 marche, allongeant sur l'eau sa coque de tôle percée |
 de hublots où des chaînes coulaient. Un remorqueur :
 la traînait en haletant, et derrière venait un chapelet de
 chalands à l'avant bariolé de couleurs. N 1
-| Late ai di
 
 Ce fut un événement dans ma vie.
 Alors un ravissement me monta au cœur, presque
@@ -3646,10 +3439,7 @@ couleur feu, tiraient un peu ses tempes et bridaient
 ses paupières. Son regard coulait, avec une ruse, par
 la rfente
 Je lui demandai :
-_ — D'où viens-tu? ;
 _ Elle montra la rivière et dit :.
-! — De là-bas.
-11 — Tu n'as pas de maison ? ÿ ,
 cl Elle rit, haussa les épaules, et montra la cabine qui .
 | sommeillait sur l'eau miroitante.
 
@@ -3657,8 +3447,6 @@ le rouet d'ivoire NT
 — Si tu tombais-à l'eau en jouant? Ne
 
 Elle répondit fièrement : A
-
-— Je sais nager. |
 
 Et j'ouvris de grands yeux.
 
@@ -3767,8 +3555,6 @@ Il veillait jalousement sur la Mouette, le remorqueur
 qu'il avait piloté pendant des années, et il s'attristait de
 le voir inutile. C'était un beau bateau, à l'étrave tranchante, à la coque eflilée, ayant dans ER dé one
 
-| \ ci
-
 d aspect de force à la fois souple et robuste. L'eau avait ]
 _ envahi sa cale, et il se couchait sur le flanc, parmi les
 _ Le vieux le plaignait longuement, avec des hoche_ ments'de tête, et il avait beau fourbir les cuivres et
@@ -3797,7 +3583,6 @@ p . Et le vieux, tenant la roue du gouvernail, savourait
 __ prairies; des combes forestières s'ouvraient, laissant À
 | errer sur leurs pentes la fumée bleue d'un feu de
 
-de rouet d'ivoire ji. i de
 | Le retour fut triste, dans la nuit noire... DA Ne
 Amarine allait partir, les travaux étaient terminés.
 En vain le père, pour plaisanter, m'avait offert de 4
@@ -3826,9 +3611,6 @@ tandis que sa soutane retroussée et claquant au vent
 k laissait voir sa cheville forte, son jarret musclé d'homme
 bien nourri.
 
-Re ne Lu
-un " ENFANCES LORRAINES
-
 Sa voix sonnait dans le silence des campagnes : un
 
 vrai cr&, criant de misère, sur la haute branche d'un
@@ -3851,7 +3633,6 @@ et lui valait une réputation dans le pays.
 
 A l'auberge de la mère Marie, on formait cercle au-
 | tour de lui, quand il racontait les « goguenettes des
-| vobiscum ».
 
 Sacré Colin! il aurait fait rire un tas de cailloux. Les
 joueurs de bourre lui assénaïent sur le dos des horions
@@ -3860,7 +3641,6 @@ Une amitié avait grandi entre nous. »
 À ‘Il avait beau me prodiguer les brocards, m'appeler
 | Frise-Poulet, Plume-Patte et Riquiqui, je lui savais gré
 
-po AN * le rouet d'ivoire ACER ne
 de sa tendresse injurieuse, et tout éclaboussé des éclats
 de sa verve, je me secouais joyeusement. J'ai su depuis
 qu'il avait appris ces appellations pittoresques des "
@@ -3968,7 +3748,6 @@ arrêtait les faucheurs et leur racontait son histoire;
 il concluait :
 — Sans la bonne Vierge, j'étais un homme mort |
 
-| Ÿ ENFANCES LORRAINES
 Comme un Faune ivre de raisin, Colin Michelot émer-
 
 3 gea d'un fourré de vignes sauvages; les larges feuilles M
@@ -4203,10 +3982,6 @@ sourires pour consoler nos pleurs! Soyons comme des F
 
 * enfants aux mains de la Vie. ;
 
-…: IS De FE UADIIS ARRA L'ARCONNES mo
-RO 2 ET NANEATE DA PE EMEA RC (KR Lib 4
-FA LA TPAE ENTREE AUDI du ET A TAN AUARE Dore Aer TU
-
 . Je sais que je ferai un gros plaisir à notre collabo- l
 à rateur Émile Moselly en annonçant ici même, en fin
 d'un cahier qui est sien, une revue où il a mis beaucoup
@@ -4242,8 +4017,6 @@ nommière, C. Lalance, L. Lé- | Recouvreur, Charles Sadoul, =
 vêque, E. de l'Escale-Dar- | H. Schefller, Simpol, E. Stof- "
 Remy Marin, Alcide Marot, | Thiaucourt, L. Thirion, Léon :
 
-Collaborateurs artistiques ù L
-
 j V. de Bouillé, E. Chepfer, | Charles Peccatte, Victor
 O. Fischer, E. Friant, Ca- | E. des Robert, Ch. Spindler,
 Jacques Gruber, L. Hestaux, | ner, etc.
@@ -4261,26 +4034,12 @@ raine illustrée n'auront qu'à nous fairespasser ces ordres
 serons particulièrement heureux de transmettre ces ;
 abonnements, sans frais, à M. Charles Sadoul à Nancy.
 
-# SAR Ar + & AA [AM RATE M LÉ il LME Le gi THEN IE
-| | ù A i ' j
-| : | ; » sn
-| à . | ‘a | * À AU
-LS ARR ERRSES | ni
-| # ; LL FAVR | ï | | k |
-“is Re É NPA ER y RE vi TANT ur
-
-Le en DM AIME RASE fe FAUNE MARNE Au à jh di HAUSSE DEN RET
-| PARA DA EE AUTO AD CEA ENT A OU RNA nn RCA
-pe AUAEUUR Ne in h Se 114
-
 _ © Ia été tiré de ce cahier douze exemplaires sur ë,
 whatman ainsi distribués : ,
 _ premier exemplaire de souche, exemplaire du gérant; |
 deuxième exemplaire de souche, exemplaire de l'ad- j
-| ministrateur ;
 _ troisième exemplaire de souche, exemplaire de l'imprimeur ; FT
 neuf exemplaires d'abonnement, numérotés de I à 9
-# 1
 Tous nos exemplaires sur whatman sont numérotés k
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureuse-
@@ -4292,19 +4051,13 @@ Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon-
 . derie Mayeur (Allainguillaume et compagnie succes-
 : . seurs) 21, rue du Montparnasse, à Paris, sixième
-É arrondissement. L
 | 135
-
-HN NE JUS ABUS TA A 1 Ni) BU is jar pe) dl RE
-ÿ f FL MATIN RE NON DORE [eg re tag K NE PR RE NS ÿ As NES TERRE)
-RER { ATAS ARTE \ [let VORUVIES FA ps Ne hi DA
 
 : Pour savoir ce que sont les Cahiers de la Quinzaine, pe
 ; _ il suffit d'envoyer un mandat de trois francs cinquante lé
 “ à M. André Bourgeois, administrateur des cahiers, ? ke
 A : 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ë
 k arrondissement. On recevra en spécimens six cahiers %
-; . de la deuxième, de la troisième, de la quatrième, de la î
 a cinquième, de la sixième ou de la septième série.
 à à Pour savoir ce qui a paru dens les cinq premières j
 Ÿ séries des cahiers, 1900-1904, envoyer un mandat de
@@ -4323,13 +4076,7 @@ _ est La série en cours, envoyer en un mandat à M. André
 _ Bourgeois, même adresse, le prix de l'abonnement; on
 \ recevra les cahiers parus, et de quinzaine en quinzaine,
 . à leur date, les cahiers à paraître de cette neuvième
-à th à P | le rouet d'ivoire. — 8.
 
-CS NME NO AH D -4 LE eg AE Te an A LG LE NU à
-| f Ni pr AE y ñ UTP Cr RAD PUR {RTE Le '
-UNE J : à (ne TS À % (fs à A: nu ñ
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 | rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men-
@@ -4377,10 +4124,6 @@ _ numéro du tirage réservé à chacun des souscripteurs :
 l'édition sur whatman est strictement limitée au
 | nombre d'exemplaires à chaque instant souscrit.
 .
-
-LE ns Mn EL KE À } je! 1 4! ALAIN l te \6 4 DNS NE
-PONS 2 l NA FN WAUUTA ZE HU AT ui 4
-(if LUN des M RATE et LLhES D LM 4
 
 Û Pour tout changement d'adresse envoyer soixante
 | centimes, six timbres de dix centimes.

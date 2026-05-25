@@ -8,12 +8,7 @@ isAvertissement: false
 wordCount: 21713
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s11-c14-ocr.txt); ingested 2026-05-25"
 ---
-
-I
-
 1852 - 1853
-
-PREMIER SÉJOUR A GENÈVE
 
 Nostalgie. — Bataille d'écoliers. — Un prix de bonnes notes. — Joli début pour un futur philosophe. — Nouvelles chansons. — Nouvel exil.
 
@@ -98,8 +93,6 @@ Je me trouve très bien à Fleurigny. Décidément, je ne suis propre qu'à fair
 
 En attendant, je suis toujours ton fils respectueux.
 
-Fernand-Félix MILLIET
-
 Chaque année, madame Milliet aidait sa mère dans la fabrication de quelques bouteilles de liqueur d'orange, de cassis et de brou de noix, cadeaux destinés à ses amis et à ses fermiers. Elle en donna aussi à chacun de ses petits-enfants un flacon minuscule, sur lequel notre nom était inscrit et qui, soigneusement déposé sur la plus haute planche d'un placard, fut réservé pour les dînettes de l'année prochaine.
 
 Fernand et moi nous avions trouvé à ces liqueurs un goût exquis. Un jour que nous n'étions pas surveillés, il grimpa sur une chaise, je grimpai moi-même sur son dos et je saisis les précieux flacons. N'était-il pas notre propriété personnelle? Nous voilà partis pour le hameau voisin, avec l'idée abominable de faire goûter à notre petite sœur ce breuvage délicieux. Chemin faisant, nous bûmes chacun une toute petite gorgee, puis nous échangeâmes nos flacons; c'était doux comme le miel, et cela réchauffait intérieurement! Encore une gorgée! Fernand chantait à tue-tête, mais moi, je ne riais déjà plus. D'un trait, j'avais vidé la fiole tout entière. L'effet fut foudroyant. Je roulai ivre-mort dans le fossé. — Épouvante, Fernand court à la mai-
@@ -175,10 +168,6 @@ Chante de ta voix prophétique
 Le retour de la République,
 Cette aurore de l'avenir.
 
-Août 1852.
-
-L'EMPIRE
-
 L'Empire! c'est la guerre homicide, inféconde,
 Sous les pieds des chevaux écrasant les épis;
 C'est le torrent fougueux ne laissant que débris;
@@ -198,8 +187,6 @@ O bandit! l'avenir ne se poignarde pas!
 Immortel il s'avance; à son front magnifique,
 On voit briller ces mots : Liberté! République!
 Et les peuples vers lui tendent leurs mille bras.
-
-A NÉMÉSIS
 
 Viens, Némésis, déesse vengeresse,
 Toi qui punis tous les êtres pervers
@@ -250,8 +237,6 @@ Sous la garde d'un seul agent de police, F. Milliet fut expédié à Anvers et e
 
 Le poète qui venait d'exprimer si énergiquement son indignation et qui sentait si vivement les malheurs de son pays, accepta avec une résignation attristée sa propre infortune. C'est à son ami dévoué, au colonel Alexandre Humbert, qu'il dédia les vers suivants, d'une inspiration si noble et si émue :
 
-LES ADIEUX
-
 Lorsque, banni du doux pays de France,
 Sous d'autres cieux j'errais en fugitif,
 Suisse, je vins, le cœur plein d'espérance,
@@ -300,13 +285,7 @@ Chanter encor l'hymne de liberté.
 
 (De Mayence à Cologne, à bord du Gutenberg, le 16 mai 1853)
 
-II
-
 1853-1854
-
-SÉJOUR A SAMOENS
-
-LE BÉROUZE. — LE DOCTEUR FOLLET. — MAGIE AMUSANTE. — BAL MASQUÉ. — LETTRES ENFANTINES. — PREMIÈRE COMMUNION.
 
 1
 
@@ -343,8 +322,6 @@ C'était une fête pour ma sœur et pour moi d'accompagner parfois le docteur da
 
 Malgré les tristesses et les soucis de l'exil, mes parents subissaient, eux aussi, l'influence de cette gaîté. Mon père, doué d'une vive sensibilité, se mettait presque à l'unisson de l'aimable docteur. C'est à cette époque qu'il composa une joyeuse chanson intitulée :
 
-LA VIE EN ROSE
-
 Ennemi de notre repos,
 Plus d'un ennuyeux moraliste
 Perd son temps à dresser la liste
@@ -370,7 +347,6 @@ Un portrait, laid comme nature. (1)
 
 On s'extasie outre mesure
 Devant le vrai nez du bourgeois.
-Réalisme morose
 Au diable ton miroir!
 L'idéal nous fait voir
 La vie en rose.
@@ -419,8 +395,6 @@ Mais voici que l'orchestre commence une marche mystérieuse. Un magicien à gran
 3
 
 Plus robustes que nous sans doute, nos pères n'avaient pas encore constaté les tristes conséquences de l'alcoolisme. A l'exemple de Béranger et de Désaugiers qui célébraient le doux jus de la treille et l'ivresse enchanteresse, mon père avait composé quelques chansons à boire, à l'occasion de banquets patriotiques. Cette poésie-là nous semble aujourd'hui bien démodée. Un feu grâce pourtant à quelques couplets écrits en l'honneur du docteur Pollet :
-
-AU DOCTEUR POLLET
 
 Chantons la science sublime
 D'un docteur joyeux et dispos;
@@ -472,21 +446,13 @@ Adieu, mon cher enfant, je t'embrasse un million de fois; ton père t'embrasse a
 
 Ta mère qui t'aime.
 
-L.
-
-Alix à Fernand
-
 ..... Je vais chez les sœurs; elles ne sont pas trop sévères. M. l'abbé Bétrix qui nous fait le catéchisme, est bête à manger du foin. L'autre jour, il demandait quel oseau qui enseignerait et les rouges étaient prêtres et une foule d'autres bêtises. Il prend du tabac toutes les cinq minutes. Pour se moucher, il met un coin de son mouchoir dans sa bouche, et, chaque fois qu'il se mouche, il dit : Ma conette!... Adieu, ta sœur très bigote,
-
-ALIX
 
 Mon premier essai littéraire eut pour titre : Lorsque j'aurai vingt ans. Les enfants sont de petits singes, ils imitent tout ce qu'ils voient faire à leurs parents, et rêvent de les surpasser. J'avais donc inventé la photographie en couleurs et je demandais en mariage une belle jeune fille dont j'avais fait le portrait. Je racontai cela à mon frère et je signai : Paul, savant en herbe. — je n'étais pas bon prophète, je n'ai rien inventé du tout, et, chose plus regrettable, je ne me suis pas marié.
 
 Nous avions surnommé ma mère La Bonti; sa fleur préférée était la pervenche et, déjà symboliste, je cherchais la cause de ce goût dans une certaine concordance entre le doux parfum, la couleur tendre, la modestie de la fleur et les vertus de ma mère.
 
 Mes premières vers furent une sorte de prière mystique où mon âme d'enfant réunissait, dans une seule personnification, la fleur que j'admirais et la mère que j'aimais plus que tout au monde.
-
-A LA BONTI-PERVENCHE
 
 Pervenche de douceur,
 A ta tige fleurie
@@ -505,8 +471,6 @@ En effet, l'abbé lui ayant demandé : « Quelles sont les trois vertus théolog
 
 Fernand à son père
 
-Bonneville, 17 décembre 1853.
-
 ..... Le paquet que maman m'a envoyé m'a fait grand plaisir. Je me suis frotté mes engelures avec l'eau-de-vie camphrée et elles disparaissent. Nous sommes moins bien nourris qu'au commencement, le pain est malfait. J'ai été un peu malade et je suis resté au lit 4 jours! Nous faisons maintenant un fort en neige; nous nous sommes fait des boucliers en carton pour nous défendre des boules de neige.
 
 Je veux maintenant répondre à Paul :
@@ -514,8 +478,6 @@ Je veux maintenant répondre à Paul :
 J'ai trouvé tes vers très jolis. La Bonti-Pervenche est très tendre. La Vengeance d'Alix est sublime. Je ne suis pas si bon poète que vous, je ne fais encore que scanner les vers d'Ovide. Je suis bien aise d'apprendre que tu es le l'oracle de la classe; tâche de vaincre Teresa, il n'est pas invincible, malgré son beau nom. Je crois que par la muse et ton léger acharnement tu le surpasses déjà. Quant à Alix j'ai été où on ne peut plus étonné de savoir qu'elle avait eu la croix à cause de sa sagesse. Pour ce qui est d'avoir dévergondé plusieurs petites filles, cela ne m'étonne pas du tout, car elle est bien capable de dévergonder toutes les petites filles et les bonnes sœurs aussi.
 
 M. Félix Milliet à Fernand
-
-29 décembre 1853.
 
 ..... J'ai appris que tu avais enfin ton uniforme; j'aurai donc le plaisir de te voir en costume. Ta mère se figure qu'il doit t'aller très bien; Paul et Alix sont de son avis.
 
@@ -525,21 +487,13 @@ Dans la prochaine lettre dis-nous si tu as repris les études d'allemand; tu sai
 
 Autant que le temps me le permet, je m'occupe de peinture; j'ai fait le portrait de madame Pollet et commencé celui de M. Hippolyte Deplane, le chasseur de chamois. Je l'ai représenté en pied, assis sur un rocher, avec sa carabine et tout son attirail de chasseur; je peindrai à ses pieds un chamois mort... des qui m'en aura apporté un. J'ai travaillé hier et aujourd'hui au portrait de madame Orsat qui a accepté d'être la marraine d'André... ou de Louise, avec M. Pollet pour compère.
 
-Alix à Fernand
-
-1er janvier 1854.
-
 ..... J'ai été la veille de Noël à la messe de minuit. Paul y a dormi un bon somme; c'étaient les chanteurs de la basse qui l'avaient endormi; j'en étais... Nous avons été l'autre jour à un bal donné par les maçons. M. Pollet a fait un discours de toute beauté. Comme j'étais un peu enrhumée, maman n'a pas voulu que je reste longtemps au bal, mais je n'ai pas manqué une danse. Madame Pollet a dansé aussi avec souplesse et élasticité; elle s'est délectée de vin chaud et est revenue avec son « doux-doux » à trois heures du matin. — Le curé a demandé à Paul pourquoi je n'allais pas en classe. Paul a répondu que j'étais enrhumée. — « Ah! c'est, sans doute, au bal qu'elle a attrapé cela. C'est très mal à une enfant de son âge d'aller danser. » J'en ai fait pénitence en prenant de la tisane et du réglisse.
-
-Paul à Fernand
 
 Je te souhaite une bonne année, une parfaite santé et le paradis à la fin de tes jours : il faut bien se conformer aux usages de la Savoie! Tu me demandes de nouveaux vers, mais je me suis livré aux sciences de l'Épitome. Je vais commencer le De Viris. J'espère te faire honneur et je n'entends pas qu'on dise que tu as un petit ânes de frère. J'ai été obligé d'abandonner ma verve poétique pour essayer de vaincre Teresa; nous allons composer tous deux en sa version, je crois qu'il sera vaincu, car mon courage est héroïque. J'ai donné au curé un petit ciseau que j'avais dessiné. Il m'a dit qu'il ne voulait pas assister aux séances de magnétisme, parce qu'y avait de la diabletie; il m'a chargé de dire à M. Pollet de demander à son pantin ce qu'il était, parce que toutes les tables étaient l'esprit du démon...
 
 Il faudra que tu nous envoies le programme des livres que l'on traduit en sixième; les élèves de cette classe sont-ils bien forts? car je voudrais pouvoir y entrer à Pâques. Tu nous diras tes places, je voudrais bien les savoir, car nous nous y intéressons beaucoup.
 
 Madame Milliet à Fernand
-
-Samoëns, 24 mars 54.
 
 J'ai reçu ta lettre, mon cher enfant, elle nous a fait plaisir, sans cependant nous satisfaire entièrement. Nous avons été bien aises de te savoir reçu pour les examens; mais tu auras dû être le premier et non pas le second en narration et en version; M. Fleury te l'a dit devant nous. Si tu es négligent, tu verras les autres te passer devant et tu manqueras les prix. Pour nous, tu sais bien que nous ne te manquerons pas de paroles. Indépendamment de ce que nous t'avons promis, un peu du bonheur que tu auras à nous rendre heureux, ton père et moi. Tu le sais, cher enfant, rien ne nous coûte quand il s'agit de votre avantage et même de votre plaisir, nous mettons en vous tout notre bonheur, nous ne vous demandons que deux choses : nous aimer et travailler à devenir des hommes. Je crois que la première vous est facile, quant à la seconde, tu sais ce que nous entendons par être des hommes, c'est-à-dire des êtres ayant développé toutes leurs facultés et pouvant être utiles à eux et à leurs semblables. Pour atteindre ce but, il faut s'instruire d'abord, puis on arrive ensuite à l'application de son instruction et de ses facultés. Nous causerons de tout cela quand nous nous verrons, ce qui sera bientôt, je pense. Nous avons arrêté un appartement à Bonneville, mais les conditions ne sont point réglées, il nous faut y aller pour cela.
 
@@ -552,8 +506,6 @@ Adieu, cher enfant, travaille et porte-toi bien. Tu sais ce que je t'ai promis s
 5
 
 J'avais dix ans, lorsque naquit ma sœur Louise (1854). A cette époque, en Savoie, il n'y avait pas de registres spéciaux pour l'état-civil; les déclarations de naissance se confondaient avec les actes de baptême. Il fallait donc faire baptiser l'enfant. L'orgue était tenu de magistrale façon par M. Pasquier. Louise fit son entrée dans l'église aux sons de la Marseillaise. Quand le prêtre lui versa l'eau bénite sur le front, elle poussa des cris perçants, comme pour manifester d'avance ses opinions violemment anticléricales.
-
-(1) Un voyage à Annecy.
 
 Les idées religieuses de mes parents étaient celles de Victor Hugo, de Michelet, de George Sand, de Victor Considérant. Pour eux, Dieu s'identifiait avec l'Idéal. Dans un cahier de notes écrites par ma mère, je trouve cette citation de Lamartine : « Une conscience sans Dieu, c'est un tribunal sans juge. La lumière de la conscience n'est autre chose que la réverbération de l'idée de Dieu dans l'âme du genre humain. Éloignez Dieu, il fait nuit dans l'homme. »
 
@@ -585,18 +537,11 @@ Monsieur, d'après ce qui m'a été dit par des personnes très capables d'un ju
 
 Je vous prie, Monsieur, d'agréer mes salutations empressées et l'assurance de ma parfaite considération.
 
-HÉGUIN DE GUERLE,
 Recteur du Collège.
 
 Mon père accepta avec grand plaisir ces nouvelles fonctions; mais ce ne fut pas sans regrets que nous quittâmes le Bérouze et nos excellents amis qui savaient exercer d'une façon si cordiale l'hospitalité.
 
-III
-
 1853-1857
-
-SÉJOUR A BONNEVILLE
-
-M. MAZON. — VOYAGES D'AFFAIRES. — MORT DE JEANNE. — UN ESSAI PHALANSTÉRIEN AU TEXAS. — LES ENFANTS; LEURS CARACTÈRES; LEURS ÉTUDES.
 
 1
 
@@ -654,8 +599,6 @@ Au milieu des plus graves chagrins et des soucis d'affaires, madame Milliet n'ou
 
 Madame Milliet à Alix
 
-Fleurigny, 22 septembre.
-
 ..... S'il fait froid, mon enfant, il faut t'occuper de faire venir du bois bien sec; prendre deux moules de fayard (hêtre), un de gros, un de petit, et tu le feras scier de la dimension de la cheminée, en trois. Il y avait des haricots dans le jardin, ils doivent être mûrs, il le faut les resserrer. Je te charge de cela avec Paul. Je pense, ma chère enfant, que tu as bien soin de ce bon petit père et de son Paulo, que tu veilles à ce qu'il ne se mouille pas les pieds, et que tu fais la petite mère avec ton Lili. Je vois que je vais trouver un vrai Valle.
 
 Ton père ne m'a pas parlé du fameux cheval blanc (une ensaigne qu'un aubergiste lui avait demandée).
@@ -671,8 +614,6 @@ Saint-Flour, 15 avril 1856.
 Décidément, ma pauvres amie, vous êtes crispants avec vos lettres adressées à Crest. Vous croyez sans doute que nous sommes là à nous prélasser, à faire des visites à tous les Montlovier, (1) à tous les Monstiers, et des promenades en voiture. Détrompez-vous, nous sommes installés à Saint-Flour, où nous avons un mal de chien du matin au soir. J'ai pris Jeannette pour me servir; ton filleul et Louison ont travaillé toute la journée avec Clavière pour transporter dans la cour tout le mobilier, et demain, s'il fait beau, la vente se fera dehors. L'huissier est un républicain, ce qui m'a racommodée un peu avec lui, car il a l'air souverainement déplaisant.
 
 Je ne t'ai pas envoyé, mon petit homme, de ton aimable lettre; quand je t'ai répondu, j'étais bien maussade; c'est pourquoi je t'écris aujourd'hui sur du papier rose, afin de donner à nos idées un peu de cette couleur; je désire qu'elle se détéigne sur toi aussi. Ce qui m'en accapare, c'est la race de Dauphisais et de bedeau, qui sont bien l'engence la plus retorse, la plus funeste, la plus grosse-saoul qu'il y ait au monde. Saint-Flour est évité par tous les gros marchands de biens du pays. Heureusement qu'ils se détestent entre eux et qu'une alliance n'est guère à craindre. Ils viennent m'offrir des prix dérisoires.
-
-Lundi :
 
 La vente a assez bien marché.
 
@@ -691,8 +632,6 @@ réunira. Et moi, mon chéri, je suis comme un corps sans âme. Je voudrais bien
 
 L'exilé ne négligeait pas une occasion d'offrir à madame Milliet de nouveaux vers. En 1853 il avait écrit pour l'anniversaire de leur mariage :
 
-A Louise
-
 Ange qui m'as suivi sur la terre étrangère,
 Qui dans les temps mauvais te montres tour à tour
 Ferme comme la Foi, tendre comme une mère,
@@ -708,14 +647,12 @@ C'est encor lui que tout haut je préfère.
 Aux nudités de la nature austère
 Qui vient jeter un manteau de velours,
 Et la parer de verdoyants atours?
-Le mois d'Avril.
 
 Mais est-ce en lui tout ce qui sait me plaire?
 Non, et je vais m'expliquer sans détours;
 Un mot souvent en dit plus qu'un discours :
 De notre hymen songe à l'anniversaire,
 Et tu sauras pourquoi j'aime toujours
-Le mois d'Avril.
 
 Cependant Fernand allait avoir 14 ans, il éprouvait une grande répugnance pour la vie sédentaire, et l'étude du latin l'ennuyait profondément. Ses parents lui demandaient, non seulement de choisir une carrière, mais de motiver son choix. L'espoir de longs voyages et d'une vie d'aventures le poussa alors vers la marine. A l'occasion du premier janvier 1855, l'adolescent écrit à sa mère, et c'est avec une certaine gravité qu'il lui fait part de ses projets. Le jeune étourdi semble deviner l'avenir qui l'attend.
 
@@ -730,7 +667,6 @@ Qui sait où je serai dans quelques années? Combien de lieues me sépareront de
 Mais écartons ces tristes idées; le moment de la séparation n'est pas encore venu, ne songeons qu'à la joie de passer cette nouvelle année ensemble. Je ne veux penser qu'au bonheur d'être près de toi, ma mère chérie, de pouvoir t'embrasser et d'exprimer toute la reconnaissance que je ressens.
 
 Ton fils,
-F.-F. MILLIET
 
 3
 
@@ -748,8 +684,6 @@ Cette première vision de la mort me hanta longtemps. Je ne pouvais passer d'un 
 Une consolation nous restait, notre petite sœur Louise âgée d'un an. Pendant toute sa première enfance, son visage d'était extraordinaire : un grand front proéminent, démesuré, à la Victor Hugo, de grands yeux sombres, d'un bleu profond, une mine grave et méditative. Son calme ne se démentait jamais, mais elle manifestait déjà une volonté de fer.
 
 4
-
-UN ESSAI PHALANSTÉRIEN AU TEXAS
 
 Quel est le socialiste qui a proposé à notre pays cet admirable programme de travail et de paix?
 
@@ -811,8 +745,6 @@ De toute la famille, Paul était peut-être celui que tentait le moins l'émigra
 
 M. Milliet, profondément attaché au sol natal, ne se résignait qu'à regret à quitter l'Europe. Forcé de reconnaître que le régime impérial se consolidait en France, et très attristé de voir se prolonger l'exil, il fut pris de découragement. Au moment de partir, il composa les vers suivants; « les plus désespérés sont les chants les plus beaux » :
 
-LES ADIEUX AU VIEUX MONDE
-
 Le vaisseau va quitter la terre;
 Les passagers sont sur le pont,
 Et dans leurs yeux et sur leur front
@@ -821,8 +753,6 @@ Pourquoi fuient-ils sous d'autres cieux?
 Ils vont chercher une patrie...
 Du sein de la foule attendrie
 Leur arrivent ces mots d'adieux :
-
-LE CHŒUR
 
 Pionniers de l'avenir, pleins d'une foi profonde,
 Vous qui veillez, quand Paris dort,
@@ -833,8 +763,6 @@ Mais eux, chercheurs du grand problème,
 Inébranlables dans leur foi,
 De leurs cœurs dominant l'émoi,
 Font entendre un adieu suprême :
-
-UNE VEUVE
 
 Je te quitte, ô terre natale,
 Et sans remords je puis partir :
@@ -856,9 +784,6 @@ Sait arracher ses lionceaux :
 Napoléon, je mets l'espace
 Entre mes fils et tes bourreaux.
 
-LE CHŒUR
-
-Ravissantes métamorphoses
 Qu'accomplissent les temps nouveaux!
 Les cyprès se changent en roses,
 L'arbre mort pousse des rameaux.
@@ -867,11 +792,9 @@ On sent la terre tressaillir,
 Du sein de la tombe féconde
 Voyez la vie à flots jaillir...
 La déesse des temps antiques,
-La divine Hospitalité,
 A des autels en Amérique,
 Où triomphe la Liberté!
 
-LE PROSCRIT
 (c'est mon père qui parle)
 
 Depuis quatre ans, banni de France,
@@ -916,7 +839,6 @@ Va, tu n'es plus qu'un corps sans âme,
 Je te laisse avec ton infâme,
 Et je vous maudis tous les deux!
 
-LE CHŒUR
 (c'est la voix de ma mère)
 
 Que ta plainte amère
@@ -929,8 +851,6 @@ Méprise l'épine,
 Ne vois que la fleur.
 
 (1) Lorsque mon père nous lisait ces vers, sa voix s'altérait, des larmes lui montaient aux yeux et nous pleurions tous de voir pleurer cet homme si brave et si bon.
-
-UNE JEUNE FILLE
 
 La France a beau me traiter en marâtre,
 Elle est ma mère, et devant sa douleur,
@@ -947,8 +867,6 @@ La terre disparaît, et, dans le bruit des flots,
 S'éteignent les adieux, les chants... et les sanglots.
 
 Fernand écrivait pour la fête de son père :
-
-24 juin 1855.
 
 Cher Père. Tu as déjà largement payé ta dette à la société en sacrifiant ton repos, ton bonheur personnel pour la réalisation de ton idée, la régénération sociale. Tu y as employé toutes les veilles, c'est pour cela que tu as été banni. Si tu avais été égoïste, tu aurais lâchement courbé la tête et tout aurait été dit. Mais tu avais des enfants et tu voulais leur donner l'exemple du courage. Ton sacrifice n'aura pas été inutile. Sois-en sûr, cher père, après l'exemple que tu nous as donné, il est impossible que nous ne suivions pas tes traces. Oui, nous suivrons la noble devise : « Fais ce que dois, advienne que pourra. » Oh non! nous ne courberons pas la tête, nous ne suivrons pas l'exemple des civilisés (1) qui se font les valets du premier fripon venu. Nous ferons comme toi, cher père, nous marcherons droit au but et nous ne fléchirons jamais. C'est à vous, hommes libres, que nous devons d'entrevoir l'aurore du bonheur. Ce sont vos enfants qui récolteront les fruits de votre travail. Gloire vous soit rendue! vous serez bénis par les générations futures pour avoir osé et entrepris le bonheur universel. Et pour qui avez-vous tant travaillé? Pour ce monde qui a eu Socrate, et qui l'a empoisonné, qui a eu Jésus-Christ, et qui l'a crucifié, qui a eu Galilée, et qui l'a emprisonné, qui a eu Fourier enfin, et qui l'a bafoué et méconnu. C'est pour régénérer ce monde vil et méprisable, ce monde qui méprise tout ce qui est saint, tout ce qui est pur, tout ce qui est grand. Mais il faut que les destinées s'accomplissent, que le progrès marche et que la science éclaire.
 
@@ -968,8 +886,6 @@ Puisque vous dites que vous avez confiance en moi, je vais vous dire ce que j'en
 
 Recevez la lettre de votre très cher et obéissant serviteur.
 
-CHEVET LEGRET
-
 Évidemment ce brave homme ne pouvait pas comprendre qu'on risquât sa fortune pour le triomphe d'une idée généreuse. Sa sagesse à courte vue n'apercevait pas ce qu'il y avait d'égoïstement cruel dans le conseil qu'il donnait à une jeune mère d'abandonner à la triste solitude de l'exil le mari qu'elle aimait profondément et dont elle admirait le grand cœur.
 
 Madame de Tucé cherchait par tous les moyens à retenir son gendre et à sauver la dot de sa fille. M. Milliet écrivait à celle-ci :
@@ -981,7 +897,6 @@ Fernand s'exerçait déjà à jeter le lasso pour capturer des chevaux sauvages,
 
 Puis, supposant nos beaux rêves déjà réalisés, il écrivait, comme exercice de style :
 
-UNE VISITE AU TEXAS
 (j'abrège un peu le récit)
 
 Émile Reynaud et Léon Blanc, deux de ses amis d'Europe, venaient visiter la Colonie et Fernand leur en faisait les honneurs : « Voici l'écurie aux vaches; dans ce compartiment vous voyez les veaux, dans celui-ci les génisses; là-bas, sont les vaches pleines; voici les vaches laitières; ici, séparés par une cloison, sont les taureaux. Ce bâtiment contient huit cent bêtes à cornes. — Mais pour soigner tout ce bétail, il faut un personnel énorme, cela doit vous coûter beaucoup. — Pas du tout. Chez nous, il n'y a point de domestiques. Chacun s'occupe selon ses goûts. Les personnes que tu vois sont rétribuées, mais elles n'ont dans les bénéfices qu'une part proportionnelle à leur travail. » — Les visiteurs admirent tour à tour le parc aux moutons, le domaine réservé aux chèvres, et enfin le haras : « Nous avons de magnifiques étalons et ils sont soignés d'une façon toute particulière, leur entretien nous coûte cher, mais ils donnent de magnifiques produits. Ceci est le manège couvert, plus loin le champ de courses, vous verrez demain dans un carrousel que nous avons de hardis cavaliers et d'habiles cuyeux. »
@@ -1016,14 +931,11 @@ Après quelques alternatives de découragement et d'espérance, l'affaire finit 
 
 Pourtant M. Milliet ne s'abandonnait jamais tout à fait à la tristesse.
 
-ESPOIR
-
 Notre vie est un mélange
 D'amertume et de douceur,
 C'est un assemblage étrange
 De misère et de bonheur.
 
-On y voit l'or et la fange;
 Le ver y souille la fleur;
 Le démon est près de l'ange;
 Du plaisir naît la douleur.
@@ -1044,12 +956,8 @@ J'ai à faire une narration sur la variété infinie des aspects de la nature. C
 
 Lorsque M. Fleury lisait ces calembredaines, il avait bien de la peine à conserver la gravité professorale; d'ailleurs la vieille demoiselle Prospère était à sa fenêtre, de l'autre côté de la rue, comme pour démontrer la vérité de la description.
 
-PORTRAIT DE SUZANNE
-
 ... Tu me demandes de te faire le portrait de mon amie Suzanne, le voici : Figure-toi un grand corps maigre, surmonté d'une tête qui paraît très grosse, surmontée qu'elle est elle-même d'une forêt de cheveux crépus, châtains et revêches. On dirait une rose mousseuse sur le point de s'épanouir. Elle a des yeux bleus, auxquels elle sait donner un air aimable, quoique leur expression habituelle soit la malice. Sa bouche a un sourire très doux, parfois moqueur, qui laisse voir des dents qui ne sont pas précisément d'ivoire; enfin elles auraient pu l'être! Elle aime la musique avec passion, aussi a-t-elle doué de grandes pattes d'araignée qui jouent très bien. Je crois même qu'elle chante un peu (Suzanne, pas les pattes). Tu ne peux imaginer un caractère plus charmant; elle est enfant avec les
 enfants et raisonnable avec les gens raisonnables. Comme elle est artiste jusqu'au bout des ongles, elle joue sur les grands maîtres sur tous les pianos, clavecins ou crincirins qui se trouvent à sa portée. Pour capricieuse, elle l'est un peu, et pour fantasque, elle l'est beaucoup. Il est impossible de trouver une meilleure amie, plus attachée, plus aimante; pour moi je la trouve parfaite comme elle est.
-
-LES OIES DU PÈRE MAZON (1)
 
 Le père Mazon est un drôle d'homme, au physique comme au moral. Imaginez un corps long et d'une maigreur qui effraie, une figure osseuse, de petits yeux gris presque imperceptibles, qui brillent comme du phosphore; ses moustaches rudes sont grisonnantes. Il raconte des choses fabuleuses, s'anime en les débitant, et finit par les croire lui-même. Il est tout à la fois docteur, jardinier, éleveur d'animaux, magnétiseur, amateur de tables tournantes, etc... Dernièrement le père Mazon se fit bâtir un chalet pour le moins aussi baroque que son propriétaire. Lapins et poulets furent transplantés dans des huttes rangées autour de la cour; puis deux oies vinrent augmenter sa ménagerie. Mais, la nuit, un des ouvriers, qui connaissait les désires de ce maniaq, n'y intendit, saisit une oie, et lui serre le cou pour l'empêcher de crier. Heureusement sa compagne se precipite sur le voleur et, à coups de bec et des ailes, fait si bien que l'infame ravisseur doit lâcher prise, et se sauve en abandonnant sa proie. Le père Mazon ne manqua pas de comparer ses oies à celles du Capitole, pour leur donner la palme de l'héroïsme.
 
@@ -1106,8 +1014,6 @@ Ajoutez à cela quelques pages de Chateaubriand, et vous connaissez peut-être l
 
 (1) Voici un spécimen de ce ton lyrique :
 
-LES QUATRE AGES DE LA VIE
-
 Avant l'aurore, c'est la nuit; avant le printemps, l'hiver; avant la naissance, un état inconnu qui est, pour ainsi dire, la nuit et l'hiver de l'âme.
 
 Le soleil se lève, la nature s'éveille, l'enfant naît.
@@ -1131,9 +1037,6 @@ Oscar Orsat, l'aîné des neuf enfants du syndic de Samoëns, avait écrit sur m
 Oscar serait devenu, sans aucun doute, comme ses frères, un homme distingué. Il fut tué pendant la guerre de 1870.
 
 Si M. Fleury idéalisait un peu trop ses élèves, Alix était là pour les peindre d'une façon plus réaliste.
-
-SUR BONNEVILLE ET SES ENVIRONS,
-MAIS OÙ L'ON PARLE DE TOUT AUTRE CHOSE
 
 Parmi les charmantes vallées de la Savoie, celle de l'Arve est l'une des plus gracieuses. D'un côté, les montagnes sont couvertes de verdure, parsemées de petits chalets d'un aspect gai et souriant; de l'autre côté, au contraire, ce ne sont que de grands rocs presque toujours couverts de neige. C'est sur la rive droite de l'Arve que se trouve Bonneville, toute petite ville, quoiqu'elle soit le chef-lieu de la province et la résidence de l'Intendant. Les établissements qu'on y rencontre le plus souvent sont des cafés, presque toujours pleins. Les habitants sont d'ordinaire très altérés, la moindre émotion leur dessèche le gosier. Perdent-ils un procès, un de leurs parents passe-t-il de vie à trépas? Aussitôt leur gosier devient brûlant. Leur arrive-t-il quelque bonne nouvelle, font-ils un héritage? Le même effet se produit. Enfin, il n'est point de réjouissance publique qui ne soit largement arrosée.
 
@@ -1159,10 +1062,6 @@ Alix, le 1er janvier 1857.
 
 (1) Il faut savoir ne pas tout dire, surtout lorsqu'on a une disposition naturelle à observer de préférence les défauts ou les travers d'autrui. Il est sont rares les gens d'esprit qui osaient sacrifier une plaisanterie mordante à la crainte de faire de la peine à leurs amis.
 
-ANNEXE AU CHAPITRE III
-
-RÊVES PHALANSTÉRIENS
-
 La description enfantine de la Colonie du Texas écrite par Fernand ne donnant qu'une idée bien incomplète de ce que rêvaient les phalanstériens, j'ajouterai quelques traits à ce tableau imaginaire, en m'aidant des textes de Fourier et de ses disciples. On verra que l'organisation d'un phalanstère est aussi éloignée de la contrainte communiste que du désordre anarchique; c'est un système savamment combiné de séries hiérarchisées.
 
 Les passions humaines sont des forces qu'il suffit de diriger pour les rendre utiles. « L'immortel Désir est l'Énergie unique qui soulève les mondes, le foyer intérieur de volonté et de puissance qui donne à chaque être le pouvoir d'agir. Privé d'une passion, l'homme serait mutilé, comme s'il était privé d'un sens. Ses instincts refoulés, écrasés jusqu'ici ainsi que des bêtes mauvaises, ne seront plus, libérés enfin, que les besoins de l'universelle attraction tendant à l'unité, travaillant parmi les obstacles à se fondre dans l'harmonie finale, expression définitive de l'universel bonheur. » Le travail remis en honneur, librement accepté de tous, réparti suivant les goûts et les natures, sans cesse varié au choix des ouvriers volontaires, deviendra la santé, la gaîté, la loi même de la vie.
@@ -1181,8 +1080,6 @@ Pour la Phalange, l'Opéra ne sera plus un simple divertissement, il va devenir 
 Dans ces fêtes où chacun est tour à tour acteur et spectateur, tout enseigne l'ordre et la mesure : Le chant et les instruments mesurent les sons; la poésie, c'est la parole mesurée; la gymnastique et la danse ne sont que des mouvements mesurés; la peinture, c'est la mesure des formes et des couleurs.
 
 Ainsi l'Opéra peut devenir à la fois la représentation et le modèle d'une vie sociale dont toutes les manifestations seraient harmonieusement combinées. Il sera l'école d'éclosion des instincts artistiques, qui tous convergent vers un idéal de beauté et d'union fraternelle : peintres, musiciens, chanteurs, chorégraphes, mécaniciens, architectes et poètes, tous agiraient en effet de concert. Et voilà, employée au bien, cette puissance des grands spectacles sur les masses, puissance réprouvée, non sans raison, dans la société actuelle, par des moralistes sévères, parce qu'elle entraîne trop souvent aux folles dépenses et à la débauche.
-
-LA FÊTE DE L'UNITÉISME
 
 Fernand avait annoncé à ses hôtes pour le lendemain une grande fête qui devait célébrer l'accord harmonieux des hommes sur la planète enfin consciente de son unité. Levés de grand matin, Émile et Léon virent la bande joyeuse des enfants se répandre dans les prairies, comme un essaim d'abeilles, pour y cueillir à l'envi blanches marguerites, roses sauvages, coquelicots, bluets, nielles et myosotis.
 
@@ -1242,8 +1139,6 @@ Les voix harmonieusement mêlées étaient soutenues avec puissance par tous les
 « Représentez-vous, dit Considérant, la fête ainsi célébrée le même jour sur toute la terre, l'encens, les fleurs, les hymnes et les cantiques montant au ciel de tous les points du Globe : le Globe entier, d'un pôle à l'autre, pavoisé de sa grande humanité, mariant toutes ses voix, ralliant ses peuples et ses races en un immense accord, en un seul hymne chanté dans la même langue, la langue d'amour et de bonheur... Ah! c'est à ravir l'âme au ciel! Vous croiriez que les Phalanges et les Jérusalem célestes sont descendues d'en haut sur cette Terre bénie et radieuse! Terre paradisiaque, qui communies maintenant dans l'harmonie mesurée des sphères, Terre radieuse, qui roules dans le Ciel comme un diamant étincelant sous les feux du soleil, Terre, tu es dans le ciel; qu'as-tu maintenant à envier au ciel? »
 
 Utopies! dira-t-on. A ce reproche j'ai répondu ainsi :
-
-A Charles Fourier
 
 Féconde illusion, j'admire ton pouvoir :
 Trop heureux d'ignorer ses tristes destinées,

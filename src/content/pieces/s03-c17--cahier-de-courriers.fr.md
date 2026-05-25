@@ -36,8 +36,6 @@ Tolstoi, — Une lettre inédite, adressée à Romain un franc
 
 Impressions sur la vie japonaise
 
-Mon cher Péguy
-
 4 Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par là que
 certaines remarques sont des impressions personnelles
 plutôt que des vérités objectivement certaines. C'est un
@@ -252,7 +250,6 @@ leur air de joie amusée, on ne le devine pas au début.
 Mais on s'intéresse aux distractions populaires par
 lesquelles surtout se manifeste cette bonne humeur
 d'un peuple entier. Distractions d'une extrême simplicité. Les Japonais ignorent la plupart de nos distractions européennes : ils ne s'alcoolisent pas : en trois
-mois de séjour, je n'ai vu qu'un Japonais ivre, et il
 sortait d'un bar anglais de la concession européenne
 de Kobé; le respect bouddhiste de toute vie leur interdit
 le plaisir cruel de la chasse; ils n'ont pas de cafésconcerts; la vie mondaïne et les jouissances de vanité
@@ -344,7 +341,6 @@ aiment à se promener. La nature japonaise est délicieuse ; les Japonais la con
 Ils aiment la limpidité bleue de leur mer intérieure, la
 pureté des neiges éternelles de Fouji Yama, le mystère
 des forêts sacrées de Nikko oude Yamada. Ils semblent
-particulièrement apprécier en un paysage ce qu'il y a
 de plus changeant, les nuances fuyantes des choses, la
 mobilité des nuages, les reflets des rayons de lune,
 l'éclat d'une neige récemment tombée. Ils suivent d'un
@@ -738,7 +734,6 @@ vie simple, pour tous. Depuis que j'ai vu le Japon, j'ai
 la certitude que cette simplicité de vie, en facilitant le
 développement de la culture artistique chez tous et la
 
-| Félicien Challaye
 pratique de la politesse égalitaire par tous, rendra à
 *ous plus accessible le bonheur.
 
@@ -760,7 +755,6 @@ la Russie vue de la Vistule
 renseignements exacts de tout ce qui intéresse la barbarie moscovite. Il va de soi que les deux courriers que
 l'on va lire nous ont été envoyés par deux hommes sérieux.
 J'ajoute que les deux auteurs sont Français.
-Mon cher Péguy ô
 Vous m'avez demandé de raconter les quelques jours
 que j'ai passés en Russie. Je n'ai pas ici les notes que
 j'ai écrites immédiatement après mon voyage. Mais les
@@ -784,7 +778,6 @@ intitulée Caveant consules, qui prêchait la croisade
 contre le polonisme. J'avais entendu Treitschke dire
 textuellement en plein cours, à propos de la Posnanie
 « Les Allemands s'enthousiasment de temps en temps
-pour ce qu'il y a de plus vulgaire; actuellement il y ex
 a même qui s'enthousiasment pour un Caprivi. » Seuls,
 les Preussische Jahrbücher de Delbrück cherchaient
 à prouver que la politique de persécution ne pouvait
@@ -1031,7 +1024,6 @@ brusquement: « Tu es un anarchiste ! » Ce « tu » me sembla de mauvais augure
 lever les épaules. Il n'insista pas, se remit à explorer
 mon portefeuille, se fit traduire mon acte de naissance,
 et tira une coupure du Temps contenant les noms des
-| ministres français
 — « Pourquoi avez-vous découpé cela? » — « Parce
 | que je tenais à savoir les noms de tous les ministres
 français. »—« On ne doit pas s'occuper de ces choses »,
@@ -1153,7 +1145,6 @@ sa sœur était malade. Le juge refusa. Alors le pauvre
 homme s'agenouilla devant lui, lui baisa les jambes et
 le supplia en pleurant de le laisser aller. Le juge à la
 figure distinguée lui dit simplement et sans colère
-s &-Va-t-en, chien! » et il continua iranquillement à
 feuilleter des papiers.
 
 On nous ramena dans la prison, où nous restâmes en
@@ -1425,7 +1416,6 @@ particulier dans le grand centre industriel de lintérieur, à Tammerfors, et da
 il y eut de sérieuses démonstrations. Il faut évidemment les attribuer pour une part à la présence d'ouvriers, pour une part aux gamins, et aussi pour une
 autre part à la curiosité des gens désœuvrés: c'est le
 
-es COURRIER DE FINLANDE
 cas surtout à Helsingfors, où les badauds ne le cèdent
 en rien à ceux de Paris.
 A Tammerfors, le recrutement commençait le 15 avril;
@@ -1699,7 +1689,6 @@ surtout des troupes russes. Le gouverneur général a
 donné son consentement. — D'autre part, le conseil
 6 municipal ouvritune enquête sur les incidents, et décida
 d'envoyer une pétition à l'empereur, pour se plaindre
-de l'attitude de la police, du maître de police et du
 gouverneur, qui n'avait pas même observé les prescriptions édictées par le Code pénal en matière de
 répression des manifestations par la force armée.
 Tels sont les faits. Mais telle n'est pas la manière
@@ -1755,23 +1744,11 @@ fêtes de Pâques, les a récompensés : Kaïgorodoff a reçu
 une tabatière ornée de diamants (6.000 francs), Carl- stedt a été nommé colonel, et Kaïtokangas a reçu une
 bague ornée d'un diamant (800 francs).
 
-Er ne enr RE LE et Wa Vu PAT { fl A ROIS RME RTE
-de es à ta ii ei i PLUS PT 4 Ni De je d 4 Eu Re ?
-Fa l ue a He RAA RS TR MCE oi DT W 28 “ LUE de Au)
-
-CON Lai 0e de me ga srl ent TNT SL 1 MX NES PAS PU AA DIN ENS
-“Ne Lo rs A ne RAT gr TE ï no Nb Al fi
-À AE june IRD Le pan DR | ar FAT Fe
-
-ER ibn 1 cat ‘il LRQ true UE NU HAS
-
 5 Nous avons publié, huitième cahier de la troisième
 BerNarD Lazare. — L'Oppression des Juifs dans
 l'Europe orientale. — Les Juifs en Roumanie
 Notre collaborateur nous préparait
 L'Oppression des Juifs dans l'Europe orientale. —
-Les Juifs en Galicie.
-Les Juifs en Russie.
 Pour vérifier et pour compléter sa documentation, il
 entreprit un voyage dans l'Europe orientale. Ce voyage
 a donné lieu en Roumanie à des manifestations antisémitiques dont nous lui demanderons la narration
@@ -1837,7 +1814,6 @@ doit à son tour jouir de toute liberté en Roumanie.
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
 
-Nous servons
 des abonnements de souscription à cent francs:
 des abonnements ordinaires à vingt francs:
 et des abonnements de propagande à huit francs.

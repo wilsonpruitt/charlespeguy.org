@@ -7,42 +7,22 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 31516
 ---
-as Le PART AE Ls w à ne ae à ; } à nr
-
-ED A TANERT HAE Hot4) ne:
-
 Dans les vingt-et-un cahiers de leur troisième série,
 année Scolaire 1901-1902, nos cahiers ont publié :
 
 Il-1. — Charles Péguy. — compte rendu de congrès. 1 »
 
-IIl-2. — CHARLES GuiEysse. — Les Universités Populaires et le mouvement ouvrier................. I »
-
-III-3. — Grorcss SoreL. — De l'Église et de l'État,
-
 II-6. — JEAN HuGues. — la Grève. — {rois actes... 7 »
 IlI-8. — BERNARD-LAZARE.— les Juifs en Roumanie. 2 »
 III-10. — les Universités Populaires 1900-1901 Paris
 
-et\bantieue. fasse RON RETENIR Er RTE
-Ill-11. — RoMaIN RoLLAND. — le 14 Juiilet, — action
-
-Il-12. — Monographies. — Personnalités.......... 1 »
-
-Villustre écrivain.:.:1..5. 40 RME ee ET EME
-
 Il-14. — Georges Sorel. — Socialismes nationaux... 1 »
-
-IlI-15. — ANATOLE FRANCE. — Cahiers de la Quinzaine: ni. iles nue TS SENTE
 
 Il-17. — cahier de courriers. —KFélicien Challaye. —
 impressions sur la vie japonaise. — Edmond Bernus.—
 la Russie vue de la Vistnle. — Jean Deck. — courrier
-de' Finlande. EUR Le Ne RSS RER DEEE
 
 Il-19. — PIERRE QuiLLaARD. — Pour l'Arménie... 3 »
-
-IlI-20. — Les Universités Populaires 1900-1901
 
 Voir à l'intérieur en fin de ce cahier les conditions
 et le prix de l'abonnement.
@@ -56,32 +36,7 @@ le « Père Duchéne »
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-NN TRUE) NL EN MAUR DIE PME il Ha n NE ji
-| wa LA MR MEN AT NN NES DR M OAUNA tYANIIE ir 4 ARE h
-D EE DAT UMR A TE en NE
-Et A AN PART ANNEE RU Léa ANUS AA AN a
-(GREEN LOC ADAM AREA de à ë RRALE E \ He At AN UAONES un
-PEINE AA (RATE | L'ANAE AU DA AE A AE ARE It de LA PT ce RON ÉARAPPE LE
 on LM IAUIN rene 5
-
-er PAL LE An ae Hi ee With
-Ta iQ 20 ‘4 ELA MAY RAI (oi (j te FA tel 4 HA
-Nr RAT “ARS ARE UN DA (eo Rail pa MANS NT ART
-sy DAONALT LA Hi NE Le DUAL ne ià UE A
-PR à je : at EUR He { FT 1 Vire à AI x PLAN te ue do! (X
-FR ms (71 REA il à RO ALUl DR DU Ye Eur {bee DA Doi
-QE Fe NA paf de 6 | | RAT 1 4 RU ra) CCE A A el CES Ge Nue
-f Eos 15 NES N | RU j JEAN LA ae YA Mr We EU Len fer
-re RE Ag 13 k f 1 VUS Ubu? Ver r hi Do de
-Ha LA lee AS es ñ pi Mon e N “ER M. Pre
-Ÿ DER PA PLANS F ' A HUE s PR à ‘e. AN Ra fé il Keb
-Win ES PART f AT 4) A he ÿ nes Fa eu LE dr Ï ir tr
-d 73 LM AAA pit RTE + LES FOUR UN Qtr NA nv ART Ron Vue EX MU F
-es Nr He RE UNE A CA CL
-pH TA + \ 4 à} dax FM RUN ee DATA (y A \ , # dau LU
-HUE x UNIS PAT UT A tu Aug LE SUN
-PACE NOR NAN IA ROTRU MES AS MEME Je ns
-AE à LAN fe, cts LE ÿui) ‘if # CYAN
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières sérieS, 1900-1904, un Si
@@ -117,34 +72,6 @@ s'abonnait rétrospectivement à la sixième série le recevait, par le fait mê
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-Ce MUR ANG PE EN np
-(wi Ne AU dr AD
-Hi ne x Kobe de Dane
-
-ne 4 ar “ u bg JA AV
-on ei Anar BAR PERAt DIRE
-ri NA (PAU SH Mal A ne al RUES SUY
-AA A (44 LD Hal Ra LA ë is A cTN
-
-APRES MeV (n PES Doit NE VA PUUUA
-Qi EUR ae LEA LAURE Fh PRE js JE 1114 di
-de 1 jo do fi
-AE KA 0 ele A tre A Ye PAU HA AA een 1e Sarl a PE ne Ra t
-, EE sa rs er *ü Jo Con nu ny 1 AR
-
-ÿ) de. rs al re ren Ÿ Ii? Al riN AR PAT HAL lift No "Ar
-À AE" D RAA AN kl A il RES RUN ! k $ TT We MGR 0 &' PARA WA pi
-
-05 (NAS ce NE Qu ) trie dnAD à Li po) nux AU | 1 HART NE
-
-Ha Ma MAGIE ANS En N juré fun Fr tt ANR 4 fi) RU a
-: ue FO Lx FN pi ut ie PAS de De me QU ‘PS
-ou  , V Jon É. ja UE Va ALU RAR Au aR l ol SA ais ie ni
-Pt Fe 14 ï D je At ul p D) FN ji No te AU COL } ane pan ‘Hs rio (4 a À nt ÿ
-
-ae) A 1x DATE fi Ne 14 or Do Le 1 Te
-MAPET, D) à je ALES f
-
 aux Cahiers de la Quinzaine
 MAxIME VuUILLAUME. — mes cahiers rouges.— une
 journée à la cour martiale du Luxembourg. —
@@ -167,21 +94,6 @@ Le présent dousième cahier faisant suite à ce précé-
 dent dixième et à ce précédent onzième, et les cahiers
 rouges de notre collaborateur M. Maxime Vuillaume
 
-an ai Au nu Le : oh. He
-ARS he DONC FR à LA EAN FAO EUU EC 1 KA eq ne PAM Lane RAT
-REA PO GNT fs Rat ME Ni AU A1 AE à j à à OR NUE ant
-hi AR WA a AU ALAIN CHA A AO ALAN Ne A AAA OUT at
-TR 1 y EN CAL LAN a LE) QE NS #ÿ, ju MA A pi) APR CU MAN Re à
-EN are AE ERA DR PAR pes AU AR En nn) Wen A tte Ur EAN 15
-se dit RAA NES An A nn: | ANPEUESS ;
-. ‘ii Go tr AEA At tre RUE CA ON Fan | me D RSA jus
-MAUR ONE EE L'AIR OU DUR APN TAN HAT) MALTA À 62 El RENTE à “RUES ik A tv? CHA
-{ Hs LENS EEE UN PAU ÿ RUE qe LA ce PT Aou AE te ONE
-toy LES LA Hi MAL GTE ; 1 ne EE MUR WA La MIE {nm “NOUS sh
-an ti MATRA 1 Aus CURE à U f LU AE PAM EU 114 SR AURTE To ENS (UN MAP
-(18 NA D FA A OU À ui AS À un NE Me 1 es EE 4
-ne AE 'OCTS A RE Val in AUS QE A
-
 aux Cahiers de la Quinzaine
 
 MaAxIME VUILLAUME. — mes cahiers rouges.— II. —
@@ -199,7 +111,6 @@ L'HOMME DU MEXIQUE {vendredi 26 mai). — Si nous allions
 chercher Jecker ; les cinq à la Roquette; Interrogatoire; La
 montée; Le « mur » de Jecker;
 
-LA RUE HAxO fvendredi 26 mai). — Préparatifs; Il m'en
 faut cinquante ; Conversation à la prison; les quatre otages
 civils; Largillière, Ruault et Greffe; Jusqu'à la Mairie de
 Belleville; Rue de Paris; Rue Haxo; le mur; le massacre;
@@ -211,113 +122,9 @@ et des noms propres cités, que l'on trouvera en fin du
 présent cahier, on remarquera que nous paginons les
 trois cahiers à la suite.
 
-Un HA al nu ce ji SF AE Lee 14
-1) Ses M fe ét ie 4 nf at no te CURE 1 He cn
-x ( + Ar NA de FAN A NA Ni ue 7 te Ne
-Re CM 7e f ue pr ir A ie id { Ah "top ARE “il
-AUG en Hi Aie Un DA Le EN) AE ds 1tA A , it ARTS
-À Vont nr. ï to vt AA ane ne DR nn AO a )
-UE #3 Son 0 LS nu NA Mg PL ( WE, V Ha BU à Re ji 1 HS %
-
-140 FU ER Pt ii (es (ci ÿ (ie LAS WE Le otre nan
-d Un. ii Se ED pr sx EAU DEAN 2h Fu A « ha ft W
-on 4) “A da} tra pa WE LAON ANA sf (EN 1 un Re ê OUR We '
-x AU A “na pri Ne mn sl ie ! ET VA X : NAS HA (He fe
-où je ho. mn ae jt A de te nat Va Ho Jus LEE A] W & FA # Dr NUS \
-
-UE ay TAN WE "t NE UN CU lei N'a # 14 ST W2 x el 174 HS ‘à tal
-AVE à na ne sa DURE ei Do su Ha {il *
-
-q nat L
-
-À ir MA es hs
-
-ie Une An AT Ans Jon
-
-F . ait À ie ne gi
-
-2 oi k RUE MEET Fe PRE RENE ms OPA A rate FU FRE Ne el x
-
-226 ea Haute OA RUE ANT. Ne AU EAN HE x 4 NPA AU) un Le
-
-ie a M AAUNAE rs UE DEN AG A ARE MAN RNA Let ni} HA A
-
-HAUT er] AUS ei quuE NL if \ A RAR es Jan LP AVES Ko La > \ Muse +
-
-: d ni St DEA nr AU AE PA CAN VAE DEN te
-
-j | Te 0 AURA PENA Nul A HET ; He Ne MEN Tnt a
-
-\ pas 4 Ni AR PU vor 1 pe, (RARE Lol UE AA si à | d :
-
-| cn gun en US tal AIRE US AIS AE US fai “100
-
-. ni RUE 4 qu" a Lt mue } EU [Ee NT UNE ‘A ARS ÿ
-as nee, TAG ee RATER fa se | Dan KR STEQNT AUNL UT: 7/2 à DANS QA
-
-pa PA L'ART ï Fate AE Re Re LA LEE DEN LRU due he Las CAE EN
-
-‘ Ces NON TA Ni ARS CNE ÿ qe Ava ui es dire Mur Ru AE PS
-
-AMOR je ANNE AAA Mur LT ATA AL de AE fé AA KR pe
-
 LIT. — quand nous faisions
 
-Ÿ du ie Pi HA à AL Ha ur 74
-ee CE Ne ie je NT “ AU fu PE # EAU a
-K ss AA WA ÿ Pate Un WE 4 N faut ti à ed ï vue mr ae HA Ci.
-is Fu ds 1h Dal Un Ne Ca Vu nt Php: na DEN A Lea) Not ‘
-ie A sn) a al Tue ÿ , et VAR ju tt 11 de
-À ve VU AN ( à f 4 l "ARTE Her }
-re ea UE : HA A A Né Us DURS + NES AU Le
-Ju PAU Con MU ‘au f 120) nu LE à d à # f b: k
-
-Ro NS \ il 1 CAE js 14
-ni a qe A on d eurh LA fo ha!
-4 th tt ni ir f NE mal \ k, Ne EN ay 1 ri du
-JA Fi Au ca ÿ NE Al is #} Hu à Hit no A ei PA 004 ny FE LA à heal !
-HA oo Fs À ELA un VAE) ie trie at D es \
-Hu ti ii WA il HA A U UN a We a He
-Un TU il PANNES k 3} 1 A oi PL f Gi ï "PA ANA 0 PA 2vR Ne nel h
-; ne Au AU ii ge At pe A FR ; 4 LUI M 1x Fi (fé ne ME d' AU Us ie & 4
-fa je a ne di PUR Dia VI à) ns EU }
-4 ra ne SUN LUN Hi SA x “A al MA l 0 1 dr A
-Lu ie 4) ie dl } S\ALS 0 pt ju 15 re LI su ik a) Ÿ | be ion ou oi re a
-tnt ‘8 Due FUN 2h “y ni, js va ro FAI HUE ST) ane 1N Ha U 128
-ta AU ui te Et 4 1318 Au Ron val me N ques AT ji 1 YO 4 D LATER
-ni Do HA Do Et Lune ht je | REG 1 uEG h oc .
-nat Ne nn do À CAE AU a PA HE 1 ADR HE on pit qi 1 1
-M" an 0) tie DA No Ci VA Cr Rte dE TA ni) A pu jo ALU re
-te Le 4 a ! Aid 1 ti ne
 haie CH de 40 sai
-
-ï DORA Fe MC PARU il HANEe
-A PA Eee FE Ne me ae ae Le
-US os AU cn Eu) Fe Fa 2 No La A Mt MC
-rd j is \: no ail ir Hat “Al te il ke du. PA
-AL  . ) pi TA PE ñ ne Hu cn no 110 ATEN
-A AU a (a AP ‘ œil 0 sa
-4 0 00 don Ne Ne PAS # ct NE \ JU Run Leon
-HE Ka DAS En RAGUR W Ai ” EN ÿ de AE x 4 (EP ci A DRE À L
-LA LH HA gt) su 1 ANUS NU FUI LA ; ts (UN fu nn AE AER Hi {
-HA U |: 10 OA le a GA D 9 Pe a WU et NAT For
-
-on D ri sort So ne io REA il UE a AE QUE AL
-ne di, À au A ENS M MA) A
-ï ji Don cu Une Ai jet pe Vi a ANUS
-AU M h de \l AA) Et VAE MAC sun nt RUN #4 PR NU
-NE AN ja PAL non AUS 0 rl LS Ua (77
-no Hs ( (AS A fi Re CH Ant ES PAS VER REA A Ne jte Raul
-4 HE EAN Dai PAT El ATEN PAST IAA Her De Um de #: se el OXTAT Ve Lr Li À pue
-; ik AS “AUS GS NAN NE PURE i Nu) si Ne Né ! : | 10 tx
-4e du M NUE ts AA Al 1 Hu ni NE Ho 4
-el ra ne Do TE VAN nu Fe 0 : 48
-| SN cDNEEUR RAR (at) NAN ME ol ï De) en mr
-ne LAS Fo de in LUS (TE NUS a PAU si cn 0 ME MA
-An ji 0 At qu AA de \ ra EAN ASE nue KOANE ‘11 UN
-EAN ES joue sa NU
-
-Je rencontre Vermersch
 
 Premier mars 1871. Depuis le matin, les vainqueurs
 occupent les Champs-Élysées. Des drapeaux noirs
@@ -376,14 +183,11 @@ Marseillaise. Derrière le commandant, un sergentmajor porte une large couronne.
 
 — Où allez-vous ?
 
-‘— A la Bastille!
-
 Allons à la Bastille.
 
 (1) André Gill, dessinateur et caricaturiste à l'Éclipse, la Lune, etc.
 Administrateur du musée du Luxembourg sous la Commune. Né
 
-Sur le parcours, tout le long de la rue de Rivoli, ce ne
 sont qu'acclamations.
 
 — Vive la République !
@@ -634,8 +438,6 @@ Rochefort. Condamné à la déportation. {
 
 quand nous faisions le Père Duchêne
 
-— Le Père Duchéne ?
-
 — Là. Au fond. La porte avec les marches.
 
 Je vais tourner le bouton, entrer, quand, derrière
@@ -644,10 +446,7 @@ retourne près de mon gnaf.
 
 — Mais, on se bat là-dedans. On se dispute tout au
 
-Le gnaf a souri.
-
 — Mais non, entrez donc. C'est toujours comme ça.
-Ces messieurs causent. d
 
 J'entre. Ils sont là une dizaine qui discutent, criant,
 gueulant. Mon arrivée ne les dérange pas. Enfin, l'un
@@ -656,7 +455,6 @@ d'eux se tourne vers moi. Il m'aborde. Je dis mon
 — Ah ! oui. Très bien, votre Juin. Nous nous demandions d'où cela venait. Personne ne connaissait ici
 
 — Eh ! Maroteau ! L'auteur de l'article de ce matin.
-Tu sais... Juin.
 
 On m'entoure. On me serre les mains.
 
@@ -674,8 +472,6 @@ nous dirigeant place Saint-Michel. La bande se réunissait alors au Café de la 
 ( ») Le Café de la Salamandre, place Saint-Michel, exactement
 aujourd'hui le numéro 4 du boulevard Saint-André.
 
-| LA RÉPUBLIQUE OU LA MORT!
-
 En route, nous avions raccroché Gill.
 
 Au café, dans la salle du premier, nous trouvons
@@ -691,8 +487,6 @@ Duchéne hurle dans Paris, grondant et affolé, sa première Grande Colère.
 l'argent
 
 Il nous manque toutefois quelque chose avant de pouvoir réaliser notre rêve.
-
-L'argent.
 
 Nous n'avons pas un sou.
 
@@ -711,12 +505,7 @@ Proudhon, proscrit du 2 Décembre. Auteur du Droit du Travailleur (1830). Direct
 6) Teulière (Edouard), membre de la Commission du travail et
 de lPéchange sous la Commune.
 
-| \
-| 269 Duchéne.— 2.
-
 quand nous faisions le Père Duchêne
-
-Où en prendre ?
 
 Nous sommes allés chez Vallée, l'imprimeur de la rue
 du Croissant (aujourd'hui l'Imprimerie de la Presse).
@@ -750,8 +539,6 @@ rouge, l'œil vif.
 — Eh bien! voilà, reprend le grand jeune homme, à
 nous deux — et il désigne le bossu — nous faisons cinq
 
-— Vos noms ?
-
 — Moi, continue le grand, je suis Rodolphe Simon. Et
 lui, c'est Aubouin.
 
@@ -772,8 +559,6 @@ Aubouin se chargent de la vente.
 — Et quand les cinq cents ?
 
 — Tout de suite.
-
-— Les conditions ?
 
 — Vous êtes trois. Nous deux. Cela fait cinq. Nous
 partagerons en cinq les bénéfices quotidiens.
@@ -818,8 +603,6 @@ dans les Murailles Politiques du 18 juillet 1870 au 25 mai 1871.
 Vermersch avait fait le premier article. Une grande
 colère. L'affaire des loyers était tout indiquée. Comment allaït-on payer ces trois termes de loyers du
 
-#
-
 Ce n'est pas assez d'avoir supporté la faim, d'avoir versé
 son sang, d'avoir bu sa honte : il nous reste trois termes à
 
@@ -832,8 +615,6 @@ Nous ne les paierons pas!
 Les marchands d'argent auront beau faire: c'est en vain
 que les huissiers travailleront nuit et jour, que les tribunaux condamneront depuis le lever de l'aurore jusqu'à la
 nuit elose, que les conseils de guerre méditeront leurs lugubres arrêts, que les Bretons de Trochu et les soldats de
-
-Nous NE PAYERONS PASs!! x
 
 On ne tire pas de l'huile d'un mur, on ne fera point sortir
 des caisses vides de la France ruinée les quatre milliards
@@ -918,7 +699,6 @@ Vous avez fait votre devoir, :
 Et vos drapeaux triomphants auraient fait le tour du
 monde, si nous n'avions pas été assez bêtes pour nous laisser |
 gouverner par des jean-foutres et des judas ! 1
-|
 La France a perdu son Alsace, sa brave Lorraine, qui \
 étaient foutre!, si patriotiques que le Père Duchène verse
 toutes ses larmes de son corps quand il songe que ces braves ,
@@ -976,31 +756,12 @@ Le: 20 au matin, les crieurs gueulaient à qui mieux
 mieux « La Grande Joie du Père Duchêne de pouvoir
 enfin causer des affaires de la Nation avec les bons
 patriotes qui ont chassé tous les jean-foutres de l'Hôtel
-de Ville ».
 Humbert et Vermersch, à peine connue et affirmée la
 x victoire des Buttes, avaient sauté dans le train. Je dé-
 jeunais dans notre petit caboulot de la rue de l'École-deMédecine — une des vieilles maisons à pignon récemment disparues — quand je les vis entrer, triomphants.
 Nous nous embrassâmes. C'est tout juste si nos larmes
 ne coulèrent pas dans les rognons sautés qui fumaient
 devant moi...
-|
-
-Re ee UN Aie A a ER ARE Ae po
-
-Pr code AS OU Ne
-KE SAS de os aie RES ET SR RER RO Rs
-CADRE RD nt aval AP CALE EE VE DS DRE see L'AREUURS PERLE T RENE OPRTETS
-A RAS Un ne RATES PANNE RARES ARR
-RE D ME ee MU UN LRO ee Ne re KA ENTE se
-
-A To RER PAS HE @ Re Ne RDS LTÉE fl
-7 PRIOR EE 4 RENE ne D CN DE Re ne ae
-A M eu on do SA ES M RER
-
-A ner Rae tes AR UT. Mn Te:
-A Dh de Un
-
-ÉMEN TS RMRRSSEe CIN ANT LES LES RP de nn ns
 
 dans la Fournaise
 
@@ -1016,7 +777,6 @@ de la rue du Croissant, ce Père Duchéne qui fait la joie
 des terribles soirées aux avant-postes.
 
 — Tiens! nous le croyions plus vieux que cela, le
-Père Duchéne !
 
 Et les braves gens serraient nos mains. Parfois, on
 allait trinquer au comptoir ou au café voisins.
@@ -1057,8 +817,6 @@ Une petite cuiller en argent,
 Un rond de serviette en argent,
 
 Une paire de boucles d'oreilles en or,
-
-Une chaîne de femme en or.
 
 Je referme la boîte. Je la mets en lieu sûr — ou que
 je crois sûr — dans un tiroir qui nous sert de caisse,
@@ -1182,8 +940,6 @@ longues moustaches tombantes, J.-B. Clément, (1) tu
 sais, celui qui a fait le Temps des Cerises. Ah! ce que
 ça va marcher, avec ces bougres-là !
 
-Et continuant :
-
 — Ce grand, à la moustache fine, c'est Eudes, qui
 allait être fusillé pour l'affaire de la Villette, si nous
 n'avions pas fait le Quatre-Septembre. Le voilà qui
@@ -1204,7 +960,6 @@ Avrial. Puis encore Flourens, (3) qu'il avait entendu
 dans les réunions publiques du-siège, et Duval, et
 — Cet autre vieux à barbe blanche, c'est M. Beslay, (4)
 un riche qui s'est mis avec nous, un vieil ami de Proudhon.
-Et brusquement :
 — Voilà le meilleur. Tiens, tu le vois, assis, avec sa
 figure en lame de couteau, ses yeux profonds et ses
 lèvres minces. Comme il a souffert! Toute sa vie en
@@ -1316,7 +1071,6 @@ des Ternes, où nous avons couché aujourd'hui sur le
 bastion une pièce toute neuve. Nous l'avons baptisée.
 Elle s'appelle le Père Duchéne, et je vous jure qu'elle
 En route donc le lendemain matin pour la Porte des
-A mi-chemin de la place de la Concorde et de l'Arc
 de Triomphe, nous croisons le 85°, qui vient du Champde-Mars. Il va remplacer aux barricades de Neuilly le ue
 141°, qui se bat depuis une huitaine.
 Il y a là environ deux cent cinquante hommes, qui
@@ -1408,7 +1162,6 @@ Et je marchai, très tranquille, jusqu'au chemin de
 ï — Ah! vous êtes bien gentil d'être venu! Vous allez
 l'entendre gueuler, le vieux bougre! Le voyez-vous là-
 bas? Il n'a pas à se plaindre. Nous lui avons fait une
-place à part, là où il y a encore de l'herbe.
 
 L'énorme pièce était couchée sur le bastion, la gueule
 pointée sur Courbevoie.
@@ -1437,7 +1190,6 @@ Et puis, toujours debout, il nous a dit, avec un sacré
 
 — Il ne faut plus tirer sur le Mont-Valérien. Battez
 sur le rond-point,
-_ L'artilleur ajouta :
 
 — Du premier coup, ils ont crevé le tas de pierres.
 Moi, je regardais le général. Il a bien l'air d'un Polonais,
@@ -1463,9 +1215,7 @@ Quand je descendis, je les aurais tous embrassés.
 Devant ces héros au cœur simple, inaccessibles à la À
 peur, n'ayant souci ni de la gloire, ni de la richesse, je
 me sentais tout petit, presque indigne de serrer leurs
-|
 
-#
 Henriette la jolie cantinière
 
 Je n'eus pas besoin de me retourner pour m'assurer
@@ -1519,7 +1269,6 @@ par la Commune.
 vous convie à l'enterrement de nos frères assassinés
 par les ennemis de la République. Rendez-vous à deux
 heures, à l'hôpital Beaujon. L'inhumation aura lieu au :
-Père-Lachaise.
 
 Il n'était pas encore midi. Je rendis à Henriette sa
 liberté et lui donnai rendez-vous à l'hôpital.
@@ -1615,8 +1364,6 @@ Enfin, le cortège s'organisa. Lentement, après avoir
 
 5 quitté Beaujon, il descendit vers la Madeleine, par le
 
-Tous se découvraient.
-
 Seul, un homme campé sur les marches de l'église,
 garda sa coiffure.
 
@@ -1669,19 +1416,6 @@ Beaucoup versent des larmes. D'autres, qui veulent
 
 Je regarde ma petite cantinière. Elle marche très fière,
 en tête de sa compagnie. La pauvrette ! Ses yeux, gonflés, humides de pleurs, brillent comme une source vive.
-
-re | PAS RÈRS
-RAA een ie co RE Net DES ARE RE ENT SN AU ds ul ne Aie
-DA UP Rd RS Te LUS PAR OT) RATE EN tte RTE SRE dr E é
-de el MR NS Ne er SR CRAN ARE
-M  « Ra er ou de ne,
-où ER
-LE ER OI D Ne ART e ANT PR mn ee - LIRE PAM re
-UE on
-re Re PA oc RE DSP Ten NE TON 35 OMR ERIES
-AA PS RO IR ES ‘x NE es del ee (SSSR Reda ar É
-A en | PS SDS. COR DIE OS en de
-2 du. REA mie us deu A
 
 Vingt-cinq mars, le matin.
 
@@ -1748,8 +1482,6 @@ un papier. C'est notre appel. Était-il donc fait d'avance?
 Je lis, tout haut. C'est vraiment superbe d'allure, de î
 
 .… Aujourd'hui le vote! Sinon, demain le fusil !.….
-
-.. Pas d'abstention !
 
 Contre cette jeunesse dorée de 71, fils des sans-culottes
 de 92, je vous dirai done comme Desmoulins : {à
@@ -1856,8 +1588,6 @@ Nous l'avons rencontré le jour même de sa démission.
 — Prenez garde au Père Duchéne ! lui avons-nous
 dit, en riant.
 
-Et j'ai ajouté :
-
 — C'est moi qui ferai l'article. ;
 
 J'ai fait l'article.
@@ -1932,8 +1662,6 @@ N professeur, M. Haton de la Goupillière, pendant qu'il
 - trace à la craie sur le tableau noir ses intégrales,
 regarde voltiger la brochure. Enfin, elle me revient, et
 | je la fourre précieusement dans ma poche. Elle était
-| \ saisie de la veille. On ne la trouvait qu'à prix d'or.
-A Je ne revis Rogeard qu'à la défaite, le lendemain de
 l'entrée des troupes de Versailles. Le lundi 22 mai. Nous
 | avions décidé, Humbert et moi, de cesser la publication
 du Père Duchéne. Nous courûmes au Vengeur. Rogeard
@@ -2055,7 +1783,6 @@ toucher au Père Duchéne !
 — Allons! Allons! calme-toi, lui dis-je. Que diable!
 La guillotine n'est pas encore dressée sur la place de la
 Je courus à la délégation à l'enseignement, chez Vaillant, qui dicta à son secrétaire, Constant Martin, (2)
-|
 (1) Combatz (Lucien), chef de la 6° légion (14 mai). Fit partie du |
 () Constant Martin, secrétaire de la Délégation à l'enseigne-
 ê ment. À sa rentrée en France, se mêla activement au mouvement |
@@ -2126,7 +1853,6 @@ Les deux arrivants croient à quelque dispute.
 
 — Voyons, voyons, qu'y at-il donc?
 
-— Il y a... Nom de Dieu !.… Ce qu'il y a... crie Rigault,
 tempêtant toujours. Il y a que ce cochon d'Humbert
 dit du bien de Robespierre!
 
@@ -2166,8 +1892,6 @@ de nos plans d'avenir.
 — Et toi, Rigault?
 
 — Moi, je veux être un jour, procureur de la Commune, comme Hébert. (1)
-
-Et il le fut!
 
 () Hébert ne fut à la vérité que substitut du procureur de la
 Commune, qui était Chaumette.
@@ -2530,23 +2254,6 @@ Bien attrapé, le Père Duchéne!
 
 (1) Voir le numéro 36 du Père Duchéne (1°° floréal 59/20 avril).
 
-la oo Fa] ME jp. neue
-Faure ie ont ANA a non A tv Et TA "
-à ni JAN on cu . da i qu | AT
-su RUE Da Eu jh a ru LAN VAN FAN nou Nr LA DANAT
-a su oo) RAD APE HAN pou ie dut 1 FU ne b pue po
-NA 1e Te fé FRA KT à AA CUEX A, vi Ste CS ma EN |
-} ct ES (2 ON RNA SA À É PARU : Nr mA) die fc AE Ti
-“y ne FAR nu Ro) ca sa AR TS Du PA
-« ) Lo de 14 nl (TA PAU rs PE à Au nn Lt
-Ua Do D oo Un Li nn Ne
-4 En fa, AU Ai) At ve nt Er) NA PALAUES Eur As Que MU ANA des NAS ALU À HUAUE
-no no Ha re D FA A nine PE, Ne
-Re par VE A nu an A ra RER RUUT pi
-LS NI Hat ep \ A un de sel A pa At N
-j TU un à Hu Mon
-bal Ji ON ANUS
-
 Si nous formions un bataillon!
 
 Fin avril. Promenade à la porte des Ternes. Il nous
@@ -2567,7 +2274,6 @@ La Grande Déclaration du Père Duchéne aux citoyens
 de Paris, pour les avertir qu'il forme son bataillon de
 francs-tireurs, sous le nom des « Enfants du Père Duchêne », et qu'il en confie l'organisation au capitaine
 
-on 2) ne 2e RES MONTE ee
 quand nous faisions le Père Duchêne
 Pierre, qui est un bougre à poil, et qui foutra de
 
@@ -2576,7 +2282,6 @@ La déclaration promet des merveilles :
 Le Père Duchêne ne croit pas se foutre dedans en disant
 que ce bataillon-là sera un bataillon comme on n'en aura
 jamais vu, et qui sera composé de gaillards, il ne vous dit.
-que ça!
 
 À Nom de dieu! c'est le Père Duchêne qui va rigoler quand
 il va voir tous ses bons bougres avec le fourneau (1) gravé
@@ -2623,7 +2328,6 @@ terie et revolver. Bottes à la Souvarow!
 L'état-major se composait, en dehors du commandant,
 du capitaine trésorier et du capitaine adjudant-major,
 d'une commission de trois membres nommés par le
-- Père Duchéne.
 Ces trois membres, on le devine, n'étaient autres que
 les trois rédacteurs du journal — nous trois. |
 Je lis dans la Sociale que chacun de ces trois
@@ -2642,9 +2346,6 @@ moi, d'accrocher à notre ceinture le sabre de cavalerie,
 ni de rouler autour de notre échine la ceinture rouge
 
 Je le regrette toujours, est-il besoin de le dire.
-
-|
-Ça ne va pas!
 
 Eh bien! croira-t-on qu'avec de si belles promesses,
 le recrutement des Enfants du Père Duchéne s'effectuait
@@ -2755,7 +2456,6 @@ dans la cour. Ÿ
 Je suis venu avec Vermersch. Maître nous attend. ; }
 Un officier l'accompagne. Cet officier porte, épinglées à À )
 son uniforme, une rangée de médailles, Crimée, Italie, Ne
-— Le capitaine Samson. J
 
 . Nous n'avons ni le sabre de cavalerie, ni l'écharpe
 rouge à glands d'or. Mais Samson n'en fait pas moins à
@@ -2785,8 +2485,6 @@ de la lutte.
 
 — Il me faut de l'argent pour la solde des hommes.
 
-— Les voilà.
-
 Je ne sais comment, dans la débâcle des perquisitions, le reçu qu'il me donna dans l'arrière-boutique d'un
 cabaret de la rue Serpente, où nous allâmes déjeuner, à
 échappa aux gens de police.
@@ -2799,32 +2497,6 @@ Maître, tout en déjeunant, me raconte un curieux
 épisode de la lutte du matin, pendant que la fusillade
 s'échange entre les fédérés, barricadés au bas de la
 rue de Rennes, et les soldats qui occupent la gare Montparnasse.
-
-DHEA TS et SNS
-
-on no je Op JR RU Pet
-Le HR Pt DATE RAC UE DR er GRR AS ve Mur LANTA FETE
-Nha LES ass NÉ ET UE AE i Sa Rens SN
-D Ne RO NE NTM heu DR EMEAR NRA Du HE TUEUR CHE LE AA ti
-fi nus Do Er (M AU RUE ul de re AE M AE AU 4 ‘4 is
-Qui ÿ | LUN Fa NU ARE RUN dr ; Ha) cn UN Wa jo (Ne pt
-CE) Min LAN TEAN A SALE HR TINATEU US RUN TN | xt MAR:
-nn ARE Lt ES A Ne 1 AI UE \ÿ ARS aux
-AU ONE TN) VERS FA RTS RE SNS MACON UP PME AAA 1 A ki HR en OL ne
-oo \ | 4e as et UN ANA dre se MARNE
-K ANR M OASINTE ITR A DRE de A Na LA NUE \ tre AR À
-
-D CS ere 0 Le ONE AT PS PAR ETS TRES RE
-MATE NORGE BE QUE AN Te ve SR NAT ONE
-
-# RES d NS à! e & i wa + ve Mie HR ER PR |
-1% SEX si re Ce id ti DE GP RTS Ÿ
-D à 4 : RE hs +, LE NE See
-
-48 Mort DES an fs _ 2 NES
-
-RER ; NT SRE à 27 ra ects VS 47 1e + SE L'OEE
-3 DFSDCRRT NE EN PS ENIE EE RE PE ee
 
 Dans un kiosque à journaux dont une vitre est brisée,
 un homme est assis sur une chaise, confortablement. Un |
@@ -2878,7 +2550,6 @@ qui fait l'angle de la rue du Faubourg-du-Temple et de la
 rue de la Folie-Méricourt, contre le canal.
 
 J'y ai perdu plusieurs hommes. A la fin, voyant mes soldats épuisés par une bataille de quatre jours, j'allais demander du renfort a la mairie du onzième. J'avais fait promettre
-à S. et à B. de ne pas quitter leur poste et de maintenir
 leurs hommes, mais, en rentrant, désappointé et sans renfort, je ne trouvai plus que quelques gardes qui défendaient
 les barricades. Mes soldats, saisis de je ne sais quelle panique, s'étaient encore une fois dispersés. Trois seulement
 étaient restés. Le plus vieux pouvait avoir vingt ans.
@@ -2899,23 +2570,6 @@ comme moi, de ce monde. La moustache a blanchi.
 L'œil bleu brille toujours de la flamme des anciens
 
 (1) Aconin, capitaine au 248: bataillon, adjoint au maire du cinquième arrondissement (Panthéon).
-
-ASS he Jet A Nr LE as
-FR URES RO ON ES DS SN EN At Le ie
-PR ne en he :
-RÉ NES no De RU + se .. ‘
-o de RU ur. RU Ron) EEE
-PME A nee A AUS TER RS TES js
-1 9 PR none QUE Eu ten A D A
-Ha SON REND anre auto A TA MA LAN SAR Mu
-ne. ele REA ET) n in 5 LUE FOR En A
-Aie RU Ne RES RES 53 à è Libre à (AE De
-NÉE : ATEN EEE HN SE Meet DE Res
-a : Date DES PORC AR NE
-ni SES à He { (ae : à PANITENE FR ES v
- . un s $ LE À LAN ENEERERS ee RTE
-| a RE TRE MAN De REF x REA HAT EL TAENT Res Er AC el
-ue As Rss 1h LR ERA n° MESA TES | CRETE 6
 
 Dîner chez Rachel
 Premiers jours de mai. Trois heures. Le journal est
@@ -3078,7 +2732,6 @@ contumace, 3° conseil de guerre, audience du 20 novembre 1831.
 6 355
 
 quand nous faisions le Père Duchêne
-habituel de la rue de Seine (x) et je me réveillai dans un
 quartier envahi, avec des troupes dans les rues avoisinant
 celle où j'étais et des balles qui venaient s'aplatir au coin
 de mes fenêtres.
@@ -3335,22 +2988,6 @@ Police, souvenirs et anecdotes d'un ancien officier de paix. Paris,
 Dentu, 1881. Voir aussi mon article, Fausse monnaie, Médailles
 suspectes, paru dans l'Aurore du 11 juin 1907.
 
-Fr. ne as) RAT ANNE A Co Een tr PR M oe
-LE NC NE AR AA SE OISE en ME Ta 8) HE el onul MR es ACEN M) ;
-Hyi art HÉRre Ha ha ae ne ne
-Ne D nie Dos Ro
-ARE Er mere Re Ne Ut EPEE SE He et PAR EES PAU
-Ha D Mn ne une Re ITS &
-ee Un Re
-nt à LEARN EANES COS ET nr PRE ot
-den RTS: Roi) er Rai E AE RE sb LT x SA LÉ HR
-Dre LANTERNE ie NE RL ES D Le Menu
-HORPAUE ET L'Apis & pu Ÿ Ÿ ADR MES FERNITE LES
-HUE ir TRES M CRUE NU LENS LES TENTE
-Rd De udt dou Re CR ES
-eo de Ne SEE SRE En SUN
-ee ile EE ESA RL ee PL UE Ne QE ve S
-
 contenues dans ces trois cahiers
 Les noms soulignés sont ceux des membres de la Commune.
 Toutes les fois que le nom et le prénom
@@ -3360,7 +2997,6 @@ lon trouvera l'ensemble des deux. Ainsi
 Gonstant Martin se trouve à sa place à C.
 
 à mes cahiers rouges
-pe NE PT PTT RP OS OUI I SRI
 Notes et corrections. — Dans la notice page 37 Delescluse a été
 à porté membre de la Commune pour le 19° arrondissement; dans
 la notice page 143 il a été porté membre de la Commune pour le
@@ -3382,39 +3018,22 @@ devant, c'est à la lettre du prénom que l'on
 trouvera l'ensemble des deux. Ainsi André
 
 154. 214. 288. 312. 316. 358. 366. 176. 199. 198. 180. 197. 212.
-Fr ne Combault, — 163.
 227. 298. 299. 353.
 
-ae DES NOMS PROPRES CITÉS
 3 195. 211. 212.
 149. 151. 180. 184. 221. 347.
-> Enne. — 10. 266.
-
-ce
 
 164. 168.
 
 353. 358. 359. 360.
 
-£ 6 TE One VU te ORNE NUE USINE OR sis #
-
-ÿ De FLEX er à à es
 309. 31. 259. 260. 262. 263. 264. 265. 266.
 
 6 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce douzième cahier
 et pour vingt exemplaires sur whatman le mardi
 
-Le gérant : CHARLES PÉGuyY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
-
-PERTE 3 A4 Ke LR ER Dam Sy ie ANS: PNUD LE Se SPA TE NE
-PCA MAÉ pr rc ASE Pts De UN PE EEE AO LASER NT
-AD Ge Re LUN ÉLRES ee M we *} ra Le 0 Pere L'YATRE
-# E 1 ETINEQREE ? ; $ Se |: ER
-L'ESSENCE deal à De s 3 FATE GREEERS E a
-ie a ND M ARR ES 4e ; S s, 4 à A RIT ces Li! NET
-ca ke RARE PAGE V4 NE 2 ï ARE Rte NÉS RE 0 *
 
 Il a été tiré de ce cahier vingt exemplaires sur
 whatman ainsi distribués :
@@ -3429,47 +3048,16 @@ tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonn
 sur whatman en dehors de l'abonnement; l'abonnement
 sur whatman à cette neuvième série est de cent francs
 = pour tous pays.
-RER ee Vi np ne Li 2 \ ENCRES
 À Les Cahiers de la Quinzaine sont composés à la main,
 r en caractères fin dix-huitième siècle (Didot) de la fon-
 -  derie Mayeur (Allainguillaume et compagnie succes-
 ü seurs), 21, rue du Montparnasse, à Paris, sixième
-
-ere LAN ARTE ne AN A Re Ne ha ;
-
-à Les ee te Done Re
-
-Los de HSE Se Ée es ee
-
-: ns AU ne. Da RAR A PE
-
-FAO AERS in té r SAUNA Une He APRES Res
-it ous épaisse MR LASER) FEAT Ce Te) Ê
-
-EEE NE GUERRE ‘ f qe : ne ASE ee
-
-Ne Ce TRS de ) < a ne ns 184
-
-ne sa a 2. R SES
-
-eo Le. ms ro di EE 41 à ir on un.
-
-eu Ne $ . V2 “ à At) LS TORENTER ne
-
-ni ne So 0 RS un, AE
-
-ee Ne Fes DA AT è L ARTS HAE "2
-
-“el on CE Aire A RU MERE SRE ES 7 INSEE TR
-
-…. es ur. RE Los Mie DE MRETUTS MR TAN Du
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante ?
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième, de la quatrième, de la
 cinquième, de la sixième ou de la septième série. :
 
 Pour savoir ce qui a paru dans les cinq premières
@@ -3485,28 +3073,6 @@ Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinzaine en quinzaine,
 à leur date, les cahiers à paraître de cette neuvième
 
-| série.
-
-re PAR RE DIS
-2 au ne ER
-oi en ne Le nano en à A8:
-se Le Here one re De be LA) LS
-RER HEAR RAT à ee RAT En RS RQ Et A AE A
-fe se SA CS SRE ANNE ERA VAT ANR \ts Re TEAM re Né Aa
-NÉE Net ere A RUES AT DRE At ne ee HE EG | EN En)
-A ED RE FR RO ATO RL Oe NI ee Re
-eu Me TÉNREARE Ps Et +5 Ne FAR.
-NA IEEAS 2 AGE NE se ne it RUN ER
-
-6) Rares Re Ses LAERRE 15 et RUN 4 D COTE es D FC
-en 1 RS RS on A Un
-Rue ASS EN 1 Rte) ne pte RC Fe FRS ESS FA ABS
-
-no | Sel Se de D : TUE #
-
-NE à Pan
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, ls
 rez-de-chaussée, Paris, cinquième arrondissement. ;
 Nos Cahiers sont édités par des souscriptions men-
 : suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -3535,8 +3101,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 à méro d'inscription qui devient automatiquement le
 s numéro du tirage réservé à chacun des souscripteurs ;
 l'édition sur whatman est strictement limitée au
-
-de 13 RO APREES
 
 - Pour tout changement d'adresse envoyer soixante
 centimes, six timbres de dix centimes.

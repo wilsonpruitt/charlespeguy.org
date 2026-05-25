@@ -7,7 +7,6 @@ author: emile-vandervelde
 isAvertissement: false
 wordCount: 9002
 ---
-E Il y a quelques années, à la Chambre des Com-
 ! munes d'Angleterre, un des ministres de la Reine
 u s'écriait : « Nous sommes tous socialistes ». ‘
 ls On pourrait reprendre ce mot, en l'appliquant
@@ -175,7 +174,6 @@ fisant, mais dont la femme a quelque loisir, et ouvre
 une petite boutique, de préférence un petit qi
 l le plus commode à installer de tous les commerces} (|
 
-<OCIALISME ET COLLEGTIVISME nie à al !
 il suffit dé quelques chaises, de bis me ce
 de bière et de quelques litres d'eau-2e-vr°; da
 source complémentaire, la famille ouvrière arriv hi
@@ -234,7 +232,6 @@ grande partie de la production, tandis que la mue
 tude des petits métiers ne gouverne au contraire ‘1
 qu'une production relativement insignifiante. Pren- Fi
 dre le nombre des entreprises, pour juger du ne ta
-développement relatif de la grande et de la petite BF Ë
 industrie, c'est, à peu près, raisonner comme sil'on ji
 disait: ilexiste en France quatre grandes Compa- 24 L
 gnies de chemins de fer, etun nombre incalculable à
@@ -248,7 +245,6 @@ grande industrie capitaliste a l'hégémonie, et l'hé- Fe.
 gémonie incontestée, sur la plus grande partie des À Fe 2 ”
 popens C'est elle qui détermine les prix, qui Ü 2% x (
 ne ses sonénrents mal outillés, qui domine les ce À “E
-dont je parlais tout à Mae Ÿ on 3 dé
 amène des pays d'outre- L ste e enfin qui
 à bon marché, ruine l'i mer la production agricole Hi
 de industrie paysanne, substitu ëù
@@ -283,7 +279,6 @@ ompe, et j'en fai f
 à défenseurs du Capitali : 4 “+ 68 ExCuSeS aux :
 sme. Il n'est pas juste de di
 à Que tous ceux qui ne travai Faire
-: Qui ne travaillent Pas mangent t
 car il se trouve en réalité ln
 à Téalité, dans le monde actuel
 eux espèces de Sans-travail : ceux qui voudraient
@@ -304,7 +299,6 @@ vous et voyez le sort qui est fait àl'unetäl'autre.
 DO A celui qui ne veut pas travailler, lesvilégtrs
 méditerranéennes ; à celui qui n'a pas de travail,
 f: l'internement dans les dépôts de mendicité. .
-Son patron lui a dit un jour : je n'ai pu o Li
 vail à vous donner. Le voilà donc sans salaire; il
 ne trouve pas d'autre besogne; les jours PRATE
 
@@ -333,7 +327,6 @@ d'être sans travail et de n'avoir pas de maison!
 Mais il ne suffit pas de constater le fait; encore
 faut-il remonter aux causes et se demander pour- Di:
 ne dans notre état social, tout le monde n'a pas ki
-SES : de travailler et tout le monde n'a pas le Eh
 availler? C'est la même cause, d'ail- il
 ai Tu engendre cette double insufisne
 devoir et du droit. pa
@@ -350,7 +343,6 @@ je nant ils se reposent : ils ont conquis, par un travail
 { antérieur, leur droit à la paresse,
 Eh bien ! supposons qu'il en soit ainsi: suppoee sons que leur propriété ait été conquise par le tra-
 ... 4 vail, qu'elle ait des sources d'une pureté cristalline, !
-LE & qu'elle ne soit due ni à la fraude, ni à la spécula-
 ? 3 tion, ni même à l'héritage ; supposons qu'ils soient
 :. 8 vraiment les fils de leurs œuvres... ces travailleurs
 - a AL vertueux ne sont pas éternels ; suivant le mot du
@@ -500,7 +492,6 @@ de l'État, tel qu'il est organisé aujourd'hui. L'Étt,  Æ
 MMM OO  lection, un agglomérat complexe de personnes
 +0 morales ; l'État, c'est à la fois le ministre de l'in- È
 LS | struction publique, grand-maître de l'Université, le
-ministre de la justice, chef de la MAGIETANSS le
 à ministre de la guerre, chef de l'armée, le ministre
 de l'intérieur, chef de la police ; c'est un être Je
 
@@ -564,7 +555,6 @@ gique. Pour diriger cette énorme nn pe
 notre poÿr, il serait élémentaire feet
 homme du métier, à un homme qui a fait de sen
 trie des chemins de fer sa profession, à un ho
-SOCIALISME ET CoLLECTIVISME fl
 à re Jons de cette car- FA:
 qui aurait passé par tous les échelo
 une petite ville de province un avocat, Ne
@@ -627,7 +617,6 @@ compromise si ces industries, au lieu d'être exploi- ee fl
 tées par des Compagnies, étaient exploitées par Li !
 l'État? Lorsqu'il vous est arrivé de voyager sur le jh
 réseau de l'État, vous êtes-vous sentis moins libres ‘1
-que sur le réseau du P. L. M.? ou bien, si la muni- .
 cipalité de Paris, demain, se décidait à socialiser le
 service de l'éclairage, votre liberté serait-elle com- Li
 promise, parce qu'au lieu de tourner le robinet du
@@ -643,14 +632,12 @@ les stimulants tn point de vue : -
 rons encore les deux régi individuelle, et compa- jl
 gard le travail de l'ouvrier, Li
 
-ap Pas et le travail du chef d'ente
 Eh bien dit 8 direction. i
 ban te 0 0 faite du Système l
 Souvent à l'épuisement tas Jui conduittop
 vailleurs, dites-moi F stl
 tiative individuelle <e cacouragementà l'in. A]
 Te existent pour les travailleurs dans la a
-capitaliste actuelle? L 1 1
 Dès l'instant où ils en font tout juste assez pour
 ne pas être renvoyés ou mis à l'amende, quelintérét : À L'
 peuvent-ils avoir à travailler plus? Et, pour juger 1.
@@ -693,8 +680,6 @@ pou le chef d'entreprise, le dirécteur d'industrie, Len
 seu qui joue un rôle prépondérant dans l'exploita- h.
 “an , ici te Comparons les deux ré- #
 Aujourd'hui, dans
-dans les D É Her nb “à
-de concentrati _ 071 Ajà arrivées à un degré [l
 one. 7 CPitaliste telle, que Jour socio
 “son s'impose, peut-bn encore parler de l'initia.
 tive individuelle des propriétaires ? Qui donc tra.
@@ -747,8 +732,6 @@ Eh bien, pr k
 l'exemple des en ne
 hommes qui a arti ou is :
 de ss de ae à une classe dont je puis
-Pas sensiblement la . At 5 dépasse l
-(Rires et A TES Le) de l'humanité
 Supposez que demain ces hommes Soient appelés
 sous les drapeaux ; ou, plutôt, prenez l'exemple que
 nous avons sous les yeux, en Angleterre, On dit à (
@@ -829,7 +812,6 @@ cathédrales gothiques réservent leur chœur aux Li:
 ceuls ministres de Dieu sur la terre, n0$ maisons
 du peuple, nos cathédrales de l'avenir seront ' HR € f
 grandes ouvertes à tout le monde, à tous nos frères Le
-en égalité. (Applaudissements) LE
 Renan a dit quelque part qu'au début du Chris- À
 tianisme les églises étaient tout à la fois des hôtel-
 leries, des asiles, des lieux de réunion, où les pau- j
@@ -843,7 +825,6 @@ que nous devons bâtir des églises, je sous-entends f
 que nous ne devons pas construire des chapell
 (Vifs applaudissements) St ne
 
-Fun on nn dit tre ae .
 dégénérer en sectes rivales, d'autant plus he
 Et je voudrais vous dire, au nom du Parti ouvri
 belge, combien NOUS avons été heureux de voir, au
@@ -892,7 +873,6 @@ uen l'éclat de rire des Dieux güle jusqu'aux
 encore, Mercure lui prête sa flûte, et il Fi il il
 chante les misères de l'homme et les cri e, 1 D:
 dieux... Phœbus lui dit: Veux-tu se
-eux-tu la lyre?.. Et il : RES
 x qe lyre et il grandit, il devient grand
 se il devient grand comme Je
 monde, il se dres i
@@ -913,7 +893,6 @@ x, | (Vifs applaudissements et acclamations. Cris de:
 
 putes les Jois que NS deux correspondant
 leurs “ Es ntorisent nous les mettons en
-désirent et nous ; ROrISRRES il à chacur tn
 } à, c'est-à-dire que nous 4 DORE Ÿ
 communicatior adresse a La personne — qui reçoil [ E
 ‘ des deux le nom et l'adresse de 1@ J rech
@@ -979,7 +958,6 @@ Nous avions donc au 31 mars un
 Du 1 au 30 avril, les souscriptions et les: abanne. “4
 ments nous ont donné... .. _.. 609 fr e:
 Les frais généraux et l'établissement. ei
-n FU SE à itiè iers nous PAU RS
 des septième et huitième cahi 931 fr.Go
 LE Nous avons donc eu en avril un 322 fr. fo
 LT 0 Au 30 avril les ‘souscriptions et les 5.806 fre 65 40

@@ -7,40 +7,14 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 18986
 ---
-| | M
-| 0$ ROMAIN ROLLAND NA
-
 Ma vie de Michel-Ange
 \la vie de Michel-Ange
-|: RSR I. — L'ABDICATION É
 
 x Le VE paraissant seize fois par an &
 
-| à ce Le ie PARIS da:
 | 8, rue de la Sorbonne, au rez-de-chaussée
 
-RNA pan dE NA à va SP HS DURANT ENT PE
-Ne pe QU? À SLT PP LE PE E he AI Fa A Sn APE à FRA |
-
-> SES |
-
 185010
-
-146 LA VOTE Fe RTE FAR APT FA is à at RU 1} DE j à, LE
-| NE , 120
-| Mt: 5
-| y DD Sr 4 +
-| D Le L
-| |: TONNES ;
-| DOEX Ari 4
-| di: 10 FU “
-| r ‘HERO { 4
-| s ALES PEUR Là !
-| ; À Re + %
-| ER TER : à
-| À Ù te CE L
-| LPO à
-| 4: (RARE = Michel-Ange. — 7 à
 
 Nous avons publié dans nos éditions antérieures et :
 dans nos cinq premières séries, 1900-1904, un Si MU
@@ -70,7 +44,6 @@ Ce catalogue, in-18 grand jésus, forme un cahier M
 très épais de XII+408 pages très denses, marqué cinq ‘TA
 francs ; ce cahier comptait comme premier cahier de la nn
 sixième série et nos abonnés l'ont reçu à sa date, le me |
-Il NAS fi
 
 Ra 2 tobre 1904, comme premier cahier de la sixième ne: +4
 série; toute personne qui jusqu'au 31 décembre 1905 a
@@ -101,8 +74,6 @@ om ent, en tête de la série; nous l'envoyons contre un dr
 
 ÿ _ mar dat de deux francs à toute personne qui nous en ce.
 
-| Ja x la demande. F
-
 à F Pour Home série, sue ouvrière À Es 905, se S L
 
 ; je rer à o méme petit mie alphabétique. Pour la k
@@ -114,13 +85,6 @@ om ent, en tête de la série; nous l'envoyons contre un dr
 L'Æ | soirement, — la petite table analytique très sommaire ;
 joe NOUS avons publiée en fin de ce cahier index. 1
 
-& : se Le ES ee
-KA) S C ge je, ME TENEESS
-
-|: ENANR 2
-| d. ‘TAN $ ÿ ‘
-
-$ ne FAN nt
 Du même auteur, aux Cahiers de la Quinzaine : HITS
 Romain Rolland, — Aërt, — trois actes, — un volume 1,558 |
 1 en voie d'épuisement..:.::.........:....\septirancs Na je nn |
@@ -130,7 +94,6 @@ mie le Triomphe de la Raison, —trois actes, RTS
 —  — une introduction à une lettre inédite de ; D:
 ‘Tolstoi, adressée à Romain Rolland ........ un franc 193. PAS :
 — — Le 14 juillet, action populaire, — trois # "4
-‘ ACTOR) eee sseeseveneescsess MOIS FTANCS CINQUANTE TON à
 —  — Vies des hommesillustres,— Beethoven, | UNE
 avec le masque de Beethoven, — un cahier épuisé, 1 rase
 n'est plus mis en vente que dans les collections com- * K'020
@@ -140,13 +103,9 @@ R — deuxième édition, sans le masque ... deux francs 212 Rent.
 —  — Le temps viendra, — trois actes........ He.
 ù it Mube Théâtre du/Peuple/-. "Eee te ‘5
 
-om IES DES HOMMES ILLUSTRES | 1 CE A
 Romain E olland, — Jean-Christophe. — I. — L'aube.. tar 2!
 JE à. ts trois francs cinquante 319 V2
-L  — — Jean-Christophe. —1. — L'aube, — édi- o
-ei D  —  — Jean-Christophe. — II. — Le matin; la LEUR)
 ummort de Jean-Michel; Otto; Minna................... : ti
-“es 4 —  — Jean-Christophe. — II. — Le matin, — 14
 ES Sa édition Ollendorff ................. trois francs cinquante \t a
 We _ —  — Jean-Christophe. — WI. — L'adolescent; \ k
 7. à a — — Jean-Christophe. — II. — L'adolescent, ‘
@@ -154,13 +113,9 @@ We _ —  — Jean-Christophe. — WI. — L'adolescent; \ k
  brse et l'énumération de cette œuvre, se reporter au ‘10
 | volume que M. Romain Rolland vient de publier à la de
 Librairie de l'Art ancien et moderne, dans la collection Ms
-1 te Maîtres de l'Art, collection de monographies d'ar- j !
-di à Les Maîtres de l'Art. — Roma RorranD, — Michel- ni
 He) » Ange, — un fort volume carré in octavo de 184 pages, 4
 . ca K Le même, avec un cartonnage artistique en toile... ‘4
 AU volume est en vente à la librairie des cahiers. Ÿ #8
-
-kl ns È QE DE
 
 la vie de Michel-Ange
 
@@ -171,28 +126,11 @@ we la vie de Michel-Ange. — I. — la lutte; Michel
 #0 Ange; la force; la force qui se brise; le désespoir;
 (2€ une reproduction du portrait de Michel-Ange par # KE
 à À Marcello Venusti, musée du Capitole, Rome.
-ne NE
 Si Comme on va le voir ci-après, la pagination du
 #4 présent cahier, deuxième partie de la vie de Michel- Din
 2 Ange, fait suite à la pagination du cahier rappelé
 15 ci-dessus, première partie de cette même vie. \ 2 US
 
-LA HARNGNI7 Aa GPS ne ARE EEE EE à
-A FLN TANT TEE pts 24
-
-FES MERE : Les
-
-| RO ENS NEES ! 5
-
-RAR NE dr | R Met
-
-CNE PR ee Et fe PS l'ATRORE po D ERNST € CPE ANA PM MINE TASER PRES
-ets c CET E FER
-Ge Res Le
-
-sh A2 Mn tar en U ‘ f L? Fe
-
-_ RS T° me la morte, in te La vita mia. (1) 5
 AS Alors, dans ce cœur dévasté, après que le renonce- 3
 ment fut accompli à tout ce qui le faisait vivre, une vie À
 
@@ -209,16 +147,13 @@ _ est bien fait pour déconcerter la moyenne des esprits, 53
 _  — honnêtes ou malhonnêtes. — Même dans l'Italie de ;
 x, la fin de la Renaissance, il risquait de provoquer des È
 _ interprétations fâcheuses; l'Arétin y faisait des allu- É
-| (D Poésies, LIX. 1
 
 la vie de Michel-Ange
 sions outrageantes. (1) Mais les injures des Arétins — 7 |
-(il y en a toujours) — ne peuvent atteindre un Et |
 Michel-Ange. « Ils se font dans leur cœur un Michel
 agniolo de l'étoffe dont leur propre cœur est fait. » (2) 4
 | Nulle âme ne fut plus pure que Michel-Ange. Nulle M
 à n'eut de l'amour une conception plus religieuse. TES
-je
 de l'amour; et ceux qui étaient présents disaient qu'il n'en ee
 parlait pas autrement que Platon. Pour ma part, je ne sais nn
 pas ce que Platon en a dit; mais je sais bien qu'après avoir ; 3
@@ -244,7 +179,6 @@ dei Cavalieri. Il laissait croire qu'elles étaient adressées à une à
 femme. Jusqu'aux récents travaux de Schefler et Symmonds, Cava- D
 ; lieri passait pour un mom supposé, qui cachait Vittoria Colonna. ii
 (2) Lettre de Michel-Ange à un personnage inconnu (octobre sÈ
-| +54
 
  volera tun morceau de moi-même. Jusqu'au danseur et au SA
 … joueur de luth, s'ils étaient éminents dans leur art, qui feraient 3
@@ -275,7 +209,6 @@ ke cœur la statue ébauchée. È
 4 … Le plus ancien de ces amants idéaux, de ces rêves '
 
 la vie de Michel-Ange A Rr |
-|
 
 vivants, fut Gherardo Perini, vers 1522. (1) Michel-Ange ; |
 s'éprit plus tard de Febo di Poggio, en 1533, et de |
@@ -323,7 +256,6 @@ plus de dix ans après Cavalieri. Cecchino était fils d'un banni florentin, et 
 d'un idéalisme idolâire, si l'on peut dire, et dont quelques-unes sont 4
 d'une sublime beauté. Ce sont peut-être les poésies les plus som- 2.
 bres que Michel-Ange ait jamais écrites. — (Voir aux Annexes, XIII) |
-#4
 
 EN Par dessus tous les autres, sans comparaison, il aima, ‘32
 dit Vasari, Ê |
@@ -340,7 +272,6 @@ E Ne non seulement une incomparable beauté, mais tant de grâce :
 — 1532. La première lettre, par laquelie Cavalieri répondit À
 2 2 . 2 . .
 …— aux déclarations enflammées de Michel-Ange, est pleine 4
-_ de dignité: 3
 ! ni) J'ai reçu une lettre de vous, qui m'a été d'autant plus chère ‘
 —_ qu'elle m'était inattendue; je dis : inattendue, parce que je :
 - ne me juge pas digne qu'un homme tel que vous m'écrive. : Ne
@@ -391,7 +322,6 @@ de donner le nom des choses dont un homme fait présent à celui di
 qui les reçoit; mais par égard aux convenances, cela n'arrive pas À
 dans cette lettre. » — Il est clair qu'il s'agit dy mot : amour. f:
 
-|! S'ASATERUES à
 A: n'est égal ». Il lui fait don de tout son présent, de tout se
 _ son avenir; et il ajoute : p:
 Ÿ 7 Ce m'est une douleur infinie de ne pouvoir vous donner ÿ
@@ -423,7 +353,6 @@ fn (2) Brouillon d'une lettre de Michel-Ange à Cavalieri (28 juil- F
 a (6) Lettre de Michel-Ange à Cavalieri (28 juillet 1533). L
 ke (4) Lettre de Michel-Ange à Bartolommeo Angiolini.
 Rx 6) Lettre de Michel-Ange à Sébastien del Piombo. n
-# PEN É
 
 la vie de Michel-Ange "+
 dans les cercles littéraires et connus de toute l'Italie. (x) |
@@ -459,7 +388,6 @@ vis avec mille et mille morts en chaque heure. O Dieu! Comme la
 dire Michel-Ange à Cecchino dans une de ses épigrammes funé- \
 (3) Poésies, CIX, 19. Voir aux Annexes, XIV. ;
 
-WE + an PIS INRA Sur pr} NY PEN po AE PShatré | | #2
 ; l'un aime l'autre, et si aucun ne s'aime soi-même, s'ils metL tent tous les deux leur plaisir et leur joie à aspirer à la
 . même fin tous deux, si mille et mille amours ne seraient
 É pas la centième partie de l'amour, de la foi qui les lie, un
@@ -484,7 +412,6 @@ Michel-Ange joue sur le nom de Cavalieri :
 Resto prigion d'un Cavalier armalo.
 (Je suis prisonnier d'un cavalier armé.)
 (4) Il desiato mie dolce signiore..
-(5) Un freddo aspetto.…
 (6) Le texte exact dit : « Ce que toi-même tu aimes le mieux en
 
 a vie de Michel-Ange LATE |
@@ -504,7 +431,6 @@ d'une femme, qui sut comprendre ce vieil enfant, |
 seul, perdu dans le monde, et fit rentrer dans son 4
 
 : âme meurtrie un peu de paix, de confiance, de raison, 1]
-et l'acceptation EE de la vie et de la mort. 4
 
 C'était en 153 et 1534, (4) que l'amitié de Michek
 
@@ -527,8 +453,6 @@ portent ses pieds de eige. — (Voir aux Annexes, XVII) "1
 
 (4) Surtout entre juin ef octobre 1533, où Michel-Ange, revenu à à
 Florence, était éloigné de Cavalieri. 3
-
-Vu F NA ki ji ‘ RTE PRET A (ee js 7 Fr ai de un de: FR 454
 
 H io prince d'Urbin. Sa race était une des plus nobles d'Italie, 1
 …. une de celles où s'était le mieux incarné le lumineux 4
@@ -576,7 +500,6 @@ _ Mitioria dans un étrange dessin de Michel-Ange, au revers d'un 4
 
 la pie de Michel-Ange 2
 Filonico Alicarnasseo, qui la connut et écrivit sa vie,
-# ” . ” |
 j laisse entendre, malgré tous les égards d'expressions ; |
 dont il use, qu'elle était laide : « Quand elle fut mariée |
 au marquis de Pescara, dit-il, elle s'appliqua à déve- |
@@ -628,8 +551,6 @@ par les prédications de Bernardino Ochino de Sienne; (3)
 évêque de Vérone, qui fut un des premiers à tenter la rénovation
 de l'Eglise catholique. Le secrétaire de Giberti était le poète Fran-
 
-| cesco Berni.
-
 (2) Juan de Valdès, fils d'un secrétaire intime de Charles-Quint, et
 établi à Naples en 1534, y fut le chef du mouvement réformateur.
 Nobles et grandes dames se groupèrent autour de lui. Il publia de
@@ -642,8 +563,6 @@ Saint-Esprit. Il mourut en 1541. On dit qu'il eut à Naples plus de
 {3) Bernardino Ochino, grand prédicateur, et vicaire général des
 capucins, en 1539, devint l'ami de Valdès, qui subit son influence ;
 malgré les dénonciations, il continua ses prêches audacieux à
-
-î DES "re
 
 la pie de Michel-Ange HR 2
 elle fut l'amie de Pietro Carnesecchi, (1) de Giberti, |
@@ -699,8 +618,6 @@ idées protestantes sur la grâce.
 
 (3) Citées par Henri Thode. k
 
-TE Sn UE Adi RAA ASE ri AS LR AVE LES
-
 : 20 l'Amour : — une règle qui ramène tout à Dieu et au bien À
 …  Vittoria fut une des âmes les plus exaltées de ce petit de
 … groupe idéaliste, où s'unissaient les plus pures con- À
@@ -715,9 +632,7 @@ de contre-réforme, dirigé par l'impitoyable Caraffa, (1) 24
 #1 l'autorité de l'Église. « Elle se faisait souffrir avec des #
 - … jeûnes, des haïres, tant qu'elle n'avait plus que la peau ‘à
 sur les os. » (2) Son ami, le cardinal Pole, (3) lui rendit 3
-… la paix, en l'obligeant à se soumettre, à humilier l'or- Fe
 À gueil de son intelligence, à s'oublier en Dieu. Elle le fit :
-# J
 FE (1) Giampietro Caraffa, évêque de Chieti, fonda en 1524 l'ordre #4
 _ des Théatins, et, à partir de 1528, commença à Venise l'œuvre de 4
 k contre-rélorme, qu'il devait poursuivre avec une implacable À
@@ -847,14 +762,9 @@ ce qui le piqua vivement: François dit, d'un air vexé : Ÿ
 Vraiment, le plus sûr moyen de n'être pas vu de quelqu'un
 consiste à se mettre droit en face de ses yeux. ;
 
-| LEO ot RCE a 20 4 LE ae MA SES se!
-
-de ET AMOUR %
-
 ROUE Michel-Ange, étonné, le regarda, et s'excusa aussitôt, A.
 avec une grande courtoisie : ‘4
 : 7 — Pardonnez, messer Francesco; en vérité, je ne vous Go » avais pas remarqué, parce que je n'avais d'yeux que pour +4
-“ _ la marquise. T0
 Cependant Vittoria, après une petite pause, commença,
 Fr | avee un art qu'on ne pouvait assez vanter, à parler de mille Fa
 -… choses, d'une façon adroïte et discrète, sans toucher à la : 77
@@ -887,7 +797,6 @@ he. c'est-à-dire les œuvres de vos mains. Mais je ne loue pas ;
 moins que vous vous retiriez si souvent à l'écart, fuyant nos <
 3 conversations inutiles, et qu'au lieu de peindre tous les \ « J
 
-MR Te one LURS CE PR CS EU Led à MARNE à « +: POS ra
 la vie de Michel-Ange ee
 princes qui viennent vous en prier, vous ayez consacré |
 presque toute votre vie à une seule grande œuvre. |
@@ -929,7 +838,6 @@ de Médicis. A cette occasion, un cortège triomphal, — douze chars <
 à l'antique, — défilait sur la place Navone, où la foule s'écrasait. 3
 Michel-Ange s'était réfugié avec ses amis dans la paix de San-
 
-#4f 12
 . point. La crise religieuse par laquelle passait la marN quise de Pescara les rompit brusquement. En 1541, elle
 quitta Rome, pour s'enfermer dans un cloître, à Orvieto, 2]
 puis à Viterbe. À
@@ -963,9 +871,6 @@ de Vittoria, et qui sont nobles sans doute, mais un peu froides.
 — 11 faut penser que de toute cette correspondance, nous ne possé-
 dons plus que cinq lettres, d'Orvieto et de Viterbe, et trois lettres,
 (2) Reproduit dans le Michel-Ange de la collection des Maitres
-| de PArt.
-
-de
 
 la vie de Michel-Ange NA RTE
 le Christ herculéen a rejeté avec furie la lourde dalledu
@@ -991,7 +896,6 @@ poésies. Ses amis Luigi del Riceio et Donato Giannotti lui en don- ne |
 nèrent l'idée. Jusque-là, il n'avait pas attaché grande importance à 4
 ce qu'il écrivait. Giannotti s'occupa de cette publication, vers 1545. F
 Michel-Ange fit un choix parmi ses vers; et ses amis les reco- ù
-pièrent. Mais la mort de Riccio, en 1546, et de Vittoria, en 1547, le Ts
 détourna de cette idée, qui lui sembla une vanité dernière. Ses poé- à
 sies ne furent pas publiées de son vivant, sauf un petit nombre, ‘à
 qui parurent dans des ouvrages de Varchi, Giannotti, Vasari, etc. ‘4
@@ -1174,7 +1078,6 @@ d de se retirer à Urbin, qui était un lieu paisible, et où il
 \ espérait être bien vu, en souvenir de Jules IT : il y avait
 —_ déjà envoyé, dans cette intention, un de ses gens pour , ;
 4 acheter une maison. (2)
-ni î
 # Mais, au moment de se décider, la volonté lui man- à
 “ quait, comme toujours; il craignait les conséquences & $
 de ses actes, il se flattait de l'éternelle illusion, éter- 1
@@ -1223,11 +1126,8 @@ enroulé autour des jambes, au milieu d'une montagne 4
 de diables. Biagio se plaignit au pape. Paul II se
 moqua de lui: « Si encore, lui dit-il, Michel-Ange l'avait |
 mis au Purgatoire, j'aurais pu faire quelque chose pour
-te sauver; mais il t'a placé en Enfer; et là, je ne peux |
 rien : en Enfer, il n'y a aucune rédemption. » (2) 4
-|
 
-dur Ne QAR np UNE EN En A MT PARC PEL LIVRE AT RE MEN
 k° _  Biagio ne fut pas le seul à trouver indécentes les 1
 peintures de Michel-Ange. L'Italie se faisait prude; et le n
 … temps n'était pas loin où Véronèse allait être traduit !
@@ -1263,7 +1163,6 @@ Michel-Ange avait décliné poliment cette offre de collaboration « étrange, e
 voulut montrer à Michel-Ange ce qu'il en pouvait coûter de lui
 (5) Une comédie de l'Arétin, l'Hipocrito, fut le prototype de Tar- |
 | tuffe. (P. Gauthiez : l'Arétin, 1895) h
-| TU
 
 la vie de Michel-Ange "50
 Ange; (1) et, pour achever, il l''accusait d'avoir volé à
@@ -1332,7 +1231,6 @@ Pierre), auxquelles Michel-Ange travailla depuis 1542, furent interrompues par d
 la fresque, n'est pas un art pour les vieillards ».
 (3) Ce devaient être d'abord le Moise et les deux Esclaves ; mais
 Michel-Ange trouva que les Esclaves ne convenaient plus au tombeau ainsi réduit, et il sculpta deux autres figures : La Vie actice et
-la Vie contemplative (Rachel et Lia). 4
 
 la vie de Michel-Ange : FETE
 de Jules IT continuèrent de lui réclamer âprement l'ar- 4
@@ -1367,9 +1265,6 @@ Du moins, c'était fini. Michel-Ange était délivré du
 cauchemar de toute sa vie. 1
 (:) Lettre à un Monsignore inconnu (octobre 1542). (Lettres, édi- Î
 
-NES ul PA du j A FA à ji Na dl ra NA mn ie HAL à dl
-
-ni ÿ l HA
 tre Contra l'inutil mie cieco tormento. @ 4
 [4 k Son désir eût été, après la mort de Vittoria, de "12
 “_ revenir à Florence, pour « coucher ses os fatigués, à : 1100
@@ -1458,7 +1353,6 @@ aimait, comme lui, Michel-Ange, régna du 8 février 1550 au 23 mars
 Marcel IL. Il ne régna que quelques jours; et Paul IV Caraffa lui
 succéda, le 23 mai 1555,
 
-| : "SR
 la vie de Michel-Ange En |
 
 « Contre ma volonté, j'en ai été chargé, dit-il. Voici É|
@@ -1639,7 +1533,6 @@ autre chose que pour m'épuiser à déchiffrer tes gri- è
 Défiant de nature, et rendu plus soupçonneux encore l
 par ses déboires avec ses frères, il se faisait peu d'illu- }
 () Elle épousa, en 1538, Michele di Niccolô Guicciardini.
-(2) Une propriété à Pozzolatico.
 (3) Cette correspondance commence en 1540. FN
 
 _ sion sur l'affection humble et flagorneuse de son neveu: à
@@ -1672,7 +1565,6 @@ ra moi. Donc va avec Dieu, et ne te présente plus devant mes ?
 
 É étaient généralement suivies de lettres affectueuses et : 4
 
-ÿ de cadeaux. (2) Un an plus tard, il se précipitait de 4
 { nouveau à Rome, alléché par la promesse d'un présent À.
 
 ÿ de 3.000 écus. Michel-Ange, blessé de son empressement 4
@@ -1724,10 +1616,8 @@ prendre l'une ou l'autre, pourvu qu'elle soit noble et bien ]
 (1) L'amore del tarlo! 4
 
 Il ajoute : « Il est vrai que, l'an passé, je t'ai tant semoncé que È
-tu as eu honte, et tu m'as envoyé un petit tonneau de Trebbiano. ;
 Ah! cela Ca assez coûté!.. » La
 
-ie ÿ L fr
 vivre en paix... (1) Un Florentin m'a dit qu'on t'a parlé d'une fi
 | fille de la maison Ginori, et qu'elle te plaît. Il ne me plaît |
 à pas à moi que tu prennes pour femme une fille que le père 1
@@ -1748,7 +1638,6 @@ qu'on lui découvre un vice rédhibitoire : É
 J'apprends qu'elle a la vue basse : ce qui ne me paraît À
 pas un petit défaut. Aussi je n'ai rien promis encore. Puis- À 4
 que tu n'as rien promis non plus, mon avis est que tu te L
-dégages, si tu es certain de la chose. (3) 1:00
 | Lionardo se décourage. Il s'étonne de l'insistance que è
 son oncle met à vouloir le marier : t.
 Cela est vrai,
@@ -1789,7 +1678,6 @@ DRE Deux mois après, au lieu du collier promis, il envoie \
 sain, alors il est mieux de te résigner à vivre, sans mettre au 1
 monde d'autres malheureux. » (Lettres, 24 juin 1552) - |
 
-Je REA NRA ÿ: id FA TAN TNTA ed Has 14 as
 . deux bagues à Cassandra, — l'une ornée d'un diamant, 4
 …._  lautre d'un rubis. Cassandra, en remerciement, lui wi
 2 Elles sont belles, surtout la toile, et elles me plaisent fort. ,

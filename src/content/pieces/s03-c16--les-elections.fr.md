@@ -91,8 +91,6 @@ que cette consolation.
 D'abord c'est un symptôme grave pour la santé de la
 République et pour la santé du pays que la répétition
 
-1: HAN FA P LE Lan re
-
 ? décennale des mêmes crises. Quand même les crises n'iraient pas s'aggravant, quand même elles resteraient
 . égales,ce seraitunsymptôme évidemment grave queleur
 simple répétition. Pour qu'il y eût amélioration de l'état
@@ -153,7 +151,6 @@ aussi peu le décennat qui vient que le décennat quis'en
 est allé, nous serons de grands insensés devant le
 ; pays et de grands coupables.
 
-ss LES ÉLECTIONS
 Par l'effort des antiministériels, et surtout des nationalistes, la bataïlle à fini par se livrer à peu près partout entre les ministériels et les antiministériels. Ainsi
 ‘ engagée, elle s'est terminée par un certain agrandisse-
 ; ment des ministériels et un certain amoindrissement
@@ -264,7 +261,6 @@ bandes réactionnaires ; aujourd'hui qu'il n'y a plus de à
 gendarmes et que les bandes réactionnaires ne sont
 plus les plus fortes, je vais commencer par vous expli- û
 quer ce que c'est que l'affaire Dreyfus. Vous verrez par ge.
-là si j'ai eu raison d'y agir comme j'ai fait. Et ü s'est
 hautement glorifié auprès d'eux d'avoir été l'un des promoteurs dreyfusards. Il a littéralement traité son élection, conduit sa campagne sur le mode suivant: Gloire
 à moi. Gloire à moi parce que je fus et que je suis ù
 resté un dreyfusard. Ainsi le grand orateur pratiquait
@@ -275,7 +271,6 @@ Jaurès candidat parla comme s'il n'y avait jamais eu
 d'amnistie. Et tout se passa dans la deuxième circonscription d'Albi, Tarn, exactement comme s'ilny
 avait pas eu d'amnistie. En réalité ce ne fut pas son
 élection de 1902 que Jaurès fit en 1902; ce fut son élection de 1898, ajournée en 1898 pour cause d'accident,
-qu'il fit en 1902.
 
 Cette méthode réussit; elle devait réussir; on
 embèêta les autres candidats républicains du département et de la région avec Paffaire Dreyfus, dont ils
@@ -401,8 +396,6 @@ sous le nom de radicalisme. Il y a des radicaux et
 des radicaux-socialistes qui nommeront si l'on veut
 M. Doumer président de la République afin d'intéresser
 le redoutable M. Doumer à la conservation de la répu-
-
-| blique. j
 
 Les nationalistes ont gagné beaucoup. On nous dit:
 Tant mieux! puisque c'est aux dépens des progressistes. Il faudrait savoir d'abord si ce ne fut pas souvent
@@ -647,7 +640,6 @@ autour duquel se sont agrégées deux ailes d'éléments d
 étrangers, une aile gauche de défense républicaine,
 une aile droite, extrême souvent, d'opposition réactionnaire. C'est ici un cas particulier de la duplicité guesdiste, l'inertie déterministe, l'inintelligence fataliste,
 limmoralité, la déloyauté du mal maximum; quand il
-y a du bon dans la société présente, on s'en empare au À
 nom de la société future ; et quand il y a du mal dans
 la société présente, on déclare que c'est tant mieux à
 pour la société future. Le
@@ -743,8 +735,6 @@ mieux vaut des têtes. Mieux vaut dans une assemblée
 avoir Méline qu'un méliniste, Waldeck-Rousseau qu'un
 Waldeckiste, Clemenceau qu'un clemenciste, Guesde
 qu'un guesdiste, et Jaurès qu'un rédacteur à [a Petite
-
-‘ C'EST Lite ts
 
 Personnalité. On a voulu nous faire de lPélection
 Pressensé une élection éminente. C'est déjà beaucoup
@@ -889,7 +879,6 @@ députés ils ne changent pas, sinon pour déployer encore
 plus d'énergie chaque jour. À
 M. Psichari n'en sait rien. C'est là une assurance que
 
-Mig! LES ÉLECTIONS
 l'on ne peut avoir qu'après épreuve. Nous en reparlerons
 dans quatre ans.
 
@@ -1001,7 +990,6 @@ Nous avons fait ce travail pour Jaurès, nous ne pouvons pas ne pas le faire pou
 
 Témoignage personnel. Autant que personne j'estime
 le calme courage de Pressensé. Je n'examine rien de ce
-qu'il était avant l'affaire, de ce qu'il fit, de ce qu'il
 écrivait. Depuis le commencement de l'affaire nous
 connaissons toute sa bravoure froide. Aucun de nous
 jamais n'oubliera les expéditions que Mirbeau, Quillard et Pressensé firent dans la plupart des provinces
@@ -1016,7 +1004,6 @@ dreyfusisme en France et que je demande à compléter.
 
 On veut limiter l'effet de ma recherche. On veut opposer la décomposition du dreyfusisme aux dreyfusards À
 qui sont devenus partisans de l'amnistie. J'ÿy consens.
-| LES ÉLECTIONS
 Mais d'abord il ne faut pas que ce soit à l'avantage
 
 . des citoyens qui n'ont pas été dreyfusards du tout.
@@ -1083,7 +1070,6 @@ même ampleur. C'est l'affaire Jaurès. Par une singulière
 coïncidence l'accusé ici était aussi accusé de trahison.
 Il n'était pas accusé d'avoir trahi son pays au profit de
 l'étranger ; il était accusé d'avoir trahi la République,
-le socialisme, la liberté, au profit de l'Église et de la
 réaction. Trahison qui serait capitale aussi. L'accusation était formelle. On ne la présentait pas comme une
 injure usuelle de politique, de polémique et d'élection,
 L'accusation était formelle et tous les jours paraissait
@@ -1252,8 +1238,6 @@ exception, c'est la leur.
 C'est toujours le manquement à la parole donnée, le
 manquement à l'institution librement consentie. d
 
-à jt LES ÉLECTIONS
-
 (ie Or je crois que rien au monde, argent, talent,
 _ | théorie, dogme ou casuistique, ne vaut une institution.
 Rien ne les force à faire de la lutte de classe; mais,
@@ -1261,7 +1245,6 @@ s'ils en font, qu'ils en fassent sérieusement.
 Or je ne suis pas suspect d'aimer la lutte de classe,
 mais je me représente ceux qui en font sérieusement.
 Je ne me représente absolument pas qu'on en fasse en
-amateur. L
 - Ainsi au point de vue socialiste révolutionnaire au
 premier tour la candidature Pressensé faisait division.
 Mais au point de vue moral au second tour Francis de
@@ -1321,7 +1304,6 @@ Bourgeois; et pour ne pas avoir un ministère Bourgeois,
 il fallait mettre M. Bourgeois à la présidence de la
 Chambre. Vous m'entendez. Ce sont là combinaisons
 que l'on entend, quand on veut. Le malheur est que
-Waldeck s'en va. Que devenir ?
 
 On m'assure que pour comprendre un article de
 Pressensé il faut désormais se reporter à la Petite République de la veïlle. Pressensé ferait la contre-partie
@@ -1599,8 +1581,6 @@ ce que je nomme de la politique ; et c'est en ce pre- ‘3
 mier sens que je dis que Pressensé fait de la politique.
 Survinrent les élections. Brusquement on se débarrassa de Gohier. Nous publierons bientôt le dossier de
 
-en LES ÉLECTIONS
-
 cette affaire. Des pièces que nous publierons, des renseignements que j'ai, des renseignements qué nous aurons quelque jour, il semble malheureusement résulter que
 l'expulsion de Gobhier fut un coup de politique. Entre
 qui fut-elle concertée ? Vaughan adopta brusquement
@@ -1707,8 +1687,6 @@ et l'efficacité des responsabilités politiques. Dans les con"
 jonctures actuelles, l'intérêt majeur de la cause républicaine demandait un grand débat dans lequel le passé eùt
 été mis en pleine lumière et l'avenir dégagé. à
 
-4 pe k LES ÉLECTIONS
-
 : La Chambre est novice. Elle vient à peine de naître.
 
 _ Toute assemblée a besoin, à ses premiers pas, d'une main
@@ -1738,9 +1716,6 @@ amis de Lagardelle, de ceux qui ont tout fait, qui ont
 risqué la rupture même et l'inimitié pour l'empécher de
 tomber dans la politique et dans le journal, ou de ceux ”
 qui, parce qu'ils y avaient avantage, l'y ont encouragé.
-
-> nue pa! MAN EN }: } DS Rue mis AO, fa er De AAC pe
-FA TRS AU ONE) " W (ant LEA ei) je An NU) ne Nu AN AE fe
 
 Nous pouvons évaluer à cinq mille francs le dommage que les élections nous auront causé, par abaissement de recettes; nos souscriptions ont baissé d'un
 millier de francs presque; nos abonnements anciens
@@ -1923,8 +1898,6 @@ Pour que nos cahiers gardent leur autonomie, nous
 
 ‘A exigeons que les titulaires des parts soient de nos abon-
 
-| nés un
-
 Les parts ne porteront pas intérêt.
 
 Elles ne seront pas remboursables.
@@ -2070,7 +2043,6 @@ in-18 de 24 pages o franc
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
 
-Nous servons
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
 et des abonnements de propagande à huit francs.

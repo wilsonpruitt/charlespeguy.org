@@ -45,7 +45,6 @@ il ni venant du dehors ne pouvait causer de mal à per19e je sonne. (1) C'est au
 h Lo se lavent jamais.
 | 0 35. Demande. — Est-il vrai que rien de ce qui entre
 f ‘4 k . dans le corps venant du dehors ne peut nous causer
-‘1600 de dommage ?
 
 ‘4 ; Réponse. — Non. Les germes de maladies, les gaz
 LR putrides, les nourritures toxiques ou les substances
@@ -64,7 +63,6 @@ Je cultivaient la malpropreté comme une vertu ne se rappelassent
 4 cette célèbre parole de Jésus.
 
 38. Demande. — Mais si Jésus était Dieu, n'a:t-il pas
-eu le droit de faire ce qu'il voulait ?
 
 Réponse. — Si c'est la réponse, alors il est absurde
 que nous ayons une opinion quelconque en ce qui le
@@ -97,10 +95,7 @@ comprenons pas aussi ses contradictions.
 42. Demande. — Que fut l'enseignement de Jésus
 touchant le mariage? |
 
-# Ep Ni MAT “ Ut
 1 le monde Sans Dieu £
-|
-#
 Réponse. — Il préférait le célibat (x) etrecommandait
 l'exemple de ceux qui deviennent eunuques (2) pour |
 R l'amour du Royaume des cieux. (3)
@@ -135,8 +130,6 @@ fl préféré, tandis que les protestants, qui croient au mariage, montrent
 # (5) Matthieu, V, 12; et aussi : « Heureux ceux qui sont dans l'afflic-
 \ tion, car ils seront consolés. » (Matthieu, V, 4.) — « Vous êtes bienheuMN) reux, pauvres, parce que le Royaume des cieux est à vous. Vous êtes
 
-: se LES ENSEIGNEMENTS DE JÉSUS
-
 45. Demande. — Quel serait l'effet d'un pareil enseignement ?
 
 Réponse. — Pendant qu'il aiderait peut-être quelques
@@ -170,18 +163,14 @@ rassasiés. Vous êtes bienheureux vous qui pleurez maintenant, parce
 (1) Comparer à la parabole du blé et de l'ivraie qui grandissent
 ensemble jusqu'au jour de la moisson.
 
-Le TA NS AE ES De re AN Qi
 Y le monde sans Dieu...
-LE À M Ra Van
 à 49. Demande. — Est-ce une bénédiction d'être pauvre, #
-qu ce
 nr faible et misérable ?
 40 Réponse. — C'est un grand malheur.
 M 50. Demande. — Que devons-nous faire alors ?
 pr) Réponse. — Faire tout au monde pour améliorer
 oi: notre condition, dès à présent et ici-bas. ;
 Br 51. Demande. — Résumez les vues de Jésus au sujet
-14 de la justice. :
 1 Réponse. — Ceux qui possèdent leur récompense
 . maintenant, comme le Riche, par exemple, rouvriront
 71 les yeux en enfer; tandis que ceux qui, comme Lazare, ï
@@ -191,14 +180,11 @@ EL souffrent ici-bas, iront dans le sein d'Abraham. (1) *
 ‘# s Réponse. — Oui, il a parlé en termes d'une vertueuse
 ‘+ indignation contre tous ceux qui, sachant le bien, pré- !
 ‘1 fèrent le mal. t ;
-#14 ù À N
 # 53. Demande. — Dans l'ensemble, l'influence de Jésus à
 2 at-elle été bonne ou mauvaise ? '
 K Réponse. — Ses paroles d'amour et de bonté ont par- }
 ‘i fumé les siècles, mais ses doctrines théologiques ont Le
 1 causé beaucoup de haïne et d'effusion de sang. $
-
-L'Église
 
 4. Demande. — Définissez le mot « église ». ;
 
@@ -237,9 +223,7 @@ PE, montre que l'esprit de tolérance gagne du terrain.
 1 7. Demande. — Quelles causes contribuent à cette
 “. Réponse.— L'instruction et le commerce; et aussi les à
 ne efforts et les exemples d'hommes et de femmes coura- À
-il) al ‘
 Le 8. Demande. — Quelle est l'Église Chrétienne la plus 6
-on ù ñ is E'
 ji: Réponse. — L'Église Catholique. 3
 ‘à « 9. Demande. — Comment l'Eglise Catholique est-elle |
 AN: Réponse. — Elle fut organisée à peu près à l'époque |
@@ -250,7 +234,6 @@ Mo chrétien et le protecteur de l'Église Catholique.
 
 YEN (2) Cf. Jules Simon, la liberté de conscience, pages 32-35. ;
 
-nt L'ÉGLISE
 10. Demande. — Quelle sorte d'homme était-ce ?
 Réponse. — Il était à la fois cruel et faible. Parmi
 beaucoup d'autres crimes, il assassina sa femme et son
@@ -356,9 +339,7 @@ ut : Réponse. — Il fonda une nouvelle Église, dont il
 k. devint le maître absolu, et qui lui laissa faire ce qui
 ï 24. Demande. — Quel est le nom de l'Église, d'Amé-
 x Réponse. — L'Amérique n'a ni Église d'Etat ni Eglise
-ce és je 2
 a 25. Demande. — Toutes les Églises y sont-elles tolé-
-Le rées ?
 ‘ Réponse. — Oui, et toutes les religions; mais tandis
 À qu'en Amérique l'État ne confère à l'Église aucun droit
 14 propre, — en exemptant d'impôts les biens des Eglises
@@ -419,7 +400,6 @@ feu que par des arguments. L'Eglise dans ce temps-là revendiquait
 
 le droit de tuer tous ceux qu'elle ne pouvait pas convertir. Cf. Story
 
-Sa ! FA HAVE Prat:
 À le monde sans Dieu 4
 31. Demande. — Pourquoi l'hérésie n'est-elle pas
 4 dénoncée de nos jours avec autant de véhémence qu'au
@@ -429,8 +409,6 @@ honnête vaut mieux qu'une croyance aveugle. (1)
 peut-il savoir comment croire?
 | Réponse. — Pas avec intelligence.
 Q 33. Demande. — Comment appelle-t-on la foi qui est
-| inintelligente ?
-Réponse. — La superstition.
 34. Demande. — Analysez et définissez la superstition.
 Réponse. — Attribuer à un objet des vertus ou des
 "4 pouvoirs qu'il ne possède pas estune superstition.
@@ -439,15 +417,10 @@ Réponse. — Attribuer à un objet des vertus ou des
 ! corps une chaîne, une image ou un crucifix en croyant
 ; qu'il possède des pouvoirs bienfaisants ou des vertus.
 
-#.
 1 36. Demande. — Comment appelle-t-on un objet
 1 investi de vertus imaginaires ?
-! Réponse. — Un fétiche.
-| HE
 \ @) I y a plus de foi vivante dans un doute honnête que dans la
 à moitié des credo. (Tennyson.)
-
-L'Église libérale (1)
 
 4. Demande. — En quoi les Églises libérales diffèrent-elles des orthodoxes a
 
@@ -467,7 +440,6 @@ libérales ne suivent ni la Révélation ni la raison exclusivement, mais elles 
 peu par toutes deux. '
 
 Fà le monde sans Dieu VPN
-| ï
 1 \ 4. Demande.— La Révélation ne peut-elle se concilier
 1 avec la raison? 4
 à Réponse. — Quand la Révélation s'accorde avec la
@@ -505,7 +477,6 @@ beaucoup des âmes.
 Réponse. — Elles n'augmentent pas numériquement,
 mais leur influence a été grande dans le monde religieux. (1) Elles ont obligé les orthodoxes à délaisser
 bien des croyances et des pratiques enfantines ou ridicules, et ont contribué à ramener l'attention des fidèles
-de la théologie à la science, à la philosophie et à la
 morale. Les Églises libérales ont rendu à la religion
 le service inestimable de l'arracher aux dialectiques
 . stériles pour la ramener aux réalités concrètes.
@@ -579,9 +550,7 @@ la chose.
 à le monde sans Dieu
 26. Demande. — Que font de l'argent ces Savants
 : Réponse. — Ils l''emploient pour les nécessités du
-| corps.
 \ 27. Demande. — Les Savants Chrétiens croient-ils au
-| Réponse. — Non.
 ? 28. Demande.— Que doit être un jugement impartial
 ne sur la Science Chrétienne ?
 à Réponse. — Comme tous les systèmes humains, il
@@ -624,9 +593,6 @@ l () « Rien n'éloigne un homme de la science et de la sagesse
 n'existe pas de surnaturel, il est inutile de donner ici un exposé
 
 - plus complet de la philosophie de ces Sociétés indépendantes.
-
-ne CHAPITRE XI
-F Les « credo »
 
 1 1. Demande. — Qu'est-ce qu'un credo?
 
@@ -732,7 +698,6 @@ ne sion d'une dénomination d'Église ou d'une secte, et la
 
 ds hommes sont damnés. |
 1 k 46. Demande. — Parlez-moi maintenant du symbole
-4 de Nicée.
 
 ‘ Réponse. — Celui-ci a été formulé par une assemHN blée de 318 évêques dans la ville de Nicée, près de …
 he { Constantinople, en l'année 325. Ce concile a excom-
@@ -779,7 +744,6 @@ Don! gens de penser ?
 # Réponse. — Elle peut seulement les empêcher d'ensei3 gner ce qu'ils pensent.
 24. Demande. — Que sont des gens qui pensent une
 1 chose et enseignent une autre ?
-\ Réponse. — Des hypocrites.
 j 25. Demande. — Que s'ensuit-il ?
 É Réponse. — Que le seul résultat de la coercition est
 he de faire des hypocrites.
@@ -788,7 +752,6 @@ nr \ Réponse. — Le symbole de Westminster, formulé par |
 hi. une assemblée consistant en cent cinquante membres
 n choisis et réunis par un Act du Parlement en 1643 pen
 ‘1 dant le court règne du Presbytérianisme en Angle-
-# ©
 
 27. Demande. — Quelles sont les idées dominantes
 de ce Symbole?
@@ -862,8 +825,6 @@ des connaissances grandissantes de l'homme.
 À entre un credo fondé sur l'autorité et un autre fondé sur
 
 û la science.
-
-| 2 LM) .
 
 | Réponse. — L'un est fini, l'autre grandit encore ; lun
 

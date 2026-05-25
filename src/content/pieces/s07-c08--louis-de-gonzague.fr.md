@@ -9,8 +9,6 @@ wordCount: 3286
 ocrSource: "Trimmed 2026-05-25 from prior conflated OCR. Original file contained Spire poetry (now in et-vous-riez.fr.md) + this Péguy editorial back-matter."
 translationNotes: "ATTENTION : Ce texte n'est PAS l'essai *Louis de Gonzague* (sur le saint Louis de Gonzague) que la table des matières du cahier annonce à la p. XIII. Il s'agit de la matière éditoriale de Péguy à la fin du cahier (errata, *Les suppliants parallèles*, note sur Gapone). Le vrai essai *Louis de Gonzague*, qui commence au feuillet 19 du volume archive.org `s7cahiersdelaquinz08pg`, reste à OCR-iser."
 ---
-
-Charles Péguy 2. PANNE
 Même cahier, page 46, premier paragraphe, c'est é
 moi qui ai commis la phrase suivante : « Et lui-même =
 Leconte de Lisle, voici comme on m'écrit qu'il nomme à
@@ -276,8 +274,6 @@ sache l'orthographe, j'entends qui la sache exactement
 
 et pleinement. Mais que les hérétiques ne se hâtent
 
-si _ Charles Péguy TES
-* point de triompher : nul homme ne la sait. Et il n'y a. Dee
 É pas de raison pour que les auteurs et généralement les :
 hommes soient plus forts ailleurs qu'ils ne le sont dans de ,
 cette maison. Je ne connais pas un homme qui ne soit
@@ -358,7 +354,6 @@ Pe qu'il.faut réserver toutes ces recherches, toutes ces
 
 que je me suis permis d'annoncer.
 
-ESS : Charles Péguy LES
 Les suppliants parallèles. — Dans le Matin daté du Ë
 mercredi 13 décembre 1905 et paraissant ce même
 jour, il a paru un entretien avec Gapon, plus ou moins 2 :
@@ -386,10 +381,3 @@ singulier, pour nous Occidentaux, pour nous Français, 4
 dans tout ce qui vient non seulement du mouvement 7
 russe, de ce mouvement russe, mais généralement *
 de tout le caractère et de toute la vie de ce peuple.
-
-PO nn MU re AL UE Ne
-Re re HAUSSE PSN À x E-To SES L 52 ETES
-ni, BU Le TAPER
-LE TI #0 ÉSSTRCREES F Ldeucries
-È ECS ET En ie pate i 7e Ÿ 2 SERRES
-ER PE en COTE PSE ES RE NE AS EE MC rie

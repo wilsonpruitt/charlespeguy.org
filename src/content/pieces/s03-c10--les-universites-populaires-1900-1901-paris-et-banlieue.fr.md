@@ -7,29 +7,12 @@ author: charles-guieysse
 isAvertissement: false
 wordCount: 16444
 ---
-ROLE CE pe
-
-nes ne EST "+ « ÿ CU" D
-| x " 4% UE “+ s F :1 Ke EAN 1 e
-Ps Fra à F TTL Cereal le: 77 red Dr $
-Me" A AL TD RM ET ie, it
-ALL PE NT EE voue + Too : TR SU Made E te onieuE CAHIER DE LA OÈME SÉRIE
-
 les Universités Populaires
 1900-1901
-| — PARIS ET BANLIEUE
 + paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-# : PARTS. =
-
-ee "+ sa
-
-| | n LA
-| | R mer: (ane
-
 les U. P. Paris-Banlieue 1900-1901
-| 2 1 1%
 
 LR Toute la copie de ce cahier nous a été fournie par la L
 Société des Universités Populaires. PNR te
@@ -63,7 +46,6 @@ prendre la parole. Le besoin senti crée ainsi l'organe
 W toutes conçues sur un type uniforme; elles sont très
 Fi diverses, s'adaptent aux circonstances et au milieu,
 
-6 Les Universités Populaires 1900-1907
 elles proportionnent leurs moyens d'action à leurs
 ressources, aux exigences de ceux qui les fréquentent;
 les unes ont un local à elles où elles tiennent leurs
@@ -87,7 +69,6 @@ s'adapte aux besoins de la région, au degré de culture
 de sa pleine indépendance, qui semblent s'ignorer, ne
 L sont pas, à dire vrai, étrangers les uns aux autres;
 4 tous se sentent liés par un lien qui, pour être moral, °
-F n'en est pas moins fort. Les U, P. de Paris et de la ban- È
 # lieue ne sont pas fédérées, rattachées à un même organe À
 À central qui coordonnerait leur action; mais elles se
 4 connaissent et librement collaborent : chaque mois À
@@ -124,11 +105,9 @@ ns appellent à eux ceux qui savent, parce qu'ils pressentent
 & Les intellectuels répondent à cet appel. Ils vont au
 F peuple sincèrement, sans arrière-pensée, parce que,
 
-Les Universités Populaires 1900-1907 f
 eux aussi, ont besoin de lui, parce qu'ils veulent lui ‘
 confier ce qu'ils ont de plus précieux, les biens sans
 lesquels il ne vaudrait plus la peine de vivre. Ils voient î
-ce qu'il y a d'absurde et de monstrueux à entretenir de
 parti-pris, au sein d'une société, une armée de barbares Ë
 qui peut l'emporter d'assaut dans un jour de fureur et .
 d'ivresse. Pour sauver de la civilisation ce qui pour
@@ -186,7 +165,6 @@ de produire des effets sans cause. Ils veulent commencer quelque chose, se mettr
 multiples, sérier les questions et les efforts; ils calculent leurs forces, ils tiennent compte des résistances
 ils s'instruisent au contact des faits, ils apprennent que
 
-Kéd Les Universités Populaires 1900-1907
 L ces faits ont des lois qu'on ne viole pas impunément, et
 ils veulent la science qui permet l'action efficace. D'ailï leurs ils ne renient ni ne trahissent leur foi ancienne, L:
 ve ils ne renoncent à aucune de leurs espérances, ils pas- È
@@ -194,10 +172,8 @@ ve ils ne renoncent à aucune de leurs espérances, ils pas- È
 Le: l'utopie à l'idéal, s'il est vrai que l'idéal soit l'idée conçue dans son rapport au possible, c'est-à-dire aux con-
 : ditions qui permettent de la réaliser.
 é Le peuple ne demande pas aux intellectuels un idéal
-| nouveau, il a un idéal, il y tient et il s'y tient ; il leur .
 a demande une méthode et des moyens d'action. Grande
 3 serait l'illusion de ceux qui iraient lui parler du besoin à
-se de croire et d'espérer: il croit et il espère. Mais il i
 4 ; refuse de transporter désormais ses croyances et ses .
 Dis: ‘espérances dans l'au-delà des paradis inaccessibles,
 #1 dont la vaine promesse a bercé sa misère, alors qu'il
@@ -309,8 +285,6 @@ fassent l'éducation morale et sociale de tous ceux qui
 ! future et préparant des hommes capables et dignes de
 _ la réaliser.
 
-7 Lo, ë Les documents que l'on va lire ne se rapportent qu'à
-
 “ des Universités populaires de Paris et banlieue. Il est
 
 % naturel de classer ainsi, en un premier groupe, les à ‘ U. P. parisiennes.
@@ -335,7 +309,6 @@ V tion actuelle, elles montrent les résultats de l'hiver
 À Pour se documenter sur les U. P., on demandera à la
 ' Société des U. P. la brochure qu'elle a éditée directe1 ment et qui contient les notices pour l'hiver 1899- à
 
-La Fraternelle, III: arrondissement
 Nous avons un local spécialement affecté à VU. P. du
 troisième; sa situation est assez bonne, puisque nous
 sommes dans le quartier le plus populeux, et le plus avancé
@@ -363,7 +336,6 @@ Kr) avoir plus encore de ressources anormales, car si la régularité
 ÿ des premières nous rend de grands services, l'irrégularité
 des autres est largement compensée par leur valeur réelle.
 
-Les Universités Populaires 1900-1901
 Les membres adhérents apportent une moyenne de
 50 francs par mois (soit 100 cotisations), les membres actifs
 à peu près autant; ce qui donne en somme 100 francs
@@ -424,7 +396,6 @@ conférenciers étrangers à la maison. Le Conseil d'adminis4 tration a réussi 
 ( méthodique dirigé par des professeurs de la Sorbonne et de
 Ÿ l'École normale, qui ont accepté les fonctions de délégués.
 À Chaque délégué a assuré le service hebdomadaire de son à » è : « 4 At 2. 2% ‘4 L
-LE Les Universités Populaires 1900-1907
 groupe d'études, en collaboration avec un membre ouvrier.
 5 : Autant que possible les sujets appartenant à une science
 déterminée, à un même ordre de recherches, ont été traités
@@ -493,8 +464,6 @@ L: sont constitués, groupes de camarades et d'amis unis par
 HS la similitude des occupations et des goûts, attachés les uns
 ‘Æ: aux autres par la pratique journalière de la vie en comæ mun : groupes pour les soirées dramatiques et musicales,
 
-#4 Les Universités Populaires 1900-1907
-
 F pour l'allemand, l'anglais, l'escrime, pour les études pro4 fessionnelles et techniques. D'autres associations déjà for-
 ' mées sont venues nous demander asile (groupe des Jeu8 nesses socialistes). Enfin, jugeant stérile l'œuvre d'éducation
 4 démocratique qui s'adresse à l'homme et néglige l'enfant,
@@ -525,7 +494,6 @@ A pense être ainsi restée fidèle au programme qu'elle s'était
 + autant que de l'organisation matérielle, elle est passée de
 E la phase des essais et des tâtonnements à celle de la
 -
-i Lu et approuvé en séance du comité d'administration, le s
 
 Sur l'initiative de quelques camarades, une première
 réunion eut lieu le 19 mars dernier. Les journaux l'avaient
@@ -561,10 +529,8 @@ ps prochain notre organisation nous permettra de faire
 &: Actuellement l'élément bourgeois domine plutôt dans nos
 . nieurs, employés de commerce, voyageurs); le milieu où
 
-es Les Universités Populaires 1900-1907
 # nous nous fondons va, pensons-nous, nous permettre d'y
 ES associer largement l'élément ouvrier manuel; c'est le but
-4 de l'U. P., et c'est indispensable à sa réussite.
 ja Ceci ne peut encore être qu'un simple avis de naissance.
  ” L'enfant se porte bien, à nous de le faire vivre!
 } Au mois de novembre 1900, un appel fait à tous les F
@@ -587,7 +553,6 @@ Rv soit de particuliers, soit de sociétés démocratiques, lui
 7 avec décors, coulisses, etc….., grâce à laquelle il est offert
 $ aux familles des adhérents des distractions hebdomadaires
 (IR ‘ où elles peuvent trouver le repos des fatigues de la
-L semaine.
 qe: C'est dans ces détails matériels que se manifesta de
 af suite l'esprit des nouveaux « universitaires ». Chacun, en
 HA effet, y mit du sien; les frais, grâce à la collaboration
@@ -628,7 +593,6 @@ h C'est le secret de l'avenir.
 | quoique jeune encore, a prouvé ce qu'il est possible de faire
 avec de la volonté, lorsqu'on marche dans la voie du progrès par la science et la raison.
 | Le Contrat Social, Université Populaire des quartiers
-de Chaïllot et de la Porte Dauphine (XVI°)
 La première préoccupation du Comité d'administration à
 la fondation du Contrat Social, U. P. du seizième, fut non
 seulement de répandre l'éducation et l'instruction supérieure
@@ -686,11 +650,9 @@ A campagne, soit aux bains de mer, que certains d'entre eux
 FI rompront avec l'usage et viendront en été discuter avec
 … le travailleur beaucoup plus heureux, car les journées sont ‘4
 
-Res Les Universités Populaires 1900-1907
 # longues, le soleil est chaud, et le chômage beaucoup moins Ÿ
 À Et c'est là que nous serons heureux de constater que les
 à intellectuels ont aussi bien la volonté pratique quel'énergie
-E de la parole. “fi
 A L'Éducation sociale de Montmartre
 He: La marche de notre U. P. qui a été créée en mars 1900, Ë
 4 à s'est poursuivie très régulièrement.
@@ -700,7 +662,6 @@ LT peu des cartes de famille, C'est ainsi que l'U. P. comporte
 Re aujourd'hui cent quarante cartes personnelles et cent vingt
 A" cartes de famille. Si l'on compte que la carte de famille
 ÿ ë correspond à au moins trois personnes, on peut dire que
-* rences de l'U. P.
 FA Des conférences suivies ont été organisées; elles ont
 ro parfaitement réussi, et nous persistons à penser que c'est
 A là la méthode qu'il y a lieu d'appliquer généralement dans
@@ -726,7 +687,6 @@ retiennent le soir à la maison. JE
 Elles resserrent les liens d'intimité qui unissent tous les “4
 Nous n'avons rien à ajouter aux indications données à
 dans la notice de l'année dernière en ce qui concerne *
-l'organisation et les ressources de l'U. P. Ÿ
 La Maison commune, XIX° arrondissement à
 Notre U. P. doit sa naissance à la collaboration de quelques ouvriers socialistes et de quelques bourgeois du B.
 « modèle » qu'on a coutume d'appeler désormais des intellectuels.
@@ -742,12 +702,10 @@ bourgeois. On vota les statuts, d'après le modèle proposé
 par la Société des U. P. Enfin grâce aux dons que nous
 S avions recueillis, on put arrêter un local qui serait bien à
 nous, une grande boutique de la rue Mathis, tout proche
-ù de la rue de Flandre.
 $ Les travaux nécessaires furent faits pour l'approprier à À
 ; sa destination, et notre salle prit un aspect clair et gai
 4 tout à fait engageant.
 
-| Les Universités Populaires 1900-1901
 \ Désirant faire de notre inauguration une solennité
 ( publique et... grandiose, nous décidàmes qu'elle aurait lieu
 x non dans notre local que nous jugions trop étroit, mais
@@ -785,8 +743,6 @@ samedi seules remplissent régulièrement notre salle qui
 | faire des promenades. Nous avons organisé aussi pour les
 grandes personnes des promenades instructives ou sim-
 
-| plement amusantes.
-
 A la suite d'un incident l'assemblée générale s'est pro-
 
 | noncée d'une façon formelle contre toute politique de parti.
@@ -795,7 +751,6 @@ La libre discussion des opinions a créé entre nous une estime mutuelle, et le 
 
 Û tous, traduit bien la cordialité des relations qui règne dans
 
-| 1 — PARIS ET BANLIEUE
 Fondation Universitaire de Belleville F
 | La F.U. B. n'est pas à proprement parler une U. P.:
 Créée par un groupe d'étudiants, organisée d'ailleurs bien- ,
@@ -810,7 +765,6 @@ l'élève. Toute l'organisation de la F. U. B. a été dès l'abord
 en relief deux organes qui, chacun de son côté, y répondent
 plus particulièrement, et par suite constituent l'originalité
 3 de la F. U. B.: les résidents et les groupes d'études.
-On a parfois,en parlant de la F. U. B., méconnu l'utilité
 ; des « résidents » et l'on s'est étonné de l'importance que
 s nous attachions à cette création. L'article 8 de nos statuts
 4 dit en effet : « Le rouage le plus important de l'association,
@@ -872,7 +826,6 @@ be questions qu'on traite tel soir de suivre plus aisément
 Le ration, d'étudier la question au préalable, de faire quelques :
 F: lectures spéciales et d'apporter à la discussion qui suivra à
 …_ l'exposé des arguments müris. Les groupes d'études de la
-‘D F. U. B. correspondent en somme assez exactement à l'or- à
 ÿ ganisation des études supérieures, à la Faculté des lettres
 “ parexemple, et surtout à l'École pratique des Hautes Études.
 _ Il convient de noter ici que tous les groupes n'ont pas eu À
@@ -898,7 +851,6 @@ permanente : il se dissout de lui-même quand il a achevé
 | - (groupe pour l'étude de Shakespeare), etc.
 | % Conférences. — Un jour par semaine est réservé aux KE
 
-% Les Universités Populaires 1900-1907
 4 récits de voyages, conférences de propagande, données par
 : diverses sociétés (Ligue contre la tuberculose — Société pour
 4 l'arbitrage entre nations ; — contre le blanc de céruse, etc.) !
@@ -953,7 +905,6 @@ d'été, excursions aux environs de Paris. — II. Au point de
 vue de la propagande et du développement des ressources
 financières : 1° Création d'un journal périodique, soit spécial
 À à la F. U. B., soit partagé avec d'autres U. P. et vendu aux
-membres de la F. U B. 2° Développement de la buvette
 3 dans le sens d'une coopérative de consommation.
 L Résultats acquis. — La F. U. B. dont l'élaboration
 ] remonte à la fin de 1898 a ouvert ses portes le 5 no- À
@@ -973,10 +924,8 @@ l'appel de notre camarade Ch. Charpentier exprimant avec
 ù prétendions exercer à Belleville, la grandeur des leçons
 1 que nous y recueillions, ont applaudi l'allocution de
 
-# Les Universités Populaires 1900-1907
 7 M. Ernest Lavisse disant, en des paroles que la plupart des
 nv journaux ont reproduites, la « nécessité d'un progrès vers
-Ve la justice », et montrant la collaboration à la F. U. B. comme
 4 un moyen d'y tendre efficacement.
 de C'était là un précieux encouragement : il en est un
 x meilleur encore pour les membres de la F. U. B., c'est de
@@ -1039,7 +988,6 @@ _ la mener à bien.
 * il était assez difficile de s'attendre au milieu d'une popu- j
 —…_ lation cléricale et militariste comme celle de Vincennes. L
 
-Les Universités Populaires 1900-1907
 vs Depuis nous avons toujours été en augmentant, sauf pen-
 % dant la période de mauvais temps.
 Nous avons dit que l'Émancipation de Vincennes se
@@ -1075,15 +1023,12 @@ Ke en aurait cerlainement qui s'intéresseraient à notre œuvre
 NL : et qui viendraient grossir le nombre de nos adhérents. C'est,
 à croyons-nous, une question à étudier.
 
-A nos FAR
-| Germinal, Nanterre s
 Ce que nous disions de « Germinal » au mois de juin
 | dernier, dans la notice parue dans le bulletin n°2 de la
 Société des U. P., n'a guère changé depuis; notre public *
 ; est presque exclusivement ouvrier et notre programme est
 _ de faire œuvre d'éducation mutuelle, laïque et sociale.
 d Pourtant, depuis le mois de juin 1900, notre champ s'est
-| sensiblement étendu.
 Ë D'abord « Germinal » a organisé une grande fête cham_ pêtre à laquelle ont été conviées toutes les U. P. de Paris
 - et de la banlieue, et cette fête a eu un succès tel qu'il a dépassé toutes nos espérances; ensuite, Nanterre a élu une
 …_ municipalité cléricale, militariste, nationaliste, et ces deux
@@ -1105,7 +1050,6 @@ k petit jardin d'agrément devant, un grand jardin derrière,
 3 Un camarade sous-loua le premier étage pour lui et sa famille, et nous pûmes ainsi nous établir d'une façon jusqu'à un certain point coopérative; notre camarade bé- néficiant d'un loyer très modeste pour l'emplacement dont il disposait, et nous, ayant l'avantage d'avoir quelqu'un à
 … demeure qui pût entretenir le local, et dont la femme d ! #“
 
-} A Les Universités Populaires 1900-1907
 it voulüt bien s'occuper du service de la bibliothèque et du th prêt à domicile.
 | De deux des pièces du rez-de-chaussée nous fimes une
 
@@ -1149,12 +1093,10 @@ rades de « Germinal ».
 Le côté qui laisse certainement le plus à désirer de notre
 m0 | petit groupement, c'est le point de vue budgétaire, car nos
 
-| (4 OR | NHEATUE
 ” 1 frais d'installation et l'augmentation de nos frais de loyer 3e
 we _ sont durs à couvrir, mais nous avons bon espoir et bonne
 ? confiance et sommes persuadés qu'avec ces deux facteurs “EN
 fe on arrive à tout.
-t L'idée, Puteaux
 & L'Université Populaire de Puteaux s'est constituée au mois
 k: de novembre 1900, date à laquelle le développement de ces BE
 œ institutions était déjà'très prononcé. À
@@ -1205,7 +1147,6 @@ x; da et pensant qu'il n'y avait pas de raison pour que Levallois_ - Perret rest
 Le social créé dans la grande cité parisienne, entre quelques À
 1e camarades que les événements de ces dernières années
 A ; avaient fait se connaître et s'estimer, nous avons fondé en
-Pen mars 1900 la Vérité. x à
 11 La longue période électorale qui survint peu de temps
 : 254 après retarda beaucoup notre première organisation, si ü
 È bien qu'en été étant encore trop peu nombreux pour solliPNR citer le concours de conférenciers, nous fimes appel aux à
@@ -1251,16 +1192,12 @@ le nouvel immeuble de l'Alliance des Travailleurs, société
 LE ais nous désirons donner un second jour de conférence h
 dans la semaine, quand même nous devrions rester où nous k é
 
-AP ed ee OU OST
-Au di Les Universités Populaires 1900-1907
 ;. ip sommes actuellement, mais nous espérons bien d'ici là
 Rs trouver un local, ce qui nous permettrait de nous installer
 te chez nous et d'atteindre par cela même le but que nous
 “E poursuivons tous, qui est, nous croyons, d'offrir à nos amis
 1 un lieu de réunion où l'on trouve le bon enseignement qui d
 ul": réconforte la raison, et la saine distraction si nécessaire à
-ÿ: la détente et au repos de l'esprit.
-\ L'Avenir, Colombes
 Nous regrettons infiniment que les idées de solidarité et
 Le d'humanité ne suscitent pas dans l'élément laïque des
 « dévouements et des générosités semblables à ceux dont
@@ -1322,8 +1259,6 @@ LS de nos concitoyens, en interprétant quelques-unes de ces
 nt + belles poésies qui prédisposent à comprendre et à aimer la
 ‘4 vie en la voulant rendre meilleure à tous.
 
-AR D ed ns ide Fe SCENE x Mie es LA QUESTION BUDGÉTAIRE
-
 PUR Les principales difficultés que rencontrent les U. P.
 
 :\ de Paris sont d'ordre budgétaire. Ces mêmes difficultés
@@ -1372,9 +1307,7 @@ H en ce sens qu'il permet l'accumulation des cotisations en he retard, et éloig
 _ peuvent débourser 2 francs 50 ou 3 francs d'un seul coup
 ll +. La perception de la cotisation peut-elle se faire autrement, | Eu
 _ à domicile par exemple? je ne le crois pas, avec l'orga
-__ Pourtant on a vu telle U. P. de banlieue, à la veillede
 | payer un terme, sans un sou en caisse, réaliser la somme
-NE Fa en quelques jours en établissant la perception à domicile M, il
 “He des cotisations arriérées. 1 Le mie
 nn _ Cest là une précieuse indication qu'on aurait tortde
 __ Mais la cotisation à l'U. P. est une dépense qui n'est point 1:
@@ -1395,13 +1328,11 @@ Me: | 1: Cest la lutte pour la vie. L'organisation de l'enseignens M ment dans l
 a el plus actifs parmi les membres ont été tour à tour secrétaires ke
 . de l'association. On a choisi le caissier parmi les plus ol
 __ pondérés, car c'est ainsi qu'on se représente ordinairement (1
-De _ un bon trésorier. N'a-t-on pas fait le contraire de ce qu'il F
 | fallait faire?
 ._ On s'est préoccupé à différentes reprises de la manière
 ; pa . dont Y'U. P. vivrait matériellement dans l'avenir.
 HE Il est apparu qu'elle avait à sa disposition un certain
 1 nombre de moyens. Par exemple : le rattachement de À,
-HS _ PU. P. à une coopérative de consommation ; la fondation de'.
 7 d'une coopérative par les membres de l'U. P. ; l'organisation pr: é és Les Universités Populaires 1900-1997
 4 de matinées littéraires ou musicales du dimanche, payantes,
 
@@ -1519,7 +1450,6 @@ possible; on intéresserait la femme au bon fonctionnement Hi:
 _ de l'association. °
 TR La cotisation serait portée à 1 franc 50 ou 2 francs, dont .
 ‘4 A ‘ la moitié sufhrait pour la caisse de secours, et dont l'autre i
-vi As moitié assurerait le fonctionnement de l'U. P. , : M
 
 à la date du 1% mars 1902
 | Le Réveil des I: et II, 14, rue Marie-Stuart.
@@ -1527,7 +1457,6 @@ La Fraternelle du III‘, 6, rue de Montmorency.
 L'Aube du IV°, 24, rue du Bourg-Tibourg.
 L'Égälité du VII, salle Rousselet, 21, rue Cler.
 L'Égalité des IX° et X°, 6, rue Richer.
-L'U. P. du X°, 103, quai de Valmy.
 L'Idéal social du X°, 5, rue de l'Hôpital-Saint-Louis.
 : La Coopération des Idées, 157, faubourg Saint-Antoine.
 ù Voltaire du XI°, 140, rue Saint-Maur.
@@ -1548,13 +1477,11 @@ La Semaille du XX°, 78, rue des Partants.
 
 # ALFORTVILLE et MAISONs-ALFoRT : L'Idée, 6 bis, rue des
 Le ARGENTEUIL : L'U. P., boulevard Héloïse (ancienne
-LE ASNiÈèRESs : Floréal, 17, rue de la Station. ù
 Bezoxs : Fructidor, maison Dubuisson, 7, quai de
 " CHARENTON : L'Essor, 29, rue de Paris.
 L Cnoisy-Le-Rot : L' Éducation mutuelle, 36, rue de Vitry.
 e Cuicuy : L'U. P., 82, rue de Paris.
 He CoLomsess : L'Avenir, salle de l'Étoile, 41, boulevard de
-L la République, à la Garenne. De.
 32 LevaLrLois-PErrer : La Vérité, 46, rue Rivay.
 ; Les Licas : Le Progrès social, 4, rue Bernard.
 ù Meupox : chez M. Guichard, 4, rue Lavoisier. À
@@ -1563,15 +1490,10 @@ MowrROUGE : L'Effort, 33, rue du Marché. D:
 v SAINT-OUEN : L'U. P., chez M. Lamotte, 8, rue Raspail.
 x Pureaux : L'Idée, 15, rue Parmentier. %
 % VERSAILLES : L'Institut populaire, 15, rue Colbert.
-2 ViLLENEUVE-SAiT-GEORGES : L'éducation mutuelle,
 L chez M. Bedeaux, 11, rue de Crosne. Re
 À VINCENNES : L'Émancipation, 3, rue de l'Église.
 
-A4 Le Gérant : CnarLes PÉauy 0)
 fi Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-cr IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 6642
-
-Le by rt ù P L
 
 Nous mettons ce cahier dans le commerce; nous le
 JR vendons un franc. +308

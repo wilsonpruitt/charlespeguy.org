@@ -18,13 +18,6 @@ cinq exemplaires pour quatorze francs
 huit exemplaires pour vingt et un francs
 dix exemplaires pour vingt-quatre francs.
 
-# DAT, +4 A i S
-TA rs
-| K CORRE VA : NY.
-A ON ne + nl *
-
-| LAOR | | Na
-
 Du même auteur en vente à la librairie des cahiers
 ; Aërt, drame en trois actes, représenté sur le théâtre
 de l'Œuvre le 3 mai 1898, éditions de la Revue d'Art À
@@ -69,77 +62,34 @@ No L'action doit surgir du spectacle de l'action. h
 S Cette pièce a été représentée pour la première fois +.
 e au théâtre de la Renaïissance-Gémier, le 21 mars 1902, L
 À avec la distribution suivante : : -1
-LS La ConTAT M°* Andrée Mégard
-sy PREMIÈRE FEMME DU PEUPLE Marcelle Jullien
-Se DEUXIÈME FEMME DU PEUPLE Jeanne Lion
-sÈ PREMIÈRE FILLE Dinard
-ee DEuxIÈME FILLE Hélène Milton Le
-ES TROISIÈME FILLE Delage ; .
-ne UXE JEUNE FILLE Renée Leduc Ë
 La Penre Juue La petite Marcelle
-2 L'HOMME EN FAGTION Maxence
-5e De Five Mosnier J
-cp Un CROCHETEUR Jarrier Ÿ
-_ + UN NOTAIRE Courcelles : C
 ce Ux Erupraxr Laforêt
-
-F- PREMIER CRIEUR DE JOURNAUX Bertin
-_ Deuxième CRIEUR DE JOURNAUX Mallet pu
-
-#4 Premier BourRGEoIS Thoulouze ‘44
 
 É ; Musique de scène de M. Julien Tiersot à
 
-0 le 14 Juillet Fe
 D le uille
 “OR Ra: Pour qu'une nation 2.31118
 s ee SA les soit libre, il suffit qu'elle
-ER. ; le veuille. : MC
 
-LES ER RU su
-s, SES AR RÉ ERe ee
-LCR ge NE etre *S
-
-D Roman ROLLAND ….
 8, rue de la Sorbonne, au rez-de-chaussée
-
-Fe. PIERRE-AUGUSTIN HULIN, chasseur du marquis de Vin-
 
 #6 JEAN-PAUL MARAIT], médecin et journaliste, 46 ans.
 
-de CAMILLE DESMOULINS, avocat au Parlement, 29 ans. À
-16 MAXIMILIEN DE ROBESPIERRE, député à l'Assemblée,
 Rs - 31 ans. ; 5 à h = JEAN-BAPTISTE DE CLOOTS, baron allemand, (1) 34 ans.
-: FA | GONCHON LE PATRIOTE, teneur de tripots, 40 ans.
 26 FÉLIX-HUBERT DE VINTIMILLE, commandant des Inva- …
-EST lides, 60 ans. | À
-De BERNARD-RENÉ JOURDAN, Marquis DE LAUNEY, gouver-
 & À) neur de la Bastille, 49 ans.
 #4 - DE FLUE, Commandant des Suisses, 50 ans.
 DS LOUISE-FRANÇOISE CONTAT, du Théâtre Français, 29 ans.
 24 1 MARIE-LOUISE BOUJU, marchande de légumes, 65 ans.
 TO (1) Les rôles de Cloots et Fauchet sont supprimés à la représen- …
 
-k sé jet l'ai ER PAL { Ur Me Lea "ee ER #3 FR
-Hart mi : Ce M n ‘ You
-Une FEMME DU PEUPLE, mère de Julie; +400
-De _ Fuzes pu PALAIs-RoyaL; Le.
 ; de _ Ouvriers, Gueux, Femmes du peuple, enfants: è
 ÉRUENL0 toutes les classes; tous les âges. | 200
-#0 H L te s
-| CREER . EL
 
-LT La scène à Paris, du 12 au 14 Yÿuillet 1789
 cr Le premier acte. — Au Palais-Royal, dimanche matin,
 1840 Le deuxième acte. — Au Faubourg Saint-Antoine, nuit du Ke.
-Le troisième acte. — A la Bastille, et Place de l'Hôtel-deSRE Te ei . . se = Er
 VA 1 Ville, mardi, 14 juillet, de quatre heures à sept heures
-FRE _ du soir. ‘ L
-aa" we] \ je W'ls
 
-RENE de
-
-| PERSONNAGES
 1 pouces », dit Rousselin), maigre; les cheveux, les SourÀ cils et les yeux noirs; une légère cicatrice, du milieu
 : du nez à l'extrémité du front, à droite; la bouche
 EL point grande, et de belles dents. Un peu le type, déjà,
@@ -200,7 +150,6 @@ j vérité et de la pureté, — qui lui fait reconnaître avec
 Voir son portrait dans Danton. — Bien que moins âgé
 "A que dans Danton, moins jeune en apparence: le bonheur
 1 n'a pas encore passé sur lui. — Un maigre levrier. Un
-| É i j
 
 | gaminde Paris, audacieux et effronté ; la figure bilieuse, Tr
 _ creusée, flétrie par la misère, les veilles, la vie dissipée;
@@ -239,7 +188,6 @@ impliqué dans l'attentat de Charlotte Corday, et con-
 : damné. — Son portrait, au musée Carnavalet, montre
 une figure encore de l'ancien régime, fine, aristocra_ tique, « le Fénelon de la Révolution ».
 
-, GONCHON LE PATRIOTE, 4o ans. Teneur de tripots au
 Palais-Royal. — Petit, énorme de figure et de stature,
 boursouflé, marqué de la petite vérole. Cabotin vaniteux, matamore et menteur, qui veut être terrible, et
 joue les Mirabeau grotesques. :
@@ -288,18 +236,14 @@ entre les jambes des promeneurs.
 (1) C'était une enceinte couronnée d'une terrasse, et revêtue de
 treillages, qui s'élevait alors comme un bosquet fleuri, au milieu du
 
-14 a dl = Nid à LUN Du NS 4” pi dé
-
 Grand complot découvert !.. La famine! V'là la
 famine ! L'arrivée des égorgeurs !
 LA FOULE, les appelant
-| Psst !..… Par ici!
 UN HOMME DU PEUPLE, anxieusement, à un bourgeois qui lit
 Eh bien ?
 , Ah! mon ami! ils viennent! Les Allemands,
 y les Suisses. Paris est cerné ! Dans un moment,
 fi ils seront ici !
-04 Le Roi ne le permettra pas.
 à Le Roi? Ilestavec eux dans le camp des Sablons,
 au milieu des Allemands.
 
@@ -311,7 +255,6 @@ k haït. Son maréchal des brigands, le vieux de Bro-
 fi Bastille et les troupes du Champ de Mars, nous
 à sommes pris dans un étau.
 
-its Gr UN ÉTUDIANT
 _ Ils ne bougeront pas. Monsieur Necker est à RE
 . Versailles, et il veille sur nous. AUS
 
@@ -320,13 +263,10 @@ Oui, tant que monsieur Necker restera ministre, K
 - Qui vous dit qu'il l'est encore? Ils se sont sa
 _ débarrassés de lui. ï
 118 . ,
-‘À TOUS, protestant \ “
 Non, non, ilreste!.… Le journal dit qu'il reste. oi
 Il faut qu'il reste !.. Ah! bien, si monsieur Necker
 . n'était plus là, tout serait perdu.
-1: LES FILLES, se promenant
 Ë On n'en peut rien faire aujourd'hui. Ils sont fous. és
-_ Ils ne pensent qu'à Versailles. ae:
 __ — J'ai eu, tout à l'heure, un petit qui ne m'a ‘#
 parlé que de Necker. FA
 
@@ -350,7 +290,6 @@ les faire, cela s'entend. Mais il faut aussi être bons
 patriotes. L'œil au guet, morbleu ! Je vous préviens
 que cela mijote.
 
-| UN MARCHAND
 Savez-vous quelque chose, monsieur Gonchon ?
 
 Attention ! Le grain approche. Tout le monde à
@@ -363,7 +302,6 @@ Veux-tu te taire, imbécile! Vive le duc d'Orléans ! — Après ça, tu peux cr
 fera passer l'autre.
 
 F CAMILLE DESMOULINS, sortant d'un tripot, excité, riant et
-L bredouillant
 E y Plumé ! ils m'ont tout pris! — Je te l'avais bien
 dit, Camille, tu vas te faire voler. Te voilà content !
 C'est fait. — Eh bien, ce n'est donc plus à faire. —
@@ -380,7 +318,6 @@ filles ont été faites pour cela. Elles savent vous
 plus guère. Qui veut voir une bourse toute neuve ?
 Aga!iln'y a pas une pièce !
 
-LES FILLES, se moquant de lui
 « On ty ratisse, tisse, on t'y ratissera. »
 
 Chauves-souris de Vénus, vous voilà bien fières
@@ -404,20 +341,15 @@ pi moyens de réformer l'Etat; — des assemblées de
 1 Où la patrie va-t-elle se nicher ?
 13 .… La Société des hommes de la Nature.
 
-Des femmes de la nature. (:} Ua à Gi. % # GONCHON ESS
 Mauvais plaisant! — Si tu n'as pas assez de pu__ deur pour respecter un homme respectable, respecte AS
 | au moins l'enseigne sous l'égide de laquelle ma
 maison est placée. ‘1
 SCT DESMOULINS, sans regarder de
 À Tu es dur pour lui, Gonchon. — n regarde... Et Wal
-pi qu'y at-il de l'autre côté”? dt
 4 Ce n'est rien. {MECS
 
 Je vois un autre portrait. LUTTER
-# Î *
 Cest le duc d'Orléans. Deux faces d'une même ‘4
-#1 OR
-eu i à L É x d pu id ”
 
 Le devant et le derrière! — Ceux qui écontent, rient.
 Gonchon s'avance, menaçant, avec ses marchands. C'est bon,
@@ -439,7 +371,6 @@ des ordres de guerre. Ils attaqueront, cette nuit.
 Miséricorde ! Qu'allons-nous devenir? l
 Les brigands! Ils nous traitent comme si nous t
 étions l'ennemi.
-| UN OUVRIER, à Gonchon
 
 D'où sais-tu cela? La route de Versailles est
 | coupée. Ils ont mis des canons au pont de Sèvres.
@@ -450,18 +381,14 @@ trop à faire pour nous quereller entre nous. On te
 demande d'où tu tiens ces renseignements.
 Je n'admets point qu'on me questionne. Je sais
 ce que je sais. J'ai mes informations.
-UN AUTRE OUVRIER, au premier
 Laisse-le, c'est un bon, un avale-dru.
 Qu'allons-nous faire, mon Dieu ?
 
-as UN ÉTUDIANT
 je Aux portes! Tous aux portes ! Empêchons-les
 Comme si l'on pouvait empêcher d'entrer — de
 pauvres gens comme nous, sans armes, sans habitude de la guerre — les meilleures troupes du
-| UN AUTRE
 x Eb ! ils sont entrés déjà ! Nous avons là cette BasÀ tille, ce chancre installé dans notre corps, qui nous
 ronge tranquillement, sans qu'on puisse l'extirper.
-# UN OUVRIER
 ; Ah! la gueuse ! Qui nous en délivrera ?
 Ils y ontencore fait rentrer une compagnie de
 4 Ses canons sont en batterie sur le faubourg
@@ -470,7 +397,6 @@ ce mors dans les dents. Il faudrait commencer par
 à là, l'arracher.
 
 _ Le moyen, je ne sais pas, moi. Il faudraitla $
-he: TOUS, d'un air sombre et incrédule \ À "
 à Prendre la Bastille ! } ben
 3 Ne ÿ Ils se détournent les uns des autres. KITS
 
@@ -478,11 +404,9 @@ he: TOUS, d'un air sombre et incrédule \ À "
 2 UN HOMME, hâve et râpé, à l'air maniaque S fs
 k. Ce n'est pas les soldats qu'il faut craindre. Ils x Fe
 _ n'attaqueront pas. À
-| Quoi? Aù
 to Ils n'attaqueront pas. Leur plan est bien plus ne
 _ simple, ils nous bloquent. Ils attendent que nous 225
 ; mourions de faim. “1148
-mx UN OUVRIER JS
 He Ma foi, s'ils continuent, nous en prenons le che- à
 min. On perd sa journée de travail à attendre le ‘+48
 
@@ -490,7 +414,6 @@ Les farines se font rares.
 Elles n'arriveront plus demain.
 Mais que font-ils des blés ?
 Je le sais, moi. Ils les ont enfouis dans les carrières de Senlis et de Chantilly, pour qu'ils pourrissent, et que nous ne les mangions pas.
-LE BOURGEOIS, incrédule
 Allons donc !
 C'est ainsi.
 C'est vrai. En Champagne, la cavalerie a détruit
@@ -501,11 +424,9 @@ entrailles. Vingt personnes en sont mortes dans
 mon quartier. C'est l'ordre de Versailles. On veut
 ; nous faire crever comme des rats.
 
-| À ÿ DESMOULINS F
 C'est fou. Aucun roi ne peut vouloir assassiner
 F son peuple. Il faut être Néron. Nous n'en sommes
 pas encore là.
-| LE MANIAQUE, mystérieusement
 Je sais le mot de la chose. La nation est trop
 , nombreuse. Il y a des ordres pour dépeupler la
 Tu es malade, l'ami, il faut te faire soigner.
@@ -518,11 +439,8 @@ mal. Nous ne serons pas tranquilles, tant qu'elle
 sera chez nous.
 Il a raison. Hors de France, l'Autrichienne !
 
-LA CONTAT, au milieu de la foule
 | Pourquoi donc ?
-| LA FOULE
 Comment ? Pourquoi donc ?
-) LA CONTAT, se montrant
 ! Eh bien, oui, pourquoi ? Etes-vous fous de vous
 | en prendre à la plus charmante, à la meilleure des
 Ah ça! qui ose dire du bien de l'Autrichienne,
@@ -530,32 +448,23 @@ Ah ça! qui ose dire du bien de l'Autrichienne,
 de à notre face !
 | DESMOULINS, à la Contat
 Taisez-vous, partez sans leur répondre.
-| Pourquoi ?
 On s'attroupe. On vient de tous côtés.
-4 Tant mieux.
 
 \ Qu'est-ce que tu as dit, l'aristocrate? Qu'est-ce
 ; . quetu as dit?
 
-Die Naud PA ON TR GE NS ÿ ts ss EE
-ARCS te de à 2e nd te TRS
 oc PES Ve me souffle pas dans le nez. J'ai dit: Vive la
-Ra" LA FOULE, exaspérée GE 1e
 Voilà une belle fille qui a besoin d'une fessée. MO
 __ Voilà un sot visage qui n'attendra pas la sienne.
 4 CA6: Elle le soufflette.
-Ayo LE COMMIS
 à = f Les uns rient, les autres crient. ni * è
-‘4 Ÿ LA FOULE, accourant EL
 _ Holà!— Venez voir! — Qu'y a-til? — C'est une. 104
 _ aristocrate qui assomme un patriote! — A l'eau!
 Je Citoyens, c'est une plaisanterie. 4300
-3 . ï LA FOULE, furieuse CRT
 AS HULIN, fendant la foule, qu'il domine de sa taille herculéenne
 ‘#4 Holà! — 11 se met devant la Contat. Vous me connais- EE
 _ sez bien, camarades. Je suis Hulin. Vous m'ayezvu
 _ à l'œuvre, l'autre jour. J'ai enfoncéla porte del'AbTHON RL
-# # LN û KA 3 L2
 ER 29 DR, baye, pour délivrer nos amis, les garde française
 emprisonnés. J'enfoncerai de même la tête du premier qui avance. Respect aux femmes, que diable ! é
 Si vous voulez vous battre, l'ennemi ne manque pas.
@@ -613,22 +522,16 @@ chemin du théâtre. — Comment vous appelez-vous ?
 Camille Desmoulins. — Imprudente! Je vous
 l'avais dit. N'avez-vous pas eu peur ?
 
-| FRCRSEN ‘ DESMOULINS EL
 Ils ont failli vous tuer. RER Pt
 Allons donc! Ils crient toujours, ils ne font jamais ï À
-_ de mal. PAL.
-et LR ÿ ITONS
 _ O aveugle! On a bien raison de dire que le YA
 _ mépris du danger n'est que l'ignorance du danger.
 _ Une petite femme qui n'a pas froid aux yeux. 108
  — Non, cristi, ni ailleurs. ON
-Her. UN OUVRIER TEE
 _ C'est égal, mademoiselle, ce n'est pas bien de PAU:
 se | vous mettre contre les pauvres gens comme nous, S FA
 avec les exploiteurs. nee.
-R: LE MANIAQUE ps (à
 : Parbleu ! Une accapäreuse ! Fe
-Comment! Une accapareuse ! HAE:
 ni Regardez-moi cette perruque. De:
 
 Cette quantité de poudre ! Avec la farine qui
@@ -650,7 +553,6 @@ maréchal des jésuites, le vieil assassin, l'âne chargé
 d'amulettes, de reliques, de médailles, le de Broglie !
 Savez-vous ce qu'il écrit ?
 
-| Lisez ! Lisez!
 ! Ils ont fait une conspiration. Ils veulent briser
 nos États Généraux, enlever nos députés, les jeter
 en prison, expulser notre Necker, vendre la Lor-
@@ -676,7 +578,6 @@ N toi, toi, qui excites ce peuple, qui te prétends un
 patriote, qui me dit que tu n'es pas un agent du
 | despotisme, chargé de provoquer les bons citoyens,
 et de les livrer aux hordes de Versailles ? Qui
-es-tu ? D'où sors-tu? Qui répond de toi ? Je ne te
 1 connais pas, moi.
 Je ne te connais pas non plus.
 Si tu ne me connais pas, c'est que tu es un scélérat.
@@ -695,7 +596,6 @@ _ mouchards déguisés, des suppôts de l'aristocratie !
 k crie : À bas! en montrant le poing. F
 Bravo, Marat! Bien touché!
 Qui est ce sale petit homme qui a de si beaux
-| Un médecin journaliste.
 Continuez! Elle applaudit.
 | Que m'importent les clameurs de ces traîtres, ces
 complices de la famine et de la servitude? Ils vous
@@ -759,8 +659,6 @@ J LE PEUPLE, moitié riant, moitié acclamant f
 | détourne pas les yeux de Marat, que ses porteurs posent à
 : terre. Elle court à lui.
 
-RER n'ai à È n ES AE LA be
-
 LA PETITE JULIE, à Marat, joignani les mains
 Ne pleurez pas, ne pleurez pas!
 MARAT, regardant la petite
@@ -773,7 +671,6 @@ faire silence, pour ne pas troubler la petite. Marat, qui s'est
 assis, change brusquement d'expression en l'écoutant. Sa
 figure s'éclaire. Il regarde l'enfant avec une grande douceur, lui prend les mains.
 Pourquoi pleures-tu ?
-| JULIE
 Parce que vous pleurez.
 
 Est-ce que tu me connais ?
@@ -787,13 +684,9 @@ _ criais dans ton lit que tu ne voulais pas mourir. 50)
 | Elle détourne la tête, il la serre contre sa poitrine, en souriant. el
 _ N'aie pas honte. — Tu me comprends done, toi?
 _ Tues avec moi? Sais-tu seulement ce que je veux? PR
-_ Oui, je veux aussi... è ee .
-a Le reste de sa phrase se perd dans un balbutiement. po J
-LE L'en
 _ Qu'est-ce que tu veux? DEX
 48 JULIE, relevant la tête et parlant avec une conviction : SR
 Le qui fait sourire s sa éi
-. La liberté. : ti
 |. Pour quoi faire? \'Eare
 Pour la donner. Me
 
@@ -816,7 +709,6 @@ $ MARAT, doucement, lui caressant la tête
 la main de Marat
 Nous les délivrerons, n'est-ce pas ?
 Il n'y a qu'à aller tous ensemble.
-LA FOULE, riant
 Voilà! Ce n'est pas plus difficile que cela!
 
 La petite lève les yeux, voit brusquement le cercle de têtes
@@ -832,18 +724,15 @@ _ se détend dans tes regards innocents! Ah! que le
 _ monde serait sombre sans les yeux des enfants! !
 | Il va gravement vers l'enfant, lui prend la main qui pend le
 Ê long du corps, et l''embrasse. Fe
-UNE FEMME DU PEUPLE, arrivant
 J Julie ! — Comment! tu es ici? — Que fait-elle au
 milieu de tout ce monde ?
 Elle haranguait la foule.
-On rit.
 | Mon Dieu ! Elle, si timide ! Qu'est-ce donc qui l'a
 Elle va vers Julie; mais dès qu'elle veut toucher la petite,
 celle-ci se sauve sans parler, avec une sauvagerie enfantine.
 À LA FOULE, riant et frappant des mains
 Sauve-toi, vermisseau !
 4 On entend dé grands cris au fond du jardin.
-| LA FOULE
 _ , Venez donc! Venez donc! /
 — Qu'est-ce qu'on voit?
 | — On baigne une comtesse!
@@ -860,7 +749,6 @@ l'un debout, l'autre assis à une table de café. — Une foule
 compacte occupe tout le fond de la scène, quelques-uns
 deboutsur des chaises, tous regardant ce qui se passe dans
 le jardin. Des promeneurs continuent de circuler sous les
-MARAT, montrant le poing à la foule F
 Histrions! — Ce n'est pas la liberté qu'ils cherchent, c'est la comédie! Dans un jour où leur vie à
 tous est en jeu, ils ne pensent qu'à se donner en »
 spectacle les uns aux autres. J'ai assez de ce peuple.
@@ -877,16 +765,12 @@ _ qui jouent. Vous les connaissez comme moi. Iln'y a à
 rien de sérieux dans tout cela. Pourquoi le prendre à
 4 MARAT, relevant la tête et le fixant durement "*
 
-; Qui es-tu, toi?
 _ Je suis de votre pays, de Neuchätel en Suisse. à
 ; Vous ne me remettez pas. Moi, je vous connais bien. Ê
 ._ Je vous ai vu tout enfant, à Boudry.
-_ Vous y êtes.
 Que fais-tu ici ? Tu étais horloger à Genève.
 J'étais tranquille, là-bas. Mais je comptais sans
 mon frère, un drôle, qui s'est lancé dans des spécu- E
-
-# 4ÿ &
 
 lations, de louches entreprises, où il a engagé sa
 signature. Naturellement, il s'est avisé de mourir
@@ -926,8 +810,6 @@ _ bien, et à moi aussi.
 Qui parle de cela? Je défie bien qui que ce soit
 … de me la prendre.
 * Tu te soumets pourtant. Tu ne dis point ta
-| HULIN
-: Qu'ai-je besoin de la dire? Je la connais. Bon
 —_ pour ceux qui n'en sont point sûrs, de la crier aux vents. Ce n'est pas pour les autres que je pense,
 c'est pour moi.
 Rien n'est à toi de ce qui est en toi. Tu ne
@@ -1003,13 +885,10 @@ _ Un honnête homme. Les souffrances du monde
 _ résonnent trop fort en lui; elles troublent son juge- Ÿ
 _ ment. Ilest malade de vertu. Re.
 - D'où le connais-tu? NCA
-… Tu as du temps à perdre. Où les as-tu trouvés? Re.
 _ Je les ai achetés avec le produit de ces gilets, ne. à
-_ qu'il me reprochait si äprement. ‘ 1 SES
 - HULIN, le regardant RP
 _ Montre un peu. Qu'as-tu là? tu tes encore
 
-Ma foi, oui.
 Sauvage ! — Où as-tu attrapé cela ?
 Place Louis XV. Je passais. L'arrogance de ces
 Allemands, campés dans mon Paris, m'a porté sur
@@ -1020,14 +899,11 @@ deux, pour ma part.
 Voilà une belle équipée ! Cela te coûtera cher.
 Bah! — Rends-moi un service, Hulin. Lis-moi
 cette lettre.
-| HULIN À
 Une lettre à qui?
-| Au Roi? Tu écris au Roi, toi?
 F Pourquoi n'écrirais-je pas au Roi? Il a des yeux
 + pour lire, j'imagine, et une raison pour comprendre.
 
 un bon conseil, pourquoi me serait-il défendu dele
-Lu _ donner, et à lui de le suivre ?
 __ Et qu'est-ce que tu lui dis, au Roi? LT
 Voilà: je lui dis derenvoyer ses troupes, devenir
 _ à Paris, seul, et de faire lui-même la Révolution. 100
@@ -1051,13 +927,11 @@ gouvernent l'Europe, d'être grands à bon marché,
 simplement en appliquant à leur gouvernement la
 raison, le sens commun, la morale ordinaires ! Tant L
 pis pour eux! S'ils ne le font pas, on le fera sans
-eux. L
 Au lieu de songer à réformer le monde, tu ferais
 mieux de chercher les moyens de te tirer d'affaire.
 Tu vas être dénoncé, tu l'es déjà sans doute. Sais-tu à
 ce qui t'attend, à ta rentrée à la caserne ?
 Oui; mais sais-tu ce qui attend la caserne, à ma È
-En Tu verras.
 
 _ Que médites-tu encore? Tiens toi tranquilleun
 
@@ -1073,7 +947,6 @@ Mon pauvre Hulin, sais-tu seulement tout ce qui ne.
 É 4 est possible ? He ‘1e
 4 Que veux-tu dire ? ET
 F Que ce peuple fasse seulement ce qu'il peut faire,
-et tu verras si l'on ne refait pas le monde. RE:
 
 : Si tu aimes à te duper, je n'ai rien à dire, garde
 tes illusions. D -
@@ -1120,7 +993,6 @@ ma poitrine. Elle ne venait pas de moi. Elle souf- À
 - humbles gens, des ouvriers, des soldats comme e
 _ moi. Tu n'es pas de ce peuple, tu ne sais pas lire en & “4
 _ Jui. Lui-même ne sait pas bien. La misère, l'igno_ rance, la faim, les soucis contre qui ilse débat,me
-D. Jui laissent pas le temps ni la force de se connaitre. K
 
 Il voit; mais il croit qu'il rêve, et ses yeux las ne
 peuvent fixer ce qu'il voit. II sent gronder sa force;
@@ -1130,13 +1002,11 @@ La Nécessité. Un moment vient où toutes les
 forces tendues aboutissent à l'action. Un geste suffit
 alors pour précipiter les mondes.
 HULIN, lui frappe sur l'épaule
-Tu es un ambitieux. Tu rèves de dominer le
 Stupide colosse ! Voilà une belle ambition ! Tu me
 crois l'âme d'un caporal ? 11 regarde son uniforme.
 Tu fais le dégoûté ? Qu''as-tu donc? Tu as l'ajr _
 tout joyeux aujourd'hui. Es-tu promu sergent ?
 HOCHE, hausse les épaules
-Il y a de la joie dans l'air.
 Tu n'es pas difficile. La famine. Le massacre
 imminent. Ton peuple sur le point d'être écrasé
 
@@ -1148,7 +1018,6 @@ contre ce que tu aimes, ou te faire tuer avec lui.
 4 Tu trouves cela bien ? Le tonnerre suspendu
 î tout prêt à s'écrouler ?.…
 É HOCHE, rit, puis:
-| Oui.
 : d HULIN, le regarde
 , Tu crois à ton étoile ?
 | HOCHE, secoue la tête en riant
@@ -1189,7 +1058,6 @@ d'un demi-dieu. Tout disparut. Par dessus Versailles,
 le souffle de la Nature me frappa au visage. Par delà
 ces maîtres, l'homme m'apparut. Et au dedans de F
 
-Ada — :SÈER ss A et RE
 4 | moi-même, dans ma misère et ma solitude, je vis ne
 D: ma conscience divine, ma grandeur éternelle. Je à
 É m'arrêtai, je ne pouvais plus lire; j'entendais les $:
@@ -1213,7 +1081,6 @@ l canaille ! — Vois-tu, c'est ensouvenir de lui, que j'ai
 ; calme que j'en ai l'air; et quand je ris, c'est parfois
 au moment où j'étrangle la colère et Les doutes qui j grognent en moi. Enfermé depuis cinq ans dans le à triste métier, où m'a fait tomber l'infàme supercherie
 des sergents recruteurs, je le fais de mon mieux, s
-parce que, où qu'on soit, il y a du bien à faire, et
 
 À les moyens de se faire grand. Mais tu peux croire
 que ce n'est pas d'un cœur impassible que je subis
@@ -1262,7 +1129,6 @@ i son dos. — En attendant, faire ce qu'on fait. —
 k La foule fait de nouveau irruption sur le théâtre, en s'an-
 : monçant par des rires et des cris. Un gamin de cinq à six
 ans est porté sur les épaules d'un grand diable de croche4 teur. La Contat, Desmoulins, et la foule, les suivent en
-L. riant.
 ‘4 L'ENFANT, criant d'une voix aiguë
 3 A bas les aristos, aristocrocs, aristocränes, aristo_ cruches, les aristocrossés !
 J A quoi jouent-ils maintenant ? — Ah! c'est leur
@@ -1272,7 +1138,6 @@ a Attention, la voix du Peuple! À quoi condam-
 # nons-nous.. Holà ! monsieur ! est-ce que tu ne m'entends pas, Léonidas ?... A quoi condamnons-nous
 L'ENFANT, de sa voix pointue
 Et la Polignac ?
-A la fessée ! L Ë
 
 A la potence !
 Et la Reine?
@@ -1281,8 +1146,6 @@ fort, de sa voix perçante, — tout gonflé de son succès. Le
 crocheteur continue son chemin avec lui. -
 Ab! le mignon! Il est à croquer !
 
-| SANTE DESMOULINS LI FN CRE
-
 = Croquonsle marmot! Bravo, la terreur des ariss
 4 s ! — Messieurs, le jeune Léonidas a oublié un de
 _ nos amis, M. de Vintimille, marquis de Castelnau. AC.
@@ -1290,13 +1153,11 @@ _ nos amis, M. de Vintimille, marquis de Castelnau. AC.
 __ Écoute, c'est de mon patron qu'on parle. “15
 _ Nous lui devons bien quelque chose. Le maréchal Tv
 _ vient de le nommer à la garde de la Bastille, avec 1e
-_ M. de Launey:; et il s'est engagé à ce qu'en moins Fa
 _ de deux jours, nous allions demander grâce, pieds ue
 _ nus et la corde au cou. Je propose que l'un de nous -+e
 _ fasse don de sa corde à cet ami du peuple. Se
 RE Qu'on le brûle ! — I1 habite près d'ici. — Qu'on
 __ brûle samaison, ses meubles, sa femme, ses enfants! L2)
-Ÿ VINTIMILLE, paraissant au milieu de la foule, froid et ironique Si ee
 
 ä Hoche! — n1 saisit Hoche par le bras. -
 
@@ -1305,7 +1166,6 @@ __ Qu'est-ce que tu as? DRE.
 4 C'est lui.
 Hulin fait signe que oui.
 Messieurs, le tapissier de M. de Vintimille demande la parole.
-La parole au tapissier !
 Messieurs, vous avez bien raison de vouloir brüûler ce méchant aristocrate, qui se rit de vous, qui
 _ méprise le peuple, et qui va répétant qu'il faut
 fouailler les chiens, quand ils montrent les dents.
@@ -1316,7 +1176,6 @@ même destruction votre bien et le sien. Et tout
 d'abord, messieurs, est-il juste de ruiner à la fois
 M. de Vintimille et ceux qui le ruinent, j'entends
 
-Fa 138 … ” si À NT je ss PA MAT ee PRET de.
 _ ses créanciers. Permettez que je demande grâce, au g
 1 moins pour les meubles qui sont à moi, et dont ce ve
 fesse-mathieu ne m'a jamais rien payé.
@@ -1333,8 +1192,6 @@ fesse-mathieu ne m'a jamais rien payé.
 sensible, en brûlant un immeuble qui est le gage de
 sa créance.
 
-| LA FOULE
-
 | Passe encore pour l'hôtel.
 
 | Quant à sa femme, messieurs, — pourquoi brûler
@@ -1349,24 +1206,19 @@ point de privilèges ; les trois ordres sont égaux
 | devant elle ; elle réalise en elle l'union de la nation.
 Honorons une vertu si rare. Messieurs, grâce pour
 
-| Madame.
-
 Grâce pour Notre Dame !
 
-LA FOULE, riant
 Oui, oui, grâce pour la femme! ke °
 Enfin, ne frémiriez-vous point, messieurs, en
 livrant au bûcher les enfants de M. de Vintimille,
 de faire concurrence à nos tragédiens ordinaires,
 et d'être infanticides sans le savoir ?
-LA FOULE, se tord de rire È
 Ha ! Ha ! Vivent les bâtards ! S s
 VINTIMILLE, changeant de ton à la fin de son discours
 Quant à lui, messieurs, pendez-le, taillez-le, brûlez-le; — et je vous y engage même ; car si vous ne
 le brûlez point, c'est lui qui vous brüûlera.
 11 descend de sa chaise, et disparaît dans la foule, qui rit, crie, '
 # et l'acclame.
-LA CONTAT, va rapidement à Vintimille À
 Partez vite! Ils peuvent vous reconnaître. É:
 
 -T es ontat, vous étiez là? Que faites-vousen
@@ -1374,14 +1226,12 @@ __ Ilne faut pas se moquer des chiens, qu'onnesoit
 3 hors du village. LES
 _ Peu! tout chien qui aboiïe ne mord pas... Venez
 Pas maintenant, plus tard. ESS
-Ein: VINTIMILLE Le
 __ Rendez-vous à la Bastille. KES
 A la Bastille, soit. Me
 __ Etc'est bien lui, vraiment ? Tu es sûr ? | HR
 _ La canaïlle ! quelle effronterie!
 
 2 Un mélange de courage et d'ignominie."
-| HOCHE
 | s Cela se voit souvent chez nos chefs.
 Celui-là a fait sa fortune en épousant une des
 catins de l'ancien roi; et le même homme fit des
@@ -1412,7 +1262,6 @@ R passera rien. Il ne peut rien se passer. On vous
 - bon sens qui ait raison? Moi, j'y crois; j'ai été aussi
 badaude que vous; j'ai perdu quatre heures ici; je
 - m'en vas vendre mes navets.
-LA FOULE, murmure approbatif ea
 Elle a raison. — Tu as raison, la mère. Allonsnous-en chez nous.
 
 Que dis-tu de cela ?
@@ -1441,20 +1290,15 @@ sordre, se précipite sur la scène, en criant d'une voix terrifiée -
 Necker est exilé!
 LA FOULE, saisie, se ruant sur l'homme
 Quoi? quoi? Necker! Ce n'est pas vrai!
-L'HOMME, criant
 <È -_ Necker est banni! — Il est parti, parti!
 
-De 00 LA FOULE, hurle | Mer
 A mort! — C'est un agent de Versailles! A
 
 ; ere L'HOMME, épouvanté, se débattant
 _ Que faites-vous ? — Mais vous n'avez pas compris ! — Je vous dis que Necker. F7"
 _ Au bassin, le mouchard! Noyez-le!
-LES - L'HOMME, hurlant É 5 Hs
-LE Les
 _ Sauvons-le, Hulin! TRE
 _ Il faudrait en assommer vingt, pour en sauver En.
-: 34 Ils tâchent en vain de se frayer un passage à travers la foule, ï ou L
 __ qui crie, et emporte le malheureux. — Robespierre surgit sur A -
 __ une table, et fait signe qu'il veut parler. — Hoche, Hulin, [471
 __ Desmoulins et quelques autres le remarquent. PAR
@@ -1473,15 +1317,11 @@ pouvoir est aux mains des ennemis de la nation.
 De Broglie, Breteuil, Foulon : le Carnage, le Vol, la
 Famine, sont ministres aujourd'hui. C'est la guerre. »
 Je viens m'enfermer avec vous, pour partager votre
-LE PEUPLE, épouvanté i
 Nous sommes perdus ! H
-ne Que faut-il faire ? à +4 e
 : HOCHE, haussant les épaules LS
 
 _ Parlez-leur, citoyen député. Dee.
-| ROBESPIERRE
 “À À quoi bon les discours ? Que chacun interroge ee
-4 sa conscience. s #3
 Dr Ils s'affolent. Si on ne les fait pas agir sur le a
 _ champ, ils sont perdus.
 E Robespierre sort de sa poche des feuilles manuscrites, ps
@@ -1505,7 +1345,6 @@ Tonnerre d'applaudissements qui couvre la fin de la phrase.
 « soin de son honneur et de sa vie, l'entière pro- È
 « priété de sa personne, la recherche du bonheur,
 « et la résistance à l'oppression. »
-" Les acclamations redoublent. ‘
 HOCHE, tirant son sabre s
 La résistance à l'oppression !
 On limite; en un instant, la foule se hérisse d'armes.
@@ -1519,17 +1358,12 @@ _ Est ce qu'ils vont continuer longtemps ? — Ilfaut
 _ faire tuer ailleurs. — 11 parle bas à ses gens. Ro
 __« La nation est souveraine. » FER
 % É On entend une voix crier. — La foule frémit et écoute 5e
-LTÉE HOCHE « Ces
 _ Le coup de barre, Hulin ! Voici la tempête! FRA
-LR ; UNE VOIX, terrifiée, criant ARE LS
 -_ Ils viennent! ils viennent ! la cavalerie ! | LR
-El UN DES GENS DE GONCHON, d'une voix aiguë EI
 _ Sauve qui peut! LS
-D. Un instant de bousculade et de cris. +2
 _ HULIN, sautant sur l'homme qui crie, et lui assénant sur la tête * AA
 PS un coup de poing qui le fait taire, suffoqué LP ke
 ê “Es Robespierre essaie de continuer ; mais sa voix s'étrangle, et
-Re se perd, au milieu du tumulte de la foule. FNOETS CNE
 Me Hoche s'élance sur la table à côté de Robespierre, qu'il GE
 4 domine de sa haute taille, lui arrache le papier, et lit, D
 APR d'une voix ardente et triomphante, dontlesaccentsremuent to
@@ -1579,7 +1413,6 @@ de ralliement, notre promesse de victoire, feuilles. à
 ; autour d'elle. Amis, fleurissez-vous de la cocarde de
 1 Le peuple arrache les feuilles et les branches et dépouille
 $ les arbres.
-|A > »- LA VIEILLE MARCHANDE
 4 Au roi! il l'a bien dit! Il faut aller au roi! — A
 - Versailles, mes enfants!
 
@@ -1600,14 +1433,11 @@ Une procession en l'honneur de Necker! —
 Son portrait est ici, chez Curtius, dans le cabinet
 4 des figures de cire. — Promenons-le en triomphe!
 — Le magasin est fermé! — Enfonçons la boutique!
-£ GONCHON, à ses gens j H
 Attention! Profitons de l'occasion ! &
 
 ur Gonchon! Ils dévalisent tout! E « 758
 _ Laisse-les faire, fais comme eux. RE.
-ne ' LE MARCHAND et.
 _ Maisils vont entrer chez nous! >. Fee
-| ne à FR F
 _ Contre le tonnerre ne pète! En
 4 Il entre dans la boutique à la suite du peuple, et crie :s"Mi
 0 comme les autres. :Le reste de la foule court de tous côtés ; !
@@ -1620,7 +1450,6 @@ apprendre aux tyrans la terreur sacrée de la nation. TT
 “< Le buste de Necker sort de la boutique, porté triomphale- CR
 ‘5 ment par le crocheteur athlétique, qui le serre avec ses MAR
 1 # deux bras contre sa poilrine. La foule se presse autour de à Da: "
-# LE PEUPLE
 _ Chapeaux bas! Voici notre défenseur, notre père! fe F- "à
 _— Couvrez-le de crêpe! La Patrie est en deuil! Re:
 ‘4 Gonchon et ses gens sortent de la boutique, portant derrière D.
@@ -1649,7 +1478,6 @@ _ ne lui escamote la tête!
 à avec un ordre bizarre et solennel. Silence imposant. —
 2 Tout à coup, la vieille marchande arrive en battant du
 tambour. Une clameur formidable s'élève.
-| LE PEUPLE
 ; Le cortège s'ébranle. D'abord, la vieille au tambour. Puis
 L le buste de Necker, que le crocheteur a posé sur sa tête.
 : Il est entouré d'hommes du peuple avec des bâtons et des
@@ -1666,11 +1494,9 @@ rang desquelles vient la Contat, au bras de Desmoulins. —
 ; HOCHE, montrant le peuple à Hulin :
 - Eh bien, Hulin, es-tu convaincu maintenant?
 
-# HULIN
 ] C'est absurde... Cette foule en désordre, qui va
 à attaquer une armée... Ils vont se faire massacrer.
 - Cela ne rime à rien. — 11 suit la foule.
-| Où vas-tu?
 | 83 .
 
 BA Avec eux, natürellement.- ? Wen"
@@ -1681,10 +1507,6 @@ Net Vieux camarade, ton instinct est meilleur queta
 Rene - Net'inquiète pas de comprendre. Il sait, il voit
 MR 0 pour toi.
 
-: FT À 3 o É Le ne. J'Aveugle. ne.
-
-L'TLNLINRES à es.
-
 La nuit du lundi 13 au mardi 14 juillet. — Deux à trois PR:
 heures du matin. .
 - Une rue de Paris, au faubourg Saint-Antoine. — Au fond ‘AE
@@ -1693,7 +1515,6 @@ _ se dresse, au-dessus des maisons, la masse énorme et noire LR
 _ gissent peu à peu sur le ciel, à mesure que l'aube approche. : NS
 LA gauche, au premier plan, on voit l'intérieur d'une ji
 . salle basse de plafond, et mal éclairée, sorte de café pauvre,
-._ où se rassemblent les patriotes. (1) — Au fond, et à un tour- : x F4
 2 ant de la rue, la maison de Lucile. Un volubilis s'enroule
 k à l'appui du balcon, et grimpe le long du mur. — Point de
 _ réverbères. La rue est éclairée par des chandelles, placées au ME:
@@ -1703,7 +1524,6 @@ Ne ebord des fenêtres. — On entend au loin sonner l'enclume 130
 . du peuple et des bourgeois travaillent à une barricade de
 . tonneaux, de bois et de pierres, au détour de la rue, sous DA
 la fenêtre de Lucile. LR
-D: UN MAÇON fi
 __ Encore quelques pierres. Va
 + UN OUVRIER, chargé de son lit SCIAN
 _ Tiens, mets cela. C'est mon lit. EU S
@@ -1715,13 +1535,11 @@ faction. — Voir les Variantes, à la fin de la pièce. te
 Tu vas dormir ici ?
 
 Tout à l'heure, avec une balle dans le corps.
-Tu es gai.
 Si les brigands passent, nous n'avons plus besoin
 de rien. Nos lits sont faits ailleurs.
 Aide-moi à tendre cette corde.
 Pour quoi faire ?
 Pour faire tomber les chevaux.
-Quoi ?
 
 Tu n'entends pas?
 
@@ -1729,40 +1547,31 @@ Tu n'entends pas?
 les forges, on fabrique des piques.
 
 Non, ce n'est pas cela. — Par là...— 11montre la terre.
-“ Par là?
 ke Oui. Sous terre. — 11 se couche, l'oreille contre le sol.
 
 À ; - L'OUVRIER, couché par terre à.
 ë On dirait un bruit de mine.
 k. Sacrebleu ! ils vont nous faire sauter! Ÿ
-1 LE MENUISIER, incrédule Re
 Allons donc! LME
 
-L'OUVRIER, couché
 Ils ont caché là-dessous des milliers de tonneaux
 de poudre.
 C'est pour cela qu'on n'en trouve plus nulle
 Crois-tu qu'une armée se promène sous terre,
 aussi aisément qu'une bande de rats?
-L'OUVRIER, couché
 Tiens, parbleu! ils ont des souterrains qui vont
 de la Bastille à Vincennes.
 Tout ça, ce sont des contes de peau d'änon.
 à L'AUTRE OUVRIER, s'est aussi mis à quatre pattes pour écouter
-_ Le bruit s'éloigne.
-LE PREMIER OUVRIER, se relevant
 
 Je vas toujours voir dans la cave. Viens-tuavec
 moi, Camuset? ”
 Ils entrent tous deux dans une maison.
-LE MENUISIER, riant
 Dans la cave? Ah! la, la! — Ils cherchent un prétexte pour s'huiler le gosier. Nous, finissons notre
 
-TP et Me
 de LE MACON, jetant un regard derrière lui, en travaillant ‘
 
 F Qu'est-ce que tu as”?
-N : LE MAÇON, montrant la Bastille
 
 \ J'ai ça, ça, qui me pèse sur le dos. Toutes les fois que je me retourne et que je la vois, cette Bastille,
 | cela me serre à la gorge.
@@ -1775,9 +1584,7 @@ J'ai beau faire. Je la sens là. C'est comme si quelqu'un se tenait derrière mo
 main, elle abattrait tout cela comme un château de
 S Mais non, mais non.
 
-LE MAÇON, montrant le poing à la Bastille
 Coquine! — Ah! quand est-ce qu'on en sera débarrassé!
-Tu crois ? — Comment”?
 
 Je ne sais pas, moi. Mais cela sera. Courage!
 Allons! Il n'y a si longue nuit, qui n'aboutisse
@@ -1787,11 +1594,8 @@ LE MENUISIER, criant aux fenêtres
 Eh! là-haut! — Eh! les femmes ! Soignez vos lampions ! Nous avons besoin d'y voir, cette nuit.
 UNE FEMME, à une fenêtre, rallumant des chandelles
 Eh bien, cela avance-t-il?
-Il y en a plus d'un qui y laissera sa carcasse,
 avant qu'ils passent.
 Viennent-ils bientôt ?
-Ft ne LE ERSESS we
-Fee D ne En
 
 __ On dit que Grenelle est en sang. On entend
 tirer du côté de Vaugirard.
@@ -1806,12 +1610,9 @@ $ LE MAÇON, s'essuyant avec sa manche
 à Tant mieux donc! Labour d'été vaut fumier.
 
 Je n'en puis plus.
-| LE MENUISIER
 Û Reposez-vous un peu, monsieur le notaire. Cha-
 | cun n'est tenu de faire que ce qu'il peut.
-4 LE VIEUX BOURGEOIS, apportant un pavé
 . Je veux encore mettre celui-là.
-| - ï
 
 Allez plus posément. Qui ne peut galoper, qu'il
 A-t-on enfin des fusils?
@@ -1823,30 +1624,21 @@ pierres. Pour tuer, tout est bon.
 J'ai monté dans ma chambre des tuiles, des tessons, des culs de bouteilles ; j'ai tout apporté près
 de la fenêtre, tout, la vaisselle, les meubles, les
 livres. S'ils passent, je leur casse la gueule.
-UNE AUTRE FEMME, à sa fenêtre
 Moi, ma chaudière est sur le feu, et bout depuis
 | le dîner. J'y fais cuire des pavés. Qu'ils viennent
 je les grillerai.
 UN GUEUX, avec un fusil, s'adressant à un bourgeois
 1 Donne-moi de l'argent.
-LES ; LE BOURGEOIS hs
 On ne mendie pas ici.
 pi. Je ne te demande pas du pain, quoique j'aieles
 _ boyaux vides. Mais j'ai un fusil, et rien pour xà
 acheter de la poudre. Donne-moi de l'argent. +1 à
-+ UN AUTRE GUEUX, un peu aviné Re
 ni: De l'argent, j'en ai, moi, tant que tu veux.
 (Hs ER Il sort une poignée d'argent. LE
-el D'où as-tu ça ?
 ‘# Je l'ai pris aux Lazaristes aujourd'hui, quandon
 13 a pillé le couvent. FE
-5 PREMIER GUEUX, le prend à la gorge AL
 Dee Tu veux donc déshonorer le peuple, cochon?
 121 Eh bien, quoi? Tu es fou ? $ $
-Re | PREMIER GUEUX, le secouant ‘8
-
-‘M Vide tes poches! fr di DEUXIÈME GUEUX | î
-Du. Mais. Fe ne Th
 
 PREMIER GUEUX, vidant lui-même les poches de l'autre
 Vide tes poches, voleur ! j
@@ -1882,7 +1674,6 @@ DESMOULINS, gaiement, prenant une pioche
 Je sais aussi travailler.
 
 Du sommet de la barricade, où il monte, il peut toucher
-la fenêtre de la maison. A l'intérieur de la chambre, on
 voit passer une lumière. Desmoulins regarde.
 
 Elle est là.
@@ -1907,7 +1698,6 @@ que les travailleurs de la barricade relèvent la tête de leur
 côté, Lucile referme vite la fenêtre entr'ouverte. Deux
 ouvriers l'apercçoivent pourtant.
 
-UN OUVRIER, montrant Desmoulins
 Eh bien, qu'est-ce qu'il fait donc ?
 Le petit est amoureux. Bah ! ne les gênons pas!
 Il ne s'en baïtra que mieux. Le coq défend sa
@@ -1922,7 +1712,6 @@ Que faites-vous là ?
 Un fort pour vous défendre. NO
 i | CE Ils se regardent avec des yeux riants et amoureux, sans ca Li
 LL Je ne peux pas rester. Mes parents sont à côté. Î
-M. DESMOULINS # Ke de Encore un peu. : “RS
 D "2 Plus tard. Quand tout le monde sera couché, et 2e
 _ qu'ils seront partis. Même jeu. A.
 0 LUCILE, prêétant l'oreille aux bruits de la maison SE
@@ -1931,10 +1720,7 @@ ES Elle lui envoie un baiser et disparaît. — Dans ce petit ; De
 EE Un dialogue, les mots n'ont de prix que celui que leur don- Sn.
 s 4f è nent les regards et les sourires des amants. n
 
-: 4 LE MAÇON, regardant la barricade k ge”
-
 dE, Là! Voilà qui est fait, — et bien fait, j'ose le dire.
-# je 392 , f. f Er
 4 Il ne manque plus qu'un bouquet sur le faite. ,
 Die LE MENUISIER, frappant sur l'épaule de Desmoulins 110
 3 Ne travaille pas trop; tu attraperas la pleurésie.
@@ -1961,7 +1747,6 @@ C'est encore cette sacrée garde bourgeoise ! Mousse
 pour le guet! Bran pour les sergents! — Troubler
 l'ordre ? C'est trop fort! — Nous défendons Paris.
 
-| GONCHON
 Cela ne vous regarde pas.
 LE PEUPLE, stupéfait et indigné
 Cela ne nous regarde pas?
@@ -1987,15 +1772,12 @@ va dire. On consent à s'en aller, et à ne pas discuter
 les ordres du Comité, quoiqu'ils soient imbéciles.
 Il faut de la discipline, quand on est en guerre; et
 
-+ LE Pr ess ah FA TES rs der: Re di nu mis
 on se soumet. Mais, si on touche une pierreà
 notre fortification, on te casse la figure, à toi, et à
 tes singes. à
 Démolir notre barricade!
 f Qui parle de la démolir? Sommes-nous des macons? Nous avons autre chose à faire. Au large !
 
-LE MAÇON, menaçant
-On s'en va, mais tu as compris?
 - GONCHON, avec aplomb
 J'ai dit qu'on n'y toucherait pas; et personne n'y
 touchera. Pas de réplique!
@@ -2006,7 +1788,6 @@ N'y a-til pas de privilèges pour les amis,
 
 C'est toi, damné bavard ? — Arrêtez ce drôle!
 
-ra Ne Lars 4 L ;
 ANSE _ Sacrilège, qui ose porter la main sur un fonda- $
 : #4 teur de la Liberté! L
 
@@ -2036,25 +1817,21 @@ gauche, à la porte de laquelle, dans un renfoncement
 obscur, un homme en chemise, jambes nues, un fusil sur
 l'épaule, fumant sa pipe, monte la garde.
 
-L'HOMME, en faction
 Qui êtes-vous ?
 Connais pas.
 Montrez votre carte.
 Le petit à la cocarde? Passez, camarade.
 Il est avec moi.
 Allons, passez aussi, citoyen Robert Pierre.
-| x DESMOULINS, fat
 Admire, mon ami, le pouvoir de l'éloquence.
 L Robespierre le regarde, sourit amèrement, soupire, et le suit
 sans parler. ‘
 Is entrent dans la maison. (1) On aperçoit Hulin, l'abbé
 Fauchet, Cloots, et quelques autres, bourgeois et petits
 bourgeois, attablés ou debout, buvant, fumant et discutant. K
-à L'ABBÉ FAUCHET, allant au devant de Robespierre
 Eh bien?
 Eh bien, la bataille est engagée maintenant. IH
 ; n'y a plus qu'à attendre.
-| FAUCHET
 3 Attendre, attendre... Ah! si c'était fini !
 É Ne le désirons pas trop. Nous sommes libres encore, cette nuit, nous pouvons rêver de la liberté
 Non, j'aimerais mieux tout, même le pire, que
@@ -2127,13 +1904,11 @@ cette niaiserie gothique : « En présence de l'Être
 Suprême », ou : « Après avoir invoqué l'assistance
 du Suprême Législateur de l'Univers. » Bel exorde
 
-> A Qr
 à l'émancipation de l'homme! Alors, appelez tout
 de suite votre déclaration de liberté, une déclaration d'esclavage !
 Adressez-vous à lui.
 Vous croyez à cela, vous? Vous donnez dans ces
 Robespierre lui tourne le dos.
-Qui est-ce ?
 Un député de province, qui fait à l'Assemblée des
 discours un peu ridicules, mais d'un bon sentiment.
 IL est assez éloquent quand il se tait. — Je le convertirai.
@@ -2161,7 +1936,6 @@ LES BOURGEOIS, hochant la tête
 Ah! pour cela, que faire ? On a commencé la R
 révolution trop tôt. Pourquoi a-t-on soulevé le
 peuple? On n'était pas prêt.
-MEN TA - DESMOULINS, piqué
 À Ce n'est pas nous qui avons commencé. La déclaration de guerre est venue de Versailles. Et puis,
 __ l'eût-on voulu, on ne pouvait attendre. Il fallait
 | parler, il fallait agir.
@@ -2170,7 +1944,6 @@ Mais enfin, n'y a-til pas d'espoir ?
 É — Peut-être, si la province imitait Paris.
 | — Seule, elle n'osera rien.
 Ç — D'ailleurs, elle ne sait rien.
-| HULIN
 … Mais nous, que devons-nous faire ?
 — Négocier avec la cour?
 ; — Elle ne consentira même pas à discuter avec
@@ -2246,7 +2019,6 @@ Sentir en soi cette force, ces tempêtes, toutes les
 | puissances de la Révolution, prêtes à renverser les
 idoles du passé, — etêtre vaincu! Liberté! Liberté!
 | ne t'arracherai-je pas de la prison de cette poitrine,
-de ce ciel, de ce monde, où tu te caches, comme Ê
 -_ l'étincelle dans la pierre ! — Sors de terre! Sors de
 | cette ville ! Je te veux ! Je te veux, Liberté !
 Il s'ensanglante les poings, à frapper contre les murs.
@@ -2287,7 +2059,6 @@ Qu'a-t-il ? Il perd la tête ?
 Il y a longtemps que c'est fait.
 
 Rends ton sabre ! Rendez vos armes, tous!
-| DESMOULINS
 Il va se faire écharper.
 Comment, coquin ! — Rendre mon sabre ? — Je
 vais te le rendre dans le ventre.
@@ -2299,7 +2070,6 @@ Rends ton sabre !
 HOCHE, se dégageant tranquillement et, de sa main posée sur lui,
 le maintenant malgré ses contorsions
 Et qu'en feras-tu, mon garçon ?
-| MARAT
 3 Je t''empèêcherai de poignarder la liberté.
 Tu soupçonnes ceux qui viennent donner leur
 
@@ -2352,7 +2122,6 @@ ne perdes ta peine.
 Marat, qui n'a cessé de dévorer des yeux Hoche, et de
 suivre ses paroles, avec une attention violente, s'avance
 vers lui.
-Je me suis trompé.
 HOCHE, lui tend la main en souriant
 Comme il doit être fatigant de toujours soupconner! J'aimerais mieux mourir.
 Moi aussi. — Mais tu l'as dit tout à l'heure:; il ne
@@ -2377,7 +2146,6 @@ Peuple. Et toi, Peuple, tout entier, deviens Armée
 défends-toi, défends-nous, défends notre âme
 attaquée! Donnons-nous la- main, embrassonsnous, ne soyons qu'un seul cœur! — Amis! —
 Chacun pour tous! Tous pour tous!
-| LE PEUPLE ET LES SOLDATS, en proie à une ivresse d'amour
 à et d'enthousiasme fraternel, pleure, s'embrasse, et rit, en criant
 Oui! pour vous! pour vous! pour nos frères du
 peuple! pour nos frères soldats! pour tous ceux qui
@@ -2442,7 +2210,6 @@ n'est-ce pas curieux ?
 Vous vous trompez, vous ne vous connaissez pas.
 Je vous connais mieux que vous-même.
 
-Tu m'amuses. Et d'où me connais-tu ?
 Je vous ai entendue au théâtre; j'ai vu votre pas-
 . sion dans vos rôles.
 
@@ -2462,7 +2229,6 @@ serez de notre parti. ne.
 _ tempéraments. Il n'y a que deux partis au monde: ni
 <a les sains et les malades. Ce qui est sain va à la vie.
 “4 La vie est avec nous. Venez. nr,
-_1ÈER LA CONTAT ‘te
 FF Avec toi, volontiers. / ro
 
 Décidément, vous ne l'envoyez pas dire! — Eh
@@ -2481,10 +2247,8 @@ soutenez-nous, partagez notre foi; mais sacredié !
 n'allez pas la troubler! Vous ne pesez pas lourd à
 côté d'elle. — Sans rancune, Contat! Une passade,
 je n'ai pas le temps. Un amour, mon cœur est pris.
-Par qui ?
 
 Par la Liberté.
-je LA CONTAT
 _ Je voudrais bien savoir comment cette fille est
 Un peu comme toi, je me figure. Bien saine, bien
 | bâtie, blonde, ardente, audacieuse, mais débar__ bouillée de ton fard, de tes mouches, de tes affé_ teries, de tes ironies, agissant au lieu de railler
@@ -2493,7 +2257,6 @@ ceux qui agissent, soufflant aux hommes au lieu de
 | équivoques, des paroles d'action, de dévouement et
 : de fraternité. De celle-là, je suis l'amant. Quand tu
 É seras celle-là, tu m'auras. Voilà ma déclaration!
-| L# CONTAT
 2 Elle me plaît. Je t''aurai. — Allons nous battre! !
 4 — Elle arrache un fusil à son voisin, et déclame au peuple, avec
 un enthousiasme joyeux, quelques vers de Cinna.
@@ -2560,7 +2323,6 @@ Toute injustice nous regarde. Notre Révolution
 n'est pas une affaire de famille. Si nous ne sommes pas assez riches pour avoir des parents à la Bastille, nous le sommes assez pour adopter les riches,
 malheureux comme nous. Tout homme qui souffre
 injustement est notre frère.
-* Tu asraison.
 Nous voulons la Bastille!
 Mais enfin, enragés, avec quoi la prendrez-vous ?
 Nous n'avons pas d'armes, et ils en ont, eux!
@@ -2576,7 +2338,6 @@ La paroisse de la Bastille! De celle-là, j'en suis!
 L'abbé, pour une fois, je te servirai la messe.
 Une rumeur s'élève dans le fond.
 
-Pa: UN OUVRIER, accourant
 Je viens de la rive gauche. Ils sont tous deboui
 la place Maubert, la Basoche, la Montagne Sainte-
 # Geneviève ; ils marchent sur les Invalides, pour y
@@ -2599,7 +2360,6 @@ dieux sont avec nous.
 
 HULIN, haussant les épaules g |
 La justice, la raison. Tu tomberas, Bastille! i
-Tu iomberas!
 J'aimerais mieux des alliés plus palpables. Je ne
 crois guère à tout cela. N'importe, il ne sera pas dit
 que je me laisse devancer. Je prétends même
@@ -2625,7 +2385,6 @@ F rues sans un laissez-passer, est suspect.
 Qui est ce traître qui a imaginé de décréter qu'il
 3 était le Peuple? De quel droit cette voix odieuse
 3 donne-t-elle des ordres à la Nation? Je connais ce
-# 1: 2 ;
 + gros homme, cette face de Silène, boursouflée de
 vices, suante de débauches et d'impudeur. Est-ce
 > que cet accapareur prétend avoir le monopole dela
@@ -2650,7 +2409,6 @@ Mets-toi là : on ne te fera pas de mal. — Et maintenant, va devant, nous te s
 
 Vous me suivez? Où cela ?
 À la Bastille!
-Quoi ?
 Sans doute. Prendre la Bastille. — Vous défendez ‘4
 le peuple, messieurs de la milice bourgeoise? Le
 premier rang vous appartient donc. Passez devant,
@@ -2658,7 +2416,6 @@ et point de façons. — Tu n'as pas l'air réjoui ? —
 Se penchant à l'oreille de Gonchon. Je connais tes ruses,
 mon bonhomme, tu es en correspondance avec le
 duc d'Orléans. Allons, paix, ei file droit: j'ai l'œil
-. sur toi, et je n'ai qu'un mot à dire à Marat. Il ne à
 
 BAY v fait. pas encore jour ; tu pourrais nous éclairer,
 F accroché à l'une de ces lanternes.
@@ -2667,7 +2424,6 @@ Pas d'autre alternative: Etre pendu, ou prendre
 la Bastille.
 : GONCHON, avec empressement
 Prendre la Bastille !
-Le peuple rit.
 | Tu es un brave ! — Et nous, gens du faubourg, ne nous laissons pas damer le pion par la
 Montagne Sainte-Geneviève. Que Saint-Antoine ne
 fasse pas le fainéant, tandis que Saint-Jacques
@@ -2710,7 +2466,6 @@ DES JULIE, qui s'est tenue jusque-là sur l'épaule de Hoche, toute
 N- Viens remplir notre âme. -
 -
 Entendez-vous ce petit moineau ?
-e Le peuple rit.
 . . . -
 ee Allons, gai ! gai ! au devant du soleil !
 r. Il reprend l'air de la petite Julie en se mettant en marche
@@ -2732,12 +2487,8 @@ contre les vitres. Pendant la fin de l'acte, le bruit du £
 ] peuple, des cloches, des tambours, continue à bour- -
 donner au dehors; et quelques retardataires sortent
 encore des maisons, mais ne prennent pas garde aux
-| amants.
 ; La fenêtre s'ouvre doucement. Lucile lui passe les bras autour
-| Camille. à
-Ils s''embrassent.
 
-Tu étais là ?
 Chut !.. Ils dorment à côté. J'étais là, cachée. Je
 suis restée tout le temps. J'écoutais et je voyais
 tout.
@@ -2750,12 +2501,10 @@ j'ai fait des extravagances, je suis montée sur une
 chaise, j'ai... devine ce que j'ai fait... .
 
 Comment puis-je deviner ?
-| LUCILE
 
 Devine, si tu m'aimes. Si tu n'as rien senti, c'est
 que tu ne m'aimes pas. Qu'est-ce que je tai
 
-Des baisers.
 Tu m'aimes. C'est cela. Des paniers de baisers.
 . Ils'en est égaré quelques-uns sur ceux qui t'applaudissaient. — O les amours, comme ils criaient !
 Comme tu es devenu glorieux, mon Camille, en un
@@ -2786,8 +2535,6 @@ Mais non, je te dis, je t'aime ; je t'aime comme tu
 es. Je te cherche des défauts, je les trouve, et je les
 aime. Ne sois pas fâché, Hon-hon, j'aime ton bégaiement, je t'assure, je m'essaie à parler comme cela
 Ils rient tous les deux.
-| : : CAMILLE der
-_ Écoute ce qu'un jour a fait de ce peuple. Que ne
 verrons-nous pas ! — O Lucile, que de belles choses
 nous allons faire ensemble ! Voilà la foudre lancée.
 Quels superbes coups de tonnerre ! Quelle joie de
@@ -2799,7 +2546,6 @@ tout, défendait tout, empêchait de penser, de res-
 | pirer, de vivre! On va faire maison nette, brûler
 les vieilles nippes ! Plus de maîtres. Plus d'entraves.
 Que cela est amusant !
-| LUCILE
 Qui dirigera Paris maintenant ?
 Nous, parbleu. La Raison.
 Ils crient bien fort. Cela me fait peur.
@@ -2838,7 +2584,6 @@ jour, je Le tiens, oh! je le tiens bien ! il ne m'échappera plus. Je t'ai! Je b
  fossettes. Tout le bonheur du monde, elles me l'ont
 apporté. Le monde libre par moi! Ah! que je suis
 Ils s'embrassent, et restent un instant sans parler.
-Tu pleures”?
 5 Toi aussi.
 | Les lumignons des fenêtres voisines s'éteignent.
 Les lumières s'éteignent. L'aube vient.
@@ -2853,7 +2598,6 @@ Pourquoi me demandes-tu cela ?
 Je ne sais pas. — Ah! qui sait ce que l'avenir
 nous réserve ? _—
 LUCILE, lui fermant la bouche
-Camille! ET
 Pauvre Lucile, aurais-tu bien la force, si le
 Qui sait? Peut-être la trouverai-je alors. Mais toi, E
 j'en ai peur, tu souffriras cruellement.
@@ -2864,7 +2608,6 @@ Tu es plus faible que moi, mon héros.
 
 _ Peut-être. J'ai besoin que l'on m'aime. Jene sais
 Sen pas être se
-Jamais je ne te quitterai. FR
 4 Jamais. Quoi qu'il arrive, que tout nous soit
 commun, que rien ne nous sépare, que rien ne +
 _ vienne desserrer l'étreinte de nos bras...
@@ -2872,14 +2615,12 @@ RE 2# _ Un moment de silence. Lucile reste immobile, la tête ap- 2 PE
 PA puyée sur l'épaule de Camille.
 
 En - CAMILLE, la regarde
-nt ce LUCILE, relevant la tête REA
 4 _ Non. — Soupirant. Dieu nous épargne ces épreuves!
 ‘Ra _ LUCILE, pose sa joue sur l'appui de la fenêtre et reste immobile FE FU x.
 ne un bras autour du cou de Camille. NE:
 F Ne crois-tu pas qu'il existe ? ; LAS
 te Pas encore. LES
 00 Que veux-tu dire ?
-CCILENFS F de" AE "4 FRS
 
 Nous le créons en ce moment. Demain, si j'en
 crois ce cœur, demain, il y aura un Dieu : L'Homme.
@@ -2897,8 +2638,6 @@ Qu'as-tu, qu'as-tu, Lucile ? C'est notre ami, c'est
 ROBESPIERRE, la salue en souriant
 Vous ne me reconnaissez pas ?
 
-à rs Le 7 SRE ARE a À 2 Ru x ER EP se S
-LR pÈER LUCILE, encore tremblante F
 _ Ah! vous m'avez fait peur!
 
 Comme tu trembles!
@@ -2912,10 +2651,7 @@ F tête, muette et troublée. %
 x" et la Bastille. — Au milieu des cris lointains, s'élève le cré3 pitement des premières fusillades. j
 * ROBESPIERRE, se tournant du côté d'où vient le bruit #1
 -_ Allons!Ilne s'agit plus d'amour aujourd'hui. à
-ee Il sort.
-| CAMILLE descend de la barricade AS
 _ Ilnes'agit plus d'amour? Et de quoi s'agit-il?
-# è . D.
 … N'est-ce pas l'amour qui fermente dans cette ville, é
 3 qui gonfle ces poitrines, qui offre au sacrifice ces
 Es. 4 . . « … larges moissons humaines ?... O mon amour, tu R
@@ -2938,8 +2674,6 @@ fusillade, les cris, les cloches et les tambours.
 Le loup hurle. Grogne, montre les dents! La
 meute t'a cerné! Puisque le Roi aime la chasse, nous
 allons faire la chasse au Roi!
-
-Main Le cs D.
 
 K Mardi 14 juillet, l'après-midi. .
 ra La cour intérieure de la Bastille. (1) À gauche, la base
@@ -2988,8 +2722,6 @@ les nôtres.
 Dame, c'est l'ordre. Tant pire. Fallait pas qu'ils y
 - 148
 
-A Pret CO ral ME OU nr en Lee dir nn
-
 Évidemment. — Et puis ça fait tout de même
 plaisir d'entendre cette musique. Je ne croyais pas
 que je verrais encore une bataille.
@@ -2998,13 +2730,10 @@ que je verrais encore une bataille.
 __ brûler les maisons voisines. Des toits, leur tir peut
 
 | plonger dans la cour du château.
-| DE LAUNEY
 Non, non, je ne puis brûler des propriétés parti- De
 culières ; je n'en ai pas le droit.
-| DE FLUE
 Guerre sans feu, andouille sans moutarde. Vous
 | êtes bien bon d'avoir ces scrupules. Quand on fait
-À la guerre, il faut ne s'arrêter à rien, ou ne se mêler à
 L de rien.
 
 | Quel est votre avis, monsieur de Vintimille?
@@ -3013,7 +2742,6 @@ L de rien.
 voudrez. Nulle crainte qu'ils entrent. Mais si vous
 À avez envie de profiter de l'occasion, pour déblayer
 …. le quartier qui enserre la Bastille, et pour balayer
-# 149
 
 les braïllards qui se sont donné rendez-vous autour,
 ne vous gênez pas. De cette espèce, la graine n'est
@@ -3030,7 +2758,6 @@ on n'a pu nous en déloger, que de notre consente- Ê
 ment. Ici, nous n'avons affaire qu'à de la racaille,
 des femmes et des boutiquiers; nous sommes à
 l'abri de solides murailles, à deux pas des troupes
-du Champ de Mars et de Sèvres. Il n'ya qu'à fumer
 sa pipe et à se croiser les bras.
 Aussitôt qu'on se tient coi, ces grenouilles de
 Parisiens vous sautent sur les genoux. Jetez-leur
@@ -3081,7 +2808,6 @@ Ils m'ennuient avec leurs discussions. — Montrant F
 | de Launey. Il ne sait jamais ce qu'il veut, il faut qu'il
 consulte tout le monde; il fait des embarras de tout. ki
 Que viens-je faire entre cet indécis et cet entri- À
-paillé ? Sotte tâche qu'on m'a donnée là. Il n'y a ni
 plaisir ni honneur à retirer de pareils combats. ne
 Morigéner le peuple ! c'est une affaire de police.
 | Il n'est pas gai d'être forcé de tirer sur ces
@@ -3089,7 +2815,6 @@ Tu deviens sentimental ? C'est la mode du jour.
 — Il ne s'agit pas de cela. Peu me chaut cette À
 _ _canaille. — Écoute-les hurler. C'est répugnant. —
 _ Qu'est-ce qu'ils veulent ? f
-| VINTIMILLE
 k S'imaginent-ils que la Bastille est une boulange-
 
 . rie? — Encore ! — Quelle âpreté ils y mettent! Ils
@@ -3098,7 +2823,6 @@ tiennent donc bien à vivre? Je me demande quel
 - tence, avec pour tout plaisir leurs vins aigres et
 
 Vous savez, monseigueur, si peu que ce soit, on
-tient toujours à ce qu'on a.
 Vraiment? Parle pour toi.
 Oh ! vous, vous avez eu tout ce qu'on peut désirer.
 Tu m'envies? Il n'y a pas de quoi, mon garçon.
@@ -3113,7 +2837,6 @@ tireurs comme vous.
 Au dehors, la voix de Hoche chante le refrain de la ronde
 du deuxième acte : « Liberté dans ce beau jour ».
 
-| SUISSES, au dehors
 Allons, avance ! devant le gouverneur !
 
 SUISSES, venant de la cour extérieure, et poussant devant eux
@@ -3124,12 +2847,10 @@ HOCHE, posant Julie par terre
 
 Houp là ! nous y voici! Je te l'avais bien dit, que tu entrerais la première !
 JULIE, en extase, joignant les mains /
-La Bastille !
 Qu'est-ce que cette plaisanterie ?
 Un cercle s'est formé autour de Hoche et de l'enfant, les
 
 Mon commandant, nous sommes des parlemen- taires.
-Les soldats rient.
 
 Nous n'avons pas le choix. On vous fait des
 signaux ; vous ne voulez pas les voir. Nous avons
@@ -3149,7 +2870,6 @@ Notre bon génie. Elle m'a supplié de venir avec
 moi. Je l'ai prise sur mon dos.
 
 nue As-tu perdu le sens, que tu exposes cette enfant à #4
-| la mort? 1010
 __ Pourquoi ne partagerait-elle pas nos risques? ‘2408
 _ Elle est bien sûre de mourir, si nous mourons.
 
@@ -3162,13 +2882,10 @@ Ge. Un soldat, un sous-oflicier déserteur! c'est là le :+
 _ parlementaire que nous envoie cette canaille ! — a
 _ C'est parfait. — Eh bien, fusillez-le: voilà sa mis- À
 
-EM et A
 …. Un instant. Il serait bon de savoir ce qu'ils
 
-_ Ils n'ontrien à vouloir. 7 ke ss
 _ Onne parlemente pas avec des révoltés. el “
 
-# 44°
 Voyons toujours, cela ne coûte rien. Ki:
 
 C'est indécent : en tolérant une diseussion avec
@@ -3189,7 +2906,6 @@ d'arranger les choses. Mais si je devais l'être, eh
 
 _ bien, vous connaissez le proverbe : Un beau mourir à
 _ toute la vie embellit.
-1 Ton message !
 
 | HOCHE, présentant une lettre
 | Du Comité permanent de l'Hôtel de Ville.
@@ -3199,17 +2915,12 @@ Pourquoi voulais-tu venir, gamine? Est-ce que
 _ tu connais quelqu'un ici?
 
 : Dans la prison.
-| BÉQUART
-
-- Tu as de jolies connaissances. Qui est-ce? Des
-|_ parents? \
 
 Comment se nomment-ils ?
 Je ne sais pas.
 Comment ! Tu ne sais pas ? — Comment sont-ils,
 alors ?
 Je ne pourrais pas bien dire.
-Ab ca! tu te moques de nous, galopine ?
 Non, non, je les connais bien, je les ai vus.
 Seulement, c'est difficile à dire.
 Maman habite rue Saint-Antoine, près d'ici. Les
@@ -3226,9 +2937,7 @@ C'est qu'ils ont de la peine. Rte
 “ C'est un triste spectacle que celui d'un malheu
 __ reux. Pourquoi veux-tu les voir? Ur
 Parce que cela me faii de la peine. M
-Ke ‘3 UN INVALIDE, riant
 _ Tais-toi donc, imbécile! 2100
-El © L'INVALIDE, d'abord irrité La
 4 _Imbécile? — Après avoir réfléchi, se grattant la tête. —
 D C'est vrai. Re
 
@@ -3236,9 +2945,6 @@ D C'est vrai. Re
 _ Vous ne tirerez pas sur nous, dites? —
 Re Ils ne répondent pas. — Dites que vous ne tirerez pas.
 Je vous en prie. Je vous aime bien. Aimez-moi
-Mauss. De
-Do - BÉQUART, l'embrassant nt. ù à
-NL: Le petit torchon, va ! : 2,
 
 DE LAUNEY, qui a lu la lettre remise par Hoche, hausse
 les épaules
@@ -3267,7 +2973,6 @@ La raison, la conscience, il en a plein la bouche.
 : — Ces singes de Rousseau! — à de Flue. Mes compliments, vous nous avez fait un joli cadeau.
 Votre Jean-Jacques. Vous auriez pu le garder en
 Nous nous en serions bien passés nous-mêmes.
-DE LAUNEY, à Hoche
 Tu es fou. Où a-t-on vu que les plus forts vont,
 de gaieté de cœur, remettre leurs armes aux plus
 
@@ -3303,8 +3008,6 @@ défendiez que votre peau. Nous, c'est notre âme,
 nous. — Vous entendez ce peuple au pied de. ces
 eu murs. Ce n'est là qu'une partie de nos forces. Des
 
-sut) Ain ap at REA Pate dE tt, 1 ee LS TN RENE ts
-| . %
 _ millions d'êtres, tous les peuples à venir combattent Lo
 dans nos rangs, tout ce formidable invisible, qui
 ‘ gagne les batailles. £
@@ -3326,12 +3029,9 @@ d Songez qu'on peut encore s'entendre, que bientôt
 à couler le sang, rien ne l'arrêtera plus. El
 k Retourne tes conseils à tes amis.
 
-# 165
-
 - HOCHE, haussant les épaules. — A Julie
 Viens-ten, pigeon de l'arche, on refuse ton
 rameau d'olivier. — 11 remet Julie sur son épaule.
-DE LAUNEY, à Hoche
 Rien ne peut prendre la Bastille, Elle peut être
 Elle sera livrée.
 Et qui la livrera?
@@ -3339,7 +3039,6 @@ Votre mauvaise conscience.
 Hoche sort avec Julie, dans le silence général, sans qu'on
 pense à l'arrêter.
 Notre mauvaise conscience.
-DE LAUNEY, brusquement
 Eh bien ! pourquoi l'a-t-on laissé partir?
 Il est encore dans la cour.
 Courez après lui, rattrapez-le.
@@ -3348,13 +3047,9 @@ Monseigneur, c'est impossible.
 LES IN VALIDES, grognant leur assentiment
 C'est un parlementaire.
 de qui? de quel pouvoir reconnu?
-Du peüple.
-* DE FLUE, aux Suisses
 Arrêtez-le.
-BÉQUART ET LES INVALIDES, aux Suisses
 Non, camarades, pas cela! Vous ne l'arrêterez
 
-UN SUISSE, voulant passer
 C'est l'ordre.
 Vous ne passerez pas, ou vous aurez affaire à
 nous.
@@ -3409,7 +3104,6 @@ apporter, jusqu'au bout, une correction et une élégance dont la précision mé
 cacher l'absolue inutilité de tous nos actes. (1)
 
 Grand brouhaha. Les Suisses se replient précipitamment de la cour extérieure, avec de Flue et de Launey.
-Ils viennent !
 Quoi ? Ils viennent? — Qui? Le peuple? —
 DE FLUE, sans répondre
 Vite ! levez le pont! — Tonnerre !
@@ -3422,7 +3116,6 @@ comme un flot à l'enceinte de la cour, arrêtée aux fossés.
 Ils sont entrés ! Ils sont entrés vraiment ?
 (1) Ce monologue est supprimé à la représentation.
 
-DE FLUE, soufflant
 Ouf! — Il était temps! — Gredins! — 4 Vintimille.
 Croiriez-vous qu'ils ont réussi à faire tomber le
 premier pont-levis ! — Vous savez la maison du
@@ -3446,7 +3139,6 @@ Liberté elle-même ! — Vous êtes donc venue voir,
 curieuse ? Vous serez mieux ici pour tout regarder
 sans risques. — Il lui tend la main; elle hésite à la prendre.
 
-s à dt 1 114 r ti è. Fr A + LRMPO AE NS COLE (0: RAP ou a ITI5
 Vous ne me donnez pas la main ? Nous étions bons
 amis, il n'y a pas si longtemps. Ne le sommes-nous
 pas encore ? — Elle se décide à lui donner la main. Eh bien,
@@ -3466,7 +3158,6 @@ Vous étiez lasse de jouer la comédie, vous avez
 voulu passer au drame.— Mais savez-vous, ma
 belle, que votre petite équipée risque de vous
 coûter quelques mois de Fort-l'Evêque ?
-Je risquais davantage.
 
 Êr Voyons, ce n'est pas sérieux, Contat ? Vous, avec
 ces hurleurs ? — 11 l'examine de la tête aux pieds. Pas de FR
@@ -3480,12 +3171,9 @@ n'aimiez pas plus que moi cette racaille. "
 Une amourette alors ? — Il est là, dans cette foule ? « LA CONTAT
 Oui, je croyais cela aussi. — Mais non, c'est
 _ autre chose encore qu'un amour.
-| VINTIMILLE Ë
-Alors ? F
 Je ne sais pas. Je ne puis vous dire au juste pour- ê » à
 quoi je me battais ; maïs je le sentais tout à l'heure: , j'aurais été prête à vous égorger.
 
-| VINTIMILLE, rit
 Vous exagérez toujours. D
 
 Je ne ris pas, je vous assure. ÿ
@@ -3508,18 +3196,13 @@ temps où je vous connus: vous cherchez toujours
 de petits motifs aux choses.
 Jen'appelle pas l'argent un si petit motif pour
 . des gueux qui n'ont rien. En savez-vous de plus
-Le Liberté.
 Qu'est-ce que cela ?
 Tu me gênes avec ton regard ironique. Quand
 tu me regardes, je ne sais plus ce qu'il faut dire. —
-Et quand je le saurais, je ne le dirais pas. Je sens RS.
 que cela ne servirait à rien. Tu ne peux pas comprendre. — Ecoute au moins, et regarde.
-LE PEUPLE, au dehors
 Nous voulons la Bastille !
 
-ait VOS TE RS 7 à Li * VA CARTE nd: ds
 Ù Oui, c'est curieux, c'est curieux.
-DE LAUNEY, consterné
 Qu'est-ce qu'ils ont donc qui les pousse, ces imbéciles ?
 LES INVALIDES, regardant avec intérêt et sympathie, par les
 meurtrières pratiquées dans le tablier du pont-levis
@@ -3535,23 +3218,16 @@ Déblayez la cour! Ecrasez-les!
 De Flue avec les Suisses rentre, au pas de course, dans la
 Bastille, par la porte des tours.
 
-En NE à: KM Re “4 4. tt à Ut F Cor ? VAE Ve 4 cs A + of ds
 Re "« Cela va être une boucherie. Ils sont à peine qu
 armés. Et ces enfants! 1e
-# Res 4 9 s É
-fee LE PEUPLE : 1e
 Nous voulons la Bastille! Do 4 a
 E: La Contat et Vintimille n'ont pas suivi l'entretien de de a
 ‘À Flue et de Launey. La Contat est tout entière occupée de ER
 + la foule dont les cris font rayonner son visage. UT
-1e LA CONTAT, criant au dehors 58
 HE Courage! Je l'ai prise avant vous! Je suis entrée je"
-* la première! ; FN
 ‘# Tais-toi, tête d'oiseau! Re
 
 “À Mettez-moi en prison! J'y ai droit. A.
-à Da: On entend un roulement de tambour. à LE
-4 BÉQUART ET LES INVALIDES, regardant au dehors ‘ *
 RC. Ils demandent encore à parlementer. Ils agitent
 _ des mouchoirs. Ils nous font des signaux. ÿ #4
 À Le procureur de la ville marche à leur tête.
@@ -3568,7 +3244,6 @@ Que voulez-vous?
 Au même moment, une décharge de coups de fusil et de
 canon part du haut des tours.
 , Sacrebleu! qu'est-ce qu'ils font donc ?
-LES INVALIDES ET DE LAUNEY, atterrés
 Ce sont les Suisses qui tirent de là-haut!
 Quelques-uns courent à la porte des tours, et rentrent pour
 avertir les Suisses.
@@ -3604,16 +3279,13 @@ retirer, se débat contre les soldats qui lui tiennent les poi- ‘
 gnets, et finit par tomber en arrière, convulsée, dans une
 sorte de crise épileptique, l'écume à la bouche, et hurlante. — On l'emporte, on l'entend crier sauvagement au
 loin. — Au dehors, le peuple pousse des cris de mort.
-DE LAUNEY, atterré
 C'est une bête... On ne la reconnaît plus.
 Ce n'est pas elle. C'est quelque chose d'étranger
 qui s'est glissé en elle, une âme ennemie, le poison de cette foule, cette folie inconnue! — Pouah! tout
 cela me dégoûte, ces fureurs que je ne comprends
 pas, ce vent de bestialité qui semble sortir des
 sauvages lointains de l'humanité! — Les Suisses redescendent des tours avec de Flue.
-DE LAUNEY, éperdu, va au devant de de Flue
 Qu'avez-vous fait? Qu'avez-vous fait?
-DE FLUE, furieux
 Sacredié! J'ai fait ce que vous m'avez dit! Vous
 me donnez l'ordre de les écraser. Je m'en acquitte
 en conscience. Maintenant, il paraît que vous avez
@@ -3625,8 +3297,6 @@ les canons jusqu'à l'entrée de l'autre cour.
 Qu'est-ce que vous faites ?
 En trois volées de canon, la cour sera vidée.
 
-Un Vtt a FANS
-bre s: ps be Ses À ra à ; x s. 6 de Ra
 Vous n'allez pas tirer? Ë Fa
 Et pourquoi pas? Es
 _ Dans cette foule? Ce serait un massacre abomi- ‘à ï
@@ -3644,19 +3314,16 @@ Si tu avances, je tire.
 Il les couche en joue. — Vintimille et de Flue se jettent au
 Bas les armes! — Bas les armes ! — Tonnerre!
 Il tombe sur eux à coups de canne.
-. DE LAUNEY, désespéré
 Eux aussi, se révoltent! Ils ne veulent plus se
 battre! — Ah! tout est perdu!
 Il court vers la citadelle, et veut rentrer.
 VINTIMILLE, l'arrêtant
 Où allez-vous ?
-DE LAUNEY, hors de lui e
 Mourir! Mais ils mourront avec nous!
 Que voulez-vous faire ?
 Dans les caves. La poudrière... Des milliers de
 | tonnes de poudre. Je vais y mettre le feu!
 
-2 LES INVALIDES, protestant
 Vous ne ferez pas cela!
 Je le ferai !
 Faire sauter un quartier de Paris? — Mais c'est
@@ -3669,14 +3336,10 @@ Mais que faire ?
 Jamais! Jamais! Le Roi m'a confié la
 Bastille. Je ne la livrerai pas!
 À Il veut rentrer. — Les Invalides le prennent à bras le corps. ï
-LES INVALIDES, à Vintimille
 | Monseigneur, commandez-nous !
 M. le Gouverneur est malade. Conduisez-le dans
 ses appartements, et prenez soin de lui.
 
-à Mae Er de tent NUS NET FE, Ms Fr RS Le: ici ER dt.
-: A Et JE PS "+ 74 ai De Dr (« à Lies SE: Vie
-DE LAUNEY, se débattant
 On l'emmène.
 br J'ai été un sot de me laisser prendre aussi gauES chement dans ce guêpier. Rien à faire. Il s'agit de
 \ tirer sa carte du jeu le plus galamment possible. —
@@ -3689,13 +3352,10 @@ Rédigeons, s'il vous plaît, le texte de la capitu-
 “Le Des écritures? merci, je ne m'en mêle point.
 | 11 lui tourne le dos.
 Hu Vintimille écrit, appuyé sur un canon. SE
-ÿ | UN SUISSE, à de Flue
 à Ils vont nous massacrer.
-‘3 1 DE FLUE, flegmatiquement
 De : Peut-être bien.
 11 Il s'assied sur un tambour et allume sa pipe.
 
--e LES SUISSES, s'épongeant le front À
 __ Damnée chaleur! Est-ce qu'on ne pourrait pas (RES
 | boire? ne
 | Un Suisse va chercher à la cantine une cruche qu'ils se À
@@ -3710,12 +3370,10 @@ D. se redisent les mots, et hochent aussi de la tête.
 _ LES INVALIDES, entre eux, avec un mélange d'ironie et de
 L La chèvre a pris le loup. /
 Je demande leur parole qu'il ne sera fait de mal os.
-| à personne. D
 _ Cela ne nous coûte rien de demander. AE
 
 _ Ni à eux de promettre. —11 va à de Flue. Voulez-vous a
 
-: DE FLUE, signant »
 : Belles façons de se battre! — Après tout, c'est RS
 
 _ leur affaire. k
@@ -3735,7 +3393,6 @@ Ils ne comprennent rien.
 Béquart va vers la porte.
 Comment feras-tu pour leur passer le papier?
 BÉQUART, montrant sa pique
-A la pointe de ma broche.
 VINTIMILLE, se retournant vers les tours
 Hissez le drapeau blanc !
 
@@ -3752,13 +3409,11 @@ Ne tirez pas ! ne tirez pas!
 Au dehors, des voix crient aussi : « Ne tirez pas! » Un murmure: « € La capitulation! La capitulation! » gagne de
 proche en proche. — Des voix indistinctes discutent. —
 a Puis, après un instant, le silence se fait.
-LES INVALIDES, regardant
 ' Hoche et Hulin courent devant le peuple et
 _ abaïssent les fusils. — Ils comprennent. Ils s'arrêtent. — Ils viennent près du fossé.
 BÉQUART, penché de tout son corps sur le mur, tend la
 capitulation au bout de sa pique, par-dessus le fossé
 à Bougre! dépèchez-vous! je n'ai pas le temps d'attendre.
-LES INVALIDES, regardant
 Hulin apporte une planche. Il la jette sur Le fossé.
 — En voici un qui passe. Il trébuche. Il tombe...
 Non. Il s'est rattrapé.
@@ -3767,7 +3422,6 @@ Allons donc ! allons donc !
 I1 touche la pique. Il a pris le papier.
 | C'est fait... — Regardant le peuple. Salauds ! — 11 lève
 les bras et crie: Vive la nation!
-Il tombe en arrière.
 Ah ! les bougres ! ils l'ont tué!
 
 Deux d'entre eux vont chercher le corps et le rapportent au
@@ -3779,12 +3433,9 @@ d'ironie et de sympathie k Il reste le savoir-vivre? — Le savoir-ne-plus- vivr
 
 LES INVALIDES, prêtant l'oreille
 
-Le Écoutez !
 ; On entend crier du dehors, et les Invalides répètent ÿ = La capitulation est acceptée!
 
 et VINTIMILLE, indifférent S
-
-on Prévenez M. le Gouverneur. j y A *
 
 _ Monseigneur, il a perdu la tête, il brise tout dans
 _ sa chambre, il crie et pleure comme un enfant. Re
@@ -3814,7 +3465,6 @@ remercie de votre obéissance. Vous y avez plus de va
 mérite que les autres. Tournant la tête vers les Invalides,
 souriant légèrement. Quant à Vous, nous nous comprenons.
 Murmure approbatif des Invalides.
-DE FLUE, flegmatique
 Bah! C'est la guerre.
 Un Invalide siffle: « Où peut-on être mieux qu'au sein de sa
 VINTIMILLE, se tournant vers lui, avec un geste un peu
@@ -3827,9 +3477,6 @@ Nous ne sommes pas battus! — Jamais ils n'auraient pris la Bastille, si nous n
 Ses compagnons l'approuvent. Ë
 VINTIMILLE, même jeu
 Tu vas dire que c'est nous qui avons pris la Bas- tille ? K
-
-“ee L'INVALIDE
-| I y a du vrai là-dedans.
 
 j Au fait. — A ton poste. — Après un silence, haut.
 Ouvrez la porte. — Baissez le pont-levis.
@@ -3846,8 +3493,6 @@ fourmillantes et hurlantes, hommes et femmes avec des s
 fusils, des piques et des haches. Au premier rang, Gonchon, poussé, agite un sabre et crie. — Hoche et Hulin se
 débattent en vain pour les calmer. — Des cris de mort et
 de victoire.
-
-| VINTIMILLE, se découvre
 
 | Messieurs, la Canaille.
 
@@ -3876,11 +3521,8 @@ l'ennemi ! Tue-les ! — Ils ont tiré sur nous!
 Hoche et Hulin, qui veulent arrêter la foule, sont balayés
 par elle, et violemment jetés contre un mur. (1)
 Impossible! On arrêterait plutôt la Seine
-Tu es blessé?
 ———
 (1) La scène de massacre qui suit est supprimée à la représentation, jusqu'à l'arrivée de Julie. à » 192
-pre Late TERRE LE RS eq à ‘te 4 x ok "EN
-ï Cal APN HULIN; avec un rire ÿ pe 2040
 _ Sais-tu par qui? Par Gonchon! FE (US
 _ Il est féroce, maintenant. Le plus lâche chien DA
 _ mord, quand on veut lui arracher l'os qu'il mange.
@@ -3889,22 +3531,16 @@ _ Et la Contat s'escrimant avec sa pique, et la
 _ vieille, coupant la gorge à Vintimille abattu! 11 600
 _ HOCHE, hors de lui, frappant à droite et à gauche pour passer part
 
-_ Tu ne passeras pas, tu ne passeras pas, je te L
-| dis! 5110
 2 HOCHE, repoussé par la foule : 110
 de Les malheureux ! DRT
 
 We Ne savais-tu pas cela ? — Bah! Ce n'est pasnous
 Le qui avons fait les hommes. Re
 
-Fr + U | ii À < CU Du ŒAS out 0 De Ne.
 L'Invalide qui se sauve! Tape dessus!
-| DESMOULINS
 Le vieux monstre sans pattes! Enlevez l'épouvantail! A l'eau, la cour des Miracles !
 HOCHE, saisissant à la gorge Desmoulins
 Tais-toi!
-Quoi ?
-Tu es ivre!
 DESMOULINS, ne comprenant pas
 Ivre?... Maïs je... je.
 Tu es ivre de sang. Tais-toi!
@@ -3923,24 +3559,17 @@ Où est la petite?
 La petite? — Hoche court chercher Julie.
 
 Arrêtez, camarades, vous tuez les prisonniers!
-FE L LE PEUPLE, interdit
-14 Les prisonniers?
 
 ; Les prisonniers de la Bastille. — Regardez leurs
 _ sarraux gris! Ce sont ceux que nous venons délivrer.
-L LE PEUPLE, incertain
 Mais non, ce sont les ennemis.
-
-| HULIN
 
 Il n'y a plus d'ennemis. »
 
-F> + RG en ne Un LE
 Fe JULIE, paraissant, debout sur la grande porte de la Bastille, que
 tiennent sur leurs épaules quelques hommes du peuple, —
 tend les bras, un rameau vert à la main, et crie
 Grâce pour nos amis, nos amis les ennemis!
-LE PEUPLE, riant
 Entends-tu cette petite ?
 La petite pucelle qui foule de ses pieds nus la
 porte de la Bastille, le despotisme vaincu!
@@ -3949,7 +3578,6 @@ CE Tous frères, elle a raison!
 
 | Vive le peuple!
 ui Vive la vieille gloire!
-D: LES INVALIDES, à Julie
 : Petite, tu nous sauves!
 Mais c'est elle aussi qui vous a vaincus, cama- à .
 1 _ rades. C'est ce petit atome qui a pris la Bastille! ES
@@ -3959,24 +3587,17 @@ __ Tues notre petite Liberté! A
 < à Ils tendent les bras vers elle. Les femmes lui envoient des *+ Le j
 15% baisers. Elle ferme les yeux, sourit, et tremble.
 4 HOCHE, frappant sur l'épaule de Hulin, qui partage l'émotion de Dec
-48 la foule A
 
 D: Eb bien, Hulin?. Éternel douteur, es-tu enfin
-| convaincu ? 728
 He: ) __ HULIN, s'essuie les yeux. — Entêté {3
-0 Oui. quoique... Les
-k Les rires de Hoche et du peuple coupent sa phrase. Il s'in- RE
 À terrompt et rit plus fort que les autres. Il regarde autour Re.
 F s de lui, voit dans une niche, à l'entrée de la cour, dans le
-: mur de la Bastille, la statue du Roi. Il va brusquement à a
 ü elle et la saisit. | 4%
 _ Nom de Dieu! — A bas, toi! Fais place àla
 hi ' Liberté ! — na jette à terre, enlève dans ses bras la petite Julie, DE
-n. et la pose dans la niche, à la place de la statue. Ma force se +48 à
 réveille et prend conscience d'elle-même. La Bas
 { 4 tille terrassée !.. J'ai fait cela, moi!,Nous avons #4
 _ fait cela! — Nous en ferons bien d'autres! Nous
-TPARI L ts
 allons nettoyer les écuries d'Augias, purger la terre
 des monstres, étouffer dans nos bras le lion de la
 royauté. Notre poing va battre le despotisme, comme
@@ -3997,7 +3618,6 @@ Bonne bête qui me résignais, qui croyais nécessaire de souffrir, pour le plai
 que je comprends maintenant! Je veux vivre, je
 veux vivre! Malheur que je sois si vieille! Bon
 sang ! Je veux regagner le temps que j'ai perdu! —
-Hue ! ma belle, à la Cour!
 
 Elle passe, poussée sur son canon par des hommes du
 peuple, jambes nues, avec des casques et des armures.
@@ -4006,7 +3626,6 @@ A la Cour! A Versailles! — Oui, nous avons trop
 souffert! Nous voulons le bonheur! Nous prendrons
 le bonheur!
 
-%. 2 ; Ca PANNE à le RES 4 sf: ; PE ue CE + led a : a É L. D else
 F. DESMOULINS, une branche verte à la main
 À La forêt de la Liberté a surgi des pavés. Les
 
@@ -4023,7 +3642,6 @@ notre journée.
 , Ses feux mourants rougissent les vitres du chà-
 | - teau, les rameaux balancés, et la houle des têtes, et
 la petite Liberté.
-| HULIN
 Le ciel sonne la guerre.
 Comme Celui qui entra, il y a dix-sept cents ans,
 | au milieu des rameaux, cette petite fille n'est pas
@@ -4032,14 +3650,11 @@ venue parmi nous pour apporter la paix. ‘is
 Il y a du sang sur nous.
 ROBESPIERRE, avec un fanatisme concentré et brûlant
 C'est le nôtre.
-S LE PEUPLE, surexcité
 C'est le mien! C'est lemien!... Nouste l'offrons,
 Au diable notre vie! Les grands bonheurs
 Nous sommes prêts à payer.
-Nous paierons.
 LE PEUPLE, enthousiaste « : Nous paierons !
 Des rondes s'organisent autour de la Liberté. Musique.
-LA CONTAT, au public
 Rire, rire, amour! La Joie est avec nous. Joie
 f d'être un avec tous, joie d'aimer avec tous, joie de
 souffrir avec tous ! Donnons-nous la main! Formons
@@ -4084,35 +3699,23 @@ Les épées, les lances, les branches d'arbres, les mouchoirs,
 les chapeaux et les bras s'agitent, au milieu d'acclamations et de sonneries de trompettes. Le peuple forme des.
 rondes autour de la Liberté.
 
-| RAT
-Pr LE x (ARRET ii
-HT Voir page 83
 È _ Un cortège s'organise avec un. ordre bizarre et solennel. 14800
-nu ART : HOCHE, montrant le peuple à Hulin # 4 ñs
 ._ Eb bien, Hulin, es-tu convaincu maintenant? k à à
 _ C'est absurde... Cette foule en désordre, qui va atta-
 | quer une armée... Ils vont se faire massacrer. Cela ne 5%
 ‘3h _ rime à rien. — 11 suit la foule. \ ‘HR
-Où vas-tu? #5
 _ Avec eux, naturellement. :40eR
 de, Ils rient et vont se mettre à la tête du peuple. — Tout à coup, la vieille 53 va A
 LE, - marchande arrive en battant du tambour. ' ] Kb
 5 Une clameur formidable s'élève. i Fe à
 
 ‘080 Du recueillement, camarades ! point de désordre!
-Sn: LE PEUPLE, à mi-voix
 
 ‘1 Oui. Du recueillement! Faites silence!
 
-# &. è Chapeaux bas!
 Gr 11 se découvre. Tous limitent. La foule chuchote, — et se tait.
-LPS L'HOMME DU PEUPLE, à mi-voix ne En avant.
 KY CA Roulement lugubre de tambour. Le peuple se met en marche. — Silence.
 
-AT ce) Se, - Le bull ae, Nas ” PPRIRAT RES ©
-
-À Voir page 101
-| ROBESPIERRE, entrant
 . Sacrilège, qui ose porter la main sur un fondateur de
 la Liberté!
 | GONCHON, lächant Desmoulins
@@ -4129,15 +3732,9 @@ Ils s'approchent de la maison, à la porte de laquelle, dans un renfoncement obs
 l'épaule, fumant sa pipe, monte la garde.
 Qui êtes-vous ?
 
-; Hdér: LraRR UEE Û Si en As a < DES St
-Face “ a res At MONT PRE PP ST a: à à F k UN À
-
 Re. Connais pas. Ne.
 
-J * AUUE ne L'HOMME
 400 Montrez votre carte.
-
-ra L'HOMME
 
 . 352 Le petit à la cocarde? Passez, camarade. d
 0 Il est avec moi. PE
@@ -4146,13 +3743,9 @@ Ne. Allons, passez aussi, citoyen Robert Pierre.
 Re * pi Admire, mon ami, le pouvoir de l'éloquence.
 * TD Robespierre le regarde, sourit amèrement, soupire, et le suit sutl
 
-FRE GONCHON, s'approchant de l'homme en faction | à
-
 6 à ht Qu'est-ce encore que celui-là ? À
 LYS Comment, coquin ? Que fais-tu là? is
 
-SN 0 RAM he TD VE ne Sate” SN ET MP he i
-vie re ti ax _L HOMME, emphatique PRESS
 _ Je veille sur la nation, sur la pensée de la nation. : 408
 _ Qu'est-ce qu'il raconte? As-tu des papiers? Qui t'a
 _ chargé de ce soin?
@@ -4212,10 +3805,8 @@ On respire. On est un roi. On marcheraït sur le monde. .
 — Il s'exalte en parlant, et marche à grands pas. Hé là! Je suis comme
 
 “a ivre, la tête me tourne; je n'ai pourtant pas bu. Qu'est4 ce donc? — C'est la gloire!
-s HULIN, sortant de la maison
 Ouf ! J'étouffe là-dedans. Il faut que je sorte.
 
-| L'HOMME EN FACTION
 Eh ! Hulin ! qu'est-ce qu'ils font ?
 Ce qu'ils font? — Ils parlent, ils parlent. Ah! les
 sacrés bavards! ils ne sont jamais embarrassés pour
@@ -4263,7 +3854,6 @@ _ J'aime mieux être dans ces souliers que dans ceux de
 4 _ Capet. J'irai bien sur ces pieds-là jusqu'à Vienne ou à
 x Berlin, s'il le faut, pour faire la leçon aux rois.
 …_ Tun'as pas assez de besogne ici ? à
-à L'HOMME fi
 4 Cela ne durera pas toujours. Quand nous en M
 - aurons fini, quand on aura fait la toilette de A
 Paris et de la France, pourquoi n'irions-nous pas
@@ -4288,7 +3878,6 @@ Tout le temps. Cela fait du bien. A force de rêver,
 il finira bien toujours par arriver quelque chose de
 ce que je rêve. — Hein! Hulin, qu'en dis-tu? ça ne
 serait-il pas une belle promenade ? Est-ce que tu n'en
-es pas?
 Bon. Quand tu auras pris Vienne et Berlin, je me
 charge de les garder.
 Ne ris pas. Qui sait ?
@@ -4299,11 +3888,9 @@ tout à l'heure. p
 
 ‘4 Ça, c'est le difficile. Comment est-ce qu'on fera? —
 _ Bah! nous verrons bien. A chaque heure suffit sa tâche. s,
-# ! HULIN
 À _ Diables de Français, ils sont tous les mêmes. Ça à
 pense à ce qui se passera dans un siècle, et ça ne
 __ pense pas au lendemain.
-| 1 L'HOMME
 
 4 Possible. Aussi on pensera à nous dans les siècles à
 ; Cela te fera grand bien!
@@ -4315,8 +3902,6 @@ qu'on n'en jouit que quand on est pourri. Une bonne
 4 Vintimille arrive de la droite. ".
 _ Les rues vides. Deux gueux qui parlent de gloire, en
 _ s'épuçant. Un monceau de meubles brisés par une
-
-| ‘ ‘ be Fe nl s
 
 A * population d'épileptiques. Voilà cette grande révolte!
 
@@ -4347,9 +3932,6 @@ f Une bonne plaisanterie ! Tout cela, ça s'achète. À
 } Evidemment. Tout s'achète.
 
 Fe Tout en passant, il tend dédaigneusement de l'argent à l'homme.
-| Bonsoir. À
-
-4 L'HOMME, sursautant
 
 Quoi ? Qu'est-ce que c'est que cela ?
 
@@ -4362,10 +3944,8 @@ Laisse, camarade, laisse. Je le connais très bien.
 ‘É VINTIMILLE, sans se troubler
 . Mais en effet, c'est...
 C'est Hulin.
-| \ VINTIMILLE
 K Un instant de silence. Ils se regardent tous deux.
 HULIN, à l'homme
-: L'HOMME, criant, furieux
 Il a voulu m'acheter, acheter ma conscience !
 Ta conscience ? Que veux-tu que j'en fasse? Voilà
 une belle denrée! Je paye pour les services qu'on me
@@ -4397,8 +3977,6 @@ _ detes scrupules? Je ne te demande rien. Prends.
 J'aimerais mieux crever. — Toi, Hulin, donne-moi.
 ; Vintimille tend l'argent à Hulin, qui retire sa main. L'argent tombe.
 L'homme le ramasse. F
-Où vas-tu?
-| VINTIMILLE à
 Oublier quoi ?
 b Que je ne suis pas libre. — Canaille !
 Faiseur d'embarras! — Il n'y a rien de si sot qu'un
@@ -4436,8 +4014,6 @@ _ sera l'affaire d'un jour; et l'on en aura fini pour cin_ quante ans avec les m
 _ des philosophes et des avocats. b 10%
 _ Ainsi une révolution ferait votre jeu? Il ne vous 2 "
 … déplairait pas que le peuple se livrât à de sanglantes
-à ? rise er, La
-| 1ATÈNERS VINTIMILLE CTE
 _ Pourquoi non? Quelque chose qui fit du bruit. Au
 _ Etsi l'on commençait par vous? Ne
 _ Savez-vous qu'il m'en prend envie en ce moment? js
@@ -4456,7 +4032,6 @@ Hulin, si tu me trahissais? Ne perdrais-tu pas à tout
 jamais ce bien inappréciable : ta propre estime? — Il
 n'est pas si facile que tu crois de se passer de scrupules. — Tute vantes, je te dis : tu es un honnête
 homme. — Adieu. ,
-Il s'éloigne.
 Ilse moque de moi. Il me connaît. — C'est vrai. Les .
 canailles auront toujours l'avantage sur les honnêtes
 gens, puisque ceux-ci s'imposent des règles, et les autres
@@ -4471,27 +4046,13 @@ S M # On entend au dehors la voix joyeuse de Hoche, au milieu des accla- AU
 PA“ ar __ mations et des rires de la foule. — Les fenêtres des maisons s'ou- se à
 ' er h + vrent. Les gens paraissent, et se penchent pour voir. aa F
 _ C'est Hoche! J'entends son rire ! cela fait du bien! Dur
-LEE FU 3 Les garde française et le peuple arrivent en chantant. ne st
 
-| BASIC ER
 _ La suite, comme précédemment. Voir page 114. L'Art
 
 - 148
 
-| SO n,(%
-
-on A A
-
-#7 d APN Are tes 14 D “OR
-
-$à “2e SSRRU RSR A du LU DER ete nee LE KE
-
-| s 5 AN DNS CN NS
-
-pare ss She ie Res PE à: PAR RE j
 5; Variante pour une représentation de fête populaire 22108
 7 _ avec musique et chœurs 200
-Voir page 191 . nt.
 - _ Le pontlevis de la Bastille est baissé. Une clameur formidable $ en.
 _ éclate. Une marée humaine se rue à l'ouverture de la porte, têtes
 … fourmillantes et hurlantes, hommes et femmes avec des fusils, des DE
@@ -4503,7 +4064,6 @@ la Canaille.
 _ QUELQUES INVALIDES, pris d'un brusque transport, criant et agitant Le:
 _ Vive la Liberté!
 8 h! messieurs, par pudeur
-ET LES INVALIDES, avec un enthousiasme débordant. EN
 _ Vive la Liberté! Sn
 24 Ils se débarrassent de leurs fusils et se jettent dans les bras du peuple. 4 2e
 VINTIMILLE, entraîné par un mouvement soudain de folie, dans le délire APE
@@ -4512,7 +4072,6 @@ re des autres
 que je fais donc ! SE
 Bou. Il brise son épée. < : it
 
-| SCENE FINALE
 Fête du Peuple (1) — Triomphe de la Liberté
 Mardi 14 juillet, 7 heures du soir. — Place de l'Hôtel-de-Ville. i
 Peuple qui crie, rit, se rue en tous sens, paré de cocardes vertes, J
@@ -4548,14 +4107,11 @@ ca Ÿ ES Tout d'une voix
 4 L'épouvantail de cette Bastille, cette peau de lion,
 4 dont ils cachaïent leur féroce lâcheté, — arrachée de
 # leurs épaules ! — Et voici paraître tout nu, grelottant et
-ridicule, le Roi, le Roi ennemi!
 
-È Échec au Roi! Le Roi est vaincu!
 .< — Paris n'est plus au Roi. Paris est à Paris!
 
 n: LA VIEILLE FRUITIÈRE, à cheval sur un canon, un fichu rouge autour
 ré; de la tête
-. Au Roi! Au Roi! — Voilà mon cheval! Je l'ai pris. Je
 _ vas atteler l'animal à ma petite voiture; et nous allons
 à Versailles faire visite au gros Louis, M. Capet l'ainé.
 - J'en ai long à lui dire. Bon Dieu! depuis des siècles que
@@ -4603,9 +4159,7 @@ Mais rien ne t'appartient davantage que mon cœur, Free)
 _ chère ville, mon cœur qui t'adore, et se donne tout à FA
 
 wa Ne me nommez pas ainsi! Je ne suis plus Prussien! rh
-_ ny a plus denations! Il n'y a plus de Prusse! Je vous SR
 | la donne. Faïites-la libre!
-5 FE FAUCHET ne
 _ Source de la Liberté, nous avons combattu pour toi! ,
 _ Achève notre ouvrage ! Nous te prions pour nos frères,
 pour ious les hommes de l'univers, qui n'ont pas le pou_ voir d'atteindre au bonheur, comme nous, avec leurs
@@ -4620,7 +4174,6 @@ _ gaux, monagaux ! Vivent les archinigauds !
 >, -Mor dieu ! vive le citoyen Dieu! Une fois n'est pas
 ÉTUDIANTS, bras dessus bras dessous avec des filles, chantant
 une chanson de Vadé
-Le bonheur suprême,
 Le bien que j'aime,
 C'est la Liberté, F
 Mon cœur en est enchanté.
@@ -4628,20 +4181,15 @@ Chapeau bas devant la plume! Voilà ce qui tua la
 UN ÉTUDIANT, poussant une brouette
 | A dix sols, à dix sols, Les pierres de la Bastille! F
 
-LE PEUPLE, riant e:
 Ah! le farceur ! l'ours n'est pas tué, qu'il vend déjà la peau.
 UN AUTRE ÉTUDIANT, portant une grande pancarte, avec l'inscription:
 Charité, citoyens ! Où les honnêtes gens coucheront- à
 ils ce soir? Il n'y a plus de Bastille.
-La foule rit.
 Gonchon est porté sur les épaules d'étudiants qui rient et crient. Il
 a un sabre à la main, et une couronne de laurier sur la têle.
 L'héroïque Gonchon! — Le héros malgré lui ! —
 Gonchon, l'ennemi des rois ! La terreur des aristos!
 
-| ESS LE s + s HAS
-| , BL
-| ira qu: LES ÉTUDIANTS +4
 _ Il avait si grand peur, qu'il est entré le premier. Il a L
 
 _fuià travers l'ennemi, les mettant tous en fuite, terrible
@@ -4692,21 +4240,15 @@ des éclopés. — Ha! l'ennemi! Tue-les! Ils ont tiré sur.
 nous! o
 Ils sifflent, et veulent frapper. — Hoche, Hulin et Marat s'interposent. à
 Et qu'en voulez-vous faire? Voulez-vous les manger?
-Le peuple rit. ‘4
 . La bataille est finie. N
-| HOCHE
 ( Il n'y a-plus d'ennemis.
 
-LS ses LA PETITE JULIE, criant :
 Grâc e pour nos amis, nos amis les ennemis!
-|| TARN LE PEUPLE, riant *
 _- Entends-tu cette petite?
 + _ Tous frères, tous amis! : Se
 _ Tous frères, elle a raison! à
 Vive le peuple! x}
-# LE PEUPLE |
 Vive la vieille gloire! g
-EC LES INVALIDES, à Julie i
 _ Petite, petite, c'est toi qui nous a sauvés. p
 _ Mais c'est elle aussi qui vous a vaincus, camarades.
 ._ C'est ce petit atome qui a pris la Bastille. de.
@@ -4729,7 +4271,6 @@ dans une niche, statue de saint ou de Roi. Il va brusquement à L
 elle, et la saisit.
 A bas, toi! Fais place à la Liberté!
 11 la jette à terre, enlève dans ses bras la petite Julie, et la pose dans
-la niche, à la place de la statue.
 Ma force se réveille et prend conscience d'elle-même.
 La Bastille terrassée!.. J'ai fait cela, moi! Nousavons
 fait cela! — Nous en ferons bien d'autres! Nous allons
@@ -4758,18 +4299,12 @@ _ Ilya du sang sur nous. Me
 EH à _ ROBESPIERRE, avec un fanatisme intense et concentré
 
 _ C'est le nôtre. < S
-DES LE PEUPLE, surexcité LOUE S
 _ C'estle mien !— c'est le mien! — Nous te l'offrons, ee
 _ Au diable notre vie! Notre œuvre est immortelle. à
 Les grands bonheurs s'achètent. +.
 Nous sommes prêts à payer.
 
-RS VAR eR Te St Le de Fr it su
-
 ROBESPIERRE, de même
-Nous paierons.
-LE PEUPLE, enthousiaste
-Nous paierons ! .
 Les rondes s'organisent. La musique accompagne les discours qui
 La fleur de liberté estéclose dans la prison du monde.
 Ton rameau vert, ô petite fille, est la baguette magique,
@@ -4786,7 +4321,6 @@ ouvrage! La Bastille est à bas : il reste d'autres Bastilles. A l'assaut ! A l'
 de la Nuit! L'Esprit vaincra la Force. Le passé est
 brisé. La mort est morte !
 Air chanté sur la scène.
-LA CONTAT, au publie os
 Frères, chantez avec nous ! Notre fête est votre fête.
 Ce n'est pas le souvenir d'une heure fugitive, ce n'est …
 pas l'image vaine d'une action passée: c'est notre commune victoire, c'est votre délivrance ! Nous avons brisé
@@ -4804,7 +4338,6 @@ e EE Air chanté dans la salle.
 4 que tu peines en silence ! Tant de siècles de souffrances,
 - pour arriver enfin à cette heure d'allégresse! La liberté
 # _ appartient, garde bien ta conquête!
-rs À HULIN, à la petite Julie
 É x O notre liberté, notre lumière, notre amour ! Que tu
 es petite encore, délicate et fragile! Pourras-tu résister
 _ petite plante, monte droite et vigoureuse, et réjouis le
@@ -4817,12 +4350,9 @@ _ sommes à toi. Tout ce qui est à nous est à toi. A toi,
 _ ces dépouilles, ces trophées.
 % ! Les femmes jettent des fleurs à la Liberté, les hommes inclinent
 Er devant elle leurs piques, leurs bannières, leurs rameaux verts, les
-We. TR trophées de la Bastille.
 , l- _ Mais ce n'est pas assez: nous te ferons un immortel
 
-Se ee ne RTE M de LS
 nr triomphe. Fille du peuple de Paris, tes “yeux clairs A
-À - - RE un nd OEET
 + rayonneront pour les peuples asservis. Nous allons Là
 L promener à travers l'univers le niveau redoutable de
 à lÉgalité. Nous conduirons ton char, au milieu des
@@ -4863,7 +4393,6 @@ pas nécessaire que le public saisisse tous les mots de la
 oule, pas plus que toutes les notes de l'orchestre et des
 cl œur S; il faut qu'il ait seulement l'impression d'une ker- cd
 nesse exubérante et triomphante.
-RL ce is © ae à Re un Le
 
 Je voudrais de plus l'obsession impérieuse d'un thème,
 
@@ -4887,7 +4416,6 @@ dans la niche de la statue — orchestre et chœurs sur la
 
 > Après l'hymne de Desmoulins à la Liberté et son
 appel au peuple, un air entraînant et juvénile chanté sur
-la scène; $
 
 3° La reprise, ou la seconde partie, de cet air serait M
 chantée, après l'hymne de la Contat, par une ou plusieurs « voix dans la salle (aux étages supérieurs du théâtre); Ë
@@ -4920,29 +4448,14 @@ de tous les points de la scène et du théâtre, au baisser du
 rideau, — des sonneries de trompettes; — et aussi des
 “danses, des rondes, le tumulte d'un peuple et d'une $
 
-M: Romain Rolland
-
-PASS OR On x C othi DES
-M A Te LE dir À at up HAL NES
-
 Fini d'imprimer trois mille exemplaires pour la
 | première édition le jeudi 20 mars 1902
 
 ‘Fat à l'Imprimerie de Suresnes
-|. 200 9, rue du Pont
 
 74708
 
-| FLN SRE
-#j é x 1 RE, 2" Sa
-we < SE TN Fe: ne
-| Pat. CE
-
-gi s LUN NE y
-SE nn nb Ah An LE PES RTS Le *
-
 sh Pendant les représentations du 14 JUILLET ei
-| ln : sa
 | _ Tout porteur de ce coupon détaché aura K
 … || Fauteuils d'orchestre ou de balcon
 Æ|. . 8 francs au lieu de 5 francs
@@ -4950,7 +4463,6 @@ os È Fauteuils de première galerie
 Li 2 francs au lieu de
 © | Valable une fois pour deux personnes. SA
 | di] Échanger au bureau du Théâtre.
-D Le he ENST
 
 Les drames de Romain Rolland
 paraissent régulièrement dans les DE
@@ -4958,8 +4470,6 @@ paraissent régulièrement dans les DE
 
 AJ Vos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi_ naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-| demeurent libres.
-Nous servons
 & _ des abonnements de souscription à cent francs; "
 des abonnements ordinaires à vingt francs; TER
 * 5 et des abonnements de propagande à huit francs.
@@ -4986,6 +4496,5 @@ j M. André Bourgeois, administrateur des cahiers,
 s reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept
-| heures. À , Fr
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction le jeudi soir de deux heures à cinq heures.

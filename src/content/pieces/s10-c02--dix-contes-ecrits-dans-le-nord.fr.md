@@ -8,28 +8,8 @@ isAvertissement: false
 wordCount: 27268
 ---
 bn écrits dans le Nord
-i ne
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-: nr U A VAN EAN RARE REA AE RER Dit
-eee SARA EAN A A A A TTL ol PA MA PLAT Le tt
-
-1 FRÈRE pi l'AS eur D À ï É ETES 5
-
-et. EU ae é OU 7e LPS NE
-
-RDS XD ; 2 ne SNA IN BEL ANA RE FAN
-| : SE TUE DONS) AIS
-| À YLE à
-| * COMTE
-| 4 | L'EVPRRNRR
-
-110 { FRS APN PANE  L à Mn QE BUS ATTES ÿ FAUNE À SC ACTER Net ete REA
-tres 22 VASE AN CRE A PAS RENE AQU LE CA DEA Ve LA | en
-L'AA AA rare RERO E REA AT Lens RUE ES pute
-AE | AN PE ARTE PAS ul MAR AU AE Bone PACE Doit
-|: NET ARENS ag, EN INDE A Q'EAEST AE AIR ARE DA, HN RONA
 
 5 1
 Nous avons publié dans nos éditions antérieures et.
@@ -67,44 +47,11 @@ vait, par le fait même de son abonnement, en tête de la
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-a NU SA AN EE FEI ANT piton PAL ON EE AREA eu 7 PAS CE PAS EC RE x 2 yet
-ar) di PURE s 7 PHA Fi VE MES Da AV Re h ps 0 DA El 7 LAN :
-
-AS HT } RE S sé A 6 sur, LR |
-
-ÉE AU AN toi OS RUN De EN D ot M REUTTEA
-fe Tr] EU) Mr AT RON THFOIIE { A FF EURE sa "AE
-D Le RER M CAANDER de AR DO TE ES on VAN S UE Ka
-OUT AL AT Ch) AE HRMUE AE NEA ne LATE
-DEA Ur Mur 1 mn L : UE mn.
-| LANNENNNES Re
-|: 1, St <ONPRRS é
-
-CN ON AMEN (ii MEL PAR NO ONCE SP RCE ER
-
-j USE oi ci dit le Vieux NOR 14 AL 4
-Le 010 A Teniers dit LEE A: (ARS A ARE SN 700
-« LE ‘a ae nu HE Lan CR N Ro FA
-
-AE LR 6 PEUR POP E ne PET Re
-: SANS es M D nd bte à
-pd LASER ANNEES FRA br PA DES Nes de |
-ES AN ES ET TR Dr ttesQ LES car st RÉCENTS AA 37 4n Me RS à
-
-EE, 4 FRE, nee cu L
-
-or on
-DAC ANTENES NS A PRE Nr ALES pére Ps [et AD
-
-if ge X A 1 { “ OLA 440! « RS Nue DUT PAL LA AUS NAT NAN) NA) Cu AR AE 2'0eN
-RS un brave homme pe | is 1
-
 11 I y avait, dans ce bourg de la frontière belge,un
 ‘4 _  Æ forçat gracié, très sage, de cette sagesse des petites ral
 il as filles de parents sévères qui restent assises très long- ol A
 …_  Lemps et, vivant dans l'effroi, ne font rien qu'en demanVE p , , Ma A
 dant la permission. ÿ tu
-; ne On le reconnaissait de loin à sa démarche tranquille; ro
 _ c'était l'homme du bourg qui marchait le plus lente- FH
 …_ ment, enfoui dans son tricot de laine aux poches défor- à à a
 _  mées par l'habitude d'y mettre profondément les mains. A
@@ -153,8 +100,6 @@ Lecocq se leva, ôta sa toque de poil et dit doucement : ' |
 « Oui, monsieur, je suis un brave homme. »
 
 Le voyageur fronça les sourcils et le regarda sans x
-
-Il répéta :
 
 « Je suis un brave homme, monsieur. C'est la balle de .
 Coutiches qui a tout fait. »
@@ -310,16 +255,6 @@ votre frère. » 744
 Il se remit à boire sa chope qu'il serraït très fort. Et F
 on sentait qu'il avait envie de se battre, ce vieux. F:
 
-ro Ne PP PAIE AAA
-|| T'MPAIESR “ *
-
-IPTC EURE RL RENAN Are Sa NPD UN DEP Er AE fe TC FSU
-À LE Are MANS 2 11 FRNONES
-
-| V'28N0) Ma ï < LA En 0
-#p s AN SNSANE 3 ; Es UE D 2
-
-“A LES ti RONA e NE ARTE RIRE L nu CAGE TRAA CT: AEUN A LM à ÿ Me AY QUrE 14
 184 uAND Mirza, la chienne noire, mit bas cinq petits, '
 n à Q madame Courtecuisse, la cabaretière d'Auby, réflé- Ÿ ë
 M chit à quels clients, les meilleurs buveurs, elle les don- à
@@ -339,7 +274,6 @@ nu cinq petits chiens de tout son cœur, avec toute sa force je
 V4  partaient, mais sans pour cela aimer moins; de sorte, | )
 ‘4 qu'elle chérissait davantage ceux qui restaient, leur (4
 4 donnant la part des disparus. L'idée qu'on lui enlèveM _ rait le dernier, l'héritier de la tendresse de tous, la :
-|| rendait pâle. à “4
 mn Sa mère, assujettie au comptoir, la surveillait peu, la 1
 
 petite qui avait éprouvé les farces stupides des ivrognes
@@ -362,8 +296,6 @@ burent une pinte, puis il dit : :
 — « Il n'y a pas de quien qui aboiïe à ct heure, » dit
 
 — « J'ai pas entendu. C'est peut-être Follette. »
-
-— « Qui ça Follette? »
 
 — « Une petite quienne qui m'embarrasse. »
 
@@ -444,7 +376,6 @@ h mère, la faisant pirouetter, lui secoua son tablier en
 
 F « Si c'est permis de faire frauder de pauvres petites
 
-S PRO on Le: fe
 bêtes comme ça! Qu'il vienne un peu, Coucou; je ui
 parlerai, moi! » is
 Coucou vint, le jour même; il lui demanda :
@@ -452,9 +383,7 @@ Coucou vint, le jour même; il lui demanda :
 — « Il est ici, mon quien. » }
 — « C'est pas à ti, dit Courtecuisse, c'est à mi. »
 — « Ti me l'as donné, c'est à mi; et puis, il avait une
-— « La charge, on l'a brûlée. On n'a pas envie de se
 faire avoir un procès. » ;
-ÿ — « Ah! c'est comme ça ! » à
 ‘ Coucou, se ruant dans les portes, surgit dans la cour.
 11 écarta Mirza d'un coup de botte, prit Follette et s'en
 Courtecuisse trépignait derrière son comptoir. Il but
@@ -470,9 +399,7 @@ Jean-Baptiste Scoliège de Coutiches, dit « Coucou », À
 n'aurait pas échangé la bête contre un ballot de point
 , de Malines, rendu franc de droits, à domicile.
 Un beau soir plein d'étoiles que Courtecuisse prome24 |
-|
 
-"4 dé ÉCRITS DANS LE NORD |
 1 nait Lydie sur la route de Belgique, des coups de
 ‘4 revolver claquèrent dans le lointain bleu. ‘
 is Trois chiens silencieux, surgissant de l'ombre en
@@ -567,19 +494,6 @@ _ Soudain, le plus jeune des deux douaniers refit, en cou-
 “i rant, les dix pas qu'il venait de faire et lui planta, à ;
 D deux mains, sa pique dans la tête.
 
-! HN EMNNENES de PARTS M RÉ
-
-UE ju NE
-L' ATÉ RER Û DEx AR ee,
-| 1 ÉÈR Pit € Une | e
-
-ti REA MA HR TR A nee FAN
-î ANNE SA fi ÿ LR 4 + al 5
-een s ANAL VIE ANG F: ï # di = AI
-re AN . L'INRRE
-le Me ‘ AN { 2 » EAU UC res
-
-| : ,
 à De Douai au Petit Journal : {
 Ni, ù « Gette nuit, à la suite d'une Fs
 15 } discussion au sujet d'un combat
@@ -591,13 +505,10 @@ A! lay et a arrêté le meurtrier, qui L
 44 vient d'être conduit à la prison de ÿ 4
 1) « Le malheureux Mathieu laisse "2
 18 une veuve et trois jeunes enfants. » fe
-#
 … x avait posé cette affiche dans tout le canton : Ë
-#4 LE DIMANCHE 12 MARS. ESTAMINET TIBERGHIEN ;
 11 — Faubourg de Béthune — x
 …_ Grande partie de cogs. Deux de trois morts pour 50 francs
 pi Broutin de Bersée contre Gilles dit Tit Bleu Re
-100 Qu'on se le dise 1
 ta L'estaminet Tiberghien portait sur son toit un millé- :
 i C'était une vieille petite maison basse en face de la à
 | gare. On lorna ce jour-là d'un drapeau neuf qui pen- ÿ
@@ -628,7 +539,6 @@ forge, saluait le chef de gare dont la casquette argentée
 glorifiait la salle. 4
 En réponse au : « Què nouvelles ? » cet homme consi- L
 déré dit : :
-— « Bon Dieu! Mon train! » À
 et se sauva vers la gare proche où une locomotive sifflait l'arrivée.
 Tiberghien, le propriétaire de l'estaminet n'avait plus
 
@@ -653,7 +563,6 @@ inscrite « Cour », il rendit tout le monde attentif à sa nn
 « Je te l'avais bien dit. Fallait le laisser courir au 4
 " lieu de l'enfermer. » 4
 4 A becqueter sa cage, l'oiseau impatient s'était brisé 510
-le bec. N
 À — « Pas la peine de le mettre au parc, dit Broutin, “4
 * c'est comme s'il était mort, à ct heure. Tu peux le ÿ
 4 Au comptoir, Mademoiselle Tiberghien, une sévère 1
@@ -661,11 +570,9 @@ le bec. N
 “ poids du corps sur une jambe. Son père l'apostropha : *
 k « À quoi penses-tu encore ? Ça veut se marier avec ñ
 : un employé. Pas de commerce. Rien que faire toilette ù
-_ et se balader. » st
 : Le chef de gare, de retour, cherchait son verre. IL 4
 choisit, à tout hasard, le plus plein; l'ayant vidé il À
 
-dix contes De
 afirma fortement qu'il fallait « battre les coqs » tout de
 suite, ou on n'y verrait plus clair. 6 Ô
 
@@ -707,7 +614,6 @@ celui de Broutin; puis vint Gilles dit « Tit Bleu », un
 célèbre pour avoir possédé pendant deux ans le Maître .
 
 | coq de Bersée, une bête vaincue seulement au vingt-
-| troisième combat.
 ‘0 _ Broutin et « Tit Bleu » se placèrent chacun à une porte
 du parc, les mains nouées sous le poitrail de leur coq à
 “_  Broutin coupait, à coups de dents, la queue du sien $
@@ -761,7 +667,6 @@ les yeux clos, mais l'autre ne se relevant pas, il fut
 Les deux coqueleux entrant dans le parc reprirent |
 leurs bêtes. Sitôt que le coq de Broutin sentit la chaleur J
 de la main de son maître, il se redressa vaillamment et }
-Ù chanta. On riaït :
 « IL est ben temps! » Les parieurs malheureux injuriaient la bête:
 “A « Tords-lui le cou! »
 
@@ -775,7 +680,6 @@ _ « À qui des chopes ? » A8
 . portait de la bière dans un broc à toilette, apostrophait F2: 20e
 _ les hommes : à a
 . « Eh bien, vous ne buvez point ? » EL
-| RES D : er
 ÉD buvaient. Enfonçant sa rude figure dans une pinte, ES CE
 un Flamand à cheveux jaunes avalait à grands coups AMOR.
 . de menton comme s'il mâchait du pain frais ; le bruit de He
@@ -790,16 +694,6 @@ La divine paix des jours qui meurent planait sur le MEME
 À  tumulte de ces hommes aux âmes obscures. NRA
  Quittantle mur et les pintes, ils se serrèrent à nou- YO
 veau autour du parc. On apportait d'autres coqs. HS CE
-
-| TA 1, Le
-
-Men ASIN ve AE PA LME UN NS PR RER EE DOVE ETS
-
-D 0 SU ra Drpa ot UN OC ESP
-
-OU CES ñ re LOS Ces
-
-RL HE de ns RE Le GARE
 
 -5 un bon ouvrier : e,
 3 maisons d'articles de voyage recherchaïent les É
@@ -827,7 +721,6 @@ _  toque, et dès qu'on le priait de se couvrir, enlevait de ee
 nouveau ses lunettes. 3
 - Il lui fallait quelque chose dans les mains. ‘ < "3
 
-dix contes L
 Étant veuf, il prenait place à la table de M. Gossin. É
 IL y avait un fils Gossin, jeune homme célèbre dans les
 cafés, licencié es lettres, qui comptait, à la mort de papa, |
@@ -841,7 +734,6 @@ vit pas de couvert pour lui, il fut tellement impressionné
 qu'il remit ses lunettes et laissa pendre ses mains vides. .
 à Le nouveau maître, veston noir, cravate blanche,
 élégant et rosse, article de Paris demandait le nez haut: |
-« Vous désirez ? » 3 ;
 Résigné, M. Victor tourna le dos et s'en alla dîner au
 restaurant avec les ouvriers, émus de l'affront fait à cet
 homme de cinquante ans. Mais, à la suite, ils lui montrèrent moins d'égards. Entre eux, parlant de lui, ils « disaient : le père Victor; et le deuxième ouvrier, qui
@@ -891,7 +783,6 @@ _ sous-sol comme en ont les artisans pauvres dans les k
 … et la place réduite. On y descendait, à l'aide de trois
 S marches, par un soupirail ouvrant au ras du trottoir,
 4 dans la plinthe d'une boutique où chantaïient des blan-
-# chisseuses. ke
 1 L'intérieur avait les dimensions d'un caveau de
 A la pensée du travail proche, un peu de joie tiède
 - soufla dans l'âme déserte et froide du vieil ouvrier. IL
@@ -973,17 +864,6 @@ L'arrière-boutique où il couchaït, envahie par les Ë
 marchandises, il loua le premier étage et y fit placer L
 une pancarte à lettres dorées : s 1
 L'année suivante, il dut prendre à baïl toute la
-Ë « à D tn To Liane à UC NI ENRUS
-FL RE tr PTS PNR SR en Ste en A ET PE ANT APR
-D. L'ESTAMINET Fee
-ne wi SIA ETES L TELE
-
-os ce ao ÉETRSE RUE |
-| “LA 44
-| En RE Tia
-| : RATE Tdi, >". « A
-| 2% En 3
-| CEREONE ‘14
 
 10 l'estaminet du Coq à Trois Pattes Ka
 eo É: paysan était content de la moisson : pas beaucoup nus.
@@ -995,7 +875,6 @@ _ habitaient la plaine fauchée. Leurs groupes semblaient, à
 …_ au loin, des hameaux. ire
 BE De petites glaneuses, harassées, s'y adossaient assises 5
 _ et présentaient à l'horizon leur semelle à gros clous. 54
-# 4 Ê L Fe FA
 - Elles regardaient venir, là-bas, la première brume î :
 - d'automne, l'invasion du brouillard guettant la plaine ce
 > recueillie où deux routes blanches traçaient une croix. Êe
@@ -1073,7 +952,6 @@ Quelle vieille! Peut-être n'avait-elle plus de cheveu k, -
 É mais on n'en savait rien; Son bonnet blanc calé par les. :
 à oreilles lui couvrait le crâne, de la nuque aux sour-*
 cils. Rien à racler sur son maigre visage dur comme
-ES .. M. du Trieux dit : E
 « Nous voudrions voir le coq à trois pattes. »
 La vieille ouvrit la porte de la cour; Bousigue était
 là qui clouait sur une planche un morceau de grillage « : fraîchement volé. 5 ee “4
@@ -1104,7 +982,6 @@ _ C'est pas des hommes, ça. Nous au moins, voilà ! » HP
 346 Et, empoignant son grand verre, il se le vida, d'un %
 20) seul coup, au fond du gosier. La bouche déborda et le à
 _ coin des lèvres fit gouttière. dans le cou. “
-54) Les journaliers riaient,
 0 Madame du Trieux : D
 ee — « Allons-nous-en. Je vous en supplie ! Allons-nous- F
 ::s — « Maïs non, ma chère. Si nous nous laissons braver M
@@ -1137,7 +1014,6 @@ Les Flamands parlaient bas. $
 — « Après ça, tu seras solide. Voilà du bon, tu sais! »
 aflirma le père Bousigue qui versait les vingt chopes. :
 Ses compagnons les vidèrent en souhaitant : ;
-— ÇA la tienne! » J É-
 . Il répondit : &A la vôtre » et biberonna son litre avec 5
 un renvoi du gosier. Ça ne passait plus. Il s'assit, les ;
 mains entre les genoux, ses gros doigts pendant vers la 4
@@ -1171,24 +1047,6 @@ _ ses jambes et ses bras. ;
 . marchait si lentement qu'elle comprit encore un journa- ;
 —._ lier repoussant la cruche de la vieille revenue de la
 …._ —« Plus la peine. C'est de l'eau bénite qu'il lui faut. » 5
-> ;
-
-mr | Pare Da re es ET PET AE RARE
-Le ES > hd es € + NS A
-
-LES DS ae LAN RPC ER Re CE rE SARA SENS
-GE Eure FE NA or PEU RER RE CE ER SRE PAT D RE EN SRE ER
-__ UNE BONNE AME Rae
-LA TARNE : : OPEN Frs
-
-Pronnc cs FE D SCT HN ENT LE
-
-Leu ES à * à LE ITENESSS
-
-7 ARTE : PM OCCETEETE Le - Ma ir 2 OUPS « RNB ont #+ : SA RERO
-à RTS DRE Le el: !) 5 À : d È KES Vo ae 2
-HÉRE ME EAU L L 5 SX #2 re pa HAS Eu
-x AE A s x Er rie PA PL API "te ANS Le
 
 3 une bonne âme
 ONSIEUR de Samer, blond et créé pour le bonheur
@@ -1201,7 +1059,6 @@ E château de famille échoué au bord d'un bois du Nord,
 4 Monsieur de Samer et ses amis y avaient accompli des
 L prouesses dont les plus jolies villageoïises gardaient le
 ÿ souvenir. Sa veuve laissa vivre en paix le gibier qu'il
-L. tuait trop.
 4 Sur le sol vert des routes mortes, les lapins jouaient
 …. maintenant en famille. On voyait, parmi leurs cabrioles,
 Ÿ paraître l'envers blanc de leur queue. Ils pullulaient.
@@ -1239,8 +1096,6 @@ Des mendiants leur tendaient la main, en bons commer-
 çants que le souci des affaires ne quitte jamais. Ils
 recevaient des injures :
 « Sale espèce ! Allez-vous-en chez vous ! » Et ils les
-
-Pom ÉCRITS DANS LE NORD ; "
 
 - Tous les bandits du département accouraient vers
 
@@ -1386,19 +1241,6 @@ PE _reux de qui la maison, la vieille maison brûlait, vit
 demandait au Seigneur sa miséricorde pour les pécheurs
 
 des . _ qu'il mettait à épreuve. me
-
-ne PTT
-
-RE RS GR EE AT Ne ra er ec
-M Re Un RDA Pine NU 2 CE
-
-SES mecs ere FD tri Be
-
-|  :
-
-| SCÉPAPSNSAR L'ÉTÉ EME ER TES 08e Hit ASE RS
-
-Fit. ST ENERl Fr %æ : it Ts ESS : er SECTE ne Re
 
 . Buvons la bière du Nord! |
 
@@ -1652,7 +1494,6 @@ f l'autre, retenus l'un par l'autre, ils parcouraient la route
 
 | en travers, se heurtant aux arbres qui chantaient au-
 
-| dessus d'eux.
 Un moment, ils s'arrêtèrent exactement au milieu du
 
 | chemin, trouvant sans doute, dans leur impuissance à
@@ -1677,27 +1518,7 @@ bruit par celui des roues, ils vociférèrent :
 
 4 2419. 4
 
-EVE Ve AN ES PS de ES dre a TT à PR PEU ETS SERRES
-
-ne AN ne SVM R is à:
-
-LE CR AMAR lue RIDE NU LES LEP |
-RU M bte EE Are À AU TAN DRE PEAR TUE Le
-
-ECS Lo ni tit ts PER £
-
-AE CIE (TEE 9e ca ñ Lx TORRES Vers % |
-
-| FAET LAN ET Ÿ ER ne hs |
-
-AN a L £ : be EU Naed:
-
-ni h
-
-LE ANTOINE PARUS { 6 His ; BE DEV A
-
 4 une ville riche ME REU
-| ; Armentières, novembre 1903
 F. A fortune d'Armentières est récente. Elle fait partie A
 î L de ce mouvement de prospérité industrielle qu'ont » suivi les cités du Nord : Roubaix, Tourcoing, et qui fait
 | déborder la population de Lille hors des vieilles mu4 _ railles, dans des quartiers de maisons en bois soumis j
@@ -1731,7 +1552,6 @@ pas cette frénésie de possession chez les possédants,
 cette ténacité à ne donner à l'ouvrier qui contribuaït à r
 l'augmentation des richesses que le moins possible de
 cette augmentation : le prix de sa tartine sans viande
-et de sa pinte de bière. 4
 Les familles des industriels devenues très nom- M
 breuses, aussi nombreuses que des familles d'ouvriers,
 force était encore de gagner davantage pour établir Les |
@@ -1900,7 +1720,6 @@ rouge devenu corde, et cela faisait paraître énorme le
 relief de ses oreilles nues. Elle me dit :
 
 — Monsieur ! nous sommes six enfants à la maison,
-et il n'y a pas assez à manger.
 
 Les autres, qui n'étaient pas peignées du tout, geignaient des choses indistinctes. Je marchai vite. J'ai
 peu pour vivre. La petite aux cheveux tirés courut à
@@ -1934,7 +1753,6 @@ deux sous et dit :
 
 La voyant traverser la chaussée vers un monsieur
 
-De dix contes NE
 è . mieux vêtu que moi, elles me quittèrent pour parvenir Le
 à avant elles auprès de lui. à 1 NI
 . Maintenant, dans la rue silencieuse, venaient de loin. …
@@ -1966,8 +1784,6 @@ n'étaient pas encore replacées. Les vitres des énormes
 de scie. Tout en haut, il en demeurait une entière. .
 Dimanche, les feux éteints, lon voyait, ainsi qu'en ‘4
 temps de grève, toutes les cheminées sans fumée. 1
-
-LCA ÉCRITS DANS LE NORD pe
 
 _ Comme les pavés encore disséminés étaient boueux par *
 ce temps mou, et que les enfants portaient leurs pau- #
@@ -2097,10 +1913,8 @@ refuge. L'atmosphère d'intimité des petites maïsons || Ke
 Ù tenacement closes transpirait dans la cour déserte où
 l'on ne passait pas. Le ciel gris, très bas, était proche
 des toits, et cela créait la sensation d'être loin, au fond É
-ù d'un trou. “:
 { Au bruit du vent qui franchissait les maisonnettes, on
 sentait son élan éperdu et sa fuite dans la grande
-| plaine alentour. #4
 Un murmure fin, plaintif, sortait d'une des maisons.
 Je fis semblant de boire à la pompe emmaillotée de :
 1 paille, pour cacher que j'écoutais. { 14
@@ -2122,18 +1936,7 @@ laquelle soufflait le grand vent des plaines. Et je ne
 
 À l'oublierai de ma vie.
 
-EE AA) fi + HA IQ EE SEAL EE SU ET A AN OEM ik A nel 2: D
-SRE TU Poe à RON RE A ai PA SENS FA A AMAR Nu CO LE à ELA
-| tr TNERES AE EUR AERN PAPA ON ARE NES ds Pia
-| MERE ARE or EAN AE A TER ur 1 RL AE ARR AE RS PAU CSCRITAER ae,
-LL TVR Rn \ d LUN EE PANUTENEN tu NE
-
-ANR CN" à AURA VEN A Ur ÉNE PAE SM hit ACER CES ME AU MEN it
-INR re | LANIEDNES ES Le (A MATE Et ot Det #4 FEI REC
-| de | RE
-
 AUVRE homme. Les chiens et les enfants le poursui1% vaient car il ne ressemblait pas à tout le monde.
-Il était âgé et sale, et on l'appelait Sac d'Os à cause de
 sa grande maigreur. Dans les bourgs où les gens s'ennuient et s'agacent, il y a souvent un Maudit qui soulage la méchanceté publique et vit parmi les morsures à
 et les coups de pierres.
 Des haines anciennes et durables poursuivaient Sac
@@ -2148,9 +1951,7 @@ comme agent électoral de M. Sébastien Fourny, distillateur, conseiller génér
 | gressiste, ministériel, ce que Sac d'Os n'avait jamais
 Il distribuait pour lui des bulletins de vote à la porte
 de la mairie et buvait avec enthousiasme à la santé
-|
 
-#) dix contes 60 GA "1
 f de ses Éternels Principes, proclamés sur afliches
 to Dans les batailles d'après le scrutin, autour des cafés
 
@@ -2181,7 +1982,6 @@ de leurs malles. $
 ô S'il se décourageait au bas de l'escalier, le valet …
 Placide décidait : « Tu n'allumeras plus le poêle. ».
 Alors, Sac d'Os se cramponnait à la route, craquait ses
-| 94 À
 
 pauvres vieux os dans leur sac de vieille peau, et attei- ER #
 gnait l'étage, rompu par ce labeur formidable. Il ache- 1
@@ -2190,7 +1990,6 @@ froid. Cela permettait à Placide, un garçon joufflu qui |
 portait la tête à gauche et fauchait des deux pieds vers Din
 * la droite, de rester couché le matin, une demi-heure à
 plus tard, et de trouver grande flamme au saut Û
-du lit. ‘
 Sac d'Os se levait tôt, à l'heure où derrière les #
 rideaux du bourg dansent des flambements d'allu- A
 mettes. Dans les ténèbres de la rue, les hommes qui : ; À
@@ -2205,7 +2004,6 @@ du soin qu'il en prenait. C'est bon le feu, quand on est L
 . si vieux. Assuré, par le ronflement, du tirage établi, le
 garçon de l'hôtel arrivait en courant, les pieds à droite, à
 _ la tête à gauche, oblique comme un voilier qui vire et À
-_ mettait Sac d'Os à la porte. Il se réfugiait à la gare, \
 dans la salle d'attente où il n'y avait eu de feu qu'une il
 fois, allumé par Sac d'Os avec du bois trouvé. 1
 Le poële, surpris par cette innovation, fuma tellement x
@@ -2266,7 +2064,6 @@ dans tes latrines pour quinze sous! »
 
 Un valet de Lequien surnommé « Zoulou » pour
 ses cheveux crépus, flatta son maître en renversant |
-adroïtement le verre de Sac d'Os. La fureur du vieux f
 égaya les consommateurs; ne sachant à qui s'en
 prendre et mordant, de rage, sa bave pleine de vin, il |
 lança au hasard son verre vide. Le bruit de la casse
@@ -2298,11 +2095,6 @@ d'O$, hurlaïit une meute de bêtes et de gens. En arrière
 le curé se glissait, sentant venir l'heure où son ami
 Sébastien Lenne, traqué à merci, aurait besoïn de lui
 pour arranger son affaire, sa vilaine affaire. É
-
-CAN NA DEA ES AU SA ANR ES Ce ere SEEN HP AU AE AUS ARE ENS js
-(ne 2 Ar Pont EE NS NE 4 , TT TDR PRE ER ES >
-LEA NS ERSNEEESS L F rte à TARN É
-Ne RATE D L 1 not ES ES
 
 la plus grande canaille de la terre
 6 OURNES, c'est un « tout petit pays » dans le Nord; |
@@ -2354,7 +2146,6 @@ PAALEA dans une misère épouvantable, pourri de vices, avec. 4 }
 | garces ». Les gens passaient devant sa maison pour : 110
 ME apercevoir ce terrible, mais il demeurait caché comme  n
 ne une bête sauvage et la mère Leru criait du seuil aux.
-Un curieux : LV
 4 ES « C'est des menteries! » (tr
 ni Une fois, il sortit derrière elle, en bras de chemise, 2
 CAL sa figure cicatrisée assombrie de fureur. 44
@@ -2394,15 +2185,11 @@ Siméon fit, en découverte, le tour des toits et tomba
 
 \: sur la femme de chambre par la tabatière de sa man-
 
-| sarde.
-
 | Une fois son bonnet frippé, elle se sauva en criant |
 
 N auprès de madame qui courut elle-même mettre Siméon
 
 à la porte.
-
-| : 103
 
 Traversant le salon devant elle qui le chassait, il prit #4 È
 ) une coupe parmi les bibelots et dit : PE 1
@@ -2410,7 +2197,6 @@ Traversant le salon devant elle qui le chassait, il prit #4 È
 — « Je vais appeler monsieur! » à Ru.
 Elle tremblait, quoique chez elle. ‘4
 À — « Combien vous doit-on ? » à x |
-— « Dix francs! » De
 Elle lui donna sans compter : 44
 — « Allez-vous-en vite. » 0
 Il exigea un pourboire et partit enfin, chantonnant sa :
@@ -2487,7 +2273,6 @@ hi — « Il va geler sec. Faudrait le couvrir. Il n'est pas 34
 HN gros c't homme. S'il crevait! » rt
 MR © Le pays serait bien tranquille. C'est la plus 4
 NO à “a grande canaille de la terre. Vous tourmentez pas. Je.
-FAR R vas y quere de la paille. » Sa hu
 ANR Mais il gagna son lit. On prévoyait, à l'immense
 st) ne pureté du ciel, un froid terrible. Les astres luisaient TE
 k a _ comme des yeux de fous. De les fixer donnait le ver: 20
@@ -2497,26 +2282,9 @@ ue _‘ Au matin, Blondeau, le garde, s'en vint sournois,
 Is traînant de la paille. Mais Siméon r'était pas « crevé ».
 PRE Il sortit, vert de froid, hoquetant la Carmagnole entre
 FT ses dents qui claquaient : RC
-“An « Et le bon Dieu dans la m.…. RES Fo
 Us ‘4 Vive le son du canon! » LA
 Le Maintenant il a disparu du pays. Il doit frauder du pol
 RE côté d'Armentières. FN ne
-
-UE re RAN PER Re PP REN PA A AGE RAA ARE ca le foutre
-PACS a DUR EUR PAS MAMIE ( CN se VON ARS Fier ENT "| vi PACA
-F NON CAP OS LUN L'ON (ADR Ans 0 Khan NH RE ONE
-on 2 P0 D tr AUNIErINESESS ANTENNES
-A SA “so DNS TA AE Es A US 1} 0e ‘at MAT UE
-ARENA Re HAVE de AN ae D PU NA LS EE Le LAS M AA Pal.
-{7 HEIN PRE 7 CONRAD TE Red Ma PAR MALE CNT ST NET VAR OL MN ARTS fe
-{ul JAMES CEE Eee ENT La ETES 184 EN 34) DCE CIEREEES TNT OT TRE “rÈ
-AMEN AA y PE Pa enr LE ni DA E CTINEN EE es ES) DTRCLS TONI R D AN CR V4
-
-RS ER ob AA PAS D AR LA EURE MAT)
-k Pa: de DSL AE EU AT GO LR See
-ee AE ED RÉ ROUE TAUAN ET in TRE AND LE HO Met LPRTIES
-DATE no AL An A EE ae PRO MM EE I TA PAT EN 1 VER
-LES PNNENER [ie ERA é 2 MOSS
 
 2 On nous demande souvent de quoi se compose
 officiellement une collection complète des
@@ -2537,15 +2305,10 @@ M A. — nos éditions antérieures sont énumérées
 … à la quatrième page de la couverture du pré-
 f B. — nos neuf premières séries sont énumérées
 4 à la fin du premier cahier de la présente série;
-h C. — les conditions de l'abonnement à la
 … dixième série, qui est la série en cours, sont
 - D. — les conditions de l'inscription pour un
 È exemplaire du Polyeucte ont été énoncées en
 Al tête du premier cahier de la présente série.
-
-MAR Ve REP EUNAE FRE LAN re FO RRPRMN LS RTS MA EE es de à
-
-Mon re : S T'AS TES |
 
 4 Il a été tiré de ce cahier treize exemplaires sur
 
@@ -2559,8 +2322,6 @@ Mon re : S T'AS TES |
 
 L dix exemplaires d'abonnement, numérotés de I à 10
 
-TA exemplaires d'abonnement.
-
 à Tous nos exemplaires sur whatman sont numérotés
 
 K: à la presse et imprimés au nom du souscripteur ; nos
@@ -2570,8 +2331,6 @@ K: à la presse et imprimés au nom du souscripteur ; nos
 _  stant souscrits; nous ne vendons point d'exemplaires
 
 à sur whatman en dehors de l'abonnement; l'abonnement
-
-pif à SES LAS
 
 N. sur whatman à cette dixième série est de deux cents
 
@@ -2584,8 +2343,6 @@ K Les Cahiers de la Quinzaine sont composés à la main, :
 k. derie Mayeur (Allainguillaume et compagnie succes-
 | seurs), 21, rue du Montparnasse, à Paris, sixième
 
-1 CE ler Lot L
-et,
 2,3
 
 Ni Pour savoir ce que sont les Cahiers de la Quinzaine,
@@ -2593,9 +2350,6 @@ Fa il suffit d'envoyer un mandat de trois francs cinquante
 Ÿ à M. André Bourgeois, administrateur des cahiers,
 h_  8,ruedela Sorbonne, rez-de-chaussée, Paris, cinquième
 À arrondissement. On recevra en spécimens six cahiers
-M de la deuxième, de la troisième, de la quatrième, de la
-| cinquième, de la sixième, de la septième ou de la
-| huitième série.
 W Pour savoir ce qui a paru dans les cinq premières
 ‘4 séries des cahiers, 1900-1904, envoyer un mandat de
 L cinq francs à M. André Bourgeois, même adresse ; On
@@ -2612,13 +2366,8 @@ k est la Série en cours, envoyer en un mandat à M. André
 hi Bourgeois, même adresse, le prix de l'abonnement: on
 4 _ recevra les cahiers parus, et de quinzaine en quinzaine, » à leur date, les cahiers à paraître de cette dixième
 
-| Re
-| î LURAER
-
 19 07
-|
 
-Lil CAHIERS DE LA QUINZAINE, 58, rue de la Sorbonne, :
 à k | | rez-de-chaussée, Paris, cinquième arrondissement. {
 AU Nos Cahiers sont édités par des souscriptions men-
 
@@ -2657,11 +2406,6 @@ ni , dans l'ordre de l'arrivée, les numéros les plus bas venant x
 4 l'édition sur whatman est Strictement limitée au
 Le nombre d'exemplaires à chaque instant souscrit.
 
-A ARR Oe Mr AE TES de ARS TE NE
-# 4 à à :
-| LC" EE
-| FT LES
-
 Rte. P our tout changement d'adresse envoyer soixante k
 Nimes, six timbres de dix centimes.
 
@@ -2687,4 +2431,3 @@ __ chaque série au plus tard le 31 décembre qui suit » | l'achèvement de cet
 “1400 au total des prix marqués; ainsi à dater du premier
 
 “ | janvier 1909 la neuvième série incomplète se vendra |
-|

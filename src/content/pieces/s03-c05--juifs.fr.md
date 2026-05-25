@@ -7,17 +7,7 @@ author: georges-delahache
 isAvertissement: false
 wordCount: 18828
 ---
-re. ot: l
-
 slt dires EF Eu Per left Base. ” Le
-2 pa TR = Né e"E E. în vs »7 be. br Dit à
-“ “wrip 4 je SR
-
-he L Re nr 1e
-Sat 0 LL. M Le ee fe
-Lu. nl ET
-
-| 13983); à .
 
 À paraissant vingt fois par an ”
 
@@ -89,7 +79,6 @@ FE _ de question juive. On risque toujours de dire une bêtise
 “ quand on prétend qu'il n'y.a pas une question. C'est la
 œ question qui manque le moins. Nous nous en sommes
 - aperçus depuis. Des déchirements douloureux, des dé_ fections lâches, des injures graves, — et, au contraire,
-re ET
 
 | des dévouements tenaces, des amitiés fidèles nous ont
 $ . avertis qu'il y a une question juive, et sans doute pluè sieurs questions juives.
@@ -120,7 +109,6 @@ ne l'Europe orientale.
 ë. contribue à la décomposition du dreyfusisme en France.
 ne Mais il n'a pas lui-même un caractère historique. Iln'a
 f % jamais été que polémique.
-| GEorGEs DELAHACHE
 Après dix-neuf cents années, malgré les Révolu4 tions, le peuple errant poursuit sa course in- : °
 Sur le quai de la gare presque désert, ils attendent. Le train qui va les emporter, à la nuit tom- s bante, les jettera demain matin, après huit heures F
 de roulis monotone à travers les petites stations
@@ -138,7 +126,6 @@ a fait sortir en hâte, ficelées à la diable, pour le
 
 Voici le train... La dernière fois qu'ils avaient
 
-| : EN)
 ainsi transporté leur foyer, c'était quelque temps
 à après la guerre. L'aîné venait de naître, là-bas, à
 : 1 dans la Ville-Pucelle, à deux pas de cette Esplanade
@@ -209,8 +196,6 @@ Pourtant ces Juifs sont des hommes...
 
 Il ést vrai que ces hommes sont les maîtres du monde. Voyez! Regardez! Ils se sont mis partout, partout ils sont les premiers !.….
 
-| Je regarde.
-
 : Au Parlement. — Parmi les députés, il y en a
 | deux, dont l'un est un vieux philanthrope qui vote
 quelquefois et ne parle jamais, et l'autre, un jeune
@@ -230,7 +215,6 @@ ministre, l'attacher à son cabinet.
 | L'Administration? — Il y a dix ans, trois ou
 quatre préfets étaient juifs. Aujourd'hui, un.
 ; Les Administrations ? — Parmi les officiers géné-
-| raux en activité de service, je crois qu'il n'y a qu'un
 seul israélite; parmi les colonels, un seul également.
 — Il ne suflit sans doute pas, au Conseil d'État, de
 | deux conseillers israélites sur quarante-cinq et de
@@ -314,7 +298,6 @@ jeunes gens israélites vers les professions libérales
 | s'est accentué, s'ils sont chaque jour plus nombreux
 ' ceux qui, fils de drapiefs, de banquiers et de colpor-
 soit que cette autre vie leur apparaisse comme plus
-| 10 j
 
 élevée intellectuellement que celle de leurs pères,
 ee soit pour échapper par une « carrière sûre » aux ha- F.
@@ -411,7 +394,6 @@ Je ne dis pas que si l'on pouvait faire la même
 enquête sur la population juive de la métropole, on » constaterait exactement les mêmes proportions. Il
 k n'en est pas moins vrai que là comme partout les de
 5 très riches sont les moins nombreux, et ceux qui
-à De JE nn
 E : (1) Revue socialiste, numéro 173, de mai 1899, ua DORE sf
 
 gagnent leur vie à la force du poignet, la majorité.
@@ -707,8 +689,6 @@ Nous n'allons pas dire pourtant qu'ils ne sauraient
 
 Il convient de remarquer d'ailleurs que sur dix millions de citoyens français, il n'y en a pas deux millions, j'imagine, qui connaissent avec certitude leur filiation au delà de la troisième ou quatrième génération. Ce que faisait leur bisaïeul, au temps de
 
-| Louis XV ou de la Révolution, où il habitait, d'où
-
 ‘ il venait, s'il était Bourguignon ou Normand,
 
 ( Basque ou Piémontais, Anglais, Italien, Allemand,
@@ -950,8 +930,6 @@ prêté le plus à la « blague » et à la calomnie, et qui en ont le plus
 k constituées un peu partout après la guerre, et demandez à Dérou-
 * lède s'ils ne s'étaient pas enrôlés en foule, lors de la fondation, dans
 sa Ligue des Patrioles.
-
-| Georges Delahache Q
 
 s des raisons analogues et avec autant de sincérité.
 
@@ -1208,7 +1186,6 @@ veillante de leurs concitoyens, qu'ils doivent être
 ù à la vertu, comme les protestants du dix-septième
 siècle, comme les jansénistes, comme toutes les
 minorités persécutées, alors ni l'épilepsie de
-M. Drumont et de M. Rochefort, ni la sophistique
 de M. Maurras et de M. Lemaitre ne les empê-
 | cheront de vivre leur vie en France. Car leur
 cause est, qu'on le veuille ou non, une cause
@@ -1347,7 +1324,6 @@ x - toi : toutes les guerres coûtent cher, toutes finissent
 rx trouves-tu pas déjà assez chargé? Paysan français,
 5 veux-tu que la France fasse la guerre aux Chinois ?
 
-# EMBARQUEMENT POUR LA CHINE
 En Ouvrier français, paysan français, les journaux et les
 gens bien pensants te diront
 — La France, seule des grandes nations, ne peut pas
@@ -1374,7 +1350,6 @@ volontaires dans les troupes de la marine pour imiter,
 que ce ne soient tout simplement de pauvres prolétaires, ignorants et inconscients, qui, crevant de faim
 chez eux, sontentrés à la caserne, qui leur procurait du
 moins une pitance régulière. A leur tête, quelques dou5x
-Fo Gustave Hervé Fat De
 5 zaines d'officiers, tous plus décorés et plus empanachés :
 7 les uns que les autres, qui ont embrassé la noble profes-
 # 1 sion des armes, pour les mêmes motifs, ou plus souvent
@@ -1403,7 +1378,6 @@ Fe _ besoin d'être excités à la violence. « Ils ne reviendront Es
 D. exemplaire. » Seul, au milieu de tous ces égarés,le
 FX à maire socialiste de Marseille, le citoyen Flaissières, est
 +10 venu faire entendre quelques paroles de vérité et d'huP à manité, mais avec quelle discrétion et quelle timidité
-Dur encore! , +4
 
 Avec la candeur immense et la grosse naïveté que nos
 | rêvé autre chose, j'avais rêvé, dans la bouche du premier magistrat de la République française, un langage
@@ -1438,7 +1412,6 @@ qui nous avons de graves torts. »
 A défaut du chef attitré de la bourgeoisie, je rêvais
 que ce serait le maire de Marseille, l'élu du parti socia-
 
-| Gustave Hervé
 liste, qui donnerait à la France et au monde entier une
 | grande leçon de morale internationale. Je rêévais qu'il
 s'abstiendrait de paraître dans le cortège officiel et
@@ -1561,7 +1534,6 @@ qu'il nous faut tenir notre rang dans le monde — sans
 doute notre rang parmi les peuples de proie. Il n'y a
 plus, après cette belle éducation, qu'à affubler nos glorieux soldats et leurs illustres chefs de culottes aux cou- e
 
-L ; Gustave Hervé : à
 : leurs criardes, de plumets tapageurs : après avo
 ur grisé la vue par des exhibitions carnavalesques, il ne - mA , s'agit plus que de flatter l'oreille par des musiques, ÿ trompettes, cymbales et tambours; quand on a ainsi ä , inculqué, par tous les sens, par tous les pores, le
 
@@ -1593,11 +1565,8 @@ $ contre qui les mêmes soldats tireront demain si on leur
 
 Ch. à Pékin l'expression de son affection et de son admi-
 
-LE ration. Pouah!
-
 Fr Nous connaissions déjà bien des façons d'employer
 
-#4 l'armée
 F Nous connaissions l'armée que nos maîtres lancent
 
 “3 * sur les nègres désarmés ou les jaunes pacifiques, pour
@@ -1645,8 +1614,6 @@ ps sacré, que le métier de soldat soit un « métier de Christ »;
 # Archiprêtre de Sens, quele Christ a formellement défendu
 x de tuer et qu'on ne saurait à la fois être un vrai chré-
 $ tien et exercer le métier de tueur d'hommes. ConséFe . quent avec lui-même, Wendt refusa de se laisser dresd ser à tuer ses semblables. Pour lui prouver qu'il avait
-3 tort, un conseil de guerre le condamna à un an de
-# prison.
 à Sa peine commencée, son pasteur — Wendt est protesgi tant, je crois — vint le trouver et lui expliqua — ce que
 î Ë j'ai eu aussi l'honneur d'expliquer ici même à M. l'abbé
 .. Olivier — qu'il y a deux façons d'interpréter le sermon
@@ -1776,7 +1743,6 @@ CS scolaire et que lui-même a fort libéralement publiée _
 
 _ dans “ Pages libres ”.
 Cahiers de la Quinzaine, 8, rue de la Sorbonne
-Mon cher Guieysse £
 : Nous avons des abonnés communs. L'un d'eux hésite
 à s'abonner à la troisième série des cahiers, qu'il aime ;
 - beaucoup, parce que les cahiers, dit-il, ne lui profitent
@@ -1798,7 +1764,6 @@ _ villages où les cahiers profiteraient même à un seul
 - homme, un tel résultat passerait nos espérances
 4 d'aujourd'hui. Enfin si nos cahiers étaient brusque-
 - ment lus dans tous les villages de France, nous com_ mencerions à nous méfier, nous serions les premiers à
-| Charles Péguy
 nous méfier, parce que ce serait sans doute que nous
 aurions dit des bêtises. Et non seulement nous aurions
 de la méfiance, mais nous aurions peur, que cette
@@ -1891,7 +1856,6 @@ L- rh _ l'on sért sans la penser. Mais la préparation est rigou-
 peuple, parce que cet auditoire est nouveau pour nous.
 °" Les plus compétents, parce qu'ils sont les plus hon-
 "2 nêtes, éprouvent le besoin de se repréparer ainsi. Ni
-L M. Gustave Lanson ne parlerait de Corneille, ni M. Ga-
 <a briel Monod des croisades, ni M. Duclaux de la rage,
 L 2e dans n'importe quelle Université populaire, sans y avoir
 1 ‘4 pensé. Nous savons tous comme est désagréable, dans
@@ -1918,7 +1882,6 @@ Bernard Lazare, avec Deshairs ou Lionel Landry, avec
 Jean Deck ou Pierre Quillard, avec Jaurès ou les
 adversaires de Jaurès. ‘
 Il ne faut pas qu'il y ait de malentendu parmi nous
-sur ce qu'il y a d'urgent. Ce qu'il y a d'urgent, c'est
 de savoir ce que l'on dit. Ne recommençons pas le
 bourgeois pressé qui crie à son cocher : Allons, roulez,
 cocher, ventre à terre. — Mais monsieur, où allons-nous ?
@@ -2002,8 +1965,6 @@ faits pour traiter, autant qu'on traite les questions.
 Mais nous serions peinés, vous et nous, que l'entente
 amicale si heureusement instituée entre nos deux
 administrations n'eût pas comme un reflet parmi nos
-Je demeure
-, : Votre abonné
 : Nous publierons dans un prochain cahier la réponse
 L ouverte que j'ai reçue de M. Gharles Guieysse à la
 3 » distinction que j'ai reconnue entre l'enseignement
@@ -2016,8 +1977,5 @@ Es. à Iasnaia Poliana. Cette photographie a été prise par
 ‘4 reproduire à trois cents exemplaires. Nous la vendons
 Lu Nous publierons bientôt une lettre inédite de Tolstoi,
 Fe. adressée à Romain Rolland.
-? x Le Gérant : CnanLes Péouy J
 8 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 7 unes DE Sourses (E. PAYEN, administrateur), 9,rue du Pont. —
-
-la Ù LE L

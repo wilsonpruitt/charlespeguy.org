@@ -7,13 +7,8 @@ author: brenn
 isAvertissement: false
 wordCount: 13590
 ---
-te RTC RES ne AE MER LOS CE vds
-| LT SR A nS
 M Du paraissant vingt fois par an Nr -
 >, rue de la Sorbonne, au rez-de-chaussée
-
-ne RUE NU RE ETA 9 SA RUE KT LS RO ES VI PUA à Has AE É
-L RÉF) > L PUS ait r FORTE
 
 Nous avons publié dans nos éditions antérieures et #
 dans nos cinq premières séries, 1900-1904, un Si FE
@@ -45,9 +40,6 @@ par le fait même de son abonnement, en tête de la 4
 série ; nous l'envoyons contre un mandat de cinq francs 4
 à toute personne qui nous en fait la demande
 
-TANT + HE eat AS
-> Û ci: 4}, CREER EE HER
-
 _ Je vois qu'il faut que les auteurs pour qui je travaille
 _ comme gérant me pardonnent beaucoup ces quinZ aines-Ci ; je n'ai déjà pas fait le cahier de la délation
 aux Droits de l'Homme ainsi que Bouglé se le repré-
@@ -60,7 +52,6 @@ hors d'état de tenir ma promesse. ;
 sente toute seule ; en réalité je me proposais, au conrte aire, et insidieusement, de me présenter moi-même en
 compagnie de Brenn; je ne pouvais trouver meilleure
 _ compagnie; je me proposais, m'appuyant sur ce fragment de réalité qu'est Yves Madec, de dire un peu de
-to ut ce qu'il y aurait à dire du collège, de l'enseignement
 au collège, de l'enseignement secondaire, des petites
 villes, des arrondissements, des chefs-lieux d'arrondissem ent, de la politique dans les chefs-lieux d'arrondis138
 
@@ -137,32 +128,7 @@ temps ; l'auteur n'y a pas changé un mot; certaines indications que l'on trouve
 sont vérifiées depuis, étaient donc bien des prédictions,
 résultant de prévisions, et ne forment nullement des
 
-2 PCR es ET TO £ de
-
-MS A Nan Le NS AVES Née EURE SRE NE EEE Re EU
->: Fe En F CREED 4 < 4 20 SU 0 RME MEMEEE
-LÉ REZ RE RE UN re ÉATIESE
-NÉS à es A ne de
-de > pre + ; RSS ISERE SES
-r > nn FH LT VAENT L
-
-D de ART en "10
-PR ee ne re RE NS EE
-LR LE TS SIENS Poe re TA nt Ô < Se CELL
-| NF | | 2
-î ne AIN RE CURE ONE RNA CE S Pc va ad LAS
-+. TTENEIRRERES Ten de ARS, NS FR k no. Fe:
-UT SAR SAS NE 9 eau AL SEL NS TN PTS “LG
-
-eg ge PONUIERS OS ARS PEAU Tes PR ÉD MONS Er er AGE 0
-| FA ARS LANTERNE
-“RTE Der Lu L
-“h ze TES
-Le : PAS dl re EST RES
-
 140 professeur de collège ÉR :
-
-L NL RE ue
 
 | TS Lemieux était certainement,
 “Ve sans frapper la vieille Sor1000 bonne, de lui élever en face
@@ -176,16 +142,7 @@ ue” Rien n'indique que le roi
 D — un but tellement élevé.
 0 (Histoire de France —
 : et en Angleterre —
-Les
 
-| HN MOSS) ART ge Ne SVT LENS ONU na HR TEVOR
-ce THE + MDN ER
-de PE FPS ATSaNRS a
-
-TES É rt at ;
-ii ve DE
-
-|
 Yves Madec était seul dans le wagon de troisième
 classe du train qui l'emmenait loin de Bretagne, à Villetaupier, où il venait d'être délégué à la chaire d'anglais
 . du collège. Il avait trente ans. Il était de teint hâlé, et
@@ -501,7 +458,6 @@ toute La grâce que je demande à ce pays de la vie nos- k
 Leurs pas, fermes et rapides, et leurs voix hautes
 remplissaient de bruit l'avenue déserte. Instinctivement,
 
-| INSTALLATION
 comme des gens habitués aux grandes villes, ils avaient |
 pris le trottoir, bien que la chaussée ne fût qu'une sur-
 
@@ -516,8 +472,6 @@ démarche un peu dansante, leurs grands gestes durent
 inquiéter plus d'une tranquille bourgeoise, et faire songer
 
 : à « quelques commis-voyageurs ou touristes, pour le
-
-| pays ».
 
 k Yves, qui effrontément inspectait toutes les maisons
 
@@ -550,8 +504,6 @@ la chaussée.
 4 — Mon vieux, déclara Devaiges, tu rêvais la vraie
 
 +1 campagne ! Je crois que tu peux te vanter d'en avoir de
-
-3 la veine !
 
 — Pas si vite, reprit Yves; voilà une rue; attention!
 
@@ -682,8 +634,6 @@ au-dessus de laquelle s'étageaient des planchettes à
 petits casiers étroits portant les noms des fonctionnaires, comme il s'en trouve chez les concierges des
 
 Non ! attendons un moment... Pas de sonnette? »
-
-Ils s'impatientèrent vite.
 
 — Non! ça n'a pas l'air gai, songea Yves dont
 
@@ -844,14 +794,12 @@ dir@i tout cela plus tard... Laissez-moi descendre du
 train. Vous me donnerez tout de même à dîner pour ce
 — Je demande pardon à Monsieur, dit la face ven
 
-# SLR 5 .
 meille, s'illuminant encore, comme le ventre semblait
 saillir davantage. Mais je crois bien faire de prévenir
 tout de suite Monsieur le Professeur. Monsieur le Professeur peut s'informer. Monsieur le Professeur ne
 trouverait pas d'autre pension. Monsieur le Professeur
 est sans doute habitué aux grandes villes. Mais ici
 c'est un vrai désert. Il n'y a pas de choix, et... je penDevaiges poussait du pied Yves, sous la table, le nez
-en l'air.
 _ Yves se sentait agacé de cette prévenance intéressée
 de l'hôte. Mais le personnage n'avait aucune humilité
 dans son maintien, il parlait lentement, posément, sur
@@ -880,7 +828,6 @@ ton ironique de l'hôtelier avait échauffé un peu. À
 
 — Qu'est-ce qu'il nous fiche! éclata Devaiges, qui, l
 pendant toute la scène, se mordait les lèvres pour ne à
-pas rire. En v'là un pays! Ce qu'il te saute à la gorge!
 
 Il t'en paie, du Monsieur le Professeur! Ça ne lui coûte
 pas cher! |
@@ -916,7 +863,6 @@ sourire, comme frappé d'une heureuse pensée : l
 
 28 4
 
-x SA ES En SA CS de Aid e à L
 rent! Si Monsieur le Professeur ne prend ni vin, ni
 alcool, ni café, (il clignaïit de l'œil, avec incrédulité ou
 mépris? Yves ne sut distinguer), on pourra aisément
@@ -998,7 +944,6 @@ chir, si elles lui étaient contraires ?
 
 Quelque angoisse lointaine, — pressentiment de dé-
 
-CR NC OX "HÔTEL DES BLÉS fe Fr MINOR
 _ faite, — ou émotion de l'action, —tourmentait son cœur. 4
 LE ist lement il sourit en songeant que déjà, s'iln'yprenait ‘5
 ga de, il s'était laissé violenter par ce vulgaire hôtelier. { 18
@@ -1029,8 +974,6 @@ aucun titre pour le faire. L
 — Mais, monsieur le Principal, je ne suis pas licencié |
 d'allemand. Mes deux licences sont d'anglais et de philosophie!. Il y a une erreur! Il se voyait déjà, le 1
 pauvre, renvoyé au dortoir. pour combien de siècles!
-
-|
 
 Cependant les autres professeurs, au bruit infernal de
 la cloche, menaient chacun son troupeau, et disparaissaient dans les couloirs. Le Principal, sans s'émouvoir :
@@ -1128,7 +1071,6 @@ un thème oral. Il reprit quelque confiance, non sans
 … et déjà Yves n'osait trop s'avancer, de crainte de com-
 … mettre quelque gaffe irréparable. L'important était pour
 
-| Yves Madec -
 lui de faire cette première classe sans rien laisser
 échapper qui pût manifester son incompétence. Mais
 l'enfant, avant qu'on l'ait trompé, attribue spontané-
@@ -1228,7 +1170,6 @@ les yeux de gamine gaîté levés vers les yeux graves de ;
 _ Yves passa le reste de l'après-midi, jusqu'au diner, :
 avec Arverne, à la recherche d'un logement. Il avait
 : rêvé d'une maisonnette vide, en rase campagne, devant
-le ciel et les champs. Il la meublerait à la diable; il er |
 “ferait un logis où il accueillerait un tas de gens.
 Arverne l'emmena dans sa chambre, vaste salle à
 deux fenêtres, s'ouvrant sur la place principale de
@@ -1306,7 +1247,6 @@ F à la tentation. Serait-il libre de recevoir chez ces gens,
 ss de de braves gens sans doute, — des ouvriers mal
 vêtus, en habit de travail? de leur donner un lit, le
 
-| Yves Madec Le
 sien en cas de besoin ?... Cependant, comment faire É> ;
 Rien de ce qu'il visita ne lui plut. Cette compagnie -
 d'Arverne d'ailleurs le gênait. Il aurait voulu être F4
@@ -1338,7 +1278,6 @@ suite l''absolue tranquillité de la maison, le silence pro- Ni
 fond des soirs de la petite ville, quand, à sa table,
 fenêtre ouverte aux crépuscules doux de l'automne, il
 
-1 ne EN GARNI
 l feuilletait ses livres, sans percevoir d'autre bruit que &
 _ les « hou-hou » flûtés des crapauds ; — ou le frou-frou 4
 _ des feuillages. 1

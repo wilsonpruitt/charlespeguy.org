@@ -7,20 +7,11 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 36463
 ---
-| = SNS. ENS ES =.
 … les primitifs français
 - contes de la Vierge
 135390
 és paraissant vingt fois par an
 “à 8, rue de la Sorbonne, au rez-de-chaussée
-
-| PET 4 RE A RE
-
-A TES à eus Ne AU ns RÉEL .
-
-an DR EEE REINE din FEU Our" te taie raie ET ee DE PE HOUT: 10e FL *
-
-:14 Re 4 L 4 je u ÿ Hiris US RCE
 
 Nous avons publié dans nos éditions antérieures et dans nos ‘
 cinq premières séries, 1900-1904, un si grand nombre de cahiers
@@ -46,37 +37,8 @@ reçoit, par le fait même de son abonnement, en tête de la série;
 nous l'envoyons contre un mandat de cinq francs à toute personne
 qui nous en fait la demande.
 
-Ÿ HE ARE FR LT SR PRE FR ASAT LE cu
-& D'LA Me as LL RREE ES APE SES er LEE D CE ENT He
-A AA, A dir oet ; 4 PAS
-HOUR En it LE HET qe VAS
-MRC SE ne:
-LR ne"
-TFC et
-> 0 % k + à ré
-RACE Un A 4 » js MR 1 Ent
-À Le RS cie et ds à , US “à 1e fe
-
-Ne RSR CL Sn S NS Net
-ee AR Tnt: a 1 SNA SR SES
-UN AUS d' an VF CMP RE A tr 1e
-{ do HE APTE NE | \ : me AO CUT AMP PER : LT ERE
-
-ie: PT PH NN EE MA AR EN PAU NT AV R
-4, ki DRM AR A TER DES MERP TERRE M Far SRE
-RARE me es PAL À De RATE) re È NCA à
-RE A MA GRAND MÈRE es
-ER ne Et
-# Mn \ \S RS
-
-SP Fete VE, Aer NN US RRETEr RES ARE ne ae Le
-LS ORNE RTE SH MRLMETE NE AMAR RAS DS SAUT IN à ie UN el)
-RTE x ka / “ ni +1" URSS
-Au eau AE ER 342 Mr Rae C2 EM ERQUES CARE D Le î
-
 OMPRENDS-MOI, j'ai rêvé qu'en hiver je frappais,
 
-C A l'heure où va finir ta veillée, à ta porte.
 J'arrive par un train du soir, de loin, j'apporte
 Le trouble en ta maison de prière et de paix.
 La servante a des yeux effarés, je la laisse 3
@@ -108,22 +70,6 @@ Lui si faible, il repart déjà, plein de défis.
 : Vers quels rêves croit-il, le fou, que les trains roulent ?
 O pleureuse, tu ne dis rien, tes larmes coulent.
 
-A LÉ EN ES AA ARE € 1 RARES Le Lai Ai el 7
-D on cm NP CAT
-| ALRPE ; 4e
-Les primitifs français 4
-
-he ve tn An À OMS 2 UN EURE RULES
-É VE Re: He) CNE Le A Pre À RER HD AE CT \ ». DER AN on D TA OE À 2) LR "7 PR dut
-LAN UMNETS ce “ 5 STI
-Re nue i z OR Ce Ë
-#70 Lo à L SRE ANELAE OS ae CE
-Ro de D s
-RE ET ar PR Cet PRUNETES de Èf 68 el MR
-de FIMO HER ARRETE D NON ER RTS ES
-La Tu CLR CU acer 8 RME CR SERRES
-
-| D PNG br D DIN IN G K DP D ki AD AC
 Avant de reprendre ce train, accordons-nous le loisir et le
 repos, accordons-nous l'espace de tout un cahier de Noël.
 Comment j'allai moi-même à l'exposition des Primilifs
@@ -140,7 +86,6 @@ français, il fallait des images el un texte.
 Pour le texte je demandai à Romain Rolland, qui est une de
 ÿ mes consciences ; On sail assez que nous sommes organisés en fédé-
 j ralion de consciences; Romain Rolland est ma conscience, mon
-| II
 
 jugement et toute mon érudition non seulement pour tout ce qui
 1 tient à l'histoire particulière de la musique, mais généralement
@@ -289,18 +234,8 @@ grand jésus ; les cahiers plus grands seront tous, autant que
 nous le pourrons, du même grand format, in octavo grand jésus,
 inauguré par ce cahier de Noël; ainsi nos deux grandeurs,
 autant que nous le pourrons, demeureront respectivement constantes, et nos deux rangées demeureront homogènes.
->
-
-PLATE MR NES ne OUT AR MN LLNOR HSE ; Lee
-| KA REC FRS LP 0 CS Se
-2 NE Meet
-
-RTE ORRRE AN ERA AOL SEE DER NME LE NAS un 4e Rat dr
-\ LES te ni { VU Len NES
-de A n 4 < pe FAI A TAN
 
 LL une surprise et c'est un charme. C'est un ravissement,
-une fête. Qui s'y füt attendu? On y va et l'on y retourne.
 Depuis l'ouverture, au pavillon de Marsan, de cette Exposition des
 Primitifs français, il y a cohue autour de ces antiques choses devenues soudain si nouvelles. L'art d'il y a des siècles fait tort à
 l'actualité. Les salons, cette année, risquent d'être un peu délaissés.
@@ -325,7 +260,6 @@ Justice lui-même s'est dessaisi de son mystérieux Calvaire.
 Chacun, par une sympathie honorable également pour tous, à
 voulu nous aider à récrire une page de notre histoire.
 
-DÉE ou, si l'on veut, l'audace, vint, il y a deux ans, à
 15 Bruges. On se rappelle de quel éclat l'Exposition organisée
 alors dans la cité défunte illustra l'art primitif flamand. Ne pouvaiton en France tenter quelque entreprise semblable ? Réunir tout ce
 qu'on pourrait des ouvrages de nos plus vieux maîtres, des restes
@@ -385,7 +319,6 @@ sur ses piliers comme une abstraction de pierre, elle n'admet, pour
 s'en vêtir, combler ses ouvertures béantes, qu'une draperie
 fragile et translucide : le verre.
 
-pe LES PRIMITIFS FRANÇAIS
 jt. z C'est en effet dans le vitrail, dans la tapisserie, cette fresque
 A flottante, sur les tombes gravées, ce cahier de portraits aux feuillets
 À À de pierre ou de cuivre, que nos cathédrales offriraient des équiva-
@@ -545,7 +478,6 @@ avec mesure, véridique sans vulgarité, très libre en son esprit, ÿ
 très sévère en ses habitudes, contenu dans la dignité par une
 tradition presque religieuse, et le goût d'un publie à qui l'on peut
 
-oi LES PRIMITIFS FRANÇAIS
 ÿ tout dire, mais qui entend à demi-mot ; ce tour si français, fait
 à de tous les scrupules de l'observation et du style, de cette vérité
 Ë exquise qui en art est le naturel, était sous Charles V le propre
@@ -571,13 +503,6 @@ ceux qui ne les obtiennent pas, pour qu'on doute de leur importance. N'eussions-
 sans en avoir donné une foule d'originaux, il suffirait à notre
 4 gloire d'avoir su, seuls depuis les Grecs, faire de la vie une œuvre
 ÿ d'art, et de notre sociélé un chef-d'œuvre. é
-
-| A AIAURE £ SANTE NRC ATEN ee ED
-pe Se ENS ti ' de > ITR RE RETARD DE dd FAN
-‘td PO LE ne D DCR ee A Al Es Rte ATAe 1] Re
-nr act We HR UE PER AR LR RE RP RTAER ANAL De
-MN DE ne Mer A +1. à LT AE LE Pr pen Te RAR A NAN
-TOR PRET DTA AE Ne HAE te EE dd
 
 inst définie, quel est l'esprit de notre école? Qu'y chercheA ton? et qu'y fait-on? Les choses seront plus claires à
 considérer la statuaire, où nous excellons, toujours comme les
@@ -705,8 +630,6 @@ quelque temps de là, s'appellera l'accent allemand. La Vie de
 saint Denis, au contraire, est de tout point charmante. La réalité,
 qui est horrible (il s'agit d'un triple supplice), s'y tempère d'une
 
-TEE Les ARS Al L ANT -
-#
 } grâce tendrement émue et d'expressions ravissantes. La figure du :
 Christ serait admirée sous le nom d'Angelico. Les couleurs, d'un
 vif éclat sur leur fond d'or, s'enveloppent d'une vapeur blonde.
@@ -860,12 +783,6 @@ rassent comme Français; et la France peut s'enorgueillir de cette
 renaissance des Flandres, dont l'école a été Paris, et dont la gloire s
 ne lui fut ravie que par les désastres des armes et la trahison du ;
 
-Sn ce te OO OT AA
-' pre TU ve SN ue CET ÉSEALT SE) EME ‘ra
-ou it
-2: A HAS OU ATEN en PAR Les ANA LETTONIE DRE UIE PHONE
-D a LA et AE PE et ne
-
 RUSTRÉS du fruit de nos travaux, dont le profit désormais
 F passe en Flandre, Paris étant en mal de mort, c'est à l'autre
 bout du royaume que l'art se réfugie : en Avignon, ville des
@@ -887,7 +804,6 @@ encore d'être décidément authentique: papiers, date, provenance,
 auteur, sources, inspirateur, quels titres n'a-t-il pas pour lui? Ce
 qui n'empèchait pas, hier encore, qu'on l'attribuât au roi René.
 
-#
 Ce pauvre roi, moins fameux roi qu'artiste, est aussi malheureux :
 artiste que roi. Il a passé sa vie à perdre ses États. Il passe l'éternité à perdre ses chefs-d'œuvre. Tous les sacristains de Provence
 lui donnaient pêle-mêle tous les tableaux de leurs églises. De
@@ -906,7 +822,6 @@ sa gloire; dans un coin, son lombeau et celui de sa mère; dans
 l'autre, le buisson ardent, figure anticipée de son incarnation;
 près de là, le miracle de saint Grégoire, où le Crucifié se révèle ‘
 dans l'hostie et immortalise sa mort dans le sacrifice de la messe.
-Sur le Calvaire, il y a un donateur en prières. Au fond, la ligne
 de la mer tendue dans l'échancrure d'une falaise comme la corde
 d'argent d'une lyre. À gauche du tableau, dans uñ noir souterrain, des diables tisonnent et enfourchent les carcasses de damnés;
 un de ces malheureux s'échappe par le soupirail, un démon le tire
@@ -914,8 +829,6 @@ par le pied; mais l'homme atteint des lèvres un des filets de
 sang qui ruissellent de la croix. Il a reçu le baptème, il est sauvé.
 À droite, c'est le Purgatoire, avec les Limbes à part dans une
 cave. Les anges et les prières délivrent les âmes en peine. Mais
-
-| Re
 
 les démons, exilés de la terre et du ciel, et qui, comme de noirs
 
@@ -980,7 +893,6 @@ horizon d'or, comme un triple cri de douleur. Il y a dans tout ce
 tableau une expression forcenée et imposante, quelque chose de
 fanatique et de déchirant. Cet art est fort brutal sans doute, sur-
 
-| LES PRIMITIFS FRANÇAIS
 “4 tout en compagnie d'œuvres plus modérées : en Italie, il parai-
 #3 trait tout naturel. D'ailleurs il s'adoucit dans des œuvres voisines,
 “ comme dans cette Vativité d'un sentiment si doux et si large, où
@@ -1042,7 +954,6 @@ soumission et de simplicité. Enfin, la peinture est si belle, si
 riche et si nourrie, d'une étoffe si puissante et si fauve, si tissue
 d'or en dessous, d'une telle sonorité, que l'on n'a pas manqué
 d'en faire hommage à la Flandre.
-|
 
 A Vierge de Charonton est de 1453; le Buisson, de 1476.
 15 Pendant ce temps, que fait le reste de la France ?
@@ -1194,7 +1105,6 @@ ses cendres, un flot de tresses blondes. Ces cheveux qui Ini faisaient honte, el
 Dans quel ordre doit-on classer ces portraits, selon leur date
 et leur style? Et quelle est l'impression ou la doctrine qui s'en
 
-ce
 dégage? Depuis le Charles VII du Louvre, trop morose dans ses ;
 couleurs, trop gothique en son style, mais si loyalement traduit
 dans sa tristesse et sa torpeur : depuis le gros et riche Juvénal des
@@ -1245,10 +1155,6 @@ on sent sous le front une volonté de roche, et sur la bouche
 grande et sérieuse, sur ces lèvres d'un pauvre dessin qui devaient
 rarement s'ouvrir, se lit le mot de toutes les grandes œuvres :
 la bonté.
-
-NEA ES RAR et
-Mine Le AE D” de . KT
-Re Le Loi NP LE ES SE ni RTE SDS RE A0
 
 A PRÈS Fouquet, l'art tendu à l'extrême n'a plus qu'à se :
 détendre, et se détend. On distingue déjà une recherche
@@ -1368,11 +1274,8 @@ notre meilleure, notre seule recommandation. Cousin lui-même,
 sorti de ses froids artifices, retrouve quelque accent dans les deux
 figures bourgeoises exposées près de l'Artémise. Mais c'est dans
 
-|
-
 l'œuvre des Clouet, des Corneille de Lyon, flamands ou hollandais vivant en France; c'est dans leurs peintures, surtout les plus
 petites, dans ces crayons que nous prenons pour des œuvres définitives et qui n'en sont que les brouillons : si légers et si décisifs,
-parfois supérieurs à la peinture, où il n'y a rien et où rien ne
 manque, subtils comme une vapeur, une haleine devenue visible, et
 qui sont en effet des âmes ; c'est enfin dans l'émail de Limosin,
 dans son dessin où l'art retrouve, comme le verrier du moyen âge
@@ -1408,305 +1311,54 @@ Et dans toutes ces œuvres d'il y a tant de siècles, est sensible une É
 comprend sans peine, qui est d'hier et d'aujourd'hui, et qui est ;
 l'âme de la France. à
 
-PA A Le CPR MT ET TESTÉES Le nu ÿ HN et.
-se FA Es à LES eus pr. $ 10
-be HONOR * Ù LA L:TES
-HAS MERE ARTE RS ee L HER
- #AERE $ + È k #0 À 2e pe TI
-LL PAC MNRRIRATIeS ? F VON 6 NU DMEUSE 2 Sa tt tie TEE Re 4 DE PTE 2 PRE
-
-et LA ARE RON E AN Or ER ENRRON
-AS as ; k de 2 FEVER
-TN MENTON L à k aps LA ON EM ee UE A RRRR ER ES 1 x
-
-An PUR Dual ee de ARS Je
-e L CAES U 4 4 “ se ir
-
-ta À UE & Ex: CR x RANCE ge FILS
-en FACE FPETRE Are ANT +49 SOA Pr CAPES ÉTAT a UN
-et RS ESS PRE RME Ge AU AE : SE R
-Lo PES NE ENT EN IE man PLU 4) ANT ROME E AE US NS du
-d Mir MES AAA R AS UR safe Lo ET Fe
-
-Ses LE £ Re Dei |
 L. — Portrait du roi Jean II dit le Bon, par Girard d'Orléans
 
-Te LE s Hauts sb — 1 Tan CET LAS: LES .,
-
-er CT Lg 50 SES Put D PR
-
-TE NE A MR Ven RE EME Ge
-
-TPE È PAPE s ne : — co > Lu. nt .
-
-| : a re
-
-Res Le _ KR DTA
-
-nt LE F : | mr Vs TE ue
-on É d MoN Et CAN
-le mn ot 4 TEA D; :, AS F
-NT = et OR AE PES ER mu A :
-: L u 4 D te CT pete
-. Le ST EST a 2 Leon ui. .
-
-| à.
-| +=
-| sn. |
 IL. — Téte de femme, pierre, école française, treizième siècle,
 collection de M. Pol Neveux, Paris.
-
-Er run Poe LR. LEZ AE de et. +
-Lo 7 pi L à - ER R E er Se LE ER
-PPT ut ES CNE ER LUNRS 7 # Fr de tn LU f 0
-nr RL, Ce UE . ; c me Poe 2
-et è ls Li
-#4 fe he: n >  - ;
-y - : 2 LE fear ll ne
-+ A eLS LE Fr DRM, LE IAE Tee QUE LE Alrko "TRR
-FE WC L re RER CT D RE
-ee, F4 Ts L La CES ll ù 27 bi Sc Le LL … at A. l :
-LL hi. RO ORS si Un :
 
 HI. — Tête de roi. pierre, école française. milieu du treizième siècle,
 collection de M. Albert Maignan. Paris.
 
-Ds : un : e PL Es LR RRTe M du A à A :
-pr) re ; Ne CE ne 4% NE NE, see pie FER
-CRETE PEN UE MES ri RAS RE ne +3
-ni Ü
-# E - Ke PL
-: E EE À Peu EL Le: Ltv 2 DT
-
-| à
 IN. — Vierge de l'Annonciation.
 collection de M. Doistau. Paris.
 
-DR É Des so : RE Pas
-NOEUERRT Te er MP A 2 FETE [EN Sa tent
-; ie € EE je ne. À
-ne CR
-D ai d Le PEnNregrt $
-EE Le 5 hero
-Ne 4 ATLE : Taha Dr di: PURE | | ue
-L ef, S'ANCATOSRR ET HÉROS se
-
-LME CE Foie DR a \
 V. — La fuite en Égypte, volet d'un tabernacle,
 école de Bourgogne, vers 1400.
 collection de M. Ch.-L. Cardon, Bruxelles.
 
-diet ne Do: ee ZE a  L- — 7
-EE PO RE SERRE CS - | ae, more DR “ Ne
-a nr Cal “ae dE 7 "a Le ne Pres Pen à) . DT
-2 RE où NS REUTERS Re
-A = .l- EG Patte nn, RE ic UT KA ET
-| "ER É = es CL ET 4
-ns + ne AS EE L es x # et LEE
-| N ES + È ARS #2, Fe ES
-JP ua, on PRE A EE
-Deere Le US
-| n” L PE a " Here AG
-Sa - : e ARE mn ARTE nn A
-nn. ET nr Le Fe :
-
 VI. — Le Christ mort, par Jean Malouel, musée du Louvre
 
-= , PRENE 1 ; Le : ES es Lip
-| à 4 CURE = EE.
-
-| | j F É HS E L = #
-
-> p FAC PIE re STE
-yo a EUTS ON MMS SANS EX ns de ASP ER 4 PR
-
-| Per E Le . Ê F : a ne “
-
-| É | . É ee . £ A - ë
-
-Lee PRE 1 PR ne Pnn Lie
-
-PLUS) when
 NII — L'adoration des Mages, école du Midi, vers 1 320,
 collection de madame Lippmann, Berlin.
 
-| = È = . > ue RE, - 2
-i ; = ne MNT RS, dt.
-
-hi à Le PER on. +
-En Pe SN GRO de
-Me vers RANCE PRIS Te
-ei Le NET ë EN db
-Fes _ 2 ee ce ot
 VIII. — La Vierge et l'enfant, par Jean Malouel,
 collection de M. Ed. Aynard, Lyon.
 
-Le d MED Free RARE et ÉCRIRE Ve ie Ra AR >
-FR A nu a ET M NME
-TE Ont RS UE nr RES DESSERTE
-D tr os L 1 = à OCDE N EE M NT EC
-CREER KR F LE Te ni Pile
-ne il c : 5 RP PAU) PEER C
-, L ART os LE RE £ ES n net —
-a A Re ie C7 Rte TUNER SE NPA I de ACTES LIU CES
-| Mi ge TERRES L 4 NE a + TPE E | Ed
-E de, de NE ER EE PR
-. D: Des Dern A Ur
-
-fn Er ve di SES EE
-| BA Bk 11 ERA PA
-| AE CLPS Dr le Se x
 IX. — Le cardinal Pierre de Luxembourg en extast
 école d'Avignon, vers 1440,
 
-hé x Ne te 7 : ‘an PR: Le
-LE. | RAP ÉD. | - me PR de
-EE REP E Re ie. = ES ne |:
-DES es : T6 Le et ne ua NE
-LUE TR NS Eceur et
-oi + È ES eue Re ET mi: # Ea ETES
-> J 5 PUR mL J D PRE PR SL -
-a Ne AE te
-cher? Fr HAL = l FALSE SE Te I
-ÿ É Lisa sie Lier Sn "es » AI QE LE PET PES
-RP A ER Le SEM et
- :., ie JS = L sl + Le PES PT ta
-Bu. ER ee 1% are LES or "
-LU ME pu tu NE x TS TR
-DRE RER EX ETES nu DES
-a Pt np tn x ELLE re à 1 RES PA
-ju Ans ES sn" Ce T PL jeu Due LS ie ni! #
-
-PT Eh An Eee de So Er  : PARENTS |
-RACE : = 2 RON + de oi
-
-; pes RE LE Re tn Le" Eu |
-lé un à = SJ à ER ST NET PA ie re CS
-ta LP DAMES E AL CE RTE CPE Ces es 27 ET IS É
-| — te ni 2 IE ni exe, + ; ss " (CRE re RE L Tes
-à Le RE CU > rente Fer Ve. = ES ME
-Sn = ne RE CR ENRLL PRU CRT em LEE CSI
-M n pi-« = s : PERS ul = CPE È + ni Er
-ne ; ei EE PrrRR ES
-de ë : RS UT PO ET TREUS
-È Sig | NE El PP Pope 227 se PA
-LE x A HE eo ver D
-Ne Fe ei : : CES ne
-is 667 Fr =, Dur = LE TR RER
-Mon AA = £ ; Aie re ee.
-ER RENE Fes EEE Re NE SN
-rh ef Re et _ + nt ARS AA ARS!
-re MT ue re : = A ne
-AT RC ee, Dot Ce Lu RTL
-
-# "4 4 $
-si TU
 XI. — Saint Siffrein. par Nicolas Froment (?).
 
-de SRE Re den ET
-7 RE nn un Fe j +
-La ui LP EME gi =" — “are LERTER
-ke? : DE ur Fe ne : . ETES
-pes = : tee ME ce : Le Œ 4
-ne n = rs É ET Len; d
-AM. : CE en er
-#1 PER | LE Ve 7. AFS PRE
-Dre È Dr ar “Le Aa a :
-
 | 1
-| 2 |
 
 | -
-
-| 1 V2
 
 école française. deuxième moitié du quinzième siècle,
 musée du Louvre. .
 
-LU u NE Ds ER ob CL” ose AL
-È PRE Te A RS PER de RS
-| A RÉLSSER,
-| ae Li Le LCR 3
-| £a » Lhi : CR.
-| » 'd Se ue *, A TT Ed. sf Les 1 =
-Li ir L La pe | he > 1 ee
-nn ki y L La ras nr CL" TP
-L, ou + MT Pin . ir
-Et Pr! ae: [THE ENR ile, ANSE RSS
-ke par LME . N e LE TALE C E HART k
-
-Ke RE ET Car
 XII. — Vierge portant l'enfant. deuxième moitié du quinzième siècle,
-
-TE NC ce 1 Em CETTE
-ME Li F Der RS et LIRE RES % Le: FRERE
-ne : mu v. LR HE
-L d PRE Fa ue de CREER
-SA h Net RErNONE # FE ee = Per ae
-ne ei ee RE
-ere Cu ; JE CARS
-| , x ur AuÉr PE 1 < TA
-F sl hr AL "] tes v
-le ÿ dr File Don.
-ol ï sine CE HSE
-ve me Lu Penie na PR. ce : | A
-7 no CR D dr PF . Ar. L à
 
 XIV. — L'enfant Jésus adoré par la Vierge, un chevalier et un évéque,
 école provençale, vers 1500, musée Calvet, Avignon.
 
-— LE ah) RE re TE ee I ES
-hi Div E CM RE = = es. Ds Le. FER
-* td s DE : Ces
-de b x É à Pre es =
-L à MR Lee Ne
-| + É x L a Dr
-dE * v on de dr 1e ee :
-
-| De 4 © ASS 4
 XV. — La Vierge et l'enfant Jésus, par Jean Fouquet,
 
-1. # > Er NS Re MR > oi ee Pa ne
-pal Fin 1 ES d EE: AE "1 ras LS LES A) PC RCE
-Rite" « ST EE 2 L n er Di:
-] = nn" Det L u na 4 7 CL'ÉRER
-A que RE a RL RE PURE LOGE PORT CRETE
-1 a PP Dee qe de a A AMIE » RE à
-ire CRE - Et” prie F-% SR s
-RER / ne É + PSE le T2 PROS
-FE pe dE : 2 Rue LI EEE
-+ RER NE SE dr Le on : de DE Re.
-DO ET ee AS DE a sa 21e e 2
-EI a ‘ : RE ; ne et SPP dE:
-M “nc _ = en he mA TOI
-er, AE à bi Tu LES
-Rae D : E u M2 ne Le —
-x ne ed : . à - Dee RS + ES Fa
 Pt 74 : ne | ST enter Miles FREE nue )
-Lo D TOR : Le br et : ob HE = +
-fr PRE ET II Tee OURS AE NES No
-Ce ha ie SO LT > ,
-de "4 h ” eut pl LR nl ñ A VF Le La
 
 XVL — Étienne Chevalier, trésorier des finances du roi Charles VIT,
 présenté par saint Étienne, son patron, — par Jean Fouquet,
 
-te ES si : L'p@é ES th. 00 Cite SFr
-Ê Sn QE, NE De Res ps:
-or re a TE Le h 3% += LS
-. = =. er PR nd SR ER PR men ET ns
-" L CRE ES Ke HET nn : ane na
-+ à D OT RTS cé £ £ de
-#1 De pu ‘ : ‘fre TE SC
-La Ale VE SF RE
-| nu? = RE . STE ONE SPORE
-ne ee De: ‘ L SRE" RER DE
-a Je HT y es > se MEME CIRE
-de : : ë Fins e
 ' L sig l'aetre É
-L Le VAE TZ : # VS. ME ie ri ts
-| ; 1 + €. M "RTE
-PE ee LL 7er dr: he: J . VUTRDOS D SES
 
 17 1.
 
@@ -1714,287 +1366,55 @@ XVII. — Jean Fouquet, — portrait de Guillaume Jouvenel des Ursins,
 
 vers 1460, bois, peinture à l'huile, musée du Louvre.
 
-ñ | | pie | Pere EL 0S Pie Le
-se 2 NE LEE NS ee rer LOTERIE D
-; ee pi“ PAS TRE pre Bo De ne
-5 214 a Et ee ANT 3 Lei E rues Las EP ADR :
-PE FRRS ALT Een CR Les Lee É
-TPE ir - de a LE WA fs
-DR ” PE È É é er et LS ee Pat EE Pa PRE -
-h 2 MT = ve ne: ST
-: ul Sy DE nes tee ET “ar F6
-w É : SES +: F dau Fe sh STATE PR Le
-fe N ‘- PRE LES ee Se
-% 1: Ra ne CR nr ERA TE RTE |
-re "2 HT) L Eu É ro RE à L
-en ile) al d : ne Mr
-
-#4 sr : É
 ——.
 XVII. — Portrait d'homme, par Jean Fouquet,
 collection du comte Wilezeck, Vienne.
-
-Er L LÉ RRE Ne Eu Lie VERT
-ga on EVER > AS LR EL E LT
-" d . le EN ET sn ESPN EN EE.
-LE ee : + an " U Er Ed, AE “TE a es Ces e Si AR
-he sy Css dE 4 PET s : + * pe Rate L Tr e
-Et AU Ê NES Set aa ER
-N et ñ PE
-| TROT
-LP RER ER ET.) æ as FRS
-
-| |
-
-ou NEA
 
 XIX. — Portrait de jeune homme, par Jean Fouquet,
 
 galerie du prince de Liechtenstein, Vienne.
 
-+ D le re NE TÉ - He SCORE ENTREE
->. RP je * r RE LL.
-j N , M ee the DES SE
-min ; Der L L Re Dee:
-| : 2 Êe RER
-"= "ter : Fan ER ù ENT à ne
-
-LA Fab R
-
-8 tu To LR Er NA nr Eat NP L E D rer LA Eee 1e on :
-
-ou | ur Le FER RREE sat EX E 2E*, ÈS
-
-up = RS .u RTS ET Ten
-
-> CPR PRE x LA, TR TERRE VE CPI
-ww A: ee LE ESS
-r : Se = n £ CE: ARS ei PE : LORS te
-a Le Va = he Es pee Ra —
-
-ve : L De En ITS SENS EEE
-le EM On ee 4 k « PTT CE
-
-# . * A" 4 le
-| : : 1 ae SLR -
-A Lite) ne … F= Fin) Le
-EL = u ATX its LE UL
-mn NS nPEe ut MEL TT EE CE .
-CENTS Tes DORE Et 7 tip "Ne
-nat > L { ANT er ur Ps
-
-| # k LE Cr)
 XXI. — Un donateur avec un saint guerrier,
 attribué au « maître de Moulins »,
 musée de Glasgow.
 
-OU ne D LS RL EE uit M Me Ce TN
-Lo à) re D 4 ee de LT ODA ERSRES
-5 æ : L Lu! ss CPE n D ER et
-ÈS RE EE On ar M GE M RÉ
-PNA, OR NE en EE SR ee 3; A4 LOS SSCONENES
-cn des % LEURS à bre nifeme Qi 2 NE CESR ï
-LEP LE si à a & E > Le PR art © :
-Le RE UE re x de ni LT RS
-DRE TANT Pet L ES MOTTE MIRE 4 =
-Tan » F2 . NF 1 tnt SES
-FALSE ENS et : FL TNT DR ne 1 ,
-JESR Mag Le” Tu ne NE ONE er à
-ï Pen I Put alar CR DE,
-
 XXIL. — Pierre Il, sire de Beaujeu, accompagné de saint Pierre,
 école du Centre, 1488, musée du Louvre.
 
-je en re ; ; RENE, 201 Ur IN IRIS RP TERRES
-| PL “ Q nt. Ji SE D à ERP QURE SRE BUTS
-PRES es 220 HT. AT op Per VS ETS L a RE:
-œ LS DE DIN IE it De EE
-De RC re ee NE SSSR uen LE Ke
-TE PRE Ce LAÉdeM Tru anus E d4 0e 00 CU RE
-He Pal < DEEE ne ë LE
-LR 7 er re me a) Lee CE ENTER
-CE ju 5 RU RE TAIES
-à < re Lay dent LE EURE
-t'RE à in Le Une s LT Es
-Dre se € SA NRA EL TRE Le
-l ES bi" * Te ar ‘TRES Le
-RE 7 ol ne tu JS RES Le 4 É
-IS Er, ne : À nu F
-
-# + RASER (
-pl è 4 le:
-| : | #
 XXII, — Anne de France, femme de Pierre sire de Beaujeu,
 accompagnée de Saint Jean l'Évangéliste, école du Centre. 1488,
 musée du Louvre.
-
-x j Dm Cie MR EE, ee EST DS
-| San
-É So eu ENT Sn PAC der ral “Le SET ES
-ALT ne RER A à à FC ART eee SC .
-&, 0 Re Le ER En, el RE PE a to FX PA +
-SRartr . Cr: LE TER Re Te à tt É
-Le =) FR Pin ve Liège J En) — Va
-CT # Eat CE A Die Re PE JRÈLE LA :
-n A 1 E: Late Na N° LE pe EI ARTS T —
-en nt, ce ENS PES
-ste RS RE à Es rl Le l rx 2
-
-| : FR FE) |
-| s 4 DEA |
-
-| “3 VE PE RS HOT TU OR M
 
 XXIV. — Portrait du dauphin Chartes-Orlant.
 
 attribué au « maître de Moulins ». collection de M. Charles Arr. Londres.
 
-a AUT RC Et lc Ce ss Un
-LE . r: FL Tr (hé En ape A NE À SAR
-L : dr PSE RE PE Re , RULES nr cel
-*F FT > er k è > ne et
-Pre 8 plz LE HSE sr RAR
-ere . : SA SNA ES CNE AE et CE | Jobs Date +
-+ "see rc Rs A Pete MS de pi VERT AE A
-#7 : eZ A S CEE ee LR
-a : * "a re ee ait T Ce Er) ER" Lu à
-Le h "3 vE Sie cm EE"
-at AO AT 7, ù si L'LDONERE -ÿ "Fe :
-
-# PA ” M A] NS 4
 XXV. — Assemblée de Saintes, miniature des Heures d'Anne de Bretagne.
 par Bourdichon. Bibliothèque Vationale, Paris
 
-REA Css AE rer. ES Dee D : RE ni RE Re
-: pe É LE. Pre Ni PC AUNEr :
-L É- Ds TIRE rt Le NP SC) Mon"
 : RTE 2 Pois aie des. er
-EE MR RE ER OR Re ere Le
-, he a Le ES . à Mme se te
-k. “fe. a > EAN s et k Æ ee TRES
-es I Le Es Le : LA: Tes TRES ML
-| L. Th : * Es A re 33 PNEUS
-ze . y ne le AT Cr a
-#4 M TIR las = 2e - 2 ,E PT
-EURE PATES 6 A Et ER ML nl
 
-#
-#
 XXVI — Portrait présumé de Claude d'Urfé,
 par Jean Clouet,
 collection de Sa Majesté le roi d'Angleterre.
 
-AL le es ART RP Un
-x u és “ PRE ee LL Du
-> “ 12 es ir É de 22 ee LEE
-La Par Lien Sr RE
-eu RSR Re Es D sta VON ER = RAC CES
-ras DE AR
-es RAR à DE PR Me ES
-ee PR - ! Ad À À dl ET a Pa 5 Cr e CT
 En . 2 tes : : ER Care
-> Fee . : . Si RÉF o de PT
-AM ne L c' Pa RÉ TERIES
-AT TES Ri à Let , RS pause A er
-L es CES Due Le ë : HORS à FER
-: De lesr ir Si x — É: et Le sun Æ
 
 XXVIL. — Portrait présumé de Guillaume Goufjier, sieur de Bonnivet
 par. Jean Clouet.
 collection de M. E. Richtenberger, Paris
 
-: + AE ee Dec Fe ET E Ai EE 4 SFR
-PT PES RE rit Le Re En Nes ANT FE
-RES L'ERRS TR Re RE ET er al À re
-ROCCO Frais qi SR à dl pe L_Ù ss
-ve L Lien re : . Me RL Pr
-Er à ADR ONER EU es ET PCR ER,
-Fe L : HER ERS op Er ni à A  -
-MSC PRES KE ne <= PUS SRE RES Er el REX - JE
-Er D Les + DER TELLE # e h te D Re
-ED È = TNT Ci ; ver Cas L}
-cn 2 F = Ce ct
-Eee. s, 2 ae ce RE OO EM Ut
-ur arr Des RE EC ee.
-RUE. A6 DES EN l re Fe AU SRE et Tu
-EE = DE | Fay ” ra Cr Les
-
 XXVIIL. — Portrait du baron Guillaume de Montmorency,
 par Jean Clouet, musée de Lyon.
-
-Le Mau MODES EL
-| FES SRE SENREE Ne ES NE LU ES DNS
-ne ù L = PAPE out à NE Te : . PRE Lies -
-, ; 5 UN: EE or PL Sue Tiens
-< ne DES - nn” en F | Le dur"
-s Let, Cv ane TR F 2 Pepe ET . Der ag
-
-L MONET is Et CRIS 4e er :
-
-d ee k n ee D | id LE Le sÈ De
-
-! -: d per L ji Tes ES
-
-NME de , FORTS ac. LATE” NE pal HITS 08
-
-u S.à : sr FA ET : eme PE 4 N
 
 XXIX.— Portrait présumé de Charles de La Rochefoucauld, comte de Rendan,.
 par François Clonet.
 collection de M. Doistau. Paris.
 
-LE LT. LÉ. os DRE, Fe SU RR Le de
-AT AR RE en CL M RER AE) LEUR
-LE ze, ET se RL Fs LEE FPE te D
-TP pr er ne UT EAU CRE LE 8 RS
-| : + = ner ei. É: RC
-Eee ; ER RE rer a CE en 51 T .-
-nr DNS SOL SU ME NUS LE CTEU un : SEE res
-ee RÉMRIE UE Ne ele=e se A PS.
-Je T'en AT NE PE er 4 +: ' CR Lt RSR
-LA or es RÉ MS |
-: NE TS : at Me Rue:
-| LPve , Pa RL RIRES
-Re Cas Le POLE a ER TUE
-
-s attis pe, La
 XXX. — Portrait d'une jeune femme, par Corneille de Lyon,
 collection de M. Ed. Aynard, Lyon.
 
-LE it ETAT PES Tale ee,
-nes, à a Cd On ire AE, © AA de my te 3 5
-a ur É v ne En | h + PRE Ê: EU =
-v à ni. pi +: SR de CNE ' Fu: TE EE
-Piles SR NN AL a ET or DR -
-HS SSP ET RU 1. er ere | 180 CORRE
-De PAT PEER En Ou RS in RE LES EEE
-= Le En cé “ ps 2e nr
-LEE t SE DE le nt Tes 5 Pr TA à MAT R Dei
-Ar Pipe s SE CE
-DAS ‘aie SE OETe OE ES  I SRESS Le
-Penn nn D PU PERS Le RSS
-: Cr SR PAT ER UN En ra - ide".
-f RE. Iran et  —
-
-D SE PMU lbe= À EN, Ta te de let Dr Le,
-ne RU AA I AR TS Een SU
-M EN RE A UE ne NN TR
-RE LA MEN HET LENS el MP
-LE PANNES PANNES eue RASE L'ÉTANES RER k
-
-du CU A NS
-|! ACCES fo Qi Pl A EME RSS
-HA HU, nt ; : de mi, te we Et Fan D d:
-
-4 4 Et ne RTE PRE ; s o FRE is
 | contes de -
-
-ME tu | br |. CU
-
-WARS Le FRONT Er à à Ana + F
-De ( l se Aa ue
-NE # EL Fun Sy rite
-SA VEN ; k à Pate HT AUMIERES HiyT
 
 Si j'en crois le catalogue analytique sommaire de nos cinq
 premières séries, il y a déjà deux ans que nous avons publié, en
@@ -2018,18 +1438,7 @@ ont légué la légende l'avaient faite, la faisaient et la refaisaient
 sans cesse; les Tharaud sont deux conteurs de plus, après et
 parmi tant de conteurs.
 
-|| D ERSEN BA AN DNS AN FAN)
-| HITS |: Fame fe
-de Par £ \ MNT ARE NI . RS
-
 D UD D ana que
-1 SAP on RSS TT ee CN AE 2 N ne
-PC er BRUN ne,
-'Oter nt ï } 2 ‘ICS TES
-
-| 'SÉENENRS ; à A AE 0 EI A MR Eee |
-ARE More HAVE TT TO A Re on NN 5
-ATEN MERS ra Liu sait RQ Vies Ne A ARE Te EN
 
 evaup de Penhoat, seigneur de la terre d'Outre-Jourdain
 R par la volonté de Godefroi de Bouillon, premier roi de
@@ -2085,8 +1494,6 @@ l'enfer. Renaud lutta dix heures. Quand son épée lui tomba des
 mains, il se réfugia près de l'archange.
 — Vois, Renaud, lui dit la Vierge, ton épée ne peut te
 
-bd DE
-
 — Pitié, pitié, mère du Sauveur!
 
 1 — Gabriel, donne-lui ce cierge, dit Notre Dame. Défends-toi
@@ -2104,16 +1511,6 @@ yeux, ouvrit les doigts. Le cierge, tombant dans le plateau où
 les bonnes actions faisaient un tas si léger, emporta la balance.
 Belzébuth lâächa Renaud et le chevalier de Penhoat rendit grâces,
 à genoux, devant le cierge éteint, d'où montait encore un peu de
-
-L T0 4x #4 À di He er Hu Ur:
-
-DRE Ji 48 po D ON RREENES ARS à te SPACE CNRS EE à
-
-ne. Re
-
-TA Pre $ GENE À j ent 1 TRES
-“CNT i \ 1e tt OU ONRENEES
-5 8 dre ce D MSIE Po ARE AD à
 
 EUX novices s'étaient liés d'une affection que le prieur tolé-
 D rait parce qu'il y voyait une émulation de vertu.
@@ -2151,17 +1548,6 @@ Félicien courut dire au prieur ce qu'il venait de voir.
 Le prieur obéit sur le champ à la Vierge : il ouvrit à Gilles
 sa prison, comme elle avait ouvert la cage des eclombes.
 
-|
-|
-
-fl Fe RE RE A DES AT CRE E PAS D A er ER ES SORA
-ER tes
-Yan ou Me JAUNE HN KU FEAR À Lan AS i
-
-. neue M Ne Rae et va A
-
-L'AUNVMES aa a OP pe LATE LAN LE PANNES A CE
-
 E jour où le roi René conduisit à Saint-Amadour la belle
 L Aude de Toulouse qu'il venait d'épouser dans Arles, les
 Consuls voulurent lui offrir la régalade d'un pendu.
@@ -2173,8 +1559,6 @@ sa face dans ses mains.
 — Messieurs les Consuls, dit le roi à haute voix, Madame la
 Reine vous demande en souhait de bienvenue de lui accorder la
 grâce de cet homme.
-
-Les Consuls répondirent :
 
 — Cet homme a fabriqué de la fausse monnaie ; la loi veut
 qu'il soit pendu.
@@ -2211,12 +1595,6 @@ au jour du Jugement rien ne nous sauvera, ni la miséricorde de
 Dieu, ni l'intercession de la Vierge, ni les mérites des Saints, si
 nous n'avons sur nous trois ducats de bonne volonté !
 
-A AE AS Pr AE Rte # LES
-A Une lire É TX
-
-# x TUE $ c mL > RAI [TR
-je AS SRE ED > AS NEED NT LOUE AT AIN
-
 Rors Bohémiens passaient à Jérusalem le jour où les Juifs
 ! s% crucifiaient le fils de Dieu. Ayant rencontré la Vierge, ils lui
 demandèrent pourquoi elle pleurait.
@@ -2238,40 +1616,17 @@ de Jérusalem, elle accorda le privilège de voler sans péché à tous
 
 les fils de Bohème.
 
-DUR OT CRT RI EE pin RENE CASNTEARTA ut NET RAS NS CAE STATS LA
-H CCR LOL CAT as (ue NAME LORS RÉPMSS PER Na TEs LUE A DER DANS STATE CURE PURES CN TN En)
-M » QUE ir, SIEMENS MUST RARE AA rh : +. POINTS
-#4 SRE ACTE RME PAE TOPIEAIEX RALOENE 1 59 LA ON NN EENEUTE 16
-} AXES ANT PAT EE A ER SAS ZE pe NE ea à G PE ERP À AO MER TA OT
-EPA MERE pt LA A CA AU NT RS ON da
-
-| D D EU Ne An DA te ete.
-Co ie ne EN ANR "LENS
-TRE EIRE Re et ES : FUREUR
-CNE Ne MORTE + tre
-1; CREER trie FT Ce
-| FEES AUX OISE : DAME à
-4 CESR Frh et
-
-es l SNS
-
-NM RE AA he à min de
-
 A Vierge fuit avec son enfant devant les soldats d'Hérode.
-L La colombe demande à la Vierge : F
 — Où vas-tu avec l'enfant ?
 
-La Vierge répond :
 — Je fuis les soldats d'Hérode.
 Elle entend sonner le mors des chevaux.
 La caille demande à la Vierge :
 — Où vas-tu avec l'enfant ?
-La Vierge répond :
 e — Je fuis les soldats d'Hérode.
 Elle entend la voix des cavaliers.
 L'alouette demande à la Vierge :
 — Où vas-tu avec l'enfant ?
-La Vierge répond :
 — Je fuis les soldats d'Hérode.
 L'alouette a caché la Vierge dans une touffe de sauge.
 Les soldats d'Hérode ont demandé à la colombe :
@@ -2279,15 +1634,11 @@ Les soldats d'Hérode ont demandé à la colombe :
 
 Jérôme et Jean Tharaud
 
-La colombe a répondu :
-
 — Elle a passé par ici.
 
 Les soldats d'Hérode ont demandé à la caille : à
 
 $ — As-tu vu passer la Vierge avec l'enfant ?
-
-La caille a répondu :
 
 — Elle a passé par ici.
 
@@ -2305,19 +1656,6 @@ La Vierge a condamné la caille à raser la terre d'un vol
 
 La Vierge, en récompense de sa merci, envoie l'alouette,
 chaque matin, saluer pour elle le soleil.
-
-TE AE ti dre de RE ; An
-LAPS D ECS CE A OT Le SR A PRES ie NT
-
-Na , Lie ee Ÿ De,
-
-SANT ARS Re Re RER ARR ONE à PAR LUE pti ER à OP ue
-RAI DNS NOTE Ne. de ER ST TEE PMR
-te en AE RETQNE MANN FE ERTS DETTE. CRAN (ie LE ES se) NÉE ER AE
-| TES ‘ ‘ # Re ui 0):
-MT de LE AS PAS
-
-| CELUI QUI FIT PLEURER LA ROSE
 
 g roi menaçait la reine de la chasser de son lit pour épouser
 15 la fille d'un prince voisin, parce qu'elle ne lui donnait pas
@@ -2379,8 +1717,6 @@ rose fut insensible à la mort; passèrent des princes charmants : la
 rose fut insensible à leur beauté; ils eurent des paroles enflammées, les gestes de la passion la plus vive : la rose fut insensible à
 l'amour.
 
-|
-
 Elle s'effeuilla vers la fin de l'été pour renaître au printemps :
 personne n'essayait plus d'attendrir son cœur.
 
@@ -2393,21 +1729,6 @@ Le soleil s'en allait, derrière les hautes futaies, vers des pays
 inconnus ; une goutte de rosée nocturne tomba des pétales de la
 fleur sur la vielle du musicien et la rose désenchantée redevint
 une belle fille des hommes.
-
-c sa
-
-Do tes NE RENE PSE
-EUR pit NA LES PASS
-si x ; | TROT SUCER CES
-Dit S Rec 0
-M: FA È % ee 2 Fr CRAN fe NAT LT NE GA
-et di dut ts
-
-É ne me Me Un TA
-0e LA JONGLERESSE À nor
-
-RAR NIET MATE EPST D ee en Re et ET Etat ME EE 0 1 8
-FU De. KE ES DC Eee a x a Fr ETS LP
 
 À ux noces du seigneur de Daoulas en Irlande avec la fille du
 roi de Cornouailles, parut une jongleresse, illustre dans le
@@ -2462,15 +1783,12 @@ L'archange alla trouver le vent :
 — Beau sire, voici le message que la reine des cieux vous
 envoie : soutenez jusqu'en Bretagne le corps de cette femme qui
 
-Le vent répondit :
-
 — Jamais je ne le pourrai, bel archange.
 
 Gabriel redit à Notre Dame les paroles du vent : la Vierge se
 
 — Notre ami le vent n'est plus jeune!
 
-NA aa LE Fe A AS RUES RICA US ty Rue ? : \ è
 La jongleresse au ras des flots continuait de chanter :
 Ave chantaient les anges quand Dieu se maria,
 ÿ Ave est un mot plein d'émeraudes et de gemmes,
@@ -2482,25 +1800,6 @@ sur la mer : la jongleresse pendue aux cordages divins aborda la
 | - Bretagne. Elle se retira dans l'asile d'un cloître et pour faire à la
 Vierge le plus beau sacrifice, elle jeta sa vielle au fond d'un puits
 et ne voulut s'employer désormais qu'à sonner les cloches du
-
-D LE NACRE MARS Pa CPE DORE ARENA Le ca OA Pa a te cg ti NT LA Er, or EE PA A
-ROSES POULILENe Dh FRS IT TNT MSA AR RE LE tb Pre PS AE NA
-a is ne AURA RUN
-hrs f Le NOT ON AMEN
-DL: x f A9 % Rice CRAN TEE EAN SO ar ON CHE
-
-Dh pi: ARR ARE NE eee Ut À “
-er LA STATUE é.
-15 DE DIONYSOS ne
-ne LE
-En À; < Le pr ut
-
-“HS L # 3 EC) at té RFO Ep :
-: FORCES dial 2 FTOR re DA dE HR eee LE 2 La: 2 TN SOPR
-18 Se RALE de RE EN SR TA A PAS LIFE
-PES mA ER É rt Ja MEUERS He SAR RENE as
-3 LIRE SUCRE SATITE bg nets } 5 Be Re NPA PET dE PR v
-PR PTT Né Er EAN ee nt on PROCESS me HS
 
 Es troupes de Julien, César, arrivaient en vue de Césarée.
 LE, — Te souviens-tu, Libanius, dit l'empereur, du voyage que
@@ -2522,16 +1821,12 @@ de l'Empire.
 charmant de Césarée par le don que vous fites à la ville d'une
 slatue de Dionysos.
 
-F dc je ENS à ji is
-de
-
 À es ste. L <. dit l'empereur, du voyage q |
 ni nous lans Césarée? J'étais bien jeune alors : mes sens
 FI s'ouvr ntiment de La beauté. Quand nous approcl -
 # de Cés e rappelles-tu, — c'était déjà le soir, à peu près
 À l'heure s sommes en ce moment. Rien n'a changé que
 nous-mêi a vie était belle alors le mondk vait
-jeunessc s ce temps, il me semble qu'il a vieilli. La nat et
 l'âme de es sont ainsi liées que le vieillard emporte -
 la tombe > d'un monde fané comme lui. Te souviens-tu ?
 Quand 1 ivâmes près des murs de Césarée une thé de
@@ -2541,7 +1836,6 @@ s'adres disciples d'Apollon et des Muses qu'à l'héritier
 D app Julien, que vous avez reconnu l'accueil
 ss ae a le don que vous fites à la ville d'une
 
-|
 Jérôme et Jean Tharaud
 — Je me réjouis de revoir ce jeune garçon, aux hanches =
 fortes, à la poitrine un peu grasse.
@@ -2642,29 +1936,8 @@ Libanius, recueillant dans ses mains le sang qui coulait de ses
 blessures ouvertes, en fit une libation au Soleil, sous les yeux de
 Basile épouvanté de la puissance des dieux païens qui, jusque
 dans leur défaite, dominaient des intelligences superbes.
-|
-|
 
-LÉ ARENNS RON NU RPTET SAT L F . es Be
-| 1 NES ; ADP
-1R 8 Fi End RUN EN ASE VERS MENT EEE Does À LAS, Vue fe ur NÉS
-2 CT RP PRE TEEN Lar LE A A À ec ar DU AIR
-
-MAR De AT AE Re pee LR D ON SN ee CT AA RAA AE
-AC RSR OT NOR CE a MA AU Eee ea ER MIA Der:
-
-fe pe ni ee | £ : “Aie PARQUET ADN AFRO 4 1
-| VAI 1 ' £ V'APET 4 ERA LT
-
-M Dre DRE RL NE HS SA
-
-à DAS PAR EE NE EEE) LE AUD A UE CARE re
-
-AURA PEN ve PÉTER MA El ne Ro) Ur
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
->
 
 Nos Cahiers sont édités par des souscriptions mensuelles
 régulières el par des souscriplions extraordinaires ; la souscriplion ne confère aucune autorité sur la rédaction ni sur
@@ -2691,15 +1964,6 @@ L'abonnement ordinaire cesse de fonctionner pour chaque
 série au plus tard le 31 décembre qui suit l'achèvement de cette
 série; ainsi du 2 octobre au 31 décembre 1904 on peut encore
 avoir pour vingt francs les vingt cahiers de la cinquième série
-
-ire gi RENE UN RAR fe RARE PAT Fire x Don & BA Cet FA Ie
-CRT NE te Le RE © CEE jus ARR DN TENUE. 0 ME TU je ÉNEAEURS ju
-nn oies HAT ET AA à ATEN CREUSE PEINE
-Si De TRANS VE #3 \ RL EC RRNEN CRE si
-A Le. ANAL Avi or LIFUrT r DIR Q 7 x È (OR RTE TT CAVE US php ou in
-| LINE HET EN MOT AITRAN LAN fr EMULE
-MN Lux Se 0 der de Et na et } l VC AA fie k
-., RÉMAMEN HPET LE or AI EU Aude LM SA ER
 
 A partir du premier janvier qui suit l'achèvement d'une
 série, le prix de cette série est porté au moins au total des prix

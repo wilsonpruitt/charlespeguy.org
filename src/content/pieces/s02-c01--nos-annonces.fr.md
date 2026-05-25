@@ -51,7 +51,6 @@ l'art avec lequel nos collaborateurs les ouvriers compositeurs, le metteur en pa
 
 rue de la Sorbonne, à Paris
 Président : Émize Bourroux, de l'Institut
-FéLIx ALCAN, éditeur. — AuLARD, professeur à la Faculté
 des lettres de l'Université de Paris. — G. Bezor, membre
 du Conseil supérieur de l'instruction publique, professeur
 au lycée Louis-le-Grand. — Marcez BERNÈS, professeur
@@ -63,7 +62,6 @@ ministre de l'instruction publique, — Aporpne BrissoN,
 rédacteur au Temps. — FERDINAND Buisson, professeur
 la Faculté des lettres de l'Université de Paris. — Jures
 CLARETIE, de l'Académie française. — Madame CorGner.
-— MM. J. CornéLy, journaliste. — ALFRED CRoISET, de
 l'Institut, doyen de la Faculté des lettres de l'Université
 Les administrateurs sont délégués par le Conseil de direction. Le
 
@@ -74,7 +72,6 @@ de Paris. — DARLU, maître de conférences à l'École normale de Sèvres. —
 , Faculté des lettres de l'Université de Montpellier. —
 DERERME, directeur de la Coopération des Idées. — Éme
 Ducraux, directeur de l'Institut Pasteur. — Dumay, administrateur de la Bourse du Travail. — Espinas, professeur à la Faculté des lettres de l'Université de Paris. —
-{ ARTHUR FONTAINE, directeur du Travail. — ALFRED
 FouxLée, de l'Institut. — Henry Fouquier, journaliste.
 — EUGÈNE FoURNIÈRE, député. — CHARLES GIE, professeur à l'Université de Montpellier, chargé de cours à la
 Faculté de droit de Paris. — Enmonp Goupcraux, membre
@@ -84,12 +81,10 @@ conseiller d'État, président de la Ligue de l'Enseignement.
 — Gusrave LANsoN, maître de conférences à l'École normale supérieure. — GusrAve LArRoUMET, de l'Institut. —
 Ernesr Lavisse, de l'Académie française, professeur à la
 Faculté des lettres de l'Université de Paris. — H. LemonNIER, professeur à la Faculté des lettres de l'Université
-de Paris. — XAvIER Léon, directeur de la Revue de Métaphysique et de Morale. — ANarTorx LEROY-BEAULIEU, de
 l'Institut. — MaLArErT, professeur au lycée Louis-leGrand. — ManriLrrer, maître de conférences à l'École des
 Hautes-Études. — Le R. P. Maumus, dominicain. — GABRIEL
 Moxop, de l'Institut, maître de conférences à l'École normale supérieure, —, Gasron Mocu, ancien capitaine
 d'artillerie. — GrorGEs RENARD, professeur au Conservatoire des Arts-et-Métiers. — CHaArRLes Ricner, professeur
-à la Faculté de médecine de lUniversité de Paris. —
 Rose, ancien directeur commercial des cristalleries de
 Baccarat. — PAuLz DE Rousiers, publiciste. — Mademoiselle SALOMON, directrice du collège Sévigné. — MM. ArMAND SCHILLER, secrétaire de la rédaction du Temps. —
 GABRIEL SÉAILLES, professeur à la Faculté des lettres de
@@ -130,8 +125,6 @@ maître de conférences à l'École normale de Sèvres.
 
 4. L'éducation morale par les classes : a) Classes élémentaires et primaires. Rôle de la femme dans les classes
 M. Korrz, proviseur du lycée Montaigne. — b) En grammaire : M. CLarrIN, professeur de lycée. — c) En lettres
-M. RocarorT, professeur de lycée. — d) En histoire et je
-géographie : M. CnarAmer, professeur de lycée. — e) En
 sciences : M. Brocue, professeur de lycée. —f) En philosophie : M. MArAPERT, professeur de lycée.
 
 5. Ÿ a-t-il lieu de faire des conférences spéciales de
@@ -181,7 +174,6 @@ d'étudiants et la retraite de Fichte à Osmanstadt.
 
 VII. Ea chaire d'Iéna (suite), 1795-1798. — a) Le retour à Iéna; la
 période de la grande production philosophique (les théories de la
-science, du droit, de la morale). — b Les principes de la religion de
 Fichte et l'accusation d'athéisme.
 
 VIII. Le premier séjour à Berlin, 1799-1807. — a) L'exil : départ
@@ -209,7 +201,6 @@ La douleur. Ses sources. Ses formes. Ses manifestations dans la
 religion, la morale, l'art et la poésie. La lutte contre la douleur.
 L'exploitation de la douleur. Les fruits de la douleur.
 Cours et conférences du soir sous la direction
-de M. FERDINAND BuIssoN
 Série de leçons, suivies de discussions ouvertes, par des maîtres ,
 et des administrateurs de l'enseignement primaire.
 M. Émixe Bourroux, président du Conseil de direction de
@@ -352,7 +343,6 @@ Les BABOUVISTES. — Buonarroti, Blanqui. Leur doctrine communiste. Leur action 
 
 ProupHON. — Sa critique sociale économique. — Le mutuellisme.
 
-M. CuARLes GIDE, professeur à l'Université de Montpellier,
 chargé d'un cours à la Faculté des lettres de l'Université
 de Paris.
 
@@ -379,7 +369,6 @@ plus communes de la coutume et de la loi. Critique de ces dispositions. — Disp
 idées du législateur ? — Réformes à proposer pour mettre la loi sur
 les successions en accord avec les tendances de notre époque, avec
 la logique et avec le principe fondamental de la responsabilité individuelle. — Concordance à établir entre la réforme du droit successoral et la réforme de l'éducation.
-Le R. P. Maumus
 1. La guerre à travers les âges. Sa prétendue nécessité (point de
 vue moral et point de vue politique). — 2. Première phase de l'évolution : la pacification par extension de l'aire de sécurité (formation
 des nations actuelles). Aboutissant : la paix armée (ou anarchie internationale). — 3. Situation actuelle. — Coût de la paix armée et d'une
@@ -406,7 +395,6 @@ Angleterre et aux Etats-Unis. — IX. La curatelle des pauvres du
 troisième arrondissement de Paris. — X. Ce que doit être la bien-
 
 Assistance sociale, sous la direction de MM. Ducraux,
-FONTAINE, GIDE, GUIEYSSE et STRAUSS.
 
 2. — La grande actualité, le reportage et l'interview. —
 M. JEAN BERNARD, rédacteur à l'Indépendance belge.
@@ -427,12 +415,8 @@ de probité et plus de respect. Le reportage à l'étranger. —IX. Leçon
 pratique de grande actualité. — X. Leçon pratique de reportage. —
 XI. Leçon pratique d'interview. — XII. Résumé des travaux de
 l'année.
-3. — Une enquête à l'étranger. — M. EuGÈèNE LAUTIER, rédac-
-
-teur au Temps.
 
 1. — L'évolution de la presse anglaise. — M. PrErRRE Mure,
-rédacteur au Temps.
 
 2. — La Presse sous la Restauration. — M. Lucrex Maury,
 
@@ -461,7 +445,6 @@ de conférences à la Faculté des Lettres de l'Université de
 1. — La Presse russe. —M. AxDrÉé TripoN, attaché à l'agence
 
 1. Caractères généraux et législation de la presse russe. — 2 et 3.
-Ses principaux journaux.
 
 2. — La Pres$e américaine. — M. Louis Vraouroux, député.
 Leçon d'ouverture : Interview du professeur John French
@@ -470,7 +453,6 @@ premier cahier de la deuxième série
 Comment se rédige un journal américain. — L'information à outrance. — Reportage et coup de télégraphe. — Une conséquence de
 Ÿ la guerre hispano-américaine.
 
-M. ANTONIN BERGOUGNAN, avocat à la Cour d'appel de
 Paris, président honoraire du Syndicat de la presse judiciaire parisienne.
 
 1. Le droit du journaliste. — 2. Le droit des tiers, etc., etc.
@@ -655,7 +637,6 @@ recherches, Toute science est, par nature, œuvre
 
 Nous avons relu nos épreuves sur le texte écrit de M. Boutroux.
 
-vu VE RES
 école des hautes études sociales
 ci, la rencontre de nombreuses personnes, venues
 de points divers et peut-être éloignées, présente un
@@ -768,7 +749,6 @@ fait partie.
 
 travers la différence des matières, ces trois
 écoles ont un caractère commun. Elles sont toutes
-essentiellement pratiques. Non qu'on y fasse fi de la
 théorie. C'est la théorie, certes, la théorie faite, en
 quelque sorte, de l'âme des faits, qui, visible ou
 latente, donne à la pratique la généralité, la sûreté,
@@ -859,7 +839,6 @@ sociales le sont, en outre, par la croyance à la nécessité et à l'eflicacit�
 Quelle est aujourd'hui l'autorité qui peut s'imposer
 
 école des hautes études sociales “100
-au nom du fait, de la tradition ou du sentiment? Les
 problèmes qui nous pressent seront insolubles si l'on
 ne consent à en demander la solution qu'à la force
 ou à l'autorité. Pourtant on ne peut se désintéresser
@@ -1366,7 +1345,6 @@ dit, et lorsque ses auditeurs, à Ja fin de la leçon, consentent parfois à pre
 objections assez embarrassantes, toujours curieuses, originales, parce qu'ils voient les choses d'un côté différent de
 celui du professeur.
 
-Eh bien! il y a là un auditoire peu connu à la plupart
 de ceux qui débutent, avec lequel ils entrent en contact
 péniblement. Quand on a à faire une leçon devant lui, ül
 faut arriver avec la volonté de se transformer un peu, de
@@ -1534,7 +1512,6 @@ comme le premier devoir du semeur dans un bouillon de
 culture consiste à ne pas fatiguer son milieu, je m'arrête,
 en vous remerciant de la bienveillante attention que vous
 avez bien voulu m'accorder. / Vifs applaudissements)
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués ‘|
 
 en nous donnant les noms et adresses des personnes

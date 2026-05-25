@@ -280,7 +280,6 @@ M. Mangasarian, comme Phocion, conquiert avec peu de soldats et convainc avec pe
 
 Note du traducteur français. — *Tout dans ce volume, texte et notes, appartient à l'auteur américain. Si le traducteur avait écrit ce livre pour exprimer sa pensée propre, il l'aurait fait différent sur quelques points. Tel quel, il a jugé utile de le faire connaître au public français. Il n'y a rien ajouté.* — Jean le Clerc.
 
-[p. — Préface de l'auteur]
 Préface de l'auteur
 
 Les vieux catéchismes qui furent imposés à notre jeunesse — quand notre intelligence ne pouvait pas encore se défendre — ne commandent plus notre respect.
@@ -367,7 +366,6 @@ Raison et Révélation
 
 23. *Demande.* — Si vous aviez la croyance qu'un certain livre contient « la parole de Dieu », ne lui obéiriez-vous pas par cela même, que votre raison l'approuve ou non ?
 
-24. *Demande.* — Et pourquoi ?
 *Réponse.* — Si j'obéissais en aveugle, mon obéissance n'aurait aucun mérite ; si c'était par compulsion, ce ne serait pas de l'obéissance volontaire. Mais si
 
 j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma raison que j'obéis et non au livre.
@@ -388,7 +386,6 @@ j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma ra
 *Réponse.* — L'histoire de la création.
 
 30. *Demande.* — Donnez un autre exemple.
-*Réponse.* — Le déluge.
 
 31. *Demande.* — Donnez encore un autre exemple.
 *Réponse.* — La chute originelle de l'homme.
@@ -485,8 +482,6 @@ des plus nobles esprits du monde n'ont jamais rien su d'aucune Révélation. (1)
 ————
 
 (1) Pour une définition de la loi, voir au dernier chapitre.
-
-La Révélation chrétienne
 
 1. *Demande.* — Des révélations que vous avez citées, laquelle a exercé la plus grande influence dans le monde ?
 *Réponse.* — Sans aucun doute, la révélation chrétienne.
@@ -830,7 +825,6 @@ pote oriental ; le dieu des Juifs était un homme de guerre et de vengeance ; et
 7. *Demande.* — Quelles sont les autres idées relatives à Dieu ?
 *Réponse.* — Qu'il prend un intérêt profond à ce que nous pensons, disons et faisons.
 
-8. *Demande.* — Et pourquoi ?
 *Réponse.* — Pour nous récompenser de ce qui lui cause du plaisir et nous punir de ce qui l'offense.
 
 9. *Demande.* — Sous quel nom Dieu est-il connu ?
@@ -909,7 +903,6 @@ pote oriental ; le dieu des Juifs était un homme de guerre et de vengeance ; et
 *Réponse.* — Elle est encore très répandue.
 
 29. *Demande.* — Existe-t-il des gens qui ne croient pas en un dieu ?
-*Réponse.* — Il en existe.
 
 30. *Demande.* — Pourquoi n'y croient-ils pas ?
 *Réponse.* — Ils disent qu'un être tel qu'il est conçu par la croyance populaire est en dehors de la sphère de notre connaissance.
@@ -1026,8 +1019,6 @@ notre cœur et dont nous cherchons la possession avec toute notre volonté, celu
 ————
 
 (1) On peut aussi à bon droit parler de Dieu comme représentant la constitution de l'Univers ; cependant même alors elle ou il ne serait pour nous ni plus ni moins qu'une image dans notre esprit. C'est seulement avec un Dieu subjectif que nous pouvons avoir des relations quelconques.
-
-La Terre
 
 1. *Demande.* — Quel est l'âge de la Terre ?
 *Réponse.* — L'âge de la Terre se compte par millions d'années.
@@ -1156,7 +1147,6 @@ L'homme
 *Réponse.* — A des centaines de mille ans en arrière.
 
 3. *Demande.* — Quels sont ses ancêtres?
-*Réponse.* — Les mammifères. (2)
 
 4. *Demande.* — Comment le savez-vous?
 *Réponse.* — Dans la composition, la structure, et les fonctions de ses organes, l'homme est exactement conforme aux animaux.
@@ -1301,7 +1291,6 @@ sayant de se rendre compte de l'existence de la lumière et des ténèbres, de l
 *Réponse.* — En éclairant les esprits.
 
 47. *Demande.* — Que devons-nous redouter par dessus tout au monde?
-*Réponse.* — La peur.
 
 *Réponse.* — Parce qu'elle paralyse à la fois notre esprit et notre corps, et par là nous retire la capacité de nous défendre nous-mêmes ; et quand nous ne pouvons nous défendre nous-mêmes, nous devenons le jouet des fantômes de la politique et de la religion.
 
@@ -1327,7 +1316,6 @@ sayant de se rendre compte de l'existence de la lumière et des ténèbres, de l
 *Réponse.* — Non ; parce que les gens forment généralement leur croyance sans s'inquiéter aucunement de l'évidence.
 
 8. *Demande.* — Comment appelle-t-on une telle croyance?
-*Réponse.* — La crédulité.
 
 9. *Demande.* — Comment les gens instruits diffèrent-ils du vulgaire à cet égard?
 *Réponse.* — Ils proportionnent leur croyance à l'évidence.
@@ -1493,7 +1481,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 
 20. *Demande.* — Les enseignements de Jésus doivent-ils en être rendus responsables?
 
-21. *Demande.* — Par exemple?
 *Réponse.* — Quand il dit que ceux qui ne croient pas en lui sont enfants du démon et seront damnés. (1)
 
 22. *Demande.* — Jésus souhaitait-il d'obliger les gens à croire en lui?
@@ -1611,8 +1598,6 @@ bienheureux vous qui avez faim maintenant, parce que vous serez rassasiés. Vous
 53. *Demande.* — Dans l'ensemble, l'influence de Jésus a-t-elle été bonne ou mauvaise?
 *Réponse.* — Ses paroles d'amour et de bonté ont parfumé les siècles, mais ses doctrines théologiques ont causé beaucoup de haine et d'effusion de sang.
 
-L'Église
-
 1. *Demande.* — Définissez le mot « église ».
 *Réponse.* — Il dérive du grec « ecclesia », qui veut dire assemblée ou congrégation.
 
@@ -1692,8 +1677,6 @@ que nul ne pouvait avoir Dieu pour père, à moins qu'il n'acceptât aussi l'Ég
    (1) Sur son lit de mort, Martin Luther put dire qu'il avait vaincu trois papes, un roi et un empereur.
    (2) Il existait d'autres motifs de discussion, mais le désir du roi de renvoyer la reine Catherine pour épouser une femme plus jeune, précipita la rupture entre l'Angleterre et Rome. Pendant longtemps après, l'Eglise d'Angleterre demeura, sauf en nom, catholique romaine de croyance et de pratique. Cf. Mosheim, *Ecclesiastical history.* On dit que Charles V, parent de la Reine d'Angleterre, usa
 
-[leaf 0155] [p. 88]
-
                               *le monde sans Dieu*
 
   23. *Demande*. — Que fit alors le roi ?
@@ -1711,8 +1694,6 @@ que nul ne pouvait avoir Dieu pour père, à moins qu'il n'acceptât aussi l'Ég
 de son influence pour empêcher le pape d'accorder le divorce. Henri se maria six fois, envoya trois femmes à l'échafaud, fit aussi décapiter sir Thomas Moore pour avoir refusé de le reconnaître comme le chef suprême de l'Église. Léon X a appelé Henri VIII « le Défenseur de la Foi » pour avoir écrit contre Luther.
   (1) Henri VIII changea la formule du serment du couronnement qui devint comme il suit : « Le roi jurera alors de maintenir et garder les droits légaux et libertés du temps jadis accordées par les très justes Rois Chrétiens d'Angleterre à la Sainte Église d'Angleterre, sans préjudice à ses juridiction et dignité royales. » Nous avons ici la première affirmation formelle de la suprématie de l'État Séculier sur le Spirituel. Les théologiens de Westminster, qui ont formulé un des *credo* les plus autocratiques qui soient, l'ont présenté au Parlement comme « leur humble avis ».
 
-[leaf 0156] [p. 89]
-
   *Réponse*. — Qu'une Église qui obéit au pouvoir séculier au lieu de lui commander ne peut pas être une institution divine. (1)
 
   28. *Demande*. — La constitution américaine reconnaît-elle la religion chrétienne d'une manière quelconque ?
@@ -1728,8 +1709,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
   (2) George Washington, dans son message au Sénat, en 1776, constata que le gouvernement américain n'était « en aucun sens fondé sur la religion chrétienne ».
   (4) On a fait observer aussi que peut-être l'hérétique était brûlé au pilori parce qu'il était plus facile de le réduire au silence par le feu que par les arguments. L'Église dans ce temps-là revendiquait le droit de tuer tous ceux qu'elle ne pouvait pas convertir. Cf. *Story of the Crusades, the Inquisition, etc.*
 
-[leaf 0157] [p. 90]
-
                               *le monde sans Dieu*
 
   31. *Demande*. — Pourquoi l'hérésie n'est-elle pas dénoncée de nos jours avec autant de véhémence qu'autrefois ?
@@ -1739,7 +1718,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
   *Réponse*. — Pas avec intelligence.
 
   33. *Demande*. — Comment appelle-t-on la foi qui est inintelligente ?
-  *Réponse*. — La superstition.
 
   34. *Demande*. — Analysez et définissez la superstition.
   *Réponse*. — Attribuer à un objet des vertus ou des pouvoirs qu'il ne possède pas est une superstition.
@@ -1748,13 +1726,8 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
   *Réponse*. — C'est une superstition de porter sur son corps une chaîne, une image ou un crucifix en croyant qu'il possède des pouvoirs bienfaisants ou des vertus.
 
   36. *Demande*. — Comment appelle-t-on un objet investi de vertus imaginaires ?
-  *Réponse*. — Un fétiche.
 
   (1) Il y a plus de foi vivante dans un doute honnête que dans la moitié des *credo*. (Tennyson.)
-
-[leaf 0158] [p. 91]
-
-                              L'Église libérale (1)
 
   1. *Demande*. — En quoi les Églises libérales diffèrent-elles des orthodoxes ?
   *Réponse*. — Les Unitariens et les autres Églises libérales soumettent dans une certaine mesure les doctrines de la religion au jugement de la raison.
@@ -1764,8 +1737,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
   3. *Demande*. — Quelles sont les croyances des Églises libérales ?
   *Réponse*. — C'est très difficile à dire, car les Églises libérales ne suivent ni la Révélation ni la raison exclusivement, mais elles s'efforcent de se faire guider un peu par toutes deux.
-
-[leaf 0159] [p. 92]
 
                               *le monde sans Dieu*
 
@@ -1784,8 +1755,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
   8. *Demande*. — Comment les Églises libérales justifient-elles la position qu'elles ont prise ?
   *Réponse*. — Généralement d'après la Bible.
 
-[leaf 0160] [p. 93]
-
   9. *Demande*. — Et les Églises orthodoxes ?
   *Réponse*. — Exclusivement d'après la Bible.
 
@@ -1803,8 +1772,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
   14. *Demande*. — Comment essaye-t-on de prouver cette assertion ?
   *Réponse*. — Par des citations de la Bible et par le
-
-[leaf 0161] [p. 94]
 
                               *le monde sans Dieu*
 
@@ -1830,8 +1797,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
   (1) « Nous récoltons dans cette vie ce que nous avons semé dans une existence précédente », telle est l'idée fondamentale du Bouddhisme et de toutes les philosophies religieuses de l'Orient.
 
-[leaf 0162] [p. 95]
-
   21. *Demande*. — Précisez la nature de cette révélation.
   *Réponse*. — Rien n'existe que Dieu ; Dieu est santé et pureté ; donc les maladies et le péché sont des illusions.
 
@@ -1849,8 +1814,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
   (1) Les Savants Chrétiens, en appelant le mal du nom d' « esprit mortel », ont seulement changé un nom sans régler ce qui concerne la chose.
   (2) Voir la défense de madame Eddy, [la fondatrice de cette religion], quand elle alla chez un dentiste. — *Mélanges*.
-
-[leaf 0163] [p. 96]
 
                               *le monde sans Dieu*
 
@@ -1870,8 +1833,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
   (2) [Pour la culture de la morale.]
 
-[leaf 0164] [p. 97]
-
   31. *Demande*. — Cet enseignement nie-t-il Dieu et la vie future ?
   *Réponse*. — Non ; car il sait que nous n'avons pas encore de connaissances assez certaines sur ces questions pour en traiter d'une façon définitive et positive.
 
@@ -1883,10 +1844,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
   (1) « Rien n'éloigne un homme de la science et de la sagesse comme de croire qu'il les possède toutes deux. » (Sir W. Temple.)
   (2) Comme ce catéchisme est écrit en partant de ce point qu'il n'existe pas de surnaturel, il est inutile de donner ici un exposé plus complet de la philosophie de ces Sociétés indépendantes.
-
-[leaf 0165] [p. 98]
-
-                              Les « credo »
 
   1. *Demande*. — Qu'est-ce qu'un *credo* ?
   *Réponse*. — Une règle de foi, c'est-à-dire une expression autorisée des doctrines d'une Église. (1)
@@ -1902,8 +1859,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
   (1) On l'appelle aussi un « symbole » ou une « confession » de foi — *Symbolicum apostolicum*.
   (2) On prétend que Jésus a proclamé la nécessité d'un *credo* quand il a dit : « Quiconque donc me confessera devant les hommes, je le confesserai aussi devant mon père qui est aux cieux. » (Matthieu, X, 32, 33 ; Épître de Paul aux Romains, X, 9, 10.)
-
-[leaf 0166] [p. 99]
 
   5. *Demande*. — Le désaccord fut-il sérieux ?
   *Réponse*. — L'Apôtre Paul le considéra comme tel, car il accusa Pierre de dissimulation, d'hypocrisie, et d'une conduite *inique*. (1)
@@ -1926,8 +1881,6 @@ témoignage d'hommes et de femmes actuellement vivants.
   (1) Lire l'Épître de Paul aux Galates, et aussi les premiers chapitres de l'Apocalypse et les Actes des Apôtres.
   (2) Hérésie vient d'un mot grec et signifie « examiner », « choisir ».
 
-[leaf 0167] [p. 100]
-
                               *le monde sans Dieu*
 
   11. *Demande*. — Quels sont les points fondamentaux de ce *credo* ?
@@ -1948,8 +1901,6 @@ témoignage d'hommes et de femmes actuellement vivants.
   16. *Demande*. — Parlez-moi maintenant du symbole de Nicée.
   *Réponse*. — Celui-ci a été formulé par une assemblée de 318 évêques dans la ville de Nicée, près de Constantinople, en l'année 325. Ce concile a excom-
 
-[leaf 0168] [p. 101]
-
 munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en doute le dogme de la Trinité.
 
   17. *Demande*. — Quel est ensuite le plus important *credo* ?
@@ -1966,8 +1917,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
 
   (1) Les sectateurs d'Arius, qui avaient des opinions hérétiques sur la divinité du Christ.
 
-[leaf 0169] [p. 102]
-
                               *le monde sans Dieu*
 
   21. *Demande*. — Était-il obligatoire en Angleterre de souscrire aux trente-neuf articles ?
@@ -1979,15 +1928,12 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   *Réponse*. — Elle peut seulement les empêcher d'enseigner ce qu'ils pensent.
 
   24. *Demande*. — Que sont des gens qui pensent une chose et enseignent une autre ?
-  *Réponse*. — Des hypocrites.
 
   25. *Demande*. — Que s'ensuit-il ?
   *Réponse*. — Que le seul résultat de la coercition est de faire des hypocrites.
 
   26. *Demande*. — Quel est le plus important des *credo* modernes ? (1)
   *Réponse*. — Le symbole de Westminster, formulé par une assemblée consistant en cent cinquante membres choisis et réunis par un *Act* du Parlement en 1643 pendant le court règne du Presbytérianisme en Angleterre.
-
-[leaf 0170] [p. 103]
 
   27. *Demande*. — Quelles sont les idées dominantes de ce Symbole ?
   *Réponse*. — La prédestination, le salut des enfants élus (1) seulement, la damnation de tous les gens et de toutes les nations qui ne sont pas chrétiens et l'emploi de la force matérielle contre tous les hérétiques.
@@ -2001,8 +1947,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   (1) Les calvinistes modernes admettent la *probabilité* de salut pour *tous* les enfants. — Schaff, volume I, page 795.
   (2) Le péché originel était considéré comme si grand qu'un des clergymen déclara : « Si un homme n'était jamais né, il serait néanmoins damné à cause de ce péché. »
   (3) Les Eglises américaines ont modifié cet article.
-
-[leaf 0171] [p. 104]
 
                               *le monde sans Dieu*
 
@@ -2022,8 +1966,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
 
   (1) « Non seulement il est permis de punir par la mort ceux qui travaillent à renverser la vraie religion, mais les magistrats et le peuple ont le *devoir* de le faire sous peine d'attirer la colère de Dieu sur eux-mêmes. » — John Knox, *History of Mary I., queen of England* ; E. P. Dutton and Co.
 
-[leaf 0172] [p. 105]
-
 les forces dont le progrès des connaissances est capable de l'animer.
 
   34. *Demande*. — Devons-nous jamais souscrire à un *credo* qui interdit la liberté de pensée et de parole ?
@@ -2031,10 +1973,6 @@ les forces dont le progrès des connaissances est capable de l'animer.
 
   35. *Demande*. — Pourquoi la liberté de parole est-elle indispensable ?
   *Réponse*. — Parce que sans cette liberté nous ne pouvons jamais savoir si le prêtre ou celui qui enseigne disent ce qu'ils veulent ou seulement ce qu'ils sont contraints de dire.
-
-[leaf 0173] [p. 106]
-
-                              Le Clergé
 
   1. *Demande*. — Qu'est-ce qu'un membre du clergé ?
   *Réponse*. — Un homme qui a reçu les « ordres sacrés ».
@@ -2054,8 +1992,6 @@ les forces dont le progrès des connaissances est capable de l'animer.
   (1) La formule de l'ordination est : « Reçois le Saint Esprit par l'imposition de nos mains. »
   (2) Telle était l'opinion de saint Augustin et aussi de Jérôme. Saint Matthieu a été désigné par les apôtres pour remplacer Judas, au moyen d'un tirage au sort. La coutume la plus répandue était d'écrire les noms des différents candidats sur des bulletins et de les mettre dans une boîte ; alors, après avoir dit des prières, on remuait la boîte et le premier nom qui en tombait était considéré comme « choisi par le Seigneur ».
 
-[leaf 0174] [p. 107]
-
 appliqué aux apôtres et aux premiers prédicateurs pour marquer leur autorité. (1)
 
   6. *Demande*. — Sous quels autres noms sont connus les membres du clergé ?
@@ -2074,8 +2010,6 @@ appliqué aux apôtres et aux premiers prédicateurs pour marquer leur autorité
   (2) Voir le *credo* de Westminster. Les mots suivants de Jésus ont été cités à la fois par les catholiques et les protestants pour établir leurs affirmations : « Et je te donnerai les clefs du royaume des cieux, et tout ce que tu lieras sur terre sera lié dans les cieux, et tout ce que tu délieras sur terre sera délié dans les cieux. » (Matthieu, XVI, 19.) — Cf. ce qui est dit au chapitre de la Prière relativement à la pression exercée sur Dieu.
   (3) Cf. *Benefit of clergy in England*. Dans les pays catholiques, si quelqu'un avait frappé un prêtre, il était excommunié pour la vie, car l'absolution lui était refusée jusqu'à l'heure de sa mort.
 
-[leaf 0175] [p. 108]
-
                               *le monde sans Dieu*
 
   10. *Demande*. — Quel usage les membres du clergé ont-ils fait de ces privilèges ?
@@ -2093,8 +2027,6 @@ appliqué aux apôtres et aux premiers prédicateurs pour marquer leur autorité
   14. *Demande*. — Expliquez ceci par un exemple.
   *Réponse*. — Le candidat peut dire : « Je crois dans la « parole de Dieu » mais entendre par là non seulement les écritures chrétiennes auxquelles les *credo* limitent l'inspiration, mais tout ce qu'il considère comme vrai et
 
-[leaf 0176] [p. 109]
-
 pur partout où il le trouve. De la même manière il peut croire à la divinité du Christ, dans ce sens que tous les hommes bons et nobles sont divins.
 
   15. *Demande*. — Les gens comprennent-ils toujours ce que le candidat veut dire ainsi ?
@@ -2107,8 +2039,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   *Réponse*. — Oui, si son intention est de *suivre* ses fidèles, mais non, s'il désire être un éducateur et un guide.
 
   (1) James Martineau cite la louange suivante déversée par un Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — *Essays and Reviews*, volume II, page 187.
-
-[leaf 0177] [p. 110]
 
                               Prière et Salut
 
@@ -2126,8 +2056,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   5. *Demande*. — Qu'est-ce qu'une personne ?
   *Réponse*. — Un être qui sait qu'il est lui-même et non un autre.
 
-[leaf 0178] [p. 111]
-
   6. *Demande*. — Dieu peut-il être une personne ?
   *Réponse*. — Il ne peut pas être Dieu et une personne à la fois.
 
@@ -2144,8 +2072,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
 
   11. *Demande*. — Les prières de ce genre sont-elles quelquefois exaucées ?
   *Réponse*. — Oui, parce qu'une sécheresse ne peut pas durer toujours.
-
-[leaf 0179] [p. 112]
 
                               *le monde sans Dieu*
 
@@ -2169,8 +2095,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   18. *Demande*. — Est-il aussi inutile de prier pour acquérir la sagesse, les lumières, la vertu ?
   *Réponse*. — Oui ; car ces qualités ne peuvent pas nous être données. On les acquiert par un long effort.
 
-[leaf 0180] [p. 113]
-
   19. *Demande*. — Mais la prière n'aide-t-elle pas certaines gens à les acquérir ?
   *Réponse*. — Ils *croient* qu'elle les aide, tout à fait comme un Asiatique pense qu'il doit toute sa bonne fortune à l'amulette qu'il porte sur lui ou au tatouage qui est sur son bras ; ou comme le bigot croit la devoir à la Vierge Marie ou aux cierges qu'il brûle devant l'autel de quelque saint.
 
@@ -2186,8 +2110,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   23. *Demande*. — Quel est l'argument moral contre la prière ?
   *Réponse*. — Elle habitue les hommes à attendre leur secours de l'extérieur et par miracle ; ce faisant elle atrophie et mutile leur énergie.
 
-[leaf 0181] [p. 114]
-
                               *le monde sans Dieu*
 
   24. *Demande*. — Quoi encore ?
@@ -2202,8 +2124,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   27. *Demande*. — Quelles sont les idées de l'apôtre Paul sur cette question ?
   *Réponse*. — Il dit : « Qu'un homme est justifié par la foi sans les œuvres de la loi, car à celui qui ne travaille pas mais croit, sa foi sera comptée pour vertu » ; on en infère que nous ne pouvons pas, par quelque œuvre que ce soit, mériter le salut. Et le symbole de Westminster dit : « Encore bien moins peuvent être sauvés les hommes qui ne professent pas la religion chrétienne, *quand bien même ils seraient plus diligents qu'on ne le fut jamais à ordonner leurs vies selon les lumières de la nature* ; et d'affirmer et de soutenir qu'ils le peuvent
 
-[leaf 0182] [p. 115]
-
 est une idée très pernicieuse, et qui doit être détestée. » (1)
 
   28. *Demande*. — Quel est l'effet de tels enseignements ?
@@ -2214,8 +2134,6 @@ est une idée très pernicieuse, et qui doit être détestée. » (1)
 
   (1) Luther dit : « Tous ces accomplisseurs de la loi, tous ces ouvriers d'œuvres morales sont maudits, car ils marchent dans la présomption de leur justification. Celui qui dit que l'Évangile exige des œuvres pour le salut, je dis moi, tout simple et net, que c'est un menteur ». — *Propos de table*. — Et John Wesley, fondateur de l'Église méthodiste, était aussi positif dans son enseignement, malgré ce que beaucoup de ses paroissiens conquéris pour nous-mêmes, car il dit : « Nous sommes très heureux que nos paroissiens deviennent plus diligents et honnêtes, qu'ils pratiquent à la fois la justice et la pardon ; au moins nous nous flattons que nos enseignements peuvent contribuer à les rendre meilleurs hommes ; mais la vérité est que nos méthodistes savent en enseignant que *tout cela n'est rien* devant Dieu. » — *Œuvres de John Wesley*, volume III, page 99. — « Le salut est un acte de grâce, et peut être accordé même à celui qui ne mérite pas ce salut. » — *Catholic Belief*, page 263, par le Père Lambert. — La doctrine du salut par la grâce seule est sans aucun doute enseignée dans les textes suivants du Nouveau Testament : Jean, VI, 44 ; Éphésiens, II, 8 ; C'est aussi la base de toutes les sectes du méthodisme : Calvinistes, Wesleyens, etc. La doctrine qu'il convienne d'agir bien, voulue par Wesley et auxquels offices de l'Église et qui a placé la médiation des prêtres parmi les moyens du salut.
   (2) « La religion catholique est une méthode pour obtenir le ciel en se mendiant, parce qu'il y serait trop pénible de le gagner. — Les prêtres sont les courtiers de cette transaction. » — *Vie de Schopenhauer*, par Zimmern, page 124. — Cette critique s'applique avec autant de force aux Eglises protestantes.
-
-[leaf 0183] [p. 116]
 
                               *le monde sans Dieu*
 
@@ -2233,10 +2151,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
   (1) Maistre de Balliol disait que plus il avançait dans la vie, moins il priait et plus il pensait. Lire aussi l'essai d'Emerson sur « la confiance en soi ». Les gens perdus, d'après Dante, sont ceux qui ne peuvent plus penser. Kant dit que « celui qui a fait un grand progrès moral cesse de prier, car l'humilité est une de ses maximes principales ». Il dit aussi que le désir de devenir les gens mis à crier appel à leur sensualité », c'est-à-dire à « s'abaisser jusqu'à eux ».
 
-[leaf 0184] [p. 117]
-
-                              La mort
-
   1. *Demande*. — Depuis combien de temps la mort existe-t-elle sur la terre ?
   *Réponse*. — Depuis aussi longtemps que la vie. (1)
 
@@ -2244,14 +2158,11 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
   *Réponse*. — Ce sont des manifestations différentes de la même puissance.
 
   3. *Demande*. — Qui est ?
-  *Réponse*. — Le mouvement.
 
   4. *Demande*. — Qu'arrive-t-il du corps au moment de la mort ?
   *Réponse*. — Il commence à retourner à la vie. Les molécules dont le corps est composé se délient, se séparent et reprennent la forme de leurs éléments d'origine, l'eau, la chaux, le fer, le phosphore, etc. Ainsi désagrégées, elles se mêlent au soleil et à l'air et ayant renouvelé leur jeunesse, elles rentrent en combinaison dans de nouveaux corps.
 
   (1) Ceci est vrai dans un sens général en tant qu'appliqué aux formes connues de la vie. Pour parler exactement, quelque chose a dû exister avant que rien pût mourir ; tandis que quelques-uns des organismes les plus simples ne meurent pas mais se multiplient par scission en deux moitiés dont chacune devient un organisme entier.
-
-[leaf 0185] [p. 118]
 
                               *le monde sans Dieu*
 
@@ -2272,8 +2183,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
   (1) « Parmi les légendes à moitié païennes qui avaient cours en Irlande au Moyen-Age, une des plus belles est celle des Iles de la vie et de la mort. Dans un certain lac, à Munster, est-il raconté, se trouvaient deux îles ; dans la première la mort ne pouvait jamais entrer, mais l'âge, la maladie et le dégoût de la vie y étaient tous connus. Ils firent leur œuvre à tel point que les habitants, fatigués de leur immortalité, apprirent à jeter leurs yeux sur l'autre île comme sur un port de refuge ; ils lancèrent leurs barques sur les flots sombres ; ils touchèrent son rivage, et furent en repos. » — Lecky, *History of European morals*, volume I, page 214.
 
-[leaf 0186] [p. 119]
-
   10. *Demande*. — Pourrait-il exister aucun progrès dans le monde sans la mort ?
   *Réponse*. — Comme les vieilles feuilles doivent tomber des branches pour faire place aux nouvelles, — plus vertes, — ainsi nous devons mourir pour faire place aux hommes et femmes de l'avenir, — meilleurs que nous.
 
@@ -2290,8 +2199,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
   (1) « Il n'est pas de sujet auquel le sage pense moins qu'à la mort. » — Spinosa, *Morale*, IV, 67. — « La mort ne nous concerne pas, car tant que nous sommes la mort n'est pas, et quand la mort est, nous ne sommes plus. » — Epicure, *Diog. Laert.*, X, 27. — « Les nobles esprits sont affranchis des superstitions qui sont le cauchemar des faibles. » — Lecky, *History of European morals*, volume I, page 213. — Perdre ce qui ne peut plus nous manquer n'est pas un mal.
 
-[leaf 0187] [p. 120]
-
                               *le monde sans Dieu*
 
   14. *Demande*. — Est-il mal de pleurer les morts ?
@@ -2302,8 +2209,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
   16. *Demande*. — Quels ont été les plus grands bienfaiteurs de l'homme ?
   *Réponse*. — Ceux qui ont soulagé son esprit d'une frayeur et qui l'ont aidé à faire un pas en avant dans la voie de l'affranchissement de la pensée.
-
-[leaf 0188] [p. 121]
 
   1. *Demande*. — Que signifie le mot : Immortalité ?
   *Réponse*. — C'est l'état d'un être qui ne meurt pas, c'est-à-dire une vie sans fin.
@@ -2319,8 +2224,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
   5. *Demande*. — Qu'est-ce que l'âme ?
   *Réponse*. — Dans la croyance populaire c'est une étincelle, une flamme, ou une essence logée temporaire-
-
-[leaf 0189] [p. 122]
 
                               *le monde sans Dieu*
 
@@ -2338,7 +2241,6 @@ ment dans le corps, mais qui, à la mort, retourne vers son auteur — Dieu.
   *Réponse*. — On croit qu'elle le peut.
 
   10. *Demande*. — A-t-on une connaissance scientifique à cet égard ?
-  *Réponse*. — Pas précisément.
 
   11. *Demande*. — A-t-on jamais vu quelque chose qui n'avait un corps de quelque espèce ?
   *Réponse*. — Non ; quoique certains assurent avoir vu des esprits.
@@ -2348,8 +2250,6 @@ ment dans le corps, mais qui, à la mort, retourne vers son auteur — Dieu.
 
   13. *Demande*. — Pouvons-nous même *imaginer* un esprit sans lui donner une forme et un corps dans notre pensée ?
   *Réponse*. — Nous ne le pouvons pas.
-
-[leaf 0190] [p. 123]
 
   14. *Demande*. — Que s'ensuit-il ?
   *Réponse*. — Que l'âme et le corps sont, autant que nous avons le droit de parler ou de penser, inséparables et que si l'un est immortel, l'autre doit l'être aussi.
@@ -2371,8 +2271,6 @@ ment dans le corps, mais qui, à la mort, retourne vers son auteur — Dieu.
 
   20. *Demande*. — Croit-on que tout le monde ira au ciel ?
   *Réponse*. — Non ; seulement ceux-là, proclame-t-on,
-
-[leaf 0191] [p. 124]
 
                               *le monde sans Dieu*
 
@@ -2398,8 +2296,6 @@ qui ont la vraie foi ; tous les autres, d'après les *credo*, iront en enfer.
 
   (1) Henry Ward Beecher fut le premier parmi les modernes prédicateurs orthodoxes à protester contre cette doctrine. — Cf. *The Passing of orthodox Religion*, par l'auteur.
 
-[leaf 0192] [p. 125]
-
   27. *Demande*. — Quels sont les arguments en faveur d'une immortalité consciente ?
   *Réponse*. — L'un des plus forts est l'universalité de cette croyance. (1)
 
@@ -2415,8 +2311,6 @@ qui ont la vraie foi ; tous les autres, d'après les *credo*, iront en enfer.
   (1) Comme toutes les religions proclament l'immortalité, si vraiment il n'existe rien de semblable, le monde entier se trouve dupé. Tel est l'argument auquel Pomponace de Padoue (1462-1526) a répondu en disant : « Comme il existe trois religions, — celles de Moïse, de Jésus, et de Mahomet, — ou elles sont toutes trois fausses et le monde entier est dupé ; ou deux d'entre elles, au moins, sont fausses, et alors c'est la majorité qui est dupée.
   (2) Même Lord Bacon, le fondateur de la méthode inductive, et sir Thomas Brown et sir Matthieu Hale partageaient la croyance populaire dans l'existence des sorcières.
 
-[leaf 0193] [p. 126]
-
                               *le monde sans Dieu*
 
   31. *Demande*. — Quel est l'argument qui vient après ?
@@ -2431,8 +2325,6 @@ qui ont la vraie foi ; tous les autres, d'après les *credo*, iront en enfer.
   34. *Demande*. — Quelle est la conception que nous devons nous faire d'une vie à venir ?
   *Réponse*. — Que tout ce que nous pensons, disons et faisons maintenant, concourra à bâtir le monde de l'avenir, dans lequel nous revivrons tous sous forme d'influences, de tendances, d'exemples, et de forces intellectuelles et morales. Nous sommes la continuation de la vie qui nous a précédés et la source de la vie qui nous suivra. L'âme d'un homme est la somme de toutes ses facultés et de ses forces, de ses pensées, de ses actions et de ses affections. Celles-ci, pas plus que les molécules qui composent son corps, ne périssent à sa mort,
 
-[leaf 0194] [p. 127]
-
 mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite toujours. (1)
 
   35. *Demande*. — Quel effet une pareille croyance produirait-elle sur nous ?
@@ -2440,8 +2332,6 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
 
   (1) « Sous cet aspect la mort cesse d'apparaître comme un anéantissement ; car notre âme ne peut pas plus être effacée que la loi de causalité ne peut être suspendue. » — Paul Carus, *Whence and Wither*, page 135.
   (2) Quand nous serons au-dessus de cette illusion que l'existence est limitée à notre individualité personnelle, quand nous étendrons notre être jusqu'à le fondre dans l'humanité, qui est immortelle, et par laquelle nous continuons à vivre à jamais, — la mort, à la vérité, ne sera plus que le « clignement d'une paupière qui n'interrompt pas le regard ».
-
-[leaf 0195] [p. 128]
 
                               La fin suprême de l'homme
 
@@ -2459,8 +2349,6 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
 
   5. *Demande*. — Comment apprenons-nous ce qui est le vice et ce qui est la vertu ?
   *Réponse*. — Par l'expérience ; par l'expérience accumulée de l'humanité autant que par la nôtre.
-
-[leaf 0196] [p. 129]
 
   6. *Demande*. — Est-ce par l'expérience que nous apprenons tout ce que nous savons du bien et du mal ?
   *Réponse*. — Absolument tout.
@@ -2482,8 +2370,6 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
 
   (1) Un événement qui arrive seulement une fois et sous des conditions irrégulières ou miraculeuses peut être qualifié d'accident.
   (2) Le mot « loi » s'emploie aussi dans le sens de relation ou d'un mode d'action constaté par l'observation.
-
-[leaf 0197] [p. 130]
 
                               *le monde sans Dieu*
 
@@ -2510,8 +2396,6 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
   19. *Demande*. — Quels autres moyens la Nature emploie-t-elle pour imposer l'obéissance ?
   *Réponse*. — Elle a logé en nous un représentant de
 
-[leaf 0198] [p. 131]
-
 son autorité que nous pouvons appeler la « conscience ».
 
   20. *Demande*. — Veuillez l'analyser et la définir.
@@ -2524,8 +2408,6 @@ son autorité que nous pouvons appeler la « conscience ».
   *Réponse*. — Quelques philosophes enseignent que la conscience est une faculté ou organe spirituel, distinct, dont la fonction consiste à distinguer par intuition le Bien du Mal. On admet aussi qu'il existe une loi morale, qui est éternelle et absolue, et dont les comman-
 
   (1) Nos habitudes nous relient au passé, notre liberté à l'avenir ; le conflit entre l'habitude ou instinct et la liberté ou volonté est la lutte pour la suprématie entre le Passé et l'Avenir. L'homme est le champ clos de cette lutte. Le professeur Clifford définit ainsi la conscience : « Les instincts accumulés de la race coulant à flots dans chacun de nous, et débordant comme si l'océan était versé dans une tasse » — page 134.
-
-[leaf 0199] [p. 132]
 
                               *le monde sans Dieu*
 
@@ -2549,8 +2431,6 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
   (1) L'impératif catégorique de Kant a été comparé à un Dieu *fait sur commande*, un *deus ex machina*.
   (2) « Cherchez-vous une récompense plus grande que celle-là ? » (Épictète.)
 
-[leaf 0200] [p. 133]
-
   28. *Demande*. — Le bien est-il en croissance dans le monde ?
   *Réponse*. — A travers bien des oscillations en arrière et en avant, l'humanité progresse constamment quoique très lentement.
 
@@ -2568,8 +2448,6 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
 
   (1) Le but de la science est le savoir et le but de l'art est l'action ; mais nous ne pouvons ni produire ni créer sans le savoir. Il est également sans intérêt d'insister sur ce qu'une philosophie exacte de la vie n'est pas nécessaire aux fins de la Vertu. Pensée ou Savoir sont la graine dont la Conduite est la fleur et le fruit. Il est vrai cependant que notre savoir s'améliore et s'accroît aussi souvent que nous « faisons » ce que nous « savons ». Charlemagne, dans une lettre à Sturm, abbé de Fulda, écrivait : « Quoique l'action soit meilleure que le savoir, cependant il est impossible d'agir sans savoir. »
 
-[leaf 0201] [p. 134]
-
                               *le monde sans Dieu*
 
   33. *Demande*. — Que fera encore le *savoir* ?
@@ -2583,26 +2461,14 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
 
   (1) Giordano Bruno et de Tocqueville.
 
-[leaf 0202] [blank, p. 135]
-
-[leaf 0203] [blank, p. 136]
-
-[leaf 0204] [p. 137]
-
 Chapitre premier. — Raison et Révélation . . . . . . . 13
 Chapitre II. — La Révélation chrétienne . . . . . . . . 23
-
-[leaf 0205] [p. 138]
 
 Chapitre VIII. — Les enseignements de Jésus . . . . . 72
 Chapitre XVI. — La fin suprême de l'homme . . . . . . 128
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce onzième cahier le mardi premier mars 1904.*
 
-                              *Le Gérant :* CHARLES PÉGUY
-
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 IMPRIMERIE DE SURESNES (E. Payen administrateur), 9, rue du Pont. — 8603
-
-[leaf 0214 = s05-c12 half-title "petites garnisons" — STOP, boundary reached]

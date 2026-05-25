@@ -10,11 +10,6 @@ wordCount: 2316
 US paraissant vingt fois par an
 — 8, rue de la Sorbonne, au rez-de-chaussée
 
-ANCIEN RES NANCN EE + AAA BE NAN fé Un LRITe Gun FIN nav "AR
-put UE 6 à % (et
-
-#4 VER À 4
-
 Nous prévoyons que le premier cahier de la sixième M
 série, paraissant le dimanche 2 loctobre prochain, sera |
 le catalogue analytique sommaire de nos cinq premières |
@@ -51,50 +46,6 @@ de la personne à qui on s'intéresse; avertir en même |
 
 temps cette personne ; elle recevra en octobre notre
 
-|
-
-ne
-
-| SENS Au CNRS ve SR RO POS IE
-le PARA (ER RE TPS AAA A A ape a er à
-| LAN Ne RE N:.
-
-ET nt
-
-PR er Ha PO PR M EL PUIS
-# Ds
-DE. sd
-
-# LUTTE HAN A À 4 # je 15 FR
-
-NA CA DE D Dé Vote PRE:
-| HF AAA DR MN ASE BRON E 20 VON D SNL AVAIENT ADR IAE IFR ANER
-# RAT One CLP MENT PSS 7) TAN TR RM ERUREG AE IR IST
-
-DL ds ! SUR FE ns
-A de OR re A RO GS HAE SU EE pen ARE UE de Se
-: Ke 4 F ve et CS L
-15 ñ fe NE TEE ibn
-HA A À ! Lan NU SA D AGIR OEIL
-A EU PAU TARA LS JS GAS if une :
-
-sk Ho EAN ME ne o $
-4 NT Ne te à ob à AT À f AT NET OUR
-à Fa EE AN) RE D Cet NE) Po Ste Le TA Re
-> A nr 7 + { 2 ; s
-| nt oeUe z FLIESER
-EN ie ce
-A VISITEUR D ne :
-
-LS SUR ESS RU ERA A LAN PIC he MA A fx
-
-er nor Ë LA LUN APE TRE
-| TU PETER 3 | } 12:18 100 CORNE 6
-*à PE Fa & Ale PRES ON ri NE
-
-1: PNAAGNSS ÿ Usa re 4 L'UNE (HR ps
-
-| t
 - Visiteur du jardin, prends garde que les roses |
 . Ne s'effeuillent au cri des grilles longtemps closes.
 
@@ -103,7 +54,6 @@ Ne va pas réveiller le lion de granit,
 * Que des abeilles dans sa gueule ont fait leur nid. |
 « Vole, rends tes talons plus légers que les astres
 ; Qui glissent dans les nuits chaudes, silencieux...
-#à
 _ Ami, nos grands parents vécurent là très vieux. :
 … C'étaient de bonnes gens dont, en nous, la mémoire :
 … S'allie à l'odeur saine et franche de l'armoire
@@ -135,8 +85,6 @@ J'entends crier l'osier fléchissant des corbeilles…
 O charme du passé qui s'évade le soir,
 Et rôde, et fait craquer les feuilles des allées!
 Un caillou sous des pas a roulé; l'arrosoir
-|
-|
 
 4 Le jet d'eau se réveille; une voix, qu'on dirait
 _ Du fond des temps venue, entonne une ariette,
@@ -162,18 +110,3 @@ Sourire, par dessus l'épaule, vers la vie
 - Vécue, et qui n'est plus, au bord du ciel lointain,
 | Comme Paris, le soir, vu des tristes banlieues,
 Qu'un peu d'or qui palpite au fond des cendres bleues.
-
-NN ÉN MNT NE el AE NOR But % RO MO à SF CNE
-
-| DYVSSENE ? n À ARRET ANA RS DEN EE P | nu UNE ATEN
-
-| FOR & a
-
-| NE à à (9: SIREN
-
-| LENNETIE ° 2% »r Pr CAEN
-
-| {Ne | GO EE CR A PEN NNEESS Fo
-:: LIFE dat te QE k LV UN Men Ne K
-
-Mer et a PCI

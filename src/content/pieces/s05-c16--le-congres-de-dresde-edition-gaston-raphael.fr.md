@@ -7,11 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 72841
 ---
-Ron CAS QE en Let et
-
-Nous A:
-Mes _ SEPTEMBRE 1903 oi
-: “ Ras _ CAHIERS DE LA QUINZAINE Le 1
 be: de paraissant vingt fois par an A
 
 _ 8, rue de la Sorbonne, au rez-de-chaussée
@@ -54,17 +49,6 @@ in octavo de 384 pages très denses; on notera que à
 notre collaborateur M. Sorel était un des principaux
 collaborateurs des Etudes Socialistes. ‘ E
 
-VE. ee PP PCR STE EE PE PARA 2 GEST NE DOTENEL TE LTVA ER DS Pas:
-£ D Le nt # MES Fa Be du f ke #: EAN DIR CRM EN ENS (PAS D
-+ JMS 4 fi À ur fCPE AUX L É TA ufr” |
-
-!1 EVANS 4 À A TNT ACER Li be à \l48 br TERRES
-RON ÿ; $ \ & RAS YA LA de den PNR
-Pis ME: ; & EN nr MNT: Et RTE ge
-XPH d je M d Ra) Pau
-ex puis S \ ; $ ANT AN 1 VE
-#74 Met 4): T'ACRAPUTES
-
 Nous prévoyons que le premier cahier de la sixième
 série, paraissant le dimanche 2 octobre prochain, sera
 le catalogue analytique sommaire de nos cinq premières
@@ -103,10 +87,6 @@ de la personne à qui on s'intéresse; avertir en même
 
 temps cette personne ; elle recevra en octobre notre
 
-COR t dit l ANA
-FAN « ie TAN A6 ne a 7 RTE ‘ANS
-‘\ Jan LA fo NOM AIRES AE R
-
 | Je n'oublie pas que je dois à mon vieux grand cousin,
 à mon ami Pierre Baudouin le philosophe, et à mon
 ami l'historien Pierre Deloire, un compte rendu des
@@ -127,7 +107,6 @@ au kilomètre ; et je me permets quelquefois de réfléchir,
 entre mes repas, ce qui fait perdre énormément de
 temps.
 
-#
 seizième cahier de la cinquième série
 Ne sais quand finirai ; ne nous hâtons point ; travailler
 n'est pas toujours écrire; et il y a des courbes, de pensée, d'action, qui sont fort loin d'être achevées.
@@ -158,7 +137,6 @@ la conversation, il faut savoir en quel idiome on parle,
 quel est le langage; et avant toute numération il faut
 savoir en quelles unités on compte; plus de trois millions peuvent ne pas valoir moins de trois cent mille.
 
-#4 AVANT-PROPOS
 ; À défaut de renseignement direct et parmi les renseiH gnements indirects les comptes rendus officiels sont
 j particulièrement précieux ; non qu'ils soient particuliè-
 A rement exacts ; au contraire; mais parce que les
@@ -171,9 +149,7 @@ l'intelligence du texte en est facilitée d'autant.
 | Dresde forme un épais volume in octavo de 448 pages
 ; très denses ; gris; la première page de la couverture
 4 porte ce titre :
-| Protokoll
 : ueber die Verhandlungen des Parteitages der Sozial-
-| Berlin 1903
 Le dimanche 14 août prochain doit s'ouvrir, à Amster-
 ; dam, le sixième congrès socialiste international; ce
 à sixième congrès socialiste international sera le deuxième
@@ -219,7 +195,6 @@ e préparons pour être le premier cahier de la sixième
 4 série ; ce sera la fonction de ce catalogue analytique
 sommaire que de présenter d'ensemble un énoncé de
 | tous nos travaux, de toutes nos publications anté-
-| rieures. £
 | Au moment où va s'ouvrir le congrès d'Amsterdam,
 nous avons voulu donner à nos abonnés un exemple de
 \ congrès national allemand ; nos abonnés ne connaissent
@@ -256,11 +231,6 @@ plus gros caractères, les parties sténographiques tra- \
 duites analytiquement ; j'ai, sur le texte de Raphaël,
 établi une fable analytique sommaire.
 
-"1 + Go SA 74 SAR SAN ce af Re FD
-
-: l'AS D el PRO ER VIRE FU EIRE
-‘AeeS ER | fe L'OQUEENE
-
 Ë tenue le dimanche 13 septembre 1903
 à Î à sept heures du soir
 4 « Depuis Halle (1) aucun congrès n'a vu plus de délé-
@@ -280,7 +250,6 @@ _ quelques représentants de la presse étrangère.
 - ration la plus riche et du meilleur goût. Sur l'estrade où
 | se trouve la table présidentielle, contre la muraille du
 4 (1) Congrès de Halle en 1890.
-#4 Il
 
 le congrès de Dresde |
 fond : la statue de la Liberté, flanquée des bustes des
@@ -338,17 +307,6 @@ G@) Voir aux annexes certains renseignements extraits de ce rapport.
 
 @2) Dans le Protokoll allemand le compte rendu de cette séance
 
-; préparatoire va de la page 136 à la page 145.
-
-de.
-
-Ltd ES sé RIRES AS Fe ji re Fr Es il AN ot
-SCT DR UE PO nn ME DONNE NE
-AE EU A Ê “ ‘4 5 yet ft ENTRE ARE
-An “sg Us tel LENS ART CIRE x où
-4 MATA Ü X Ÿ ts “ s. CRE »: k ai WE a! Le
-7 LANTERNE ARE eo RAR ANG CET Car An LT CON CERN
-
 Lundi 14 septembre. — Séance du matin
 
 A neuf heures un quart, le président Singer ouvre
@@ -370,7 +328,6 @@ La campagne électorale a été préparée dès le mois
 de mars. Il ne nous a pas toujours été facile de fournir
 dés orateurs aux camarades qui en réclamaient, —parfois en termes pas trop polis. Il y a là une grosse difiiculté et je pense que les motions demandant l'établissement d'une commission de propagande ne sont
 
-F; le congrès de Dresde Ne
 | pas en mesure de modifier la situation. Nous avons
 aussi fourni des feuilles volantes autant que les cama- #
 rades en demandaient. Mais là aussi nous aurions eu
@@ -391,7 +348,6 @@ la situation financière se maintienne égale à celle de
 l'an passé. (Hilarité et approbation)
 Malheureusement beaucoup de circonscriptions ne
 (1) Voir aux annexes.
-| F
 
 m'ayant pas envoyé leurs comptes je n'ai pu donner
 partout des chiffres exacts, en particulier en ce qui
@@ -420,7 +376,6 @@ statuer sur une plainte dés camarades de Mulhouse et
 
 Au reste nous demandons d'accorder décharge pour
 leur administration aux personnes qui en sont chargées
-et à la direction du parti.
 
 Après quelques observations de détail présentées par
 
@@ -459,8 +414,6 @@ le nom de celui ou de ceux qu'il voulait atteindre, afin d'éviter les
 
 En même temps le comité avertissait les plaignants qu'il ferait
 connaître sa manière de voir sur la collaboration aux périodiques
-
-#3 1. ° VOS ete 2
 
 Je vais compléter le dossier de l'affaire en vous donnant lecture des deux lettres suivantes :
 
@@ -510,7 +463,6 @@ Le comité directeur du parti.
 
 (1) De la Neue Zeit. De même l'article de Mehring.
 
-nn Arr ét MAT ON. Te NV 1 D és Mais Ru et LÉ RATE 4 RAT TR g ;
 le congrès de Dresde È 1
 
 Nous n'avons pas parlé des insinuations blessantes contenues dans l'article Concessionnards de Franz Mebring
@@ -684,7 +636,6 @@ quitté le parti. Lorsque je le connus, il semblait se
 repentir. Un soir, je devais faire un dîner avec Bebel
 et Singer à la suite d'un pari que nous avions fait.
 J'eus la donquichotterie de proposer d'inviter Mebring.
-Mais
 
 jamais je ne l'aurais tiré du profond mépris où il était
 tombé Rires) si j'avais connu entièrement son passé.
@@ -851,8 +802,6 @@ ne peut écrire pour la Zukunft, on ne doit pas le pouvoir davantage pour aucun 
 on ne peut trancher la question d'un coup. Il faudrait
 une décision dans chaque cas particulier. (Approbation
 
-et sifflets) (1)
-
 Beyer, de Leipzig, reproche à Fischer d'avoir
 entraîné la discussion plus que jamais sur le terrain
 personnel. Cette belle indignation de Fischer aurait dû
@@ -870,7 +819,6 @@ comme un troupeau de moutons. (Très juste ! — Bebel
 s'écrie : C'est ce qui a été écrit de plus violent!) Il faut
 que cela finisse. (Approbation) (2)
 
-is 0) FALSE 9 PRET EE RE ER TI TER NS ETAT AR ne,
 : le congrès de Dresde
 
 Clara Zetkin. — On a dit que la motion du parti
@@ -882,7 +830,6 @@ indigné que la question püût être posée.
 
 ' On a dit qu'il s'agissait d'un débat entre gens de
 lettres. C'est inexact. Il s'agit de savoir s'il est permis
-à un socialiste de collaborer à la revue de Harden, et
 ensuite s'il lui est permis de collaborer en général à un
 
 A la première question il faut répondre non.
@@ -981,8 +928,6 @@ contre ces gens écrivent pour la Zukunft,
 cet ignoble organe, des articles qu'on ne peut appeler ni
 socialistes, ni moraux, mais infiniment malpropres.
 
-| PREMIÈRE JOURNÉE
-
 La Neue Zeit a protesté là contre de la façon la plus
 aimable et la plus douce.
 
@@ -1018,7 +963,6 @@ de culotte a manqué. /Grande hilarité) Vous n'avez même
 
 31 ,
 
-ss Not 7: hé PR, PT RM T eu e (dre V5 AUTRE 7? ENS dogs LEE LE 0 | PAT
 . le congrès de Dresde ;
 pas pu fournir un bouton de culotte à l'appui de vos
 plaintes contre l'oppression de la liberté de pensée. Il s'agit
@@ -1047,7 +991,6 @@ Singer donne connaissance de télégrammes de félicitations.
 
 Fin de la séance à sept heures du soir.
 
-|
 Mardi 15 septembre. — Séance du matin
 : Singer ouvre la séance à neuf heures un quart et salue
 
@@ -1110,8 +1053,6 @@ En ce qui concerne la collaboration, la grande majorité pense qu'on ne saurait 
 erreurs d'aujourd'hui. Et lorsqu'on reçoit de l'argent
 d'une force ennemie, on ne se sert pas d'elle, mais on
 
-1 la sert.
-
 En ce qui concerne les intellectuels, il y a lieu de se
 défier de ceux qui viennent à nous avec éclat. Ils doivent prendre leur place dans le rang comme les autres.
 
@@ -1152,7 +1093,6 @@ articles, reproduits par la presse de chefs-lieux d'arrondissement, a causé les
 C'est pourquoi nous ne devons pas prendre de mollasses
 résolutions, mais montrer nettement qu'il n'y a point de
 place chez nous pour ceux qui ne veulent pas se soumettre.
-(Très juste!)
 
 Quarck a dit que l'on pourrait occuper les intellectuels à rédiger des feuilles volantes. Mais nous en
 aurions bientôt qui nous prouveraient l'existence de
@@ -1173,7 +1113,6 @@ mon devoir comme les autres.
 1 36
 
 Il faut que mon article ait été bien gauche pour qu'on
-püût y trouver tout ce qu'on y a lu.
 
 C'est pourquoi je déclare franchement qu'aujourd'hui je
 suis d'avis qu'il eùt mieux valu ne pas l'écrire et que je
@@ -1400,8 +1339,6 @@ se reporte à ce petit état de siège, lorsque je me représente
 comment nous reçümes l'ordre de nous rendre au bureau
 de police, comment nous fùmes, tels des criminels, mis sous
 
-ce a 0 6 RACE il ET RON PASS EP AT PRO HAE nds ARR F1 ie NS gag nec
-
 1e le congrès de Dresde
 à la toise et mensurés, comment nous fûmes photographiés
 a et obligés de déguerpir dans les trois jours, je ne l'oublieis rai jamais de toute ma vie. Et si je devais vivre jusqu'au
@@ -1465,8 +1402,6 @@ Pour moi je n'écrirai pas une histoire du parti, mais un |
 livre sur mes souvenirs; je l'ai commencé cette année. ‘
 C'est l'un des travaux que je me propose de faire à Kuessnacht, où je ne dors pas. /Hilarité) Donc j'ai commencé; je
 
-ne. le congrès de Dresde ui
-
 DE ne sais quand viendra le dernier chapitre, mais il viendra.
 Re Je tiendrai bien jusque-là. / Vives approbations) Je ne songe
 pee. pas à mourir /Nouvelles et vives approbations) et je ne
@@ -1476,7 +1411,6 @@ pe: deviens pas non plus paresseux. /Approbations enthou-
 Die nécessaire, à mes chers amis et ennemis maint mauvais
 
 ne. Puis Mehring, — sans parler de son activité de jour-
-É ‘e naliste où le bon se mêle au mauvais, — a entrepris la
 0 À publication des œuvres posthumes de Marx.
 
 pe Là tout ce qu'on peut blämer dans les autres ouvrages ”
@@ -1503,7 +1437,6 @@ D. y quelque chose qui répugne violemment à tous mes senti5 ments, me blesse t
 DA | JS psychologique peut servir d'explication mais non d'excuse.
 08 Je crois m'être assez étendu sur la question Mebring. Je
 
-sidi RE PE VU CE me ma ne APE É
 regrette d'être obligé d'éprouver encore quelque temps
 votre patience, mais je me sens en ce moment, je ne veux
 pas dire dans le rôle du procureur, mais de celui qui doit
@@ -1540,7 +1473,6 @@ notre parti de la façon la plus vile, maintenant il faut bri47
 Nr, le congrès de Dresde |
 : ser avec lui et lui jeter sa collaboration au visage. Mais
 Ô qu''a-t-on fait? Rien du tout. / Vives exclamations de mépris
-Ÿ et autres exclamations) On s'est tu, on a travaillé à la
 Zukunft et empoché l'argent. Le parti devait se laisser
 insulter. Et maintenant je le demande à chacun de vous:
 Quelle sentence morale mérite celui qui dans de telles cirSe, con$tances a le courage de continuer à écrire pour la
@@ -1607,7 +1539,6 @@ que jamais, des temps difficiles, très difficiles, nous at-
 question d'intérêt spécial pour eux, — ceux-là n'ont aucune
 espèce de sentiment pour ce que pense et sent vraiment la
 
-u. le congrès de Dresde k
 à Qu'on ne vienne pas me dire : vous vous trompez, méfiez-vous des provocateurs, des gens qui vous
 ï entourent. (Grande hilarité) C'est moi qui suis le pre
 ‘à mier et le vrai provocateur. (Très grande hilarité) J'ai
@@ -1638,7 +1569,6 @@ quatre-vingt-dix-neuf justes! /Vive approbation et hilarité)
 Je me doutais de votre intention d'après votre discours.
 nr Mais je voulais un non formel, afin que Harden ne püt
 ki pas vous remercier. Vous voyez combien je suis votre
-|
 
 Et je puis bien vous le dire : votre article renfermait
 des principes tout à fait dangereux. Vous avez rétracté,
@@ -1726,9 +1656,6 @@ La suite de la discussion est renvoyée à mercredi.
 Singer annonce qu'il a reçu une demande de vote
 nominal sur la question.
 
-Ne de Sn EN REER
-
-M M le 7 RP RE PERTE
 Mercredi 16 septembre. — Séance du matin |
 La séance est ouverte à neuf heures un quart. Présidence de Singer.
 . Ledebour, de Berlin. — Il me semble qu'on ne peut 3
@@ -1902,7 +1829,6 @@ je désirais rester quelques années dans l'obscurité. Je
 n'y réussis pas. Mes compatriotes de Chemnitz me
 demandèrent de leur raconter dans un discours comment j'étais devenu socialiste. Mon discours eut un
 grand retentissement, fut imprimé et 500.000 exemplaires furent vendus comme brochure de propagande.
-Est-ce de ma faute ? Est-ce cela se mettre en avant ? Et
 lorsque l'on me proposa un siège au Reichstag devaisje refuser? Si je n'avais pas travaillé on aurait dit :
 Voyez cet intellectuel : il est dans le parti, maïs il ne
 fait rien. Et maintenant on dit : voyez cet intellectuel,
@@ -2014,7 +1940,6 @@ il faut reconnaître que la Zukunft est une revue à b
 laquelle collaborent des notabilités de tous les pays. Et É
 jusqu'à ce congrès on n'avait pas reproché aux socia- ;
 Pour Bebel, je necomprends pas comment ilapu,en #*
-| 62 \
 
 couvrant Mehring de couronnes de laurier, ôter leur
 
@@ -2098,9 +2023,6 @@ conception matérialiste de l'histoire, nous voyons dans
 la lutte de classe l'instrument du progrès et dans l'état
 socialiste le but final. Les divergences dont on fait tant
 de bruit entre radicaux et revisionnistes ne sont que des
-|
-|
-|
 
 petites rides à la surface du parti. Pour ma part je ne
 suis que socialiste, je désire ardemment que nous
@@ -2176,7 +2098,6 @@ F présentées par Adolf Hoffmann, Bernhard, Bebel, :
 74 (1) Protokoll, pages 248-250. Les pages 248 et 249 étant prises en il
 Re très grande partie par des notes, le discours de Mebring ne rem- 4
 ï plit en réalité guère qu'une page du Protokoll. LA
-id LA
 
 Séance de l'après-midi ;
 Trois heures un quart. Présidence de Singer. :
@@ -2200,8 +2121,6 @@ des autres comme tranché par là même. |
 | Après un vote nominal là motion est adoptée par
 283 voix contre 24 et 4 abstentions.
 Sont vues les motions et résolutions 8 à 16, 120, 128,
-
-k le congrès de Dresde A
 
 Bebel. — J'ai déjà déclaré que je comptais bien ne
 pas faire une affaire d'État de ce différend. Le Vorwaerts
@@ -2236,7 +2155,6 @@ n'est guère renseignée que par la rédaction des journaux. J'en avais fait l'e
 
 Cette commission avait en outre trouvé mauvais les |
 
-|
 |.
 
 reproches que j'adressais à Heine dans ma communication. Voici ce dont il s'agissait. Le 17 juin 1903 le $
@@ -2289,8 +2207,6 @@ beaucoup à dire. Je ne suis pas encore tout à fait con-
 À moins de raisons de parler que les camarades dans le
 
 ) pays attendent de savoir enfin quel travail le congrès
-
-\ va faire.
 
 * Auer. — Puisque mon nom a été prononcé, il faut
 
@@ -2381,7 +2297,6 @@ en Allemagne. Rattachement de l'organisation polonaise au parti allemand. Reconn
 | programme du parti et de sa hiérarchie. Délégation au
 congrès allemand selon les statuts du parti. Droit de
 former des sections dans les divers lieux où se trouvent
-| (1) Protokoll, pages 269-272.
 
 des groupes du parti. — L'entente ne put se faire sur
 ces propositions.
@@ -2419,7 +2334,6 @@ cette demande polonaise. Nous ne voulions pas lier
 ainsi les camarades, ni surtout les lier au dernier
 recensement. Il y avait donc un malentendu.
 
-k le congrès de Dresde de
 | De plus, les camarades de la Haute-Silésie nous j
 firent remarquer que même si les Polonais se ralliaient 3
 au programme d'Erfurt, ils avaient voté des résolutions
@@ -2483,8 +2397,6 @@ Nous avons confiance dans le comité directeur pour ;
 le respect des principes du parti. Aussi espérons-nous A
 que dans cette question il saura dans l'avenir en tenir
 Ledebour, de Berlin. — J'approuve les deux ora- ;
-
-je NES
 
 19 le congrès de Dresde |
 teurs précédents. Je veux ajouter quelques faits. D'où :
@@ -2583,7 +2495,6 @@ allemand. Nous n'avons plus de soins particuliers à avoir 4
 _ bourg est-elle parfaitement justifiée et je vous demande FER
 4 de l'adopter. (Approbation) (1) ï 7
 
-| ee Pol +. + 4
 N La résolution est adoptée. Les paragraphes ret2de
 ; l'ordre du jour sont terminés. ï 8
 À Les camarades Beck, Efftinge, Mannheimer et Paeplow Fa
@@ -2591,11 +2502,6 @@ N La résolution est adoptée. Les paragraphes ret2de
 M font porter au procès-verbal qu'ils n'ont pas voté pour la ‘RU
 résolution 7, parce qu'elle ne va pas assez loin. à ao
 _ La séance est levée à sept heures un quart. He
-
-D ! É: Es ne er
-
-‘PAS “Tale LUS DARRAT ASE EN Re Du!
-ar) re , Re CAE 4 Ta £
 
 Jeudi 17 septembre 1903. — Séance du matin
 
@@ -2648,7 +2554,6 @@ m'étonne que la motion ait pu être présentée.
 La demande formulée par la motion 73 est si compréhensible qu'il est inutile de s'y arrêter.
 Les résolutions touchant le mode de vote sont bien E
 
-| QUATRIÈME JOURNÉE
 jolies. Mais ne croyez pas que le groupe ait le pouvoir À
 de les faire adopter, surtout la motion 79.
 
@@ -2707,7 +2612,6 @@ au groupe à fin d'examen et l'on passe à l'ordre du jour
 sur les résolutions 72, 85 bis et 88.
 La résolution 100 est retirée. (1) 1
 Le congrès international d'Amsterdam en 1904 |
-|
 e Le rapporteur Singer. — Je ne crois pas qu'il soit |
 nécessaire de m'étendre longuement sur le sens et l'uti- |
 lité d'un congrès international. Je remercie les délégués
@@ -2758,7 +2662,6 @@ de la solidarité internationale que, dans son projet, il fait À
 payer des cotisations aux étrangers résidant en France mais 4
 ne leur donne aucun droit. /Sensation)… Les conseillers 4
 de Bismarck sont allés plus loin que le camarade Mille-
-| rand. \
 Et pour nous, Allemands, la chose est importante. 1 » Lorsque nous réclamons des assurances les gouvernements nous répondent : nous ferions davantage si les ;
 gouvernements étrangers marchaient aussi. Il faut leur 1
 enlever cette excuse. à î }
@@ -2879,8 +2782,6 @@ impôts indirects. Et cela signifie en même temps que la
 riale. Que certains de nos camarades ne l'oublient pas, |
 qui prétendaient que l'on pourrait susciter dans les
 divers États et surtout en Bavière une vive opposition
-
-. à la Prusse. ;
 
 ; Et quelle est la situation des finances ? On n'a pu équi- |
 librer le budget de cette année que grâce à un emprunt
@@ -3037,7 +2938,6 @@ pour mon compte j'en ai cordialement assez! / Vive appro- É:
 bation et applaudissements).…. À
 | 94
 
-ARE El PEN DS MS CE A NU mt 4
 La base de tout le mouvement revisionniste est, comme F
 on sait, la brochure de Bernstein, qui pour son bonheur #
 était alors à Londres, car depuis qu'il eut l'occasion de 3 ;
@@ -3156,7 +3056,6 @@ rien savoir de son roi non couronné dans cette question.
 Bayreuth a commencé par se détacher de Vollmar,
 puis toutes les autres grandes villes de la Bavière. Et :
 
-140 le congrès de Dresde M à
 _ parmi les députés du Landtag bavarois Loewenstein, |
 Segitz, Haller, Ehrhart se sont séparés de lui. 4
 4 Et tout ce mouvement est parti d'en bas. De toutes ‘4
@@ -3230,7 +3129,6 @@ pas lu cet article.) Je ne vous en fais pas un reproche; À
 mais je vais proposer de changer cela dans l'avenir. Et si
 un travailleur comme vous, que je considère comme impos-
 
-Late np ARTE …) À + * RCE Le: TANRS ts
 le congrès de Dresde be
 sible à remplacer pour la partie politique du Vorwaerts, b:
 n'a pas de temps pour ces choses, je vous répondrai : je ne %
@@ -3409,7 +3307,6 @@ revisionniste n'a-t-elle pas été cajolée et louée de toutes les à
 façons par nos adversaires, ne l'a-t-on pas soutenue mora- |
 lement autant que possible? La Frankfurter Zeitung a été. f
 pour ainsi dire désignée comme l'organe des revisionnistes jl
-et l'on aurait pu en dire autant de la Hilfe de Naumann. Fe
 Quelles que soient les divergences qui me séparent de É
 
 monsieur Naumann, bien que je ne croie pas qu'il ait en
@@ -3483,9 +3380,7 @@ alors je suis persuadé que le parti continuera sa course vic- 3
 torieuse et qu'il remplira de la façon la plus brillante sa ;
 mission historique. /Approbation enthousiaste et pro- 8
 La séance est levée à six heures et demie. É:
-|
 
-|
 Vendredi 18 septembre. — Séance du matin
 La séance est ouverte à neuf heures dix sous la pré- f
 sidence de Singer. Après lecture de quelques télé-
@@ -3540,8 +3435,6 @@ Je n'aurais pas répondu à ces reproches si mon
 silence n'eût fini par être mal interprété. Je disais dans
 | mon discours que tout camarade a le droit d'émettre
 
-|
-
 une opinion et qu'il a droit à une réponse courtoise, et î
 qu'il était inadmissible que quelqu'un le traitât d'ignorant parce qu'il exprimait un avis différent du sien, et
 laissât libre cours à l'animosité personnelle. Et je
@@ -3560,7 +3453,6 @@ N'est-ce pas la même chose lorsqu'on tombe, comme
 on l'a fait, sur celui qui fait usage de son droit d'expri- ;
 mer sa pensée. Car il ne faut pas se payer de mots. Il
 ne faut pas que la liberté de pensée ressemble au droit
-qu'on a au régiment de se plaindre. (Très bien!) Tu as
 le droit de te plaindre, mais gare à toi si tu en uses.
 C'est ainsi que l'on agit à l'égard de Bernstein. Il ne
 peut écrire un mot sans être assailli de toutes parts.
@@ -3573,7 +3465,6 @@ me contenterai de quelques remarques. On a accusé les
 revisionnistes d'avoir attaché d'abord à cette question |
 une très grande importance et d'avoir dit ensuite, afin
 
-À le congrès de Dresde j
 de se tirer d'un mauvais pas, qu'elle n'en avait aucune. î
 | Comme le congrès a été abreuvé de personnalités, je ne
 s veux pas pour ma part faire à cette accusation la
@@ -3692,7 +3583,6 @@ souffert et nous avons très bien pu faire comprendre
 aux camarades quelles raisons nous avaient déterminés.
 Enfin, j'ai étudié à ce point de vue la participation
 
-pt bé del" GÉNIE" NELRE REnS LS à POST RE PCA PARA UNE TE PAUT
 ù le congrès de Dresde 7
 4 aux différents votes. En 1884, les Berlinois avaient j
 déclaré « corrompante » la participation aux élections
@@ -3726,7 +3616,6 @@ L A Cologne, en 1893, Bernstein proposa de prendre
 monde tomba sur lui,— moins haineusement qu'aujourde 114
 -
 
-| | :
 d'hui toutefois. — Bebel, comme rapporteur, démontra
 
 qu'un compromis avec les partis ennemis doit amener
@@ -3843,7 +3732,6 @@ Juste!) Nous avons chacun nos tempéraments. Pour ma
 part je ne juge pas le mien si bon que je veuille l'im-
 « poser aux autres, d'autant plus que je me suis aperçu
 
-MN ON né cit A ET TRE NE PAU RUE 3 À PSP NRA PTS OM MEME
 le congrès de Dresde
 qu'une volonté voulant à tout prix se soumettre les
 esprits a beaucoup plus de pouvoir que le calme et la
@@ -3980,7 +3868,6 @@ voix : IL était grand temps.)
 - gnant des divergences d'opinions. Je ne puis les examiner tous. Je ferai remarquer simplement qu'au congrès
 d'Erfurt, en 1891, il s'aperçut que beaucoup plus de
 
-ait dit du CASSER SE Re
 le congrès de Dresde k |
 
 délégués approuvaient mon discours « que je ne m'y
@@ -4136,8 +4023,6 @@ que nous réjouir si les éléments vraiment libéraux de
 la bourgeoisie se ressaisissaient et tout au moins dans ;
 la lutte contre la réaction sur le terrain politique et
 intellectuel rivalisaient avec nous; mais au reste ils 4
-
-|
 
 devraient se rendre compte que les événements se
 dérouleraient en Allemagne comme en Belgique, et que
@@ -4362,7 +4247,6 @@ nous voulons atteindre le but par les moyens légaux?
 Nous le répétons sans cesse. Mais alors il faut avoir le
 courage d'être conséquent. Il ne faut pas dire que l'effondrement viendra nécessairement, parce que dans ce cas un
 moment viendra aussi où la violence décidera et non plus
-la loi. /
 
 Kautsky prétend que nous ne pouvons pas obtenir la
 
@@ -4468,7 +4352,6 @@ Vorwaerts. Comme organe central il devrait servir de !
 norme au parti. Au lieu de cela il est un conglomérat |
 des opinions les plus diverses. |
 
-LEE Le SERRES Lai ' '
 On a beaucoup parlé de la liberté d'opinion. Mais ;
 cette liberté aussi a des limites. La liberté d'opinion
 doit-elle aller jusqu'à laisser brûler la maison où ces
@@ -4669,7 +4552,6 @@ même du milieu où il se meut, ilse fait des idées fausses.
 Pour l'instant, il n'y a point de danger, car Bebel est
 au moins un dictateur génial. Mais où un autre ne nous
 conduirait-il pas? A la scission sans doute. (Agitation.
-— Oh! oh!) Je ne veux pas de scission, et si j'en désirais
 une, je serais le premier d'avis qu'il serait nécessaire
 de m'exclure. (Vive approbation) Maïs il faut réfléchir
 et voir où nous allons.
@@ -4786,7 +4668,6 @@ sommes d'accord sur la nécessité d'intervenir pratique- }
 ment. Mais nous sommes divisés sur la valeur des con- À
 cessions à demander. Les uns les estiment importantes, À
 les autres insignifiantes. C'est une question de tempé- î
-rament. Il n'y a point de différence de principe. Car f
 j'approuve encore Bebel lorsqu'il dit que nous n'avons ÿ
 jamais été moins divisés que maintenant sur les ques- |
 tions de principe. Je pensais même que ce congrès Â
@@ -4810,7 +4691,6 @@ tres aussi ont dû avaler bien des choses. A mesure que
 le parti grandit, il se trouve plus de personnes avec lesquelles on ne s'entend pas toujours. Mais dire qu'on ne
 peut plus y tenir me semble une forte exagération. l
 
-Oui, maïs il y a Bernstein, le nouveau Messie. Par la
 naissance et le sexe il pourrait en effet être un Messie. $
 (Très grande hilarité) Mais je vous assure qu'il n'a au
 moral aucune des qualités requises. Édouard Bernstein
@@ -4822,7 +4702,6 @@ devaient veiller, qu'il fallait attacher le grelot au chat.
 Après les élections, où radicaux et revisionnistes ont
 combattu côte à côte, où Bebel a lutté pour les uns :
 
-| V ET
 | le congrès de Dresde
 comme pour les autres, après notre victoire, je ne me
 doutais vraiment pas qu'un grand danger menaçait le
@@ -4854,7 +4733,6 @@ que j'ai pour ma part réussi à découvrir dans tous les ï
 articles et discours : le revisionniste est celui qui renie %
 la lutte de classe et d'autre part cherche à rapprocher L|
 la social-démocratie de l'aile gauche des partis bour- il
-| geois. S'il y en a d'autres qu'on me le dise.
 
 Mais s'il n'y en a pas d'autres, je concède qu'un tel
 revisionniste serait un traître au parti et je proteste
@@ -4916,9 +4794,6 @@ prouvent combien la tactique peut changer avec les cir- |
 entre les deux fractions socialistes allemandes, Bebel,
 qui achevait sa prison, nous écrivit une lettre de dix-
 
-#+
-
-|
 huit pages. Il s'opposait à cette fusion et nous appor- 14
 tait un programme détaillé des conditions que nous |
 devions imposer à la fraction dite d'Eisenach. Autrement, disait-il, dès ma sortie de prison je lèverai |
@@ -4945,7 +4820,6 @@ bourgeois. Nous sommes en présence d'un acte décisif, en |
 socialiste, ou devrons-nous franchir le Rubicon de la lutte
 de classe et devenir l'aile gauche des partis bourgeois?
 (Sensation). S'il en était ainsi, s'il s'agissait d'abandonner
-le point de vue de la lutte de classe, de se rattacher à la
 gauche bourgeoise, vous ne devriez pas maintenant participer à ces élections. » Je ne cite cet exemple que pour
 montrer où l'on en arrive avec de semblables prophéties,
 avec de semblables principes, qui par une nécessité inté-
@@ -5019,9 +4893,6 @@ ce bruit.
 
 Liepmann, de Berlin. — J'ai présidé cette réunion
 
->.<
-
-le le congrès de Dresde “ FAR
 Fi grès de Dresde A rie
 Fi dont parle Fischer. Nous y avons arrêté une liste pour ;
 A ; le renouvellement du comité, que j'ai communiquée à ;
@@ -5071,10 +4942,6 @@ Fe: Singer donne lecture d'une déclaration de Mehring (2: TE
 _ où celui-ci se justifie des accusations portées contre lui he
 au sujet de sa lettre sur Schoenlank. 402
 La séance est levée à huit heures et demie. (1) 14
-Di ne
-| (1) Protokoll, pages 372-379. Sn
-
-QUAI É ne k = ri HAL GATE et
 
 ; Samedi 19 septembre. — Séance du matin
 : La séance est ouverte sous la présidence de Singer à
@@ -5100,7 +4967,6 @@ parti. Si j'ai parlé de soulèvement c'est à propos de la
 
 nouvelle méthode française qui correspond à notre
 
-k le congrès de Dresde Fe d
 F revisionnisme et même à l'anarchisme adapté aux à
 | besoins de la chasse aux mandats. |
 Vollmar a cru bon de parler des bruits qui circulent À
@@ -5237,7 +5103,6 @@ Tant mieux : nous ne tenons pas à vivre en désaccord ;
 avec nos camarades.
 Un autre point de notre résolution exprime le désir |
 
-fs le congrès de Dresde APN
 J que le groupe devenu plus fort reprenne avec plus de
 é vigueur la lutte contre la politique du gouvernement,
 en particulier contre sa politique coloniale. J'insiste sur ;
@@ -5510,15 +5375,12 @@ pa Singer lit trois déclarations des délégués berlinois ‘4
 4 relatives à l'incident Auer. a.
 #5 La séance est levée à une heure un quart. : K
 
-# m4 (1) Protokoll, pages 390-403. AE
-
 Séance du soir C:
 La séance est ouverte à trois heures sous la prési- D:
 dence de Singer. Il annonce que quatre camarades Ê
 polonais regrettent dans une lettre le vote de la motion he:
 - Rosa Luxembourg. Ce vote n'a été possible que parce :4
 que le congrès a été mal renseigné. 4
-On revient à la discussion de la tactique. Une K.
 demande de clôture est rejetée. 4
 Molkenbuhr. — L'article de Bernstein était mala- #0
 droit. S'ila cru devoir l'écrire au lendemain des élections NE
@@ -5637,7 +5499,6 @@ on passe aux observations pour fait personnel. :
 Bebel, autorisé par le président à revenir sur la À
 séance de la veille. — Eisner s'est ému des paroles que ,
 j'avais prononcées à son sujet. Maintenant que j'ai lu à
-| ;
 
 mon discours imprimé, je comprends qu'il ait pu \
 s'émouvoir. Mais je n'ai nullement voulu l'offenser. J'ai à
@@ -5712,7 +5573,6 @@ La résolution 141 est rejetée. Les paragraphes 2 et 3
 | de la résolution 130 sont adoptés sans modification.
 L'amendement 143 est adopté.
 Le paragraphe 4 de la résolution 130 est adopté sans
-| modification.
 L'amendement 142 est rejeté. L'amendement 141 est
 1 adopté pour sa première et deuxième partie. L'amen-
 | dement 144 est adopté de même que le paragraphe 5
@@ -5762,7 +5622,6 @@ lui, pour éclairer aujourd'hui comme autrefois sur le
 # principes de notre programme, il l'emploiera à défendre
 | avec toute la force et l'insistance possibles les intérêts
 “3 de la classe ouvrière, à réclamer de même l'extension
-; et la garantie de la liberté politique et de l'égalité de |
 À droits pour tous, à mener avec plus d'énergie encore |
 4 qu'il n'a été possible, le combat contre le militarisme |
 LH et le marinisme, contre la politique coloniale et de
@@ -5782,8 +5641,6 @@ Par là sont tranchées les résolutions : 89, 90, 91, 101,
 Le vote pour le comité directeur a donné le résultat
 
 suivant : Sont élus présidents Singer (286 voix), Bebel
-
-| (272); secrétaires Pfannkuch (286), Auer (250); tréso- Ë
 
 j Comme lieu du prochain congrès, Brême a été
 
@@ -5814,7 +5671,6 @@ questions de personnes dont le parti a déjà dû s'occuper, nous retirons notre
 
 V. — Fête du Premier Mai
 
-Motions 60 à 64 et la résolution de Munich. La
 motion 65 ne réunit pas assez de signatures.
 
 Piannkuch, parle à la place du rapporteur Karl 4
@@ -5850,8 +5706,6 @@ s'ajourner et de siéger le lendemain, afin de discuter ;
 
 les résolutions restantes. |
 
-#4
-ni
 Dimanche 20 septembre. — Séance du matin 4
 . La séance est ouverte à onze heures un quart, sous 1
 la présidence de Kaden. .
@@ -5863,7 +5717,6 @@ jours possible de ne pas travailler ce jour-là, car les à
 magements qu'elles auraient à verser aux ouvriers {
 punis par les patrons. Heureusement que quelques-uns “4
 | autorisent le Premier Mai. Je partage le point de vue î
-À du comité. ‘
 Krueger, de Dresde. — Les ouvriers ne désirent ‘4
 aucune modification au Premier Mai. En tout cas il ne .
 faut pas reporter la fête au premier dimanche de mai, e
@@ -5937,7 +5790,6 @@ chise. C'est dans cette franchise que réside notre force.
 parti politique. Et si nos adversaires espèrent que des
 dissentiments naîtront de nos discussions passionnées,
 
-he le congrès de Dresde Fe ONE '
 40 ils se trompent. Contre nos adversaires nous sommes
 ‘4 tous unis. (Vive approbation) Far
 F Nous avons discuté à ce congrès des questions d'imDe portance capitale. Il ne faut pas s'arrêter aux person
@@ -5949,7 +5801,6 @@ ne que le programme, la tactique, Paction, la propagande :
 1] la lutte de classe. C'est ce qu'a montré notre réso-
 “ \ lution, que tout le monde devra suivre et respecter.
 is Nous pouvons être contents du résultat de ce congrès.
-Fa (Très juste !) 4
 13 Nous pouvons être contents que la volonté du parti se
 ‘a soit aussi nettement manifestée, que nous ne voulions pas
 M diplomatiser, que nous ne voulions pas avoir dans notre
@@ -5987,21 +5838,6 @@ _ l'affirmons en faisant retentir comme au ‘début de nos DE.
 et chantent debout la première strophe de la « Marseil- ‘43
 & laise des travailleurs ». 14
 . Singer. — Le congrès est clos. à
-os. ne
-
-k LE +, oi Tan ; Vi La ; SONT WE:
-PR OPEN ne x
-ne d PAR N jus ; 1
-
-He A MA el SRE
-SE HET à 5 Wei ne
-Due + AE ? : st LE
-ne, FPE UE At ESA PMIEURE ‘PRESS
-
-‘SUR fl RS
-| 1100 à 4 k à LES ah x
-
-nl 444 fs Ü Fu) REA 1 SA {LT EORINE
 
 4. — Camarades de Hanovre, Berlin, etc.: Mettre à n
 
@@ -6031,7 +5867,6 @@ _ soit mise à l'ordre du jour. 4
 S.— Camarades de Francfort-sur-le-Mein : Organiser n
 
 … pendant le congrès une conférence des délégués prussiens HA
-| |
 
 le congrès de Dresde
 qui provoquera un échange de vues sur les prochaines élections au Landtag.
@@ -6131,15 +5966,12 @@ lesquels les affaires du parti sont gérées par une organi- +
 
 194 4
 
-M are Les TUE î
-
 à sation locale, l'exclusion d'un membre hors de cette orga-
 à nisation est équivalente à l'exclusion hors du parti tout
 : entier. L'exclusion hors de l'organisation ne doit donc |
 se produire que par la voie du tribunal arbitral indiquée
 ; « Les intéressés ont le droit d'en appeler de la décision
 . du tribunal arbitral dans un délai de six semaines à la
-J commission de contrôle, et de la décision de celle-ci au
 _ © Siun'camarade contre qui une demande d'exclusion
 à est déposée renonce à l'arbitrage, ou néglige de nommer,
 1 dans un délai fixé par le comité, des arbitres, il est
@@ -6295,7 +6127,6 @@ des divers États.
 à E La tâche: de cette commission sera : d'organiser-une pro-
 à pagande systématique par la parole et la plume, en tenant
 spécialement compte de nos revendications à l'endroit de la
-| société bourgeoise.
 Cette commission sera élue par les camarades au siège du
 comité directeur, et son président aura place et voix dans
 le comité directeur.
@@ -6320,7 +6151,6 @@ tendances.de notre parti, et.au prix le plus bas possible. :
 2 46. — Camarades .de Teltow-Beeskow, etc. : Voir si au
 sujet des gravures de la Neue Welt il ne serait pas possible
 
-LR ar LS RE A Sn ag LUS A Le
 le congrès de Dresde /
 de les améliorer et d'imprimer la Neue Welt sur du meilleur papier.
 De même il faut apporter plus de soin à l'exécution des
@@ -6340,12 +6170,10 @@ journaux du parti.
 à 52. — Camarades de Breslau : La presse du parti est |
 tenue pour les annonces de demandes de travail de prendre |
 au préalable des renseignements auprès des organisations
-|
 Brochures et feuilles volantes !
 53. — Camarades de la dix-huitième circonscription
 saxonne : Toutes les brochures paraissant à la librairie du
 
-| ANNEXES
 parti (librairie du Vorwaerts) devront être éditées dans le
 même format.
 
@@ -6387,8 +6215,6 @@ Brunswick : Charger le comité directeur de publier sous
 
 | forme de brochure les principaux discours sur les budgets
 
-dx | AO RATS ont
-v « le congrès de Dresde PAPA
 des postes et des chemins de fer et la distribuer aux |
 
 59. — Camarade Erbe, de Hambourg : Publier une petite
@@ -6442,7 +6268,6 @@ a) Séparation de l'État et des Églises actuelles; ;
 b] Suppression de toutes les dépenses faites sur les fonds :
 publics pour les Églises ou religions ; à
 €} Suppression de l'enseignement religieux confessionnel |
-| : 4
 … d) Le remplacer par un enseignement de la morale sans Re
 fondement métaphysique, par un vaste enseignement des
 seiences naturelles, un enseignement scientifique de Fhis- Cu
@@ -6455,12 +6280,10 @@ f] Lutte contre toutes les fantaisies religieuses par la À
 k plus les croyances.
 j Le congrès décide d'adopter comme conséquences de ;
 (4 ces revendications l'addition suivante aux statuts d'organi- |
-| sation :
 « Seules des personnes qui n'appartiennent à aucune : RCE
 ) communauté religieuse confessionnelle peuvent revêtir des
 
 le congrès de Dresde 0e
-|
 charges du parti et être présentées comme candidats aux |
 élections municipales, aux Landtags, ou au Reïichstag. » {
 67. — Camarade Woischnig, de Francfort-sur-l''Oder :
@@ -6526,8 +6349,6 @@ comptées à la fin de l'élection, mais l'urne fermée sera
 envoyée au commissaire électoral qui établira le résultat
 pour toute la circonscription.
 
-AR OP RTE de PE PRO EM A PE HN PO TN
-Jun NE q L jt 44 PA Sy M
 le congrès de Dresde OT
 79. — Camarades de Flensbourg : Présenter une motion s
 imposant aux autorités le devoir de mettre à la disposition
@@ -6569,7 +6390,6 @@ laquelle rentreraient l'économie domestique, l'hygiène et
 Pour toutes les ouvrières suppression des heures supplé-
 mentaires et liberté le samedi après-midi.
 à 2. Interdiction absolue du travail de nuit pour les
-L- femmes.
 3. Interdiction de l'emploi des femmes dans toutes les
 occupations nuisibles à l'organisme féminin.
 Favoriser légalement l'établissement dans les usines et
@@ -6597,7 +6417,6 @@ A Développement des mesures de prévoyance pour les
 | d'assurance contre la maladie par les moyens suivants :
 | Accorder aux femmes enceintes ou accouchées une |
 
-ER ARR LA NAS ra EN er An SANS ES PU GS Lo
 : le congrès de Dresde RAD
 subvention durant la durée du délai établi, absolument
 de ces mesures aux femmes des membres de la caisse.
@@ -6662,7 +6481,6 @@ f 97. — Camarades de Brême : Tenir le congrès de 1904 à
 
 99. — Camarades de Berlin V : Tenir le congrès de 1904
 
-PR uk HEC ANNE FE TARN ET RUE RS NS UE OP ds. ot " A
 le congrès de Dresde
 4100.— Camarades de Teltow-Charlottenbourg : La vic- |
 4 toire électorale du 16 juin oblige la social-démocratie à des
@@ -6711,14 +6529,12 @@ sans aucune concession aux conceptions bourgeoises, sans
 combinaisons d'hommes d'État, et attendent en raison de
 . l'aggravation des antagonismes de classe sur le terrain économique et politique, que l'on soutienne énergiquement les i
 revendications de classe du prolétariat.
-À 403. — Les camarades de Berlin I déclarent qu'il n'y a
 aucune raison pour le parti de s'écarter pour l'instant sous
 n'importe quelle forme, ou dans quelque question que cela
 4 soit, de ses vieux principes prolétaires-révolutionnaires ou
 de ses mesures tactiques. Les camarades réunis espèrent
 k que le congrès de Dresde exprimera de façon non ambi- :
 -.  guë, et telle qu'on ne puisse pas s'y méprendre, cette façon
-" de voir.
 2,
 4104. — Les camarades de Berlin IV voient dans la ma-
 —_ aière dont le camarade Bernstein a traité publiquement la
@@ -6733,7 +6549,6 @@ le congrès de Dresde
 plus formelle leur désapprobation à tous les camarades
 qui dans cette affaire se sont faits les complices de Bernstein.
 
-405. — Camarades de Berlin II et VI: Les camarades
 de la deuxième circonscription et le comité électoral de la
 sixième circonscription de Berlin sont d'avis que notre
 groupe au Reichstag doit faire valoir ses droits à occuper le
@@ -6857,7 +6672,6 @@ instructions aux circonscriptions pour l'organisation de
 ; - projet qui en sera sorti. Après cette discussion, le projet est
 | présenté comme motion au Reichstag, afin d'amener le
 gouvernement à s'occuper des tâches nécessaires de notre
-| époque.
 Comme premier travail nécessaire je propose : transfor-
 . mation de la loi sur la maladie, les accidents, la vieillesse,
 | les infirmités en une loi se complétant elle-même et com1 prenant une assurance contre le chômage et une adminis-
@@ -6918,7 +6732,6 @@ Ajouter ce qui suit au deuxième alinéa du paragraphe 2 des |
 
 Le comité directeur a le devoir de convoquer le tribunal
 
-| ANNEXES
 arbitral le plus tôt possible, mais au plus tard quatre
 semaines après déposition de la demande d'exclusion.
 
@@ -6954,7 +6767,6 @@ x 122. — Camarades de Zabrze : Les camarades de Zabrze
 
 £ 123. — Camarades de Nuremberg : Tenir le congrès de
 
-de 14 THE PERS Er 0 # heu: OM
 le congrès de Dresde AC
 | 4124. — Camarades de la circonscription Dortmund-
 : Hoerde : La conférence de la circonscription DortmundHoerde propose de tenir le prochain congrès à Dortmund
@@ -7031,7 +6843,6 @@ Si toute démonstration monarchiste en soi est inadmissible
 dans le parti, elle l'est doublement après les discours d'Essen
 et de Breslau. La conférence voit dans ces propositions une
 nouvelle manifestation de ce courant revisionniste qui tend
-à embourgeoiser le parti et à le chasser du terrain de la
 lutte de classe prolétarienne et révolutionnaire. La confé-
 rence condamne ces tendances formellement, et espère que
 le congrès prendra une attitude semblable.
@@ -7156,8 +6967,6 @@ faveur d'un de ses amis, adversaire politique denotre parti,
 en lui transmettant par télégraphe une note du Vorwaerts
 dirigée contre l'organisation locale socialiste de Marbourg. |
 
-|
-
 440. — Bebel, Kautsky, Singer : Modifier ainsi qu'il suit
 | le premier paragraphe de la résolution 130 :
 
@@ -7226,69 +7035,29 @@ sur le but de la social-démocratie ».
 « accepter des obligations ou se soumettre à des conditions
 qui ne sont pas justifiées par la constitution de l'empire ».
 
-| Députés au Reichstag se
-
-|. Kiel. À
 2 @ Braun, invalidé, a été remplacé par Bassermann, le leader du ei
 
-Pbehart EU DE IN Tipes
-| ‘ DUEE ER HIER ner ele, VINUPPINUETRE
-SCRUIZE RS RP NEO NES SENS Pre LDEr Le.
-LIDIL Ce ARS do ROSE AE:
-GEVEr ne Ur NN EME ER Leipzip-camparnes
-Schippel A NE RC erinile.
-SION RS RENE SE NE pic kQU.
-Goldstem st AA ES ET NES others
-Grenzé CE EN AT a DEEE
 (1) Goehre, ayant démissionné, a été remplacé par un socialiste.
 (2) Rosenow, décédé, a été remplacé par un conservateur antisémite. ;
 
-J Le fs d | jh à
-ses WURTEMBERG . de 34
-| BADE js:
-Mnerzield. 7... . ... . Rostock. LA UR
-#4 « ÿ. 24
 Da) Buchwald, invalidé, a été remplacé par un conservateur :
-| {RU CEE k - VAR
-
-KP AVI MAN ne SN san PRE UE Us TN ne at ASSNEEE
-
-Le À Je  NIConovRe-Gorma |) | US
-
-| 1 PRES CHWERIN-RUDOLSTADT D
-
-A 1h Ke r “ Pig #1 Eat en il
 
 Situation financière des journaux et revues
-1 De juillet 1902 à juillet 1903 (x)
 Excédent de la vente des brochures par les
-L ne RE RS ER SR PL fe O0 20
 - Dépêches et nouvelles parlementaires. . . . . 5.029,15
 : (1) Toutes les sommes sont en marks.
 | 229
 
 Déficit : 3.010,44 (inférieur de 1.470 marks à
 celui de l'année précédente).
-Dépenses ee ee nas NU AUS EST RSS
 Déficit : 7.260,06 (inférieur de 3.000 marks à f
 celui de l'année précédente).
-Retettess ii Me enr SUR EE A, ET SRE
-Dépenses". ne RARE TS Rens, ROSES OS
 \ Bénéfice : 24.667,58 (supérieur de 4.643 marks
 à celui de l'année précédente). :
 Situation de la caisse du parti
-Recettes générales 12 "NE AO |
-Compte de prêts, 1.122 MERE 0 CN SRE EEE
-HE Amiéréts ets Re IR RIRES OSESE EE ON RS
-Bénéfice du Vorwaerts!. MM. UN OO
-Fn'caisse le '3r juillet 190210 NRC Ne SERRES 6.786,35 |
 635.033,58
 (1) Toutes les sommes sont en marks.
 
-< ne. Fier DÉPENSES . $ An
-ue HOnErale se alt eu NRR./167-040800 CE
-
-#3 VLSNENEY
 Librairie du « Vorwaerts »
 Les débats du congrès de Dresde réveillent l'intérêt pour
 les congrès précédents. Aussi recommandons-nous :
@@ -7306,7 +7075,6 @@ FRANCGFORT 1894. — Vote du budget dans les Landtags :
 GoruaA 1896. — Mouvement féministe ; débats sur la littéra-
 . ture du parti. marks o 30 |
 
-| LIBRAIRIE DU € VORWAERTS }
 | STUTTGART 1898. — Droit de coalition; protection des mineurs; élections au Landtag prussien, politique douanière
 et commerciale.
 HANOVRE 1899. — Affaire Bernstein; loi sur les atteintes à |:
@@ -7327,10 +7095,6 @@ permanentes ; fête du Premier Mai. marks o 25
 ù du pouvoir politique; politique coloniale; le socialisme
 k dans les municipalités,
 
-|: NN ER * ; { * EN TOO
-
-|: PRO RS
-_ Les Études Socialistes.
 | Notre catalogue analytique sommaire.
 ? le Congrès de Dresde
 …_ Réunion préparatoire tenue le dimanche 13 sepa tembre 1903 à sept heures du soir . . . . . .. 9
@@ -7363,7 +7127,6 @@ mieux valu ne pas écrire son article ; ne recommencera plus; opinion des ouvrie
 Mehring ; contre la résolution du comité ; ne pas |
 diviser les camarades en camarades de première |
 et deuxième classe ; hommes de confiance. |
-|
 Séanceide l'après-midi. 4... NON |
 Grand discours de Bebel ; opération chirurgicale inévitable; indispensable ; question non
 secondaire ; grave; formule de résolution non
@@ -7591,7 +7354,6 @@ der dans le parti la même liberté de pensée que à
 comme chez le pape et dans l'Église ; racine À
 vitale de la social-démocratie, liberté absolue de »
 ; pensée, de recherche, d'examen des principes, k
-à des buts et de la tactique; conséquence de la È
 È servitude le dépérissement du parti ; force
 1 apparente et force réelle; si l'on me destine
 k une muselière, il m'est assez indifférent que ce
@@ -7620,8 +7382,6 @@ prolétarienne; syndicats, coopératives, institutions de culture des ouvriers ;
 reviser programme; travail pratique; la plupart des camarades ne veulent plus se rattacher à aucune aile ; intellectuels ; Timm;
 Vollmar à Munich; Bebel intermittent; la viceprésidence ; personnalités ; exemples de participation à des cérémonies oflicielles; réceptions
 bourgeoises ; non obligatoires ; Bebel démagogue; Kautsky ne bouge pas de Friedenau;
-
-|
 
 | n Bebel orateur; dictateur génial; Bernstein ; inci-
 | dent Auer; agitation; chef et démocratie; Auer;
@@ -7684,11 +7444,8 @@ intérêts des ouvriers, au besoin s'opposer à
 presse bourgeoise; liberté de pensée; principes
 politiques ; évolution ; Millerand ; les ouvriers
 anglais; opinion de Hyndman; Burt et Broadhurst; la résolution de Hanovre; la politique
-|
 
-| TABLE ANALYTIQUE SOMMAIRE
 4 coloniale; la lutte contre le libéralisme; résolu F
-| É PMS O IR . MMA ete PAU ANR. Lo Lee
 Lettre de quatre camarades polonais regret- , f
 tant le vote de la motion Luxembourg; Mol- È
 kenbuhr; article de Bernstein maladroit; vice- <
@@ -7701,7 +7458,6 @@ dent; faire partie de la majorité gouvernementale; Singer; une déclaration de 
 Heine ; incident de Gerlach; explications person-
 | nelles; Michels ; — V. — Fête du Premier Mai;
 | Pfannkuch; Friedeberg; Weidner. À
-Er tance dans rt en RU CE URErRS
 L le programme et l'organisation; Singer; —
 1 conclusion; franchise; il ne faut pas s'arrêter |
 1 aux personnalités qui devaient nécessairement
@@ -7720,19 +7476,14 @@ nettement manifestée; que nous ne voulions
 pas diplomatiser; que nous ne voulions pas
 avoir dans notre parti d'homoncules d'Etat ;
 éloquence; travail pratique; élections au Landtag; éloquence; vive la social-démocratie allemande ; la Marseillaise des travailleurs.
-MOTORS EMMA le 0 ee OM NEO
-HHAGHQUE NE 101 Mde ne) L il LE NRA
 Neue Welt. Journaux de mars et de mai, . . . . 199
 Publications ponr la jeunesse". "PAS 0e
 A Brochures'et feuilles volantes." 0002208 |
-Programme: "Aer PMR ET 2 NEC
 Motions parvenues ultérieurement ou présentées
 pendant les débats} "44930702 NS
 Situation financière des journaux et revues. . . . 229
 Situation de la caïsse‘du parti 2,20. : ‘OPEN
 Librairie du Forwaerts 7/00 ISERE
-|
-|
 
 Études socialistes, paraissant tous les deux mois
 . Première année, fascicule I, janvier-février 1903
@@ -7753,8 +7504,6 @@ L introduction à capital et travail salarié de Karl Marx,
 Londres, 30 avril 1891; Karl Marx, la question juive ; Georges
 Sorel, le compagnonnage; Saint-Simon, nouveau christianisme.
 
-L xv
-
 seizième cahier de la cinquième série ; à
 Première année, fascicule III, mai-juin 1903 un franc
 Georges Sorel, nouveaux réquisiloires de M. Brunetière ;
@@ -7771,13 +7520,10 @@ Georges Sorel, Léon XIII; Karl Marx, capital et travail
 salarié, traduction Léon Rémy; C. Fages, la crise actuelle
 de l'État. À
 Premifre année, fascicule VI, novembre-décembre
-1903 un franc
 Charles Maurice, propagande socialiste ; Karl Marx, la
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce seisième cahier
-Le Gérant : CHARLES PÉGUY
 D Ce cahier a été composé et tiré au tarif des ouvriers syndiqués 6
-IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8860
 
 . Laval le 25 Avril 1904. Monsieur. — Je vous requiers
 4 conformément à la loi d'insérer intégralement dans le
@@ -7806,7 +7552,6 @@ du Pape à mon adresse, avec les commentaires divers
 x Journal de Laval. — Page 31. « Le Journal de Laval
 } « annonçait avec joie qu'un de ses meilleurs amis, le
 4 « chanoïne D... venait de recevoir la bénédiction du
-je
 
 « Pape, et, il publiait complaisamment en première
 « page le télégramme du Cardinal Rampolla, 1° Jan-
@@ -7893,7 +7638,6 @@ Recevez, Monsieur, l'assurance de ma considération.
 
 « Enregistré à Laval le vingt-huit avril 1904, f° 93
 
-| « signé : Chanteau. »
 Pour copie conforme
 
 L'An mil neuf cent quatre. Le vingt-neuf avril.
@@ -7925,7 +7669,6 @@ avril mil neuf cent quatre, et portant la mention sui-
 ne sommation, M. Dissard requérant se pourvoira immé-
 N diatement devant le tribunal compétant pour l'y con- TR
 à traindre avec tous dépens et dommages intérêts qu'il de
-L: appartiendra. à
 À A fin que M. Péguy n'en ignore. à
 À Sous les plus expresses réserves. Dont Acte %
 Et j'ai, au dit M. Péguy, en parlant comme dessus, À
@@ -7933,13 +7676,7 @@ _ laissé cette copie sous enveloppe fermée ne portant D
 \ d'autre indication d'un côté que les nom et demeure de
 fé la partie, et de l'autre, que le cachet de mon Étude Ÿ
 ‘à apposé sur la fermeture du pli, le tout conformément à À:
-4 la loi. ne
 ; Papier spécial une feuille à 1 fr. 20. de
-
-à HN AEN PAM Tee SCO RERS ANIME AREA ER M RE A EH EAN EAN TES ON Len
-a et 53 CET Das AR ie SA PE (ARTE l'ENS Nate
-HUE DURS PT Rae LU He Wa Ne AR LU Ce VERTUS da d
-ie M ete ARRETE ANT l $ FA UAR “141 0 A8) \
 
 EEE » CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondisse-
 à Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi-
@@ -7959,12 +7696,6 @@ L'abonnement ordinaire cesse de fonctionner pour
 : lachèvement de cette série ; ainsi du premier juillet au
 « 31 décembre 1903 on pouvait avoir pour vingt francs
 … les vingt-deux cahiers de la quatrième série complète.
-
-Du PAT AT Pre HA ENT ne RAT NL ANA : dti
-Tux PL ASLE OT UNE Ve F, FAT RE VEISAS
-ES } No Wie A sur à
-| | + KL 1: J'EN
-| | | 4° PSE
 
 _ A partir du premier janvier qui suit l'achèvement
 

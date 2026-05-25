@@ -7,67 +7,13 @@ author: georges-delahache
 isAvertissement: false
 wordCount: 66384
 ---
-| GEORGES DELAHACHE
-
 la carte au liséré ver
 
 périodique paraissant tous les deux dimanches
 
 : 8, rue de la Sorbonne, au rez-de-chaussée
 
-de A ee RCE FAR AE
-PAR AT NU CHATS ee DRE nee te
-M dd 0 AE RE RE on
-Ne TARN N ee FÉVR RE A A RD A en A4 SE USAI on PFAURR ,
-Re on RSC ANA EUR AR MNT AS ee PEAR SR S
-pi AR M à RER Le pue CARE qût M ACTE CEA RE ES Re AUPEREES
-A a ad Ale teen ne Re SÉRIE ES DR à
-
-a LE VDS Dane Re ee ENT VASTE DEN RER EE AS dé ER CREER
-JE ee ot tp M Re RU De ES AR SE TRES Fc
-_ la carie au 0 4
-MR UD ee Nr Se de NP ONE ATEN TE ANR SNENNT ETATS
-
-AN D DU Mer A MAR ROSES AN CR RER EE
-
-MES LR ee D RE TE A ne
-
-D RAA DC AE barre 1 tn pa A QE Ne RS
-LR US RE LE AL ee
-
-2 oi NOIP UNE 1 # # ol ANT net er | *
-
-| SORTE Ÿ | pr RSS
-un GLS VIA Res « #7 ARE SRE
-
-où LEE A NE RCE PANNE CR PE PS AU ANT COR AT LS JE NE nt Be nue pur
-PU AA PU Ge LEE Pen Get es AE ANT de. :
-
-MARS Hat on RUE NA EE Li < OS NI À MOUMETERE) D'ANNÉES LAMPE ITS CERN
-eV ses Cl JR NRA ERNSS
 _ Quarante ans sont passés, el ce coin de la terre. MANU A
-mA aie ER ' ï LRO PNNE
-APCE L 6 ln oes
-TE api Palt CAhate ve DU VAS
-Re : PAR ae À ns + Ne MN EEE
-
-Lu à ORNE ANT AITE EU CR A ON STE ON ITS ES Vas NE le ST
-
-tek NO EN SRE ASS ATEN TETE S ÉCRAN ET ARS xs AE
-
-Sen ONE RON CA ut Cr { Pr Fee. PART Et se JAI
-FR SR Ne RC VE ANS See F Re on ee ep
-
-“ HEAR st an RE Ne RAT ne MA INSEE
-Zi Me NES RÉNS DNA ARE Re ne eees RAR NT ET EE PUMA ES EAN RTE
-Ve où LOU ANNES FFC RES
-: PR AINTE è ne HENRI
-ba fe 4 ai NE
-es ne LC i Li TE SI ME ESS We ÿ
-
-LE nn en NA ts RER et ANNE gr Eu CE
-|'RMANES HA APRES STAR A A NE nie a Ras FCO
-D ANA ER AE AN AT rat D RER RES DL LE A AN er BASS
 
 ‘ : Le 14 août 1870, huit jours après la bataille de
 | Frœschwiller, un ordre de cabinet du roi de Prusse
@@ -91,7 +37,6 @@ fl … août 1870, la carte au liséré vert de février 1871, ce fut
 …_ … l'Alsace-Lorraine. L'annexion que réalisait l'Allemagne
 ks - (x) Voir aux Annexes le texte des Préliminaires, article 1*.
 
-RAA Le de . DE DROITS ER POESIE
 \ la carte au liséré vert NPA
 à la fin de la guerre était exactement celle dont elle
 avait arrêté le plan au début. ;
@@ -140,7 +85,6 @@ F les crises, elle fut trop souvent verbale et d'attitude,
 Ÿ non point intime, profonde, qui veille comme la
 conscience, qui inspire et dirige l'action : un rappel
 sonore de « l'immanente justice », à la fin d'un discours
-| de comice agricole ou de distribution de prix, et l'on se
 _ croyait quitte envers le passé. Enfin. cette pauvre
 éloquence même balbutierait, aujourd'hui : d'autres
 : sujets sont plus à la mode, et celui-là devient aisément
@@ -219,31 +163,6 @@ ment attaché à la petite patrie orpheline de la grande,
 < J'ai tenu à m'acquitter d'une tâche que depuis longtemps je considérais comme un souvenir envers l'une,
 envers l'autre comme un devoir.
 
-Rd ns (RS ; PACE AT ETES FORT TANT Vs UE
-
-| RE A in
-
-mn ee SA Le DR
-
-pres EX R NE fe 122 FETES RES
-
-SEE He MAD D n 100 RS RL LE RESTE ATP on
-
-9 ent MEN PRIOR NS DE SOS ON 7 UE
-Se EE A AR AE ET HAE AS HAN re LPS Ee un
-
-d'3 CARRE ARE RERTES, 0 Na DE PA HONDA RE ce See SR AAA NL PAR SE
-
-LS A Ne Los us RE ne paie
-LS ER ES FA REA PAR us HAN Fee RE LM FO ?
-ps PANIER ÿ PACA EPA à D Aer de TR) rt DEAR ÉrANISE CA EUR
-ele fn 0 À à LE SMS RASE
-ps MARS de MAD Re
-SEA Dane MoN RE F ! ï Ye “VACRES Le
-an): Tor Le CS RS PS RE AE de an PAL
-(RETENIR ARS RE ex LE
-
-he UN PEU D'HISTOIRE
 e. $ 1. — Avant qu'il n'y eût Alsace ni Lorraine
 4 é ; Si inquiète que fût déjà l'existence des peuplades qui
 4 | vivaient, avant l'ère chrétienne, sur le sol de la future
@@ -342,7 +261,6 @@ Charles le Chauve en langue germanique, Louis le Germanique en roman français (
 de Louis, connu sous le nom de Serment de Strasbourg,
 est précisément le plus ancien document qui existe de à
 notre langue française). Mais c'est seulement à partir
-de 869, de la mort de Lothaire II et du partage de sa
 succession, que la délimitation politique se précise : la
 - partie alsacienne tombe aux mains de Louis le Germanique, et s'incorpore ainsi au Saint-Empire-Romain,
 tandis que Charles le Chauve, qui était plus particuliè- 6
@@ -385,14 +303,12 @@ sans harmonie et sans lien; et le Saint Empire Romain
 Germanique, sans unité matérielle ni morale, n'était ;
 qu'une fédération où entraient, pour tout ou partie de
 
-la carte au liséré vert TARTN EEE a
 leurs domaines particuliers, des feudataires de rangs et El
 d'ordres très divers : rois et comtes, évêques et abbés, &
 villes. Et que d'être pour ainsi dire collègues dans ;
 l'Empire ne signifiait pas qu'on dût se développer sui- x
 vant une même loi et vivre une histoire commune,
 l'exemple de l'Alsace et de la Lorraine suflirait à le
-| prouver. ;
 ï Si l'on veut se guider avec quelque clarté dans l'histoire touffue et mouvementée de ce pays, il convient
 de ne pas perdre de vue deux points importants : s« — d'abord, que l'unité de l'Alsace est fort récente, et
 que pendant longtemps elle n'exista guère que nominale- ;
@@ -418,7 +334,6 @@ Dans les premiers temps de son union au Saint
 | son, avant d'être impériale, gouvernait le duché de
 à Souabe, auquel se rattachait alors l'Alsace; ainsi
 Re Rodolphe de Habsbourg, dont les possessions patrimoF niales s'étendaient partie en Suisse, partie dans la
-| Haute-Alsace.
 Mais, du jour où les empereurs n'eurent plus de raison
 ë personnelle de s'intéresser à elle, où leur attention, au
 3 contraire, dut se porter plutôt vers les provinces orien-
@@ -566,7 +481,6 @@ Toujours est-il que si les traités de Westphalie, avec
 (Fe régime féodal, et fatalement (en dehors même des
 cessions provenant des biens personnels et familiaux
 
-Rte - Sd dt Du
 la carte au liséré vert
 de l'empereur) puisqu'elle avait la souveraineté sur
 le reste, elle posséderait bientôt le reste du territoire.
@@ -595,7 +509,6 @@ méthodiquement et de « réunir » au royaume tout
 ce qui se rattachait, en vertu des anciens titres féodaux
 ou de traités plus récents, aux territoires de leur res26 ;
 
-|A
 __ Sort. (r) C'est ainsi qu'en outre de sa fonction normale
 F 3 de tribunal de dernier appel pour l'Alsace, le Conseil
 3 Supérieur de Brisach eut aussi, à partir de 1680, sa ‘
@@ -652,7 +565,6 @@ que Strasbourg, un jour ou l'autre, achèverait de se déta-
 - cher de ce « vaste Empire sans homogénéité » (3) dont
 la séparait le Rhin, pour tomber dans l'unité française.
 (1) Cité par Glasson, Rôle polit., p. 30.
-(2) La Municipalité. z
 6) Legrelle, Louis XIV et Strasb., p. 8-9 : « ... un petit État, 3
 placé, sans doute, sur les confins très vagues de l'Empire germanique, mais n'acceptant de vie commune avec lui qu'à sa conyenance et à ses heures...; sa prétention comme sa tradition était
 en somme de ne relever que de ses propres magistrats et de
@@ -709,7 +621,6 @@ LA @) Cf. L. Lefébure, Drame de l'âme alsac. à
 
 la carte au liséré vert
 
-ù centenaire de sa réunion à la France, et le « Magistrat »
 s'exprima alors en ces termes :
 
 Tous les ordres et citoyens de la ville de Strasbourg |
@@ -737,8 +648,6 @@ régime français avait peu' à peu fait naître ; et plus d'un
 se rendait compte, comme ce bourgeois de Strashourg
 qui allait écrire l'histoire de sa ville, des raisons pour
 lesquelles l'union avec la France était le bonheur de
-
-(2) Rod. Reuss, As. pend. la Réool., t. I.
 
 « Cette reddition à la France fut le bonheur de Strasbourg, » —
 dans le t. III de l'Histoire de Strasbourg, Neue caterländische
@@ -800,7 +709,6 @@ anciens « offices » se transformant en pouvoirs et pro-
 éléments, bientôt réduits à trois et même à deux, que
 l'on retrouve tout au long de l'histoire de cette région, ;
 jusqu'à leur absorption successive par la France : 1° et
-2 : le duché de Lorraine et le comté de Bar; 3°, 4° et 5°:
 les comtés de Metz, de Toul et de Verdun : tous États
 particuliers sous la tutelle du Saint-Empire, mais qui,
 
@@ -1089,7 +997,6 @@ service pour que Dieu déjoue les projets de ceux qui veulent
 ruiner la Constitution. Le curé a entonné le bon psaume. A chaque
 vers et les filles et les femmes ajoutèrent ce répons : Deposuit
 
-es UN PEU D HISTOIRE d
 _ avec un formidable accent de terroir les professions de
 E. . foi patriotique, des hommes partirent, qui furent les
 _ soldats de la Révolution, et ses généraux. On sait
@@ -1104,7 +1011,6 @@ _ Dietrich, fut chantée pour la première fois la HMar_ seillaise.
 Depuis lors il n'y eut dans l'état de l'ancienne Alsace
 " et de l'ancienne Lorraine que quelques modifications
 Le territoriales, conséquences de la Révolution même
-ne
 …_ (Mulhouse, petite république suisse enclavée dans le
 …._ territoire français, entravée dans son développement
 “ par une barrière de douanes très sévère, demanda en
@@ -1141,22 +1047,6 @@ plus de l'histoire alsacienne que la tentative de 1840 ne
 fut de l'histoire boulonnaise. Leur histoire n'était plus
 de l'histoire provinciale : c'était celle de la France.
 
-Va ec a ris TR Me CR EE eee LE PRE ENTRE, Ce CDS 1
-Ne I ÿ rs
-LES ééte
-Eee À ; liséré. — 3. SATE LE
-
-CR RO ne Het RES AL ect
-Re oo NE M nee FIMO ET TEE
-RAR nr ce ne RAI RER NN Ter Are Le PUS SE
-re PE A RS TO PET SUR MES NRC SEE DE AU Sa RE ra dy LA [PS
-SLA Een # vas Net ST NI LRO SEINE TETE
-WC NN EUR Fi j SON et eee | HAUARUREES
-NE unes AU FAN rer RENTE. INT TESEESS
-Hire L'ESPATE AT ere PM ne 0e REX (RQ SE RATES ENTER
-RME A At à Bee ne AE DR es du af ce, CAT
-SE ON er MERE pt à ARR EOEMSE RÉDRREURINES0 Cat, MAPS dre:
-
 : Donc, en 1870, le Bas-Rhin, le Haut-Rhin, la Meurthe,
 | _ la Moselle, les Vosges, étaient bien français, au même
 + titre et du même cœur que tous les départements de
@@ -1174,7 +1064,6 @@ de donner chacun une personnalité politique conforme aux
 ; de secouer le joug de l'étranger, le Piémont, la Lom_  bardie, Parme, Modène, la Toscane, les Deux-Siciles, ;
 ; de se fondre en une nation italienne. La France a puis-
 À samment concouru à cette œuvre; et justement elle n'y
-| "47
 
 la carte au liséré pert
 
@@ -1320,7 +1209,6 @@ guerres révolutionnaires, l'empereur se reprit à espé-
 (1) Frédéric II, Œueres Historiques, édit. Preuss, tome VI, p.70 et
 193, cité par L. Ehrard, Quest. d'Als.-Lorr. et Frédéric-le-Grand, p. 5.
 
-| LA VOLONTÉ DE L'ALLEMAGNE
 rer: en entrant sur le territoire de la France, les alliés de
 1792 comptaient bien, s'ils ne réussissaient pas à sauver
 le roi, emporter quelque chose du royaume; et, en 1794,
@@ -1410,7 +1298,6 @@ la carte au liséré pert
 
 le vieil Arndt chantait à son tour : « Approche, ma chère
 Allemagne, unie et hardie! —... Nous allons vous entretenir — De ce que la flatterie et la ruse vous ont acquis,
-— De Strasbourg et de Metz et de la Lorraine: —
 Vous devrez payer, vous devrez restituer! » Dans
 une poésie manuscrite qu'on trouva sur la table du
 prince de Prusse, le futur empereur Guillaume I, il y
@@ -1501,8 +1388,6 @@ de leur nationalité, vous, Alsaciens et Lorrains, vous ne
 sauriez persister dans votre apathie... Quoi! vous voudriez
 renier votre nationalité! marcher contre l'Allemagne,
 
-(x) Ch. Staehling, Strasb. el l'AISs., t. IL, p. 113.
-
 (2) L'Industriel Alsacien (Mulhouse), 7; mai 1867.
 
 (3) A. Schneegans, dans Courrier du Bas-Rhin (Strasbourg), 19 mai
@@ -1561,7 +1446,6 @@ répétèrent sa parole, dans toute l'Allemagne : « L'Alsace
 — province allemande », par Wilhelm Maurenbrecher,
 professeur d'histoire à l'Université de Kænigsberg,
 « L'Alsace et la Lorraine », conférence faite à Paderborn, par le docteur Bernhard Werneke, professeur
-au Gymnase, « La reprise de l'Alsace et de la
 Lorraine », publiée à Hanovre, par le docteur Georg
 Hoyns, « L'Alsace et la Lorraine et leur retour à l'Allemagne », publiée à Leipzig, par le professeur docteur
 
@@ -1582,7 +1466,6 @@ PAlsace et de la Lorraine d'après leur délimitation nouvelle
 depuis l'occupation allemande » et une « carte historique de
 VAlsace et de la Lorraine pour l'étude des modifications territo- ;
 riales aux dix-septième et dix-huitième siècles ».
-de
 
 la carte au liséré vert
 les corbeaux ne volent plus autour de sa montagne. (1)
@@ -1605,7 +1488,6 @@ Meyer — voir plus bas — demande lArtois, Dunkerque et Lille
 avec les Flandres, le Luxembourg français (?), le comté de Montbé-
 liard, et quelques colonies d'outre-mer : « Artois, Dünkirchen mit
 
-nn on
 SIREN Dieu le veuille! » (1) — A peine, de temps en temps,
 . une objection timide, commerciale et intéressée : un
 … négociant de Bielefeld, membre de la Chambre de
@@ -1706,27 +1588,6 @@ L'Allemagne avait assez tendu sa volonté; l'heure
 _ était venue de passer à l'acte; elle agit implacablement. à
 SAR par Albert Sorel, Hist. diplom. de la guerre fr.-all., LA,
 
-TD SR D AURA ere UE en Le
-
-LS ATOS A el te Re Le A SCA UE x
-
-‘HAE nr k Se Lui 1 Pet re SRE A
-
-Le Lx u 14 be es sÈ
-LT ERERS ce Ë PRE ru)
-
-VAR RE PNR RP ENT ME DATES ie L AP LS MST A4: ent, EXCEL 0
-
-RATS DRE MAO aQRIS es Les dE EE sE ce 3 Re:
-
-si OS A RE NP CRE Er ES Les
-
-A “ FA 1 vh PNA VERT CET ns
-MEN RE TA A SON er Van NEte HE PTE TS ARE |: HANTNDME
-Le re An) A os à DS" A ASC
-ARE (is ME } D UE ou.
-PR D re ÿ EUR É UE à JE Le: "cr
-
 La Prusse, à la tête de la Confédération du Nord,
 È ayant besoin d'une guerre pour entraîner les États du
 Sud et réaliser l'unité allemande contre quelqu'un; (1)
@@ -1778,8 +1639,6 @@ le roi de Prusse salué empereur d'Allemagne à Versailles, dans le Salon des Gl
 l'armistice enfin, les élections, l'Assemblée Nationale
 
 (1) J. Heimweh, Triple Alliance et Als.-Lorr., p. 13. : :
-
-2 Taipei ce ST MESSS ERE aé
 
 réunie à Bordeaux, et le traité préliminaire signé le $
 
@@ -1926,8 +1785,6 @@ G ne devait dater que du jour où, comme ils disaient, « le paiement
 
 a aurait été reconnu ». Or, ce comptage et cette vérification deman-
 
-# i ? avai intérêt à s Û
-
 se daient du temps... L'Allemagne n'avait aucun intérêt à se presser
 
 : dans ses mouvements et à rapatrier ses troupes. C'était le Trésor
@@ -1945,8 +1802,6 @@ A sigeante et pointilleuse. »
 .: (1) Tous ces chiffres sont pris dans les documents publiés par
 
 cie Villefort, Recueil des traités.
-
-de
 
 la carte au liséré vert
 crédit de l'Allemagne ou quinze au débit de la France,
@@ -1974,9 +1829,7 @@ des négociations, Keller, député du Haut-Rhin, apporta
 des départements menacés, la protestation de l'Alsace
 et de la Lorraine, (3) déclaration éloquente et nette
 
-(2) 1d., Vue générale…., p. 215. Voir aux Annexes.
 (3) Voir aux Annexes. d
-|
 
 à qu'avait rédigée Gambetta, triple affirmation solennelle,
 
@@ -2047,7 +1900,6 @@ gravement, -dit les raisons profondes pour lesquelles
 (1) J. Favre, Gouvernement de la Défense Nationale, tome IL, à
 p. 118, cité par Hanotaux, Aist. contemp., t. 1, p. 120.
 
-1 nie EL ERES Le, ne ARE k } Ë
 _  VAssemblée ne devait pas donner, par son vote, au
 4 . triomphe de la force une apparence de droit :
 -.
@@ -2093,7 +1945,6 @@ fait sceptre, la parole muselée, la pensée garrottée, la
 conscience agenouillée; pas de tribune! pas de presse!
 les ténèbres ! » tandis que « l'autre, la vaincue, aura la
 lumière. » L'Allemagne aura aussi deux provinces de
-plus ? Non.
 
 Possession suppose consentement. Est-ce que la Turquie
 possédait Athènes ? Est-ce que l'Autriche possédait Venise ?
@@ -2143,8 +1994,6 @@ Convention, sauva la France républicaine ».
 à Enfin Keller remonta à la tribune : entre le 17 février
 et le 1°" mars, la réalité s'était dressée, et il ne lui restait
 plus sans doute qu'à ensevelir ses espoirs, les espoirs
-
-de l'Alsace et de la Lorraine :
 
 . A l'heure solennelle où nous sommes, vous n'attendez pas
 
@@ -2311,7 +2160,6 @@ vous me faites Allemand. » Et Villerupt resta fran- :
 Le 18 mai, l'Assemblée adopta les conclusions du É
 rapporteur, et l'échange fut consigné définitivement
 _ dans le traité. (2) Sans doute Belfort et son rayon, à i
-cause de l'importance de la ville, de sa situation, de À
 sa courageuse défense, de la victoire diplomatique Rs:
 remportée par Thiers, constituait un avantage intéres- 4
 sant pour nous. Mais la compensation n'était pas mince —
@@ -2506,21 +2354,6 @@ lemportait sur un droit national certain. L'AlsaceLorraine était désormais, au
 | allemande; et le liséré vert allait devenir, sur les
 cartes des écoles de France, un liséré noir.
 
-RAR A ane A AR k CAR AREA SRE
-ar OU Er MALE ve A ASTRA AC FORM RC TEA D PAT UE ES
-Re DR Lee MIE Nr à AR le nee RU INT A:
-te MT sd ra 4 î RE NME Le EU des à à ;
-LOS Le # 6 ie FE FOCUS RSRENS
-PARA ec d : k ' È M An Le nd
-Re NE SL AU AT Gel RU nl LTER à ja es Mir
-> PME SPAS RE CEA ORNE D NPA “HEAR OERE NES
-
-D Re are MAR al AE NAN EURE ACAN REA ET:
-on RES LANE à MG f DRE à Dr
-
-EAU D DANS TEEN VAT UNE Er Lu nue AC den nié te US SRE
-
-| DE LA FRANCE
 On s'en souvient peut-être : Louis Blanc et plusieurs
 des orateurs qui avaient protesté à Bordeaux contre la
 à cessation de la guerre (r) s'étaient appuyés sur ce principe, entre autres, que la France n'avait pas le droit
@@ -2536,7 +2369,6 @@ faite, quelque eflrayants désastres que la France ait
 subis, matériels et moraux, collectifs et individuels, elle
 reprit peu à peu sa vie normale, elle persévéra dans
 son être d'avant la guerre. Les Français restaient
-(1) Voir chap. précéd., p. 79.
 
 . la carte au liséré vert FRET
 Français. Sans doute, les soldats ennemis occupaient |
@@ -2697,7 +2529,6 @@ naires du pays. C'était là une conduite libérale, les intérêts de à
 l'Etat n'ont jamais eu à en souffrir, et la province, administrée
 en grande partie par ses concitoyens, gardait ainsi une sorte à
 
-_ cac RANÇON DE LA FRANCE |
 < qois appartenaient », la commission d'initiative parle-
 -  mentaire convint que cette proposition « provoquait ;
 Le _tout d'abord la sympathie », mais demanda qu'on ne
@@ -2816,8 +2647,6 @@ l'hôpital civil. (3) Une de ces Facultés strasbourgeoises
 l'Alsace, ses membres seraient-ils encore plus désemparés que d'autres : les professeurs de la Faculté de
 a (x) Schutzenberger, Rapp. sur les trav., p. 5.
 
-nu. SALE RANÇON DE LA FRANCE
-
 _ théologie protestante, tous luthériens, sauf un, ne
 #4 pouvaient guère songer à se replacer en France, où il ‘
 - n'y avait qu'une Faculté sœur, ou demi-sœur, la Faculté,
@@ -2878,9 +2707,6 @@ personne, — gêne intime et limitée, — mais qui, audelà d'elle, engagent l
 l'histoire allemande, et à l'allemande : méthode patriotique, ardemment, presque exclusivement, qui ne se
 préoccupe guère de faire à l'usage des écoles primaires de la science impartiale et sereine : l'Allemagne,
 « bienfaisante à tous, à personne redoutable »; Charle106
-
-| LÉ
-#& . RANÇON DE L£ FRANCE
 
 _  magne, empereur allemand, rien qu'allemand; (1) l'AIsace insidieusement ravie par Louis XIII et Louis XIV,
 
@@ -3028,7 +2854,6 @@ provoqua, sans intention, mais non sans tumulte, le
 règlement de la question. Par cette lettre, du 26 juillet
 1872, lue en chaire dans toutes les paroïsses de son dio-
 : cèse, y compris les annexées, (1) Mgr. Foulon annonçait
-(1) Par l'article 9 de la Convention additionnelle du 11 dé-
 
 cembre 1871 et en attendant les arrangements définitifs prévus ë
 par l'article 6 du traité de Francfort, les évêques établis dans les
@@ -3058,7 +2883,6 @@ Fr (1) F. Klein (abbé), Dupont des Loges, p. 341.
 s (2) Décrets pontificaux des 10 et 14 juillet 1874 : « … ut Argen-
 … diatam, erga Sanctam Sedem apostolicam, in ecclesiasticis et spiritualibus subjectionem. » (Villefort, Recueil des traités, {. IV, p. 127)
 
-| ne ER _
 la carte au liséré pert VOTES
 hésiter : on serait sans doute, en restant, à la merci c
 du pouvoir nouveau, d'un pouvoir dont l'hostilité poli
@@ -3096,8 +2920,6 @@ français morts pendant le siège de Metz. 5
 
 Mgr. Dupont des Loges au feld-maréchal de Manteuffel, quand il
 x refusa la croix de la Couronne de Fer (16 décembre 1876). .
-
-4  : jap RANÇON DE LA FRANCE
 
 | parce que succédait pour eux, à l'inconvénient d'avoir
 
@@ -3144,8 +2966,6 @@ autres, au contraire, empêcher l'invasion des pasteurs
 
 D CCG Fischbach, Siège de Stre, p.55.
 
-(2) Cf F. Lichtenberger, A!s. pend. la guerre, p. 13.
-
 la carte au liséré vert
 d'outre-Rhin qui ne manqueraïient pas de venir, officiants
 à la suite, sanctifier le résultat de cette guerre tant
@@ -3155,7 +2975,6 @@ de conférences au profit des victimes de la guerre en
 France, Sabatier, professeur à la Faculté de théologie -
 protestante, prit pour sujet : Guillaume le Taciturne,
 et termina par cette péroraison : QÏl a résumé lui-même
-sa vie dans la devise de sa maison, qu'il a léguée à la
 Hollande et à tous les peuples opprimés comme l'immortelle protestation du droit courbé sous la force : Je
 maintiendrai ; il n'a eu, pour être ce qu'il a été, qu'à lui
 rester fidèle »; (1) lorsqu'aux offres de l'Université allemande Lichtenberger répondit en montant une dernière
@@ -3173,7 +2992,6 @@ ardeur à la France de ce que la Révolution avait fait
 pour les Juifs : l'annexion à l'Allemagne, c'était un
 retour en arrière, très loin. Le grand-rabbin de Metz,
 G) 16 janvier 1872. Cité par H. Dartigue, Aug. Sabatier à Str.
-6) Cf. Lichtenberger (F.), Protest. et Guerre de 1870, pp. 1-2.
 
 | le grand-rabbin de Colmar, s'en allèrent; celui-ci, dans
 …_ un dernier sermon, avant de quitter son temple,
@@ -3237,11 +3055,9 @@ Mais aussi, l'autre angoisse, toujours la même : quelle 4
 vie nouvelle pourrait-on se créer en rentrant en
 
 France 2... Sur 276 notaires, 172 seulement restèrent en
-(1) Cf. Flach (G.), Notar. en Als.-Lorr.; Bernard (E.), Réf. du Not. ;
 
 .
 
-à 22 de, idee an tas bu
 D fonctions. Oui, quelle vie nouvelle, si l'on partait ?
 É | Voyez les avoués de Metz. La loi du 25 mars 1872 les
 tee | autorisa bien à venir s'établir près la Cour d'Appel de ï î
@@ -3272,7 +3088,6 @@ par la Compagnie de l'Est : les chefs de garé, malgré
 *, les sollicitations pressantes dont ils étaient l'objet, et
 D. presque tous les « commissionnés », même natifs du à
 M. & Assemblée Nationale, 23 mai 1874, dans : A. Villefort, Recueil
-. des traités, t. III, p. 692. v
 
 la carte au liséré vert
 pays, rentrant en France, (1) — les sous-ordres, désemparés, petits propriétaires d'un bout de champ au voisinage de leur barrière ou de leur lampisterie, matriculés
@@ -3308,9 +3123,6 @@ partie du réseau, il n'en resta que 300 en Alsace-Lorraine. :
 
 (2) Décret du 11 décembre 1851. Cf. Emm. Fochier, Exploit. Chem. î
 
-|
-
-| RANÇON DE LA FRANCE
 $ de la houiïlle, du coton et de toutes les autres matières
 nécessaires à la fabrication », n'avaient pas laissé
 chômer leurs ateliers; maïs, faute de prompts débouchés, la production s'arrêterait fatalement; la crise était
@@ -3370,7 +3182,6 @@ sions relatives à la délimitation de la frontière, Hayange à
 et Cirey faire valoir des considérations économiques en ;
 () Cf. G. Bergmann, Rapport, p. 10-11. Voir aux Annexes. 4
 
-& ce RANÇON DE LA FRANCE
 …. faveur de leur maintien sur territoire français. Du jour
 _ au lendemain, les forges et fonderies, les fabriques de
 ee glaces et de cristaux lorraines, les manufactures alsa-
@@ -3413,7 +3224,6 @@ de filature et de tissage — 500.000 broches de filature
 et 17.000 métiers à tisser — se voyaient « enlever tout
 à coup les moyens de donner à leurs produits écrus les
 façons indispensables du blanchissage, de la teinture
-et de l'impression... » (1)
 
 Voilà, d'une vue rapide, quelques-unes des situations
 produites par le traité de Francfort dans les départements qu'il enlevait à la France, quelques-unes des
@@ -3462,7 +3272,6 @@ moi national et l'aversion pour le non-moi étranger, (1)
 (:) Cf. E. Lavisse, Vue Générale, p. 86-88, sur la formation de
 Vâme française dans la guerre de Cent ans : la guerre « dure,
 elle est longue, elle est atroce. D'année en année, croît la haine
-ch de l'Anglais. Au contact de l'étranger, la France se prend à se
 connaître, comme le moi au contact du non-moi »,
 
 la carte au liséré vert ENT
@@ -3498,7 +3307,6 @@ Nationale, le 15 septembre 1871, sur la proposition de Keller, avait $
 draient se fixer en Algérie comme colons. Dès la fin de 1872, il à
 en était arrivé 2.500. k
 
-à au 4 RANÇON DE LA FRANCE
 <a Le 1° octobre 1872, près de 60.000 personnes étaient
 # parties. (1) Beaucoup ne revirent jamais la fumée du toit
 k. natal. Beaucoup, voulant un jour faire une rapide
@@ -3520,24 +3328,6 @@ maintenir, comme eût dit le Taciturne.
 “4 (1) Le nombre des options déclarées en Alsace-Lorraine s'éleva
 4 à 160.000 environ, dont 100.000 furent annulées pour navoir pas
 3 été suivies de départ effectif. (Le mouvement d'émigration se conES: tinua pendant longtemps : on compte qwenviron 35.000 personnes
-
-ÉVALUE col ES A OA AURAI RE PET PATENT ENS eq et CES
-
-ds Sa A nd |
-RES ASE il à Mens
-
-AO NERE NS TA RE RE RE CS EAU RE Ten ne PAL CAES PANTIN BR NIUE + SV
-ne mA Ne eee et
-fe PR TE PE DCE TUE TA en A NE Ent SE Rp ie
-LE PPT PR CAT SAR à SUN CN en Me ; Pl es PRES EN U
-| COSRFEUREE = Ve
-| 1 TPRERR pe LU HENT ÉMONEN
-7) SC EAN ANNE PNR ÉCRAN Ho Lei drink TON RTR SE RENE
-
-NT Re At A IRAN NUE AMOR EE ee DU
-SES AU Dettes € RTE HE re LD 24 A ET IENEESS
-MR Ne ST Li e ” MT Rte PE RER
-MA ne NE L'ORIENT A EE ES
 
 ; La Prusse avait mené la conquête; elle dirigea l'ork ganisation du pays conquis. Souverains d'un « Etat
 3 allemand fondé hors des frontières d'Allemagne », (1)
@@ -3616,7 +3406,6 @@ doute d'avoir, en 1866, après Sadowa, triomphe préparatoire d'autres triomphes
 « dont la paternelle prévoyance, en répandant avec
 tant de zèle l'enseignement populaire, a jeté les germes
 
-la carte au liséré vert Fi TNT NES
 dont on récolte aujourd'hui les fruits ». (1) Et à son tour, Ë
 d'une main impatiente, il semait la même graine. ;
 La proclamation du gouverneur général, au mois
@@ -3754,7 +3543,6 @@ même parfois (pour la presse, par exemple) du bénéfice
 Loi du 6 juin 1868 (2) soumettant les réunions (politi- j
 ques ou religieuses) à l'approbation du sous-préfet, (3)
 
-|
 avec droit d'entrée dans la salle pour un délégué de ‘4
 l'administration, qui peut, dans certains cas, dissoudre
 
@@ -3765,8 +3553,6 @@ cité par A. Laugel, Acen. intell., p. 251. J
 préfectures (départements et arrondissements) avait été maintenue F
 par le gouverneur général; elle le fut aussi par la loi du 30 dé-
 cembre, et subsiste toujours. È
-
-#
 
 _ la réunion; loi du 10 avril 1834 et décret du 15 mars
 Êr 1852 laissant les associations libres jusqu'à vingt mem-
@@ -3866,10 +3652,8 @@ D (2) Discours du député Sonnemann, de Francfort, 16 mai 1872
 : (Cf. Ristelhueber, Bibliogr. alsac., 1873, p. 38), qui fut un des rares
 opposants allemands à l'annexion de l'Alsace-Lorraine par la
 ë force (on se rappelle, parmi ce petit groupe, les noms du
-2 D: Jacoby, de Ch. Vogt, de Bebel, de Liebknecht, — et le D: Kryger,
 3 député du Sleswig-Nord au Reichstag, dont le pays avait subi le
 
-Re on
 la carte au liséré vert. RG
 naux, tous avec des attributions très étendues — que 4
 chaque jour des incidents nouveaux irritent les esprits. $
@@ -3943,8 +3727,6 @@ X politique venant d'Allemagne doit, pour avoir chance obtenir
 “ nationale. Ce qui a fait la popularité de l'armée française chez
 
 -  lAlsacien, c'est son organisation démocratique... »
-
-et
 
 4 141
 
@@ -4217,7 +3999,6 @@ avec étoile », qu'il lui transmettait de la part de l'empe-
 4 surveillance et d'action germanisatrice; si bien qu'entre
 _ les Allemands qui lui reprochaient sa modération et les
 1j Alsaciens-Lorrains qui la lui rendaient difficile, il per-
-ë () Cf. G. May, Occup. du territ., p. 37.
 
 : la carte au liséré vert Fi
 dait patience, et sévissait. Jacques Kablé, le député de
@@ -4387,7 +4168,6 @@ cimetières », comme dit un jour, au Reïichstag, en parS lant de cette époque
 : s'étaient fait élire en 1890, ne devaient leur succès qu'à
 À la lassitude affolée de leurs électeurs : voter pour des
 3 candidats « de conciliation », comme Zorn de Bulach,
-; dans la circonscription de Molsheïm, en 1890, ou, en -
 4 1893, pour des candidats ofliciels, directeurs d'arron-
 É- dissement, dans leurs propres arrondissements, comme
 3 Poehlmann à Schlestadt, ou Alexandre de Hohenlohe à.
@@ -4416,8 +4196,6 @@ s dans la bourgeoisie indigène de Strasbourg, qu'il fallait voter pour
 4 de 1893 donnèrent, sur 237.000 suffrages exprimés, 73.000 voix aux
 
 EE candidats du gouvernement, 165.000 aux opposants (Alsaciens-
-
-> P: 107.
 
 la carte au liséré vert ‘ :
 revenir les parents, les amis, les clients de France, rentrer un peu d'air libre... Ils comprenaient maintenant
@@ -4481,7 +4259,6 @@ pas rêveries vagues et constructions sur le sable : les
 $ venue, d'outre-Rhin, prendre la direction des affaires du
 FA pays, occuper les places qu'avait refusées, au lende-
 $ main de la guerre, la fierté des Alsaciens; mais tous, :
->
 
 la carte au -hisené perte FES
 merveille pour faire de l'Alsace-Lorraine « un champ
@@ -4774,7 +4551,6 @@ Quel est le résultat de ce long effort ? quelles modifications ont été apport
 Lorraine et à la vie politique des Alsaciens-Lorrains?—
 Une loi nouvelle d'Empire a modifié heureusement les
 : conditions du droit de réunion et d'association (1907), À
-et le Paragraphe de la Dictature a été aboli (1902). Les E
 rigueurs se sont, actuellement, adoucies. On surveille ne
 toujours autant, (1) mais on arrête et on expulse moins. |
 Les « réfractaires » ne se risquent pas davantage à “à
@@ -4802,7 +4578,6 @@ de sympathies pour la France, et dont les noms seraient soumis &
 - à l'autorité militaire en cas de conflit. à
 
 et le chiffre du traitement, on paraît « autonomiste »,
-ou « rallié ».
 
 Malgré ces améliorations, de droit et de fait, les Alsaciens-Lorrains n'ont encore rien obtenu quant à l'essentiel de leurs revendications. La Délégation n'est toujours
 pas un Parlement. La Terre d'Empire n'a toujours pas
@@ -4899,9 +4674,7 @@ activité fluviale de la capitale alsacienne. Là se déchargeaient les bateaux 
 de Hollande, pour emprunter la voie des chemins de
 fer badoïs qui transportaient ensuite leurs marchandises vers le Sud, — là se transbordaient, vice versa,
 de wagons à bateaux, les chargements provenant du
-midi de la France et de lItalie à destination du Rhin
 
-Dès la fin de 1871, la Chambre de Commerce de
 Strasbourg avait demandé aux pouvoirs publics la
 création d'un canal latéral au Rhin, qui, partant de
 situé en face de Mannheim. Mannheim se sentit aussitôt
@@ -4986,7 +4759,6 @@ même fin de non-recevoir; et que des travaux d'aménagement du fleuve ont comme
 détails des projets en cours d'exécution, dont l'examen
 nous entraïînerait trop loin) profiteront d'abord à
 Carlsruhe, plus tard seulement et d'une façon plus
-| problématique, à Strasbourg. |
 | Tandis que la question du canal intéressait deux
 États confédérés en même temps que la Terre d'Empire,
 ; celle de l'enseignement du français n'intéressait qu'elle
@@ -5097,8 +4869,6 @@ qui réclament cet enseignement; d'autre part, un clan
 des publications poursuivies; celui qui a provoqué et dirigé la  #
 campagne de presse est un autre. » .
 
-#
-
 de pangermanistes, les Gneisse et consorts », qui sy
 
 ; à deux mois de prison... L'Alsace-Lorraine enseignera
@@ -5121,8 +4891,6 @@ continue, active, avec des accès d'humeur « dictato-
 $ riale », comme il l'est toujours, on sait seulement qu'il :
 
 | n'y a guère réussi. Entre les immigrés et les indigènes,
-
-il y a superposition, ou juxtaposition, — il n'y a pas
 
 _ fusion. (1) Ceux qui sont venus d'outre-Rhin pour
 
@@ -5222,8 +4990,6 @@ k de évolution du génie enr dans le sens du génie français
 
 x qui séparent de l'Allemagne le génie alsacien. »
 
-| j
-
 la carte au liséré vert AVES
 de Barberousse ou de Habsbourg, mais celle de Keller- ;
 mann, de Kléber et de Lefèvre, de Dollfus, de Risler et
@@ -5284,8 +5050,6 @@ Révolution française et combattu d'un même élan pour
 
 actuel de Strasbourg.
 
-He ROIS ET RE SRE RENE RRE à de ubies
-Dee PS la carte au lisé ré ver! + ARTE ÉTEE
 la défendre, sans « être agis » par ce commun souvenir 5
 jusqu'en de lointains descendants. (1) Aussi « le peuple ETS
 conquérant » en estil arrivé lui-même, dit Werner
@@ -5302,7 +5066,6 @@ ETS comte Zeppelin au-dessus de Strasbourg et de l'Alsace ne sauraient
 “nt produire sur l'esprit du peuple une impression comparable à la
 UE prise de la Bastille ou aux victoires des armées républicaines ou sir
 
-LL à né a 2 nf RSA Est SES L
 Il est difficile, pour un Français, — surtout quand il
 
 F a, comme on dit vulgairement, mais énergiquement,
@@ -5480,26 +5243,9 @@ mon jeune ouvrier lorrain, que ce qui vient de France
 ne meurt pas si vite, et que beaucoup de choses vivent
 | en eux, qui leur parlent toujours d'elle. !
 
-ME À te NE A Es SENS, AU (PRES AREAS à ;
-: rte (AC EP RS PAU Le UE ALU RTE QE se ‘ai
-
-A RAA) on EVA id nr LU 62 ete Ed RSS SA Ne te rer M REA AE
-1e n SOIR UE x HR la RAP 0 AI De SR RS A CSN SES CNE Er LAS NS Lea
-D ui en Ni eo e
-
-de, AU Re ne ete CORNE DE ÈS Eu
-FAN re NE Tan lue) RIRE SR RER nn: ENT
-
-{A Vus " Le * bar CENTRE Fe PONER
-. re ot ; Ta “Ir ON AE L !
-
-TE ET NES DIN CNE. AL er ta & rte REX M Se He ANS
-
 Déclaration des représentants de l'Alsace
 et de la Lorraine à l'Assemblée Nationale
-| Session 1871
 Annexe au procès-verbal du 16 février 1871
-| PROPOSITION
 relative à la déclaration des députés des départements du
 Bas-Rhin, du Haut-Rhin, de la Moselle, de la Meurthe et
 
@@ -5535,16 +5281,13 @@ vahisseur, leur inébranlable fidélité. é
 Tous unanimes, les citoyens demeurés dans leurs foyers é
 comme les soldats accourus sous les drapeaux, les uns en à
 votant, les autres en combattant, signifient à l'Allemagne 4
-et au monde l'immuable volonté de l'Alsace et de la À
 Lorraine de rester terre française. :
 IT. — La France ne peut consentir ni signer la cession ï
-de la Lorraine et de l'Alsace. 1
 Elle ne peut pas, sans mettre en péril la continuité de son ‘4
 existence nationale, porter elle-même un coup mortel à sa À
 propre unité en abandonnant ceux qui ont conquis par ;
 deux cents ans de dévouement patriotique le droit d'être
 
-| /
 défendus par le pays tout entier contre les entreprises de
 la force victorieuse. É
 Une Assemblée, même issue du suffrage universel, ne
@@ -5557,7 +5300,6 @@ aux justes sévérités de l'histoire ceux qui s'en rendraient
 , La France peut subir les coups de la force; elle ne peut
 sanctionner ses arrêts. È
 IX. — L'Europe ne peut permettre ni ratifier l'abandon
-de l'Alsace et de la Lorraine. ù
 Gardiennes des règles de la justice et du droit des gens,
 les nations civilisées ne sauraient rester plus longtemps é
 insensibles au sort de leur voisine, sous peine d'être, à
@@ -5578,9 +5320,7 @@ contre toute cession; la France ne peut la consentir,
 témoin que nous tenons d'avance pour nuls et non avenus
 1 tous actes et traités, vote ou plébiscite, qui consentiraient
 
-2 la carte. au, liséré or PEER
 rl _ abandon, en faveur de l'étranger, de tout ou partie de nos ne
-f. provinces de l'Alsace et de la Lorraine. ! us
 À à Nous proclamons, par les présentes, à jamais inviolable
 le droit des Alsaciens et des Lorrains de rester memibres
 = _ de la nation française, et nous jurons, tant pour nous que LE
@@ -5589,25 +5329,20 @@ Rte de le revendiquer éternellement et par toutes les voies
 envers et contre tous usurpateurs. STE TA ENES
 5 Les soussignés, représentants à l'Assemblée Nationale, s
 De déposent sur le bureau de la Chambre la proposition sui
-? vante : ne S 5
 « L'Assemblée Nationale prend en considération la décla
 UE ration unanime des députés du Bas-Rhin, du Haut-Rhin,
 __ de la Moselle, de la Meurthe et des Vosges. » DR
-## 5 “80
-de re.
 
 : Traité de Francfort
 Entre le Chef du Pouvoir exécutif de la République fran- à
 çaise, M. Thiers, et le Ministre des affaires étrangères,
 M. Jules Favre, représentant la France,
 D'un côté; F
-4 Et de l'autre, ï
 Le chancelier de l'Empire germanique, M. le comte Otlo -
 5 de Bismarck-Schœnhausen, muni des pleins pouvoirs de
 S. M. l'Empereur d'Allemagne, Roi de Prusse;
 F Le Ministre d'État et des affaires étrangères de S. M. le
 -Roi de Bavière, M. le comte Otto de Bray-Steinburg;
-Le Ministre des affaires étrangères de S. M. le Roi de
 = Wurtemberg, M. le baron Auguste de Waechter ;
 Le Ministre d'Etat, président du Conseil des Ministres de
 _ S: A.R. Monseigneur le Grand-Duc de Bade, M. Jules Jolly,
@@ -5654,7 +5389,6 @@ non loin de Vourvenans, pour traverser le canton de Delle, ;
 aux limites méridionales des communes de Bourogne et de ;
 Froide-Fontaine, et atteindre la frontière suisse, en longeant 4
 
-. ir RSS TARN NE ARE cos
 les frontières occidentales des communes de Jonchery et
 de Delle.
 L'Empire allemand possédera ces territoires à perpétuité,
@@ -5672,7 +5406,6 @@ du territoire formant le gouvernement général d'Alsace, è
 publiée à Berlin, en septembre 1870, par la division géogra-
 | phique et statistique de l'état-major général, et dont un
 exemplaire sera joint à chacune des deux expéditions du
-| présent Traité.
 Toutefois le tracé indiqué a subi les modifications sui-
 À vantes de l'accord des deux Parties contractantes : dans -
 j lancien département de la Moselle, les villages de Sainte- \
@@ -5779,7 +5512,6 @@ aucune mesure atteignant leurs personnes ou leurs proDe priétés.
 . Les prisonniers de guerre qui n'auront pas déjà été mis |
 - en liberté par voie d'échange seront rendus immédiatement
 4 199
-> PS . r
 
 la carte au liséré vert Fe
 3 après la ratification des présents Préliminaires. Afin d'accé-
@@ -5806,10 +5538,8 @@ compte du Gouvernement français et par le moyen de ses #
 Il est bien entendu que les présentes ne peuvent donner 2
 à l'autorité militaire allemande aucun droit sur les parties k
 du territoire qu'elle n'occupe point actuellement. 41
-ne
 “Les présentes seront immédiatement soumises à la ratifi- à
 cation de l'Assemblée Nationale française siégeant à Bor- à
-à deaux et de S. M. l'Empereur d'Allemagne. #
 
 Ÿ En foi de quoi les soussignés ont revêtu le présent Traité
 préliminaire de leurs signatures et de leurs sceaux.
@@ -5845,10 +5575,8 @@ Stipulant au nom de $S. M. l'Empereur d'Allemagne,
 ; S''élant mis d'accord pour convertir en Traité de paix
 | définitif le Traité de préliminaires de paix du 26 février de
 
-+ PMarcante an \isene tent ne FREE
 l'année courante, modifié ainsi qu'il va l'être par les dispo à
 sitions qui suivent, Ê * a
-Ont arrêté : 540
 
 La distance de la ville de Belfort à la ligne de frontiere, “3
 
@@ -5901,7 +5629,6 @@ Traité, pour exécuter les travaux qui lui incombent et pour 6
 
 faire le tracé de la nouvelle frontière, conformément aux 24
 
-#4 A LALESS 2 2s :
 Les sujets français originaires des territoires cédés,
 _ domiciliés actuellement sur ce territoire, qui entendront conserver la nationalité française, jouiront jusqu'au
 1 octobre 1872, et moyennant une déclaration préalable
@@ -5933,7 +5660,6 @@ les communes et les établissements publics des territoires
 > Le montant des primes d'enrèlement et de remplacement appartenant aux militaires et marins originaires des
 territoires cédés qui auront opté pour la nationalité alle-
 
-| mande ;
 3 Le montant des cautionnements des comptables de
 
 la carte au liséré pert 8) :
@@ -5961,7 +5687,6 @@ trente jours qui suivront le rétablissement de l'autorité du |
 Gouvernement français dans la ville de Paris. Un milliard |
 sera payé dans le courant de l'année et un demi-milliard au
 1° mai 1872. Les trois derniers milliards resteront payables |
-# 1} £
 
 au 2 mars 1874, ainsi qu'il à été stipulé par le Traité de paix
 préliminaire. A partir du 2 mars de l'année courante, les
@@ -6044,7 +5769,6 @@ en France sera maintenu pour un espace de temps de six ; 3
 mois, depuis le 1° mars, dans les conditions faites avec les 50
 délégués de l'Alsace. F::
 
-#5 ARTICLE 10
 4 Le Gouvernement allemand continuera à faire rentrer les
 We prisonniers de guerre, en s'entendant avec le Gouvernement
 français. Le Gouvernement français renverra dans leurs
@@ -6117,7 +5841,6 @@ Les bâtiments allemands qui étaient condamnés par les É
 conseils de prises avant le 2 mars 1871 seront considérés |
 comme condamnés définitivement. à Fi
 
-Son ANNEXES
 Ceux qui n'auraient pas été condamnés à la date sus- :
 indiquée seront rendus avec la cargaison en tant qu'elle
 { existe encore. Si la restitution des bâtiments et de la cargaison n'est plus possible, leur valeur, fixée d'après le prix
@@ -6140,14 +5863,11 @@ Les ratifications du présent Traité par l'Assemblée Natio_  nale et par le Ch
 1 Française, d'un côté,
 
 ARR NE la carte tau-liSéré vert PORN
-à Et, de l'autre, par S. M. l'Empereur d'Allemagne, PALPRRES Re.
 k « Seront échangées à Francfort dans le délai de dix jours,
 ou plus tôt si faire se peut. re RE.
 En foi de quoi les Plénipotentiaires respectifs l'ont signé
 k et y ont apposé le cachet de leurs armes. : ne.
 Fait à Francfort, le ro mai 1871. TIC
-| {L. S.] PouYER-QUERTIER. (EL. S.) ARNIM. ESS
-ll et
 ï $ 1. — D'ici à l'époque fixée pour l'échange des ratifications 5
 du présent Traité, le Gouvernement français usera de son
 droit de rachat de la concession donnée à la compagnie du
@@ -6246,7 +5966,6 @@ canton de Giromagny.
 
 Fait à Francfort, le 10 mai 1871.
 
-FIL SAS RES FETE he SUR PSE Le PR EME Set 2 RTE NC CIRRERE
 ee : au Traité de Paix entre la France et l'Allemagne
 (douanière et territoriale) Fr SE
 2e M. Augustin-Thomas-Joseph Pouyer-Quertier, membre de
@@ -6265,7 +5984,6 @@ Le Stipulant au nom de l'Empire allemand, Fe S
 Fe Ont arrêté ce qui suit : 5 ”
 Ce Les produits fabriqués dans l'Alsace-Lorraine ‘seront
 ne ee admis en France aux conditions ci-après fixées : NN
-“4 A 1° Du 1° septembre au 31 décembre de la présente ADR ï
 _  * franchise de tout droit de douane; ; LT
 
 _ 2° Du r° janvier au 30 juin 1872, un quart; et du 1° juillet
@@ -6297,7 +6015,6 @@ sur la base du droit applicable aux produits fabriqués en
 Alsace-Lorraine, la quotité afférente au supplément de travail reçu dans les territoires cédés.
 pe Les produits français tels que l'amidon, les fécules, les
 _ matières tinctoriales, les produits chimiques et autres
-à Les
 
 FAN matières analogues propres aux apprêts, introduits dans les
 & ie fabriques ou dans les manufactures de l'Alsace-Lorraine et M
@@ -6347,8 +6064,6 @@ approuvés par le Gouvernement français. \
 
 4 Le Gouvernement lésé pourra priver le chef d'établisse-
 | ment coupable de linfraction du bénéfice des clauses qui
-| ‘ précèdent.
-| ARTICLE 9 Ê
 
 Pendant la durée de la présente Convention, les marchés
 
@@ -6369,7 +6084,6 @@ Le Gouvernement allemand rétrocédera à la France : k
 1° Les communes de Raon-les-Leau et de Raon-sur-Plaine,
 exclusivement de toute propriété domaniale ainsi que des
 x propriétés communales et particulières enclavées dans le
-# Le { £
 
 la carte au liséré vert TN
 °° La commune d'Igney et la partie de la commune d'Avri- À
@@ -6391,7 +6105,6 @@ Les deux Hautes Parties contractantes sont convenues de
 remettre en vigueur l'article 28 du Traité conclu, le 2 août '
 1862, entre la France et le Zollverein, concernant les marques |
 et dessins de fabrique. 1
-|
 La présente Convention sera ratifiée par S. M. l'Empereur À
 d'Allemagne après le consentement du Conseil fédéral et
 du Parlement de l'Empire, d'une part, et le Président de
@@ -6426,13 +6139,11 @@ maître étranger. Je m'explique par un exemple : le principe
 Re par la force Milan et Venise; mais il permettait à Milan et
 4 à Venise de s'affranchir de l'Autriche et de se joindre volontairement au Piémont. Vous voyez la différence. Ce prin-
 
-Co feu donne/aucun Sur Cle Na PAIN eRenns AAA Ite ;'ATUI NE
 440 « Il n'est pas ce que vous croyez. H constitue un droit \
 Ets pour les faibles ; il n'est pas un prétexte pour les ambitieux. ‘16
 UE pate Le principe de nationalité n'est pas, sous un nom Dove TS
 qe le vieux droit du plus fort. » ae F1 : 1
 . Ernest Lavisse. — Vue générale sur l'histoire politique 1
-ne Us de l'Europe, p. 215 : Dir D.
 "e FAST « Il est difficile de faire comprendre à des étrangers frere
 | pourquoi la France ne peut se résigner à la perte de/Ses iii AU
 Gb | provinces : &« C'est la loi de la guerre », disent les Ale JUS
@@ -6464,7 +6175,6 @@ Hi il la défaite, un honneur singulier : le redressement du tort … ‘4
 l_ Gui nous a été fait serait une satisfaction donnée à la UM
 Ma raison et aux sentiments les plus généreux de notre temps. »
 
-£ La ACTES À ie our El FR NE FANS ANR PRE NAN RE AN ANTON RER D "SACS
 us fé _ des principaux ouvrages et articles consultés.
 14 AGKkER (Paul). — Le Théâtre alsacien (dans le Correspondant, One
 ‘1 _ Azserr (Henri). — La Force française en Alsace (dans la Le
@@ -6499,7 +6209,6 @@ BRUNETIÈRE (Ferd.). — Un manuel allemand de géographie
 
 (dans la Revue des Deux-Mondes, 1” juin 1876).
 
-CAHEN (L.) ET MaATmEz (A.). — Les Lois françaises de 1815 .
 à nos jours (in-18, Paris, Alcan, 1906).
 
 Cauquer (Arthur). — L'Alsace en 1814 (in-8°, Paris, Plon,
@@ -6525,7 +6234,6 @@ EnRHARD (L.). — La Question d'Alsace-Lorraine et Frédéric- À
 le-Grand (Extrait de la Revuc d'Alsace, Strasbourg, Schle- k
 sier et Schweikhardt, 1901). RUN 4
 
-| ET ARTICLES CONSULTÉS
 ELsreiN (G. D'). — L'Alsace-Lorraine sous la domination
 Fiscugacu (G.). — Le Siège de Strasbourg (in-4°, Strasbourg, |
 FLacn (G.). — Le notariat en Alsace-Lorraine (in-8', Strasbourg, Noiriel, 1874).
@@ -6570,7 +6278,6 @@ LarcHEy (Lorédan). — Le Pays Messin (dans la Lorraine de
 illustrée. — Voir : Prost). À
 Laucez (Anselme). — Le Théâtre alsacien (dans la Revue ' di
 alsacienne illustrée, 1900, 1907). 8 de
-# k
 
 MAN EAUGEL (Anselme).— L'Art alsacien, ses origines et Les con- 4
 ditions de son développement (Extrait du Bulletin de la Ë
@@ -6584,18 +6291,14 @@ je Û — — Études sur l'Histoire de Prusse (in-8°, Paris, Hachette, 1
 te — — Essais sur l'Allemagne impériale (in-12, Paris, va
 pr. — — Vue générale sur l'histoire politique de l'Europe FU
 a — — La Question d'Alsace dans une âme d'Alsacien (petit ù
-hi LERÉBURE (L.). — Le Drame de l'âme alsacienne au dix- f
 sp septième siècle. — De l'autonomie à l'union (1635-1681) \
 ‘1 (dans le Correspondant, 25 juillet 1908).
-1 _ LEFEBVRE DE BEHAINE. — Léon XIII et le prince de Bismarck ii
-At LEGRELLE (A.). — Louis XIV et Strasbourg (in-8', Paris,
 Dot Léon (Paul). — Fleuves, Canaux, Chemins de fer (in-18, ‘4 à
 ‘#8 — — Le Port de Strasbourg (dans la Revue alsacienne Le
 mir illustrée, 1904). il
 fe Le Roy pe Sainte-Croix. — Les Anniversaires glorieux de :
 Hi l'Alsace (1781-1848) (petit in-12, Strasbourg, Hagemann, ;
 10 Lévy (Isaac). — Adieu à l'Alsace (in-8", Paris, Sandoz et A
-ia À LicHTENBERGER (F.). — Le protestantisme et la guerre de
 
 index des principaux ouvrages |
 * LIGHTENBERGER (E.). — L'Alsace pendant et après la guerre 4
@@ -6620,20 +6323,13 @@ propriété et de la transmission des offices ministériels
 légende de Sainte-Odile (in-8', Paris-Nancy, Berger- 1
 
 — — La limite de la langue française et de la langue 3
-(Extrait du Bulletin de la Société de Géographie de l'Est, le
-
-— — Tableau de la Lorraine et de Nancy de 1041 à 1670 in
 
 — — Tableau de Nancy et de la Lorraine pendant le règne fe
-
-ProsrT (A.). — La Lorraine et l'Allemagne, Introduction à la (
 
 RaApnAËL (Gaston). — Le Rhin allemand (in-16, Paris,
 Cahiers de la Quinzaine, 1903).
 
 RAPPOLSTEIN (Alfred pe). — L'Alsace-Lorraine {1870-1884}
-
-REiBauD (Emm.). — Aperçu de la législation en vigueur en
 
 Reuss (Rod.). — L'Alsace au dix-septième siècle (2 vol. in-8',
 
@@ -6645,7 +6341,6 @@ Strasbourg, Noiriel; Paris, Sandoz et Fischbacher; 18691873).
 
 SamrT-Genis (Victor DE). — Histoire de Savoie, t. I (in-18,
 
-SCHEURER-KESTNER (A.). — Les représentants de l'Alsace et
 de la Lorraine à l'Assemblée Nationale de Bordeaux
 (in-8°, Paris, Berger-Levraull : Extrait de la Revue alsacienne, mai 1887).
 
@@ -6664,17 +6359,12 @@ STEPHANY (A.). — Les scandales allemands en Alsace-
 
 SorEL (Albert). — Histoire diplomatique de la guerre
 
-— — L'Europe et la Révolution, &. I, I, UE, VII, (in-8,
-
 | 227
 
-EN RO USINE ane RQ PDU PAL ARE Es ARR LAS qu le A de NE OR ,
 © Srraus (Émile). — La Nouvelle Alsace (in18, Paris, Éc tion
 
-HE % or de La Critique, 1902). A ELA AE € ja DA
 Teurscu (Edouard). — Notes pour servir à Phistoire à ER
 RAA l'annexion de l'Alsace-Lorraine (in-8, Nancy, Berge SAN
-_ VazgerT (F.). — La politique confessionnelle en Allemag ne
 BRUT | et en France (dans la Revue des Deux-Mondes, 1° juin 1879 Yan 7 UN
 À — — La réconciliation de M. de Bismarck et du Saint-Siège | 1
 Na LE (dans la Revue des Deux-Mondes, 1° octobre 1881). à 1 '
@@ -6683,30 +6373,23 @@ A AU décrets et autres actes relatifs à la paix avec l'Allemagne E
 5 oo  Wuss (J.-J.). — Au pays du Rhin (in-18, Paris, Chap }
 A WELSGHINGER (Henri). — Souvenirs sur l'Assemblée Natio- ‘A
 te nale (dans le Journal des Débats, 1908, 1909). i he À
-Go v4l WERNER (S.). — Le procès de Leipzig (in-18, Paris, Librairie 3 Ÿ
-| illustrée, s. d.) \ F8 ER
 __ in Elsass (dans la Revue alsacienne illustrée, 1900) (ad. re
 : A par André Korn : Le Génie national des races française MU
 Eu et allemande en Alsace, in-8°, Paris, Giard et Brière, 1903). PAU
 Aou — — Civilisation et patriotisme en Alsace-Lorraine (trad: nu M
 (ae et préf. par Henri Lichtenberger, Strasbourg, Édition de, ST
-NAN A la Revue alsacienne illustrée, 1909). 1e A ‘4
 Le #** — L'Alsace-Lorraine sous le régime allemand (dans la "M
 la Revue des Deux-Mondes, 15 mars 1878). A |
 rare “3% __ J7Alsace-Lorraine et l'Empire germanique (in-18,
 RCE L'Alliance franco-allemande, par un Alsacien (in-8°, Nancy, 19
-ON Berger-Levrault, 1888). ue LU “E
 “ sa Die Bevôlkerung in Elsass-Lothringen (A. Textlicher Teil) 2018
-Sa (in-8, Strasbourg, Bull, 1908). ROUE {00
 ES Les Débats sur l'abolition de la dictature en Atsace-Lorraine
 te Cas - (Séance du Reïichstag du 28 janvier 1885) (petit in-8', AA
 ? 1 | En Alsace-Lorraine (dans la Revue Bleue, 30 décembre 1899). !
 
-| AIS ET ARTICLES CONSULTÉS
 Ai …_ Les Murailles d'Alsace-Lorraine (in-f, Paris, Le Chevalier, H
 k° . | Notice sur l'industrie et le commerce de l'Alsace (Œxposition
 Li universelle de Vienne) (in-32, Strasbourg, Maurice Schauen-
-| bourg, 1873).
 
 Organisation du gouvernement — Alsace-Lorraine (Assem-
 | blée générale des maires et des notables, à Strasbourg,
@@ -6724,14 +6407,9 @@ La Revue alsacienne illustrée. (Strasbourg, 2, rue Brülée;
 
 trimestrielle). Directeur : M. le D' Pierre Bucher.
 
-pre SU et LE Ne RATS ARENA 1h
-> NET \ NI 4 SATA PEN ALEN NU PEUR
-LA AMEER F ! * né s'/LTANE EAN BA ii
-
 ' Quarante ans sont passés, et ce coin de la terre...... 3
 1. — Avant qu'il n'y eût Alsace ni Lorraine.  x15
 2. — Du Saint-Empire à la Révolution. .... x19
-dj TAISa Ce en Nu 20
 
 IV. — les Alsaciens-Lorrains, « rançon » de
 Mest difiicile, pour un Français. ....1.1: 10410183
@@ -6741,14 +6419,6 @@ I. — Déclaration des représentants de l'Alsace
 h et de la Lorraine à l'Assemblée Natiomale de/Bordeaux tisse tros TO E
 
 qualrième cahier de la onzième série,
-) IL —\ Traité de Francfort 42220000 PR OO |
 IL. —— Convention additionnelle au Traité de * V2
 Paix entre la France et l'Allemagne Jui |
-(douanière et territoriale). "IP eUNNaRE ÿ
 Index des principaux ouvrages el articles consultés." voor +4
-|
-|
-
-|
-|
-|

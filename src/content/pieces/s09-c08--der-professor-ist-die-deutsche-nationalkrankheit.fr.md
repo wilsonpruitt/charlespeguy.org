@@ -7,66 +7,25 @@ author: gaston-raphael
 isAvertissement: false
 wordCount: 30096
 ---
-F' : + ets MTL rot De AE +, L re \E:
-rs Los FRERE LR Que Re re. 27 led
-4 ENCRES REA RS TR LE ne RAT MAT NES ETC
-A PP Ne NA Sen VUS RE re, PA »
-#  FXDÉ Te Re 47 / we LT Me TUE Rp MEL LE
-À Me je MASSE <
-va À De LA
-TRE à FAR de
-Nr ts L
-LE TAN ex 7 EHESS
-
 Dans les vingt cahiers de leur cinquième série, année ‘à
 scolaire 1903-1904, nos cahiers ont publié :- |
 V-1. — HENRI DAGAN. — les massacres de Kichinef. 2 »
 V-o. — Pauz Duruy.— la vie d'Évariste Galois .. 2 » Ÿ
-V-4. — Romain RozLanD. — Le Théâtre du Peuple. 3 50 Rs)
-V-5. — GEORGES CLEMENCEAU. — Discours pour la
-hberte: #55. Ne laure PU TRE NES
 V-6. — DANIEL HALÉvy. — Histoire de quatre ans,
 ; V-7. — Henri Michel.— Notes sur la Hollande et sur L
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud.—
-Moines'de V'ALROS 552.10. LR RER EME EEE :
 V-9.— Romain RoLLanp. — Jean-Christophe. — CRT Ca
-V-10. — RomaIN RoLLAND. — Jean-Ghristophe. — *
 la seule édition complète. — II. — le matin......... 3 50 4
 + V-11. — M.M.MaAnGAsARIAN. — Le monde sans Dieu 2 » Sail
 V-15. — Émrze Mosezcy. — Jean des Brebis ou le Fa
-V-16. — le congrès de Dresde, — édition GASTON . Rte
-RAPHAËL . . 2.0/0 ce nue Ste MC RE ME)
-V-17. — FRANÇOIS PorRcHÉ. — à chaque jour....... 2 » ae
 V-18. — Lours MéÉnaRD ». — Prologue d'une Révo- TEA
-V-19. — JÉRÔME ET JEAN THARAUD.— les hobereaux 1 » À
 Voir à l'intérieur en fin de ce cahier les conditions $ 4
-et le prix de l'abonnement. A
 Nous mettons le présent cahier dans le commerce; |
 septième cahier de la neuvième série; un cahier vert NIK
 de 120 pages; in-18 grand jésus; nous le vendons SE
 
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-REP ie” TS Dee à REA DTA DA CES QE ER PPS OLA Pr MRAExE Ÿ
-Se M A EEE DEN Ne E Ml ae LAN RENE Le
-Ca SA RL A SERRE FORMES res
-ne ÉRREece
-ui à « à Ni A ru Les
-ne L DAS sa | 7 RO
-ne PRE AIRE TAPORES
-
-; A NOR 1 cure PARUS: NAME Te NE TE LEE | ER le GS EUR CA
-WC te ET OCR ND SE O0 PE NERNARRE te EG FAQ
-ÿ A CAT A PA AS Re et NT CP Ce Ge AT
-Aer Ft Qt. 0 TRANS Et Eros Len ERP) AT AVES ER IT ER HE)  { %
-SUIS ARTS di (ads ue AU dat FL RS s AU NE Fe CR A RATE y
-FREE CET NAS Ch) y Tu, b LOT te ie SERRES
-| FIRE ” FANS PAM MERE CE RENAN ÿ, MAUR 1: Le
-li ne : .LYRNIESENS AL? / - 1ÿ e 17
-L CET AS oo AS w rs , . L
-sa RL D nee SUPORRES TIRE $ } LA er
-| AVE ER # Ü ED HR PAS TRS ; FO À { ,
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-190f, un si
@@ -104,18 +63,6 @@ s'abonnait rétrospectivement à la sixième série le recevait, par le fait mê
 \ série; nous l'envoyons contre un mandat de cinq francs à
 à toute personne qui nous en fait la demande.
 
-CA CU AT PA A LA RE ct ANNE CA AUTRE |
-| MEME ar RAM HOT LATE he RUN Ko M OP AE NS HUFE GAS EN (4 Fa |
-21 UE TA AMEN Pr al Nat it, “ty
-Heat } HS « ! 0e de EN SUR LAS THRRe Aa a MS 0
-vue ER : LA AI 4 PEU rte Li HE 4 s PCA ju TA À se 4 Me o F4 Le |
-| A au 4 AN Fo LA PQ VAR HUE EAU FA ne AA non: é
-fr pus VAUT ne k Ag RANCE fl | FND | NES PACS 0
-EU ADS Lo , CAN AC IAE Wa Met st LAN ET MAR EN A MINE "1200
-100 : FA tn RER NUS a Fils HGU ke NOR, LU AU A |; ME PAS
-AT ENT un État AE y
-LISA, ds a tt A CUS L'ENNS Ÿ
-
 : AS aux Cahiers de la Quinzaine
 4 ; Le présent petit index donne automati-
 “1 quement pour tout volume et pour tout ;
@@ -127,8 +74,6 @@ capitales de romain et le numéro d'ordre
 déterminée, en chiffres arabes, de sorte *
 que V-r7 par exemple doit évidemment se
 lire dix-septième cahier de la cinquième
-# série ;
-We b) la date du bon à tirer, ou, à son dé-
 r \ faut, la date du fini d'imprimer, ou, à son
 ne défaut, la date du cahier même;
 Le c) le prix actuel;
@@ -136,69 +81,6 @@ ER é d) quand il y a lieu, c'est-à-dire pour nos
 LU > éditions antérieures et pour nos cinq preEME: mières séries, la page du catalogue anaf $. ytique sommaire où ce cahier se trouve
 Gaston Raphaël, — le Rhin allemand (IV-19, mardi 26 mai
 je FE — — édition du congrès de Dresde, — textes et docuNE . :
-#4 … ments, — septembre 1903 (V-16, mardi 24 mai 1904........
-ot Le k quatre franes 360
-
-45 AE LOU ARE Ph Je vel Ve Va ME gtx j
-DES 4 MEL RES UE ne ne es (2 Ra vhs
-di ei | OA LCR ANA pe el * MA a
-ce iii PR n An Rae
-
-SUN a PAR NAg \ S ji HAN DOTE TROUS
-AA L OPA none RARES PA Ne RER NA QUES
-
-Non LUE deg MA à; ! Pr 144 DNA RUN FD VE TAN AE ANS
-
-HUE MERE # ne « à HAE EME ar Ne HO M7 ta LA NA LA
-RNÉES NA PaR APE: LT RP RE AA S AAA. “Net pes
-
-ARE A EAP A he EE SA MO
-M nt PTT LOIS MAT EMA PAR
-DA MN LITE CE ON SOA RNA AE ANNE ï ja à
-CEE Eur LE LORS te GPS TAN RARE REA 2 Len Ne nn
-4 241 NE ra AU: ASE pare: pue FO
-ND ANT A D A ne fé HA A
-#4 (PAT } ANT VASE SES PAC SARS LC ee PERS NULS
-4 SEINE LE ARS HE Vins es
-rues JANEUNR AEMe ui AT ANAL M RENAN ES il AA Gore TR tra (ere pre
-APTE AN à AU AS ED DA EUR CR ER qe k APTE SE PE DE Ta na it
-NAATNAIU RE MATE 1 LUS un Ne
-
-CAPE Si hPa EU : [KA FAN RE DE nn à
-NEA fr eu 4 M L PA A ARE HERO er he
-
-HAS se TP CAE l LAURE es OR ANERTNEE :
-
-Aya ND KA Le NU 4 C1 Ÿ y JUN (Of 174 din 1h à
-
-ar EN Né 4) \ { TEE VU KA ne ta
-
-# HONTE ni [at HUE Ÿ ; MEN A s \l pal ARE
-
-+ RON PAR ; CEA ni se RO
-
-nn Hire AUS to ne AR
-4 he We H ni DE s'A UHEn peu Qu A Tr fu 404 FA
-Qu: Te A ee Née M kÿ HAS ELLE le LA (è
-ARMES PAS SAN) A A AAA M AN LT EPR A PARU FATIS ur ah AA AUS
-VA DR # 1e 7, Us de « AA 2 UE w nt DU | LS A AT de PQ LE MAN jo qui OUR
-. PANIERS |: f ; ; {Ng 1 Si Data) BV \ HO ARS 4 À LM A NE que
-RE AE PEN AS LME Se A) ne HAS MA
-{ SUPUE one , GE: PATUX AT MEL LE « le if SPL On DAT fl AN (Nas ie
-LA SUR DTA AU ' Rd si + A ne fe
-a BEL UE EPA RE NL AA AE ie AU US sa FE 4
-AT RL DS { NA: 4 7 Ve quart Rare At ; UNE RATES
-LA NA ME * AG x d'a) « il À } FRA À 14 Gun SP pes RAR LR Et / AUS
-
-LE NA | 4 ) LUN Ent EN PA ee
-AH) 4 RTE War Dr ns TNA U SRE EL HNpELS UN TRE
-# Pay 4 à Ki LA AR x 1 éAN SA AAA : (UC RARE Nr
-14 be A id 1 Î L'CUNT ON RAT TPS WE
-LA ET U EAN j A AUX OATPENN Yeti
-
-A NA Deus M Er NN ARE ee "Le
-
-in Past Ps ANS AH PAT NE ART DA VE es NH
 
 Il y a quelques années parut en Allemagne un livre
 dont le retentissement fut très grand. Ur auteur
@@ -243,7 +125,6 @@ les horreurs de ce régime, on montre comment les
 esprits les plus capables et Les plus originaux sont pour- }
 suivis, torturés jusqu'à leur épuisement, jusqu'à ce
 qu'on retire de l'eau les cadavres de malheureux M
-élèves. » (1) ne
 Dans leur haine les adversaires de l'école ne recu- ‘4
 lèrent pas devant les solutions les plus féroces. « Le
 moyen le plus simple et le plus radical serait de ras- ‘4
@@ -281,7 +162,6 @@ une foule d'autres du même genre. Elles ne mériteraient
 a (1) Ceux qui s'occupent particulièrement des antiquités grecque
 ww et latine.
 “is (2) Arthur Bonus. Cité par Münch : Æltern, Lehrer und Schalen.
-| ‘Pages 86,et 87.
 < Fr 6) L. Gurlitt : Der Deutsche und seine Schule. Page 153.
 
 pas davantage une attention sérieuse. Mais les exagérations mises à part, un fait important reste acquis : les
@@ -331,15 +211,6 @@ _ reuses nous voulons dégager et reproduire celles qui se
 _ répètent avec le plus de fréquence et semblent résumer
 le plus nettement l'opinion de nombreux Allemands sur
 _ l'école allemande. ;
-ni
-
-A YT ne AU
-pe re rl du PRE AEn A EN P IE d
-| pis A oo
-MONS ARR E ÿc AO PA es PAP AR RONA AR ET al AU
-|, NES / RÉ RU LES CAPE CE MH 1 NN NT INTE Le ta
-Lis ri RO RAT PP ON ANT Sr NA LA NNE HPREET HUE DATE
-FUI fin CE (LA SN PAT EN A RM
 
 ANA le travail
 La quantité de travail exigée des élèves est considé-
@@ -386,7 +257,6 @@ travail véritable éveille de l'intérêt, ne lâche plus son |
 homme, l'enchaîne. N'est-ce pas enseigner à la jeunesse
 l'amour du superficiel, et le dégoût du travail, que de 4
 l'empêcher par la diversité et l'abondance des travaux »
-de se consacrer à fond à aucun? » (2) NS
 
 À ce travail de la classe s'ajoute celui de la maison. à
 Il n'est guère possible que tant d'heures de classe ne …
@@ -457,7 +327,6 @@ dès lors, toute velléité de négliger telle partie des études
 
 (2) L. Gurlitt : Der Deutsche und seine Schule. Page 191.
 
-| EINE ART VON BETHLEMITISCHEM KINDERMORD
 au profit d'une autre plus conforme au goût de chacun.
 Inutile toute tentative d'entreprendre des travaux qui ne
 | soient pas exactement ceux que le maître a prescrits.
@@ -572,7 +441,6 @@ plaît à esquisser, ne manque pas de comique à cet
 
 (1) L. Gurlitt : Der Deutsche und seine Schule. Page 118.
 
-un
 | égard. Profondément pénétré de la valeur des études,
 A der l'étendue de ses connaissances, de la sagesse qu'il
 _ doit aux nombreux exemples des anciens dont il s'est
@@ -608,7 +476,6 @@ ou bien en exagérant à la folie le travail et Le respect
 du devoir — point de scrupules, voilà le mot d'ordre.
 Pourvu qu'on tienne le succès, qu'on satisfasse les
 supérieurs, ceux d'en bas peuvent bien gémir, geindre
-et maudire. » (1)
 la discipline
 
 Sur ce point les critiques visent également la discipline que subissent les professeurs (2) et celle que subissent les élèves.
@@ -695,7 +562,6 @@ importants, qu'on a jugé nécessaire de créer toujours
 
 (2) Cité par M. Pellisson. Revue Pédagogique, 15 août 1906. Page 141.
 
-mA NPA Art rils : ,
 ‘de nouveaux inspecteurs à côté des anciens, et tandis
 _ que dans les décades précédentes un seul homme de
 À valeur dirigeait effectivement l'enseignement secondaire
@@ -882,7 +748,6 @@ _ sympathies pour la Pologne et la France. L'État est si
 ” aveugle qu'à la même heure il travaille pour et contre
 _ Allemagne, pour et contre l'Église, pour et. contre
 ec la véritable civilisation. Mais il est si doux de goubre vernerl.. » (1) à
-# z
 PER les maîtres
 S Lorsque les Allemands se prirent à réfléchir sur leurs
 g campagnes victorieuses contre l'Autriche et la France,
@@ -934,8 +799,6 @@ _ avec leurs bottines à tirants en caoutchouc et leurs
 gros parapluies dans les jardins de la Grèce antique.
 On en montre d'autres : « qui parlant allemand s'élèvent ‘
 à peine au-dessus de leur patois, ne distinguent pas les
-
-_ PetlesT des Bet D, ni eu de ei ni à de à, qui n'essaient
 
 pas de tendre leurs cordes vocales, de remuer les
 
@@ -1008,7 +871,6 @@ l'heure fait place à la plus respectueuse soumission. à
 en tutelle ! Il est honteux qu'il se soit laissé mettre ces *
 chaînes sans mot dire! Par là nous avons totalement
 
-> LÉ “* :
 A apprie de travailler à l'œuvre morale de notre
 _ époque. Cela ne nous regarde plus. Nous sommes dece venus la trompette du loyalisme, toujours prête, iné-
  branlable et fidèle, qu'il suffit de porter aux lèvres les
@@ -1035,7 +897,6 @@ leur profession, parce qu'ils sont payés pour cette
 : besogne et non pas parce que c'est leur vocation
 ñ _ intime, leur devoir d'enseigner, parce qu'ils sont épris
 ri () L. Gurlitt : Der Deutsche und seine Schale. Pages 137138.
-| Yp $ ù
 
 de leur profession. Voilà ce qui pour ainsi dire, gèle les
 élèves, cette indifférence de professeur qui ne s'élève
@@ -1223,7 +1084,6 @@ _ … dont ils redouteraient la liberté de pensée et l'indépendance de caract
 ET Même dans les circonstances plus ordinaires, le stage
 ra _ peut encore nuire. Il est utile de faire gagner du temps
 ‘Eea aux jeunes professeurs en leur montrant certains procé-
-ne:
 
 dés qu'ils auraient peut-être eu quelque peine à décou- |
 vrir. Mais la possession de tous ces moyens est encore
@@ -1521,7 +1381,6 @@ commande tout, pour développer en même temps le cœur, la
 à _ volonté, en un mot toute la personnalité. Pour la discussion et la
 « K réfutation de cette thèse, voir : W. Münch. Zukunftspädagogik,
 FE Herbart. La psychologie appliquée à l'éducation. Revue Pédagogique,
-| À Je
 
 et moral, sur leur signification historique, sur les renseignements ou les comparaisons qu'on en peut tirer.
 Non, c'est tout bonnement sur l'écorce extérieure, sur
@@ -1545,16 +1404,13 @@ de vers hypermètres, d'hiatus, de temps, de licences
 poétiques, et de prouver qu'ils n'ont encore rien flairé
 du véritable tragique en donnant comme devoir. « la
 faute tragique et l'expiation dans la Pucelle d'Orléans
-de Schiller ». (1)
 
 On pratique trop l'analyse. On donne trop de commentaires. Les élèves ont toutes les peines à parvenir
 jusqu'à l'œuvre elle-même, sans parler de la comprendre
 
-à et de l'aimer. « L'école et la philologie, la philologie et
 l'analyse se sont montrées trop étroitement apparentées,
 et après qu'à la poésie antique seule choyée jadis, on
 
-# ge Do PR OC PETER TE UT T Les : LT " , ea
 LS eût ajouté la poésie moderne comme susceptible de
 | cultiver les esprits, de nouveau on s'est plu toujours
 davantage dans l'analyse. Les protestations qui s'élèvent
@@ -1597,7 +1453,6 @@ droiture, d'amour du réel et de besoïn d'agir. C'est un
 enseignement propre à développer ces qualités qui eût
 été nécessaire. Au lieu de cela qu'ont offert les péda- >
 gogues? Un mélange de culture antique et de mysticisme moyenâgeux où se rejoignent le penchant à la
-réclusion, à l'étude, et le culte de la forme et de la rhé-
 torique. Il se peut que cette éducation convienne aux
 Welsches, les descendants de ces peuples antiques.
 Mais sûrement elle est nuisible aux Germains. IL se
@@ -1661,8 +1516,6 @@ Puis on fait saisir de nouveau l'ensemble et — au cas
 échéant — on porte une appréciation littéraire ou mo- .
 rale, et montre par des applications soit à des matières
 
-# : |
-
 at du même ordre, soit à d'autres, quelles peuvent être
 les conséquences et partant l'importance des nouvelles
 * notions acquises. Enfin de constantes répétitions et révisions doivent servir à les graver définitivement dans
@@ -1688,7 +1541,6 @@ _ instruits. Aussi est-ce sa méthode qui longtemps valut
 _ à l'école allemande les plus vifs éloges.
 à _ Mais toute médaille ayant son revers, de graves « Na Se 65 Professor. — 4.
 
-| RAR LL Le
 réserves ont été exprimées, ayant trait tant à l'emploi
 qu'à la valeur éducative de cette méthode.
 
@@ -1841,7 +1693,6 @@ regardant mieux on remarque leur qualité inférieure.
 Made in Germany, disent les Anglais. De mêmerle
 vaste savoir des élèves est incontestable. Mais il
 manque peut-être de solidité. Il leur a été insufñilé plutôt
-| 70 ;
 
 Le qu'ils ne l'ont acquis. Trop rarement ils ont été aban-
 . * donnés à leurs propres forces. Ils savent beaucoup de
@@ -1945,7 +1796,6 @@ Par le fait même qu'elle est impuissante à développer
 les individualités. Son but est de donner à tous les élèves
 À Q) IL. Muthesius : Die Bedingungen und die Anlage des modernen
 Landhauses. Cité par Gurlitt. Page m5.
-à ta FO 73 Professor. — 5
 
 les mêmes connaissances par les mêmes procédés. Pour
 y parvenir on a imaginé en quelque sorte un type sché-
@@ -1961,7 +1811,6 @@ de ce type d'élève moyen et d'exécuter les travaux prescrits pour lui. Mais l
 spéciales, intellectuelles ou artistiques ? A ceux-là
 l'école n'offre point de nourriture particulière. Ils doï- ?
 vent se contenter des mêmes aliments prudemment
-mâchés. Ils souffrent.
 
 Leurs facultés s'anémient, meurent et sont perdues
 pour la nation. Ou s'ils ne succombent pas, ils puisent
@@ -1984,7 +1833,6 @@ aussi que l'intransigeance de Nietzsche, proclamant les droits
 ÿ absolus de l'individu, a été provoquée en partie par cette supré-
 matie de la médiocrité qu'il constatait en Allémagne. #
 
-#  EINE ART VON BETHLEMITISCHEM KINDERMORD
 k _ individualités spirituelles. » (1) Et son commentateur en |
 | méme temps qu'adversaire ajoute: « Le principe d'égalisation universelle en matière d'instruction, que l'épo-
 ‘ que actuelle prône avec un zèle littéralement fébrile et ;
@@ -2312,7 +2160,6 @@ __ joyeuses et humides années d'Université, monte dans la
 \ ment dans les Universités, mais encore dans les Gymnases et les
 k écoles primaires ». Zägliche Rundschau, 4 mai 1905, Cité par Gurlitt,
 
-LT L UE na ei F
 chaire de l'aula de l'école, pour faire un véritable
 sermon » pourrez-vous espérer qu'ils sont touchés de la
 foi, pourrez-vous empêcher que ce stagiaire ne prêche
@@ -2343,7 +2190,6 @@ droite et de la gauche, mais qui sont obligés par l'Etat de faire 7
 donner à leurs enfants un enseignement religieux, en sont réduits
 à leur faire suivre les cours de la religion juive. » ;
 
-RE TE ARS RE NI T2 Tr À tre
 1 a colonne vertébrale passé à l'état endémique depuis
 _ une vingtaine d'années » (1) dont on a parlé. C'est ini 4
 qui explique encore l'attitude antipathique de nombreux Re
@@ -2362,7 +2208,6 @@ ont percé à jour sa vanité. Et cela se produit dès qu'ils À
 prennent contact avec la vie réelle. Il leur suffit de com- is
 parer les éloges enthousiastes et livresques de l'école F :
 _ avec les difficultés présentes, l'idéal philosophique et ve
-| TA ES
 … (2) La contradiction apparente entre ces deux états d'esprit peut 0
 # ‘être levée. D'abord ces deux états ne se montrent pas en général Ti
 | dans les mêmes classes sociales ni dans les mêmes individus. Et 35
@@ -2460,7 +2305,6 @@ le droit de se développer librement et qu'un homme même
 isolé a d'autres propriétés que la pierre brute. Ils pensent aussi que l'État allemand gagnera infiniment en
 solidité et en puissance si, loin de rogner et &égaliser
 
-FA PENR TRE TER et Let FT de RAR SN PEN Emme s 90
 ‘les individus on laisse libre jeu à leur activité et met à |
 _ profit toutes leurs aptitudes spéciales. Er!
 Mais que signifient ces conflits? Ne sont-ils pas
@@ -2528,7 +2372,6 @@ en Allemagne, et qu'elles aient été entendues même en
 faible partie, ne peut-il réjouir ceux qui ont foi dans le
 triomphe de la véritable éducation ?
 
-| £: RQ T:) ; « DE ee TEA à }
 ie A. — Ouvrages généraux et documents ,
 =. F: PAULSEN. — Geschichté" des gelehrten Unterrichts. Leip- Ê
 
@@ -2542,7 +2385,6 @@ ie A. — Ouvrages généraux et documents ,
 
 # wirklichung vaterländischer Erziehung. Leipzig, 1890.
 
-#
 L. Gurrirr. — Der Deutsche und sein Vaterland. Berlin,
 
 L. Guruirr. — Der Deutsche und seine Schule. Berlin, 1905.
@@ -2554,50 +2396,14 @@ Revue internationale de l'enseignement.
 . D. — Œuvres littéraires ayant trait à l'école
 R. Musis. — Die Verwirrungen des Züglings Türless.
 
-G. NAUMANN. — Otto der Ausreisser. Po ie L:
-J. BERBAUM. — Stilpe. l je :
 F. Hozzänper. — Der Weg des Thomas Truck. &
 ñ Conférez les œuvres de T. Mann, A. Holtermann, O.Schmitz, *
 | A. Geiger, F. Pistorius, W. Schwaner, H. Scharrelmann, |
 H. Krüger, L. Thoma, ©. Jerschke, F. Huch. ra ‘1
-| ? ME | 4
-| rs |
-| è |
 { (1) Signalons à propos de cet ouvrage que de nombreuses questions autres que celle de l'éducation proprement dite sont traitées
 dans ces œuvres littéraires. En particulier ici, et dans certains
 romans, celle de la puberté. qi
 
-REA en tin WU DA À L ni 1 279 à 4 int nt
-DRE les ir À ANS it ÿ
-18 Que mn Ml ip HN" PAL NL g 4 | en L'TES
-re QU 1 FE LE ' j : LU FA Let RER À EN:
-NEA An 10 eut AIT A , are 4 NE TA.
-ne D Re \ NA : L NE en MR
-ta RAR MENU nd 4 RE. a ONE! vs . era Ÿ Mur à
-AR "ar ET “A0 ti NE +1
-Fu dis Pet ÿ DANET HAT EM 4 Ê RU + L "CR
-DUR (ARTE je {ue ATEN 1 D L HUE # NC
-Aa y (VAN ES DEN ri {L Ata AT #9 0 “;
-At re) Eitée la SAN TC | QE T An PLAN
-
-MANU EE on A Les PA 4 10
-bete RUN MEN MAP Ne
-
-AE AE dei ARR NAN NE AAA pe Re pe AU
-
-l 0) Due nl je PARA RE NN qu TS da 4
-AN ARE ‘#4 JAY CR AT RU (7 NE he AU je LA NL y UP
-Ha AFAE AE ÿ PAU NA AN ve 11 UNE f, 1e de MALO
-GENE DA je MAR A DEC HAN" FA
-AE LA Al ju" di { * “us PACA NE PTS Not MAS CEUE W/ PR T 114
-UN Vtt 1 Tera AS ; AA TEL éd JA DV dE NRORAT LS
-AN IX METVUN \ RAI YTRANT ré DA ap) de G AA STE AO AO VEUX aps NI
-Fu AU RUN k JR faut ane RUE Qu ANT EE j'a VS ne
-SAR He un k 4 Ù À À RME YOANN K 1 Rent RUE RME HEIN He 6
-PAU MG D ‘1 APN os AT af ta A (0e PANE A GR NEE
-ta FrAAN AR 9) AY \ÈS ; ANT AN ARR DA nie LOL DEVRA RENNES
-
-joie JON NE
 Il a été tiré de ce cahier douze exemplaires sur
 whatman ainsi distribués :
 premier exemplaire de souche, exernplaire du gérant;
@@ -2614,22 +2420,11 @@ pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main, |
 …_ en caractères fin dix-huilième siècle (Didot) de Ja fon- »  derie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième |
 
-LATE fes ne Ta \ { AE TUE 1 NE ps 4
-2 su BYPRAUES À à AÉENAURE AMEN CARE SS je
-ASS MeRTE L'TUDE à } eus] age Hiva RAGE fn
-CNE DA RE ou + ! as A SAS
-
-NE MUT HSE | À Rouen
-ne, ce AE ar Et TN His Le AN DOS
-
-| Me ur à IA Fe # Ü x SAYEUVEEÉ DE À
-
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 ils } ifit d'envoyer un mandat de trois francs cinquante — A ee
 a. André Bourgeois, administrateur des cahiers,
 _ &. rue de la Sorbonne, rez-de-chaussée, Paris, cinquième f WU.
 a rondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième, de la quatrième, de la AE À
 5 ing uième, de la sixième ou de la septième série. % EU)
 VE Pour savoir ce qui a paru dans les cinq premières Nes
 | séries des cahiers, 1900-1904, envoyer un mdndat de RUE
@@ -2639,28 +2434,15 @@ al francs à M. André Bourgeois, méme adresse; on 2 Ÿ
 {della sixième série, un très fort cahier de XI1H408
 pas | Li dette in-18 grand jésus, marqué cinq francs. est RE
 * Pour s'abonner à la neuvième série des cahiers, qui GPA in À
-J dirt en cours, envoyer en un mandat à M. André PSS LU
 RES eois, même adresse, le prix de l'abonnement; on
 … recevra les cahiers parus, et de quinzaine en quinsaine, ds .
 . à leur date, les cahiers à paraître degcette neuvième A Où
-vi: SONT EN
 
-FA Fi D LE Pr PANNES de ni ia EC MU PNA A CA RUN
-sn) MR A NPA I AA RE ce Ga a TARN AA ANNEE GA (pare SAN %
-RARE Lun | ù î ? LC NA AT PANNE QUE DEN.
-LM UE jeu TA CAES ir CINE AE pd
-SO PAU \ PARA LA sn Ne tr Fe NN NN TE EE
-MR NUE VF LE 8 pu TUE à, {9 NUIT OERENSS HAN RUE TE N'a oi
-RE TA AE ve Autie LAINE
-
-A UT on in PANNES
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 ni | rez-de-chaussée, Paris, cinquième arrondissement. TR
 à s Nos Cahiers sont édités par des' souscriptions men 4
 2 Ms . suelles régulières et par des souscriptions extraordi- ne.
 __  naires; la souscription ne confère aucune autorité sur” "54
 1% _ la rédaction ni sur l'administration ; ces fonctions “
-Le = demeurent libres. COPA #
 ‘he _ . Nos Cahiers paraissent par séries; une série parait Me “
 JL _ dans le temps d'une année scolaire, d'une année
 ‘in k* ouvrière, d'octobre-novembre à juin-juillet; l'abonne- se FE
@@ -2684,15 +2466,6 @@ Ut naturellement aux premières inscriptions; c'est cecnmæ ne
 _ méro d'inscription qui devient automatiquement le
 A numéro du tirage réservé à chacun des souscripteurs: *E
 _ l'édition sur whatman est strictement limitée au
-
-Vi LT (2 Las RENE PRE Or pe te M CIE SAT et AE Re Da
-er au PAIE Da £ F RC ENMORURS SUR 138
-ROUES Gran 1 ET PRCIAr ‘38
-pa MES ÿ è A TR AL piNUGrS FN
-LME FN OR EURE + se re soe hr Le PRE LA
-LE 0 Pen , 4 (Una MERE RES nef
-
-PAT. sa FUN CR | NEC PER pe REA 0
 
 _ Pour tout changement d'adresse envoyer soixante
 centimes, six limbres de dix centimes. g

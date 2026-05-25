@@ -9,7 +9,6 @@ wordCount: 4797
 ocrSource: "Extracted 2026-05-25 from conflated s07-c08--louis-de-gonzague.fr.md (running header 'André Spire' identifies these lines). Text is heavy-OCR-garble — needs cleanup pass."
 translationNotes: "Le fichier s07-c08--louis-de-gonzague.fr.md contenait par erreur la poésie de Spire (lignes 10–657) et de la matière éditoriale de Péguy (lignes 660–1042), toute attribuée à Péguy. La portion Spire a été extraite ici. La vraie essai *Louis de Gonzague* (le saint) commençant au feuillet 19 du cahier n'est pas dans la source OCR existante et reste à récupérer."
 ---
-
 ## Qu'à votre enfant joli?
 3 — Je pense que le berce, et qu'il fait chaud-soleil. Ë 4
 Moi que vous êtes belle, sur la terre fleurie.
@@ -55,7 +54,6 @@ hi ; De ses graves amis.
 1 Et s'élever plus haut que vos cimes sereines : 1800
 LAN La montée de leurs doutes et de leurs certitudes. De
 
-LAS RENE su ea ste Ni NS PA at, fe 8200 FÉRE ï
 Comme vous, ils se sont formés patiemment, OS
 FA Et, quand le soleil bis du printemps qui hésite
 A crevé les bourgeons des marronniers pressés, MAUR
@@ -67,55 +65,35 @@ Dont les vents ;: 40
 0 Ne peuvent qu'emporter vos semences ailées,
 i 4 Et laissent triomphants, quand tout meurt près de vous, Na “
 Vos solides rameaux qui jaunissent à peine. 4 54
-Duc :
 
-i #3 1 L'arbre pleure, et dit : Y, KP ‘AT
 NT Pourquoi rendis-tu
-ARE Ma graine féconde ?
 ‘114 Pourquoi gardas-tu : "AO
-11 Mes premiers bourgeons AA.
 ee Des vents qui dessèchent (LASER
 Fes Et des vents qui glacent ? 80
-A ! O mont paternel, "TU
 LT Pourquoi donnas-tu, re 34
-ISF F L een
 re à A mon tronc flexible, 250
-CEÈNE Ses écailles chaudes ; 1420) N.
 É. A mon cœur si tendre, à “#0
-AS ' Ses larmes ambrées, ‘4
 ti A mon front sans peur, ‘} 310
-a a L'ardeur de monter, Ut:
-CCR S'il me faut toujours, : LS
 ‘1 Vivre dans ton ombre. 71
 
-Re APN PUR er te ARR UN AE
-RON, UER Vous REZ... : te PORN
 EU S Sur les pentes tièdes, 5e" 50
 0  Mesfrères heureux . l ;
-ji Ni: Baignés de rayons. Aie ù
 as VAE Vois, mes bras si las, Mt)
 Rens Las de supplier, {1H
 Ru Pendent, vers la neige,
 LAS Baisse un peu ta cime, 1 à
-RL Et laisse venir, 11e
 5% enir à mon Corps, . ‘YU
 Re Venir à mes fruits, | 110
 118 Venir à mes pieds, 1170
 PURE La mer de lumière ardente. , 1
-0 Je suis maintenant At 4
-UE Une plante grandie; LL
-0 Et je ne peux toujours 4 ÿ
 Ra Marcher dans ton destin. (F2
-ne Les Vierges dociles | te No
 (F5 Se fatiguent, un jour, : ‘4
 Des baisers sur le front 7
 
 Qu'autorisent les mères.
 Et leurs cœurs gonflés
 Appellent dans les soirs,
-Des poitrines brülantes,
 Qui fassent éclater, dans des baisers sanglants,
-De fillettes gardées.
 
 Dans vos longues robes flottantes, Se
 Dans vos vêtements précieux, 178
@@ -126,7 +104,6 @@ TRES Vos mains élèvent vers vos yeux LA Lx
 Des fleurs de verre, imprécises
 Comme les soucis de vos âmes. s 610
 Vos frêles mains, indécises, 155
-de: É È HIER
 Dessinent les cadences fluides
 De vos phrases, vagues et parées 10 h ñ
 Comme les étoffes de vos robes.
@@ -151,7 +128,6 @@ Fi Qui ne regarde pas les nuages qui flochent,
 Œux: Attend, serré d'espoir, la minute qui vient. 1
 ÿ Lobesr ni At 0
 
-M nu C Ne
 Tenez-vous par la main, fillettes, et marchez.
 Dans l'ombre du mur gris qui s'éboule, passez, x #
 Arquez vos ventres fiers dans vos tabliers roses. à
@@ -173,25 +149,20 @@ Traïînez vos corps inquiets le long des berges lentes ; Fe
 Le fleuve est plein de soir, et vos âmes sont lourdes.
 Amants silencieux tenez-vous par la main. de
 
-n sAex 2 AC . »ÿ FE Ÿ AS USE SG }° PPT RTE du RE pitt s 4
-) 4 # Tu me tiens, tu me domines, ; “RE
 ci Lo Comme une amante qui n'est plus. |
 ; LÉtI Ton fleuve, devant mes yeux ne veulent lire‘:
 ‘4 Glisse ses eaux paisibles et ses lentes péniches. De
 vtt Tes arbres se balancent et fraîchissent ma tête
 Brûlante de vouloir, et lasse de penser,
 5 0 2
-DT O paysage de bonté, tu n'es plus. . 08
 5 Tes feuilles ont jauni, puis sont venus les vents,
 mn Les averses qui rouillent, les tempêtes qui brisent.
 5 00 Et jour à jour, somptueux et funèbre
-s Fa Tu es mort, tu es mort... , 34
 Re Et tu vis. Tu devins éternel, ô lumière,
 E té En passant par mes prunelles éblouies. \ATFICES
 44 ons ï Ils peuvent te détruire à grands coups de cognée 14
 
 Les bûcherons ingrats et les faiseurs de ponts ;
-Tu es en moi.
 Et moi-même, aurais beau me dissoudre,
 Tant que l'haleine errante de la terre
 Balancera, pour rendre les couchants plus beaux,
@@ -200,18 +171,15 @@ Spectacle qui fus doux à mes tristes journées,
 Tu vivras, tu vivras,
 Fatalement inclus dans ma substance même.
 
-T\AE TENTE 4 AO FT FUPMIAUTE CREUSE ip LE (423 k fan
 LE — Nuages, nuages, nuages, #5 PE Dr
 TRE Luttez un peu, révoltez-vous ! LES
 Pat, Défendez-vous, contre les vents qui vous entraînent.
-RAS S > pa MR de
 RAT. Demeurez quelque temps au-dessus de nos villes. _
 MON ee Qu'un de vous, de vos troupes vagues, se détache,
 ” à nes Et se fasse notre nuage familier. se 5
 CU — Oh! ce n'est pas pour nous défaire
 A Le Qu'ils nous bousculent dans l'éther. 11e
 De Nous flottions, entre l'effroyable silence
-ER Des mondes clignotants, +:
 61 Ér.: Et la terre chantante des hommes,
 PA Dont les voix adorables expirent { « 70
 à Avant d'arriver jusqu'à nous. 20
@@ -221,15 +189,11 @@ FER Qui connaissent tous les chemins de l'infini. 1:40
 ÿl * Ils nous ont emportés dans leurs souffles.
 pee Et nous errons, altérés de musique, : 55
 LR Cherchant un coin du ciel qui ne soit pas muet.
-cs . L ne
 
-EUR so RAR NE GA PAUL
 Je vous ai trop aimés, paresseuses prairies, Hs
-(il Re à A TRES
 We Saules qui m'endormez dans vos grises berceuses, 4) ù
 Et vous, poitrails rétifs des péniches, tirées
 Sur des canaux dormants par des chevaux qui butent.
-NE on
 À _ Je me prends, pays lents, à vos bruits susurrants; ; 4
 Je m'amollis au son de vos fades musiques. ee,
 © fleuve, emporte-moi vers tes monts mugissants, 24
@@ -240,11 +204,6 @@ Aux quartiers de granit qui roulent des sommets ;
 Où l'étroite chaussée des routes de conquête ne
 ME onne éternellement sous le talon des peuples, Lis
 Le ui passent, vivifiés par tes bruits magnifiques.
-À à Le
-
-RENE OR TE EU te TA TO M
-
-ae LA MORT DES ARBRES +09)
 
 F J'ai vu des yeux fermés sur des narines froides, ‘4
 
@@ -253,8 +212,6 @@ F J'ai vu des yeux fermés sur des narines froides, ‘4
 Fi J'ai vu des draps tirés, des cires allumées ; 1:
 
 f Au pied des lits j'ai vu des femmes agenouillées, Un.
-
-Fu Et je n'ai pas eu peur, et je suis resté là.
 
 #3 Mais ton odeur, à pourriture, me rend lâche. : 4
 
@@ -265,8 +222,6 @@ FA Vos fronts précis, vos yeux rieurs et vos mains,
 2 Et les reins de vos fils, et les sublimes gorges de vos filles,
 
 NA Je les vois suinter et se dissoudre, PAR :
-
-4 Et j i laces publi ‘4
 
 44: t je vous vois tourner sur vos places publiques
 
@@ -279,17 +234,6 @@ Demander à la terre une mort parfumée ; ANRT
 É _ Laissez vos troncs d'argent écraser les clairières, # 4 pes
 ES Et vos branches, monter au ciel, en flammes claires. ne +
 Arbres, recueillez-moi! je peux vous voir mourir. TTENES 1
-
-de LRU FARGN)
-
-5 ds DAS EST / ESS EN ne nr EMULE N QU Re, GET Fupogper) CBS NS
-D UT a CE PA a pe Ul L RPRN PA NSEE
-PDU UC EST « ‘- $ UT NES DR er fi, te ::
-EU RS RE TORRENT TES CARE Len Pan TRUE
-2 SONORE CR ERNEST ER REE CAR Lt PE PRIE MTS re ts C7
-LENS ET RUE RAA EE À FRA DA
-
-Le X vie CRUE
 
 Ce doigt posé entre mes deux épaules ?
 
@@ -328,7 +272,6 @@ des __ Nature reposante où les autres s'apaisent, 1:18
 "SR il, je voudrais rendre tou: ar mes yeux.
 D Moi, drais te dre toute, yeux,
 Je voudrais t''emporter toute, dans mon âme. } ‘4 :
-PE j' À “ à ? MNis Har $
 
 Ah! ta sérénité, que peut-elle sur moi? Le
 Quand tu veux te créer l'ombre d'une forêt, 1 12 000)
@@ -341,12 +284,6 @@ Moqueuse, en tes yeux verts l'éternité me raille. ‘KES
 Ma barque, lentement, descend le fil de l'eau. Dora
 1588 0
 
-AREA NE PEUT EG) qi: ke VIRE RMI TETE
-* non ny Re A LIEN TE ON nee RAM SOSPRET EAN LA j<
-D'IME are DES 7 Poe Ro D 1
-PORN à l'ENA j/; 4 08 ONE
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men-
@@ -383,16 +320,11 @@ l'édition sur whatman est strictement limitée au
 nombre d'exemplaires souscrit à chaque instant.
 
 Pour tout chang
-centimes, qua
-Nous engug
 l'achèvement
 d'une série
 Lnscrit sur l'étiq
 pas des man
 .
-
-fr 4 Ne PA ACTNELE Fra VE MERE APE a PE
-DENT que ; LISURENR
 
 Pour tout changement d'adresse envoyer soixante
 centimes, quatre timbres de quinze centimes.
@@ -434,11 +366,6 @@ appartiennent aux cahiers, du seul fait de cette publiD. cation, en toute propri
 À et sans autre signification ni contrat; les manuscrits
 À non insérés ne sont pas rendus.
 4 1
-
-KYLE PT TR TAG RTE à VERS RU DNS A
-S'UIOES ' LR US
-sa i TNT) Rec
-it me  É \ a Fe À Le y Pa,
 
 Éditions sur whatman, et particulièrement abonnement sur whatman.— Aujourd'hui premier janvier 1906,
 à moins d'accident ou de surprise industrielle de fabrication que rien ne permet de prévoir, commencent à
@@ -490,7 +417,6 @@ Aiünst dans tous les cas et dans toutes les sections les 4
 conditions requises pour une édition de cet ordre sont à
 réalisées, dans tous les cas et dans toutes les sections le hi:
 
-si CAHIERS DE LA QUINZAINE $
 nombre d'exemplaires tirés sur whatman est strictement
 limité au nombre d'exemplaires pris réellement à la
 même date et retenus. $ à
@@ -594,7 +520,6 @@ librairie adressée à M. André Bourgeois reçoit satisfaction par le retour du
 Septième cahier, cahier de Noël de la septième série. se
 Je suis très ennemi des errata. En typographie, — et
 est-ce bien en typographie seulement, —le regret aggrave SE.
-la faute, et ce qu'il y a de plus odieux, dans le styleet :
 dans la fabrication industrielle, c'est ce que je crois que %
 les peintres et les dessinateurs nomment des repentirs.
 14 Pourtant je dois dire, page 21 de ce cahier, que ce n'est
@@ -618,7 +543,6 @@ ont lu cette faute en épreuve, et qui n'y ont rien trouvé “À
 à redire. On serait épouvanté, si je donnaïs le nombre.
 Des familles entières, des familles honorables seraient 31
 perdues, si je donnais les noms. Moi le premier. Je “# à
-100 Us
 
 commence à croire, outre la faiblesse humaine, outre nos |
 infirmités naturelles, que tant de parallélismes ; russe,

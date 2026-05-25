@@ -540,7 +540,6 @@ bien supportable. Si la conscience de son innocence et l'impatience de la faire 
 Dreyfus si haut qu'on le prétend, il n'aurait pas pu agir, à
 mon sens, comme il a agi. En tout cas, le désir de sortir de
 prison fut plus fort que le désir de prouver son innocence.
-Il a volontairement renoncé à la meilleure chance et à la
 plus immédiate qu'il eût d'établir la vérité. Et cela ne parle
 décidément pas en faveur de l'innocence du capitaine
 
@@ -624,8 +623,6 @@ tout le monde l'espionnage militaire international ; et encore
 n'était-ce pas le but que poursuivaient les faiseurs de la
 campagne. Espérons que la leçon ne sera pas perdue.
 
-Et maintenant, poursuivons.
-
 Au commencement de mon premier article, je disais : je
 ne crois pas à l'innocence du capitaine Dreyfus. J'ai dit
 ensuite au cours de mes déductions : il n'y a aucune certitude absolue de la culpabilité de Dreyfus. Mais c'est décidément une injustice criante, que de prétendre que les cinq
@@ -661,7 +658,6 @@ triompher du militarisme et de son allié, le jésuitisme.
 Et le résultat ?
 
 Dreyfus est condamné pour la seconde fois, l'antisémitisme est bien plus fort qu'avant le début de la campagne
-et il en va de même du militarisme. Quant à ce qui regarde
 
 le jésuitisme, je n'en puis rien dire, car malgré les recherches
 
@@ -1054,7 +1050,6 @@ ser la dignité militaire d'une sentinelle et se sont fait arrêter
 pour ce méfait horrible. Assurément jamais la parole bi-
 blique sur les pharisiens arrogants n'a été plus vigoureusement illustrée, jamais l'hypocrisie nationale et interna-
 tionale ne s'est exprimée et étalée de plus répugnante façon.
-et ; Ress, 7
 Les mêmes feuilles anglaises qui prenaient hautement fait
 et cause pour le martyr de l'île du Diable, et qui, chaque
 matin, ruisselaient de justice et d'humanité, sont — pour le
@@ -1559,16 +1554,13 @@ dans l'impossibilité d'aflirmer l'union socialiste sous une
 présidence qui rappelait une injure adressée au doyen du
 socialisme international et réprimée par le Congrès, » Paris, le 10 décembre 1899. » Marcel SEMBAT, EBERS, BLUM, LEMELLE, du Parti
 A. ZÉvAËs, du Parti ouvrier français; — Georges
-DEVRAIGXE, Fédération du Nord; —GErvAUXx, de la
 à Fédération socialiste révolutionnaire de la 5° circonscription de Saint-Denis (P. O. F.); — VIOLETTE,
 du groupe socialiste révolutionnaire de Cahors; —
 Desassy, du groupe socialdémocrate israélite de
-Paris; — LE WINKELL, du groupe socialiste de la
 groupe socialiste agricole de Frenay, Comité socia-
 liste de Versailles, secrétaire du groupe d'étudiants
 
 Peprow, Paazrppou, de la Fédération de la région
-municipal, Marseille; — BRAKE et BoURDALEXx, du
 Comité de Montreuil (Alliance communiste). »
 
 dus troublent l'Uxiré qui a été proclamée au Congrès et qui
@@ -1637,8 +1629,6 @@ collaborateur, M. Marcel Hutin, l'interviewer à Berlin.
 Nous publions aujourd'hui un premier article sur l'affaire en ellemême.
 
 Nous en publierons un autre demain sur l'organisation du parti
-
-le 18 décembre 1899,
 
 L'Écho de Paris m'a chargé d'aller rendre visite à Liebknecht dont l'attitude dans l'affaire Dreyfus a fait l'objet en
 France de tant de discussions.
@@ -1873,7 +1863,6 @@ L'Écho de Paris a publié dans son numéro du samedi
 décembre l'article et la lettre suivants
 Berlin (Central-Hôtel), le 18 décembre 1899,
 Le parti socialiste français et l'Affaire. — Le cas de
-Et Liebknecht poursuit:
 
 — Les socialistes avaient une attitude neutre à observer
 dans cette affaire. Leur devoir n'était pas de s'opposer à la
@@ -2001,7 +1990,6 @@ Un seul passage manque. Il a été, non pas omis, mais retranché
 de propos très délibéré et pour un motif de convenance dont nous
 étions seuls juges. A la page 26 du supplément de l'Action francaise
 du 1°" décembre, consacré à Liebknecht, se trouve en effet la parenthèse suivante, imprimée en lettres italiques
-(Ici des injures à l'adresse de M. Déroulède, de M. Drumont et de
 le duc d'Orléans. Bien qu'il n'y ait là que des épithètes, L « Action
 française » ne salit pas son papier d'expressions outrageantes pour de
 bons et loyaux Français. Nous retranchons donc quatre lignes et demie
@@ -2109,7 +2097,6 @@ de cible à l'autre; en tout cas, il est l'objet du mépris du
 peuple armé. » Eh bien! il me semble que des paysans se chargent de
 nous démontrer en ce moment l'inutilité des grosses armées
 
-La situation en Allemagne
 — Comment appréciez-vous la situation dans votre pays?
 — Je trouve les dernières séances du Reïichstag caracté-
 
@@ -2599,7 +2586,6 @@ l'Exposition, lui montrera le Palais des Congrès. Vous
 ne pouvez pas lui faire déplaisir. Crier à bas Liebknecht!
 Un socialiste ! C'est un peu comme si monsieur Loubet
 criait : À bas le schah de Perse ! Non, cela ne se fait
-pas.
 
 Je m'en allai sentant combien l'ironie un peu lourde
 de ce dernier docteur était excessive.
@@ -2627,7 +2613,6 @@ du Figaro ou de tout autre journal, et je n'ai jamais envisagé cette éventuali
 
 Notre directeur E. Vaughan a reçu, hier, la lettre sui-
 
-Mon cher Vaughan,
 Je vous prie de recevoir ma démission de rédacteur
 de l'Aurore, motivée, comme vous le Savez, par un dissentiment de rédaction que je juge grave.
 
@@ -2638,7 +2623,6 @@ la commune campagne de justice dont j'ai la fierté de
 revendiquer ma part.
 ï Croyez, je vous prie, à mes sentiments affectueux.
 Notre directeur a répondu
-Mon cher Clemenceau,
 
 Je ne puis que m'incliner devant la résolution que
 vous croyez devoir prendre et sur laquelle il m'a été
@@ -2758,7 +2742,6 @@ forgées de toutes pièces. Il est certain dès lors qu'elles ont
 Vous n'ignorez pas que les dossiers secrets des officiers sont
 sacrés, qu'on ne les communique même pas aux familles,
 
-qu'il y a là un pacte de silence, qu'on ne peut rompre, sans
 que toute sécurité soit détruite dans le commandement. Et,
 devant ce détournement de pièces qui aurait eu lieu pour
 servir la plus basse vengeance, je vous demande formellement une enquête. Il faut qu'on sache comment et par qui
@@ -3054,7 +3037,6 @@ par tous les moyens aux courses de taureaux. Cotisation
 Cinquante centimes par an. Secrétaire général : Notre
 excellent confrère Fernand Lefèvre du Rappel.
 
-Le Gérant : CHARLES PÉGUY
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie G.-A. RicaarD & C'*, 9, rue du Pont. — 1702
 

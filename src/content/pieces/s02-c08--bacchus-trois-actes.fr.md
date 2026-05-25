@@ -50,7 +50,6 @@ te rappeler le lien d'hospitalité qui existe entre ni
 nous.
 Tu as touché le but, comme un habile archer. ‘2
 
-A AT ton
 Tu commis un meurtre?
 - A Larissa, oui, je commis un meurtre.
 
@@ -71,13 +70,11 @@ cessités politiques ne doit-elle pas s'incliner et se
 
 Mieux vaut sacrifier le coupable que la victime.
 Le roi que tu frappas était-il ton parent?
-PERSÉE de
 Il fut le père de ma mère.
 
 Tu osas verser ton propre sang! e Lure
 Lorsque mon aïeul voulut me faire périr, le sang  ”
 qui coulait dans mes veines ne lui était pas
-étranger. ES a NES ne.
 Ne crains-tu pas qu'il n'arrive malheur à mon
 palais pour avoir donné asile à un homme souillé
 d'un meurtre aussi affreux ?
@@ -85,7 +82,6 @@ S'il devait arriver un malheur, ce serait plutôtà
 moi, qui l'ai commis. 1512111
 Peut-être espères-tu que les dieux n'auront pas ©!
 à aperçu ton crime ? RE Le
-L'oiore LR LE
 
 J'espère qu'ils s'occuperont d'abord des leurs.
 Je vois que tu méprises aussi les dieux!
@@ -97,9 +93,7 @@ Je croyais que les lois établies par Cadmus
 proscrivaient l'enfant adultérin ?
 Ce qui serait faute chez le petit est divertissement
 chez le grand.
-‘ Tu parles en roi!
 
-Lt NAN de
 Je suis habitué à parler et agir en LORS LE
 d'un dieu et de race royale, tu devrais penser tt
 dire comme moi. 210 re e
@@ -108,7 +102,6 @@ de mes ancêtres! AS 00
 Quel est le dieu à qui tu dois le jour? Ru
 Le plus puissant et le plus criminel de tous, j'ai ‘4
 Et comment partagea-t-il le lit de ta mère? 11:71
-PERSÉE ne
 Et pour cacher sa honte, ton aïeul l'enferma dans ‘04
 une tour ? a.
 Non; elle était captive déjà quand elle me conçut. ‘140
@@ -195,9 +188,7 @@ Héra maudit la souveraine beauté d'Andromède.
 Elle sait que d'elle et de moi sortira, héritière de
 mon épée, la lignée des révoltés vengeurs. Gardienne des lois anciennes, elle haït en moi l'enfant
 adultérin de Zeus, par qui ces lois doivent tomber »
-un jour. 14 NE
 
-#1 PENTHÉE
 4] Etranger, j'ai peur des dieux. Ils sont, invisibles,
 - autour de nous, nul lieu sans esprit mystérieux qui
 l''habite. Maîtres inconnus de cette vie, maîtres
@@ -260,7 +251,6 @@ tout sexe.
 Où rejoignis-tu cette cohue ? MAMA Er -
 Sur la route, au sortir de la porte Elektra.
 Où Bacchus vous mena-t-il ? d 10 î
-Sur la Montagne. 245700
 Sur le Cithéron?
 Sur le Cithéron. 1 CCR
 
@@ -302,7 +292,6 @@ paix, mais la lance, et en disant cela il agitaitson
 thyrse qui cachait un fer de lance. — Je suis penu
 mettre la division entre le fils et le père, entre la
 belle-mère et la bru, et on aura pour ennemis ses
-PENTHÉE ni.
 Jamais Zeus ne lui aurait inspiré une doctrine
 Cependant on dit que Zeus détrôna son père.
 Justement. La doctrine donnerait trop de force
@@ -348,8 +337,6 @@ l'entrée. Cela m'a paru singulier de quelqu'un qui
 
 Décris-moi l'aspect de l'imposteur.
 
-GLAUCOS A ne
-
 Il est grand, maigre, pâle, avec des traits doux et.
 presque féminins ; sa barbe est blonde ; en public il Ke “$
 penche toujours un peu la tête et prend un air pensif: on prétend que pendant les Bacchanales il est. ni
@@ -368,7 +355,6 @@ vrai dire, je le regrettai.
 Vers quelle heure Bacchus a-t-il quitté le Cithé- à
 
 ._ De grand matin, marchant vers Thèbes.
-#4 © PENTHÉE
 Que firent-ils le long de la route ?
 Ils se livrèrent aux pires désordres.
 Quels furent ces désordres ?
@@ -381,11 +367,9 @@ offraient le sein, s'avançaient les premières, cou-
 ._ ronnées de chêne, delierre et de smilax. Une d'elles
 frappa de son thyrse un rocher, et en fit jaillir une
 
-On me l'a raconté; pour moi je n'ai vu que la
 - Continue ton récit.
 Une autre laissa retomber son bâton sur le sol, et
 il jaillit un flot abondant de vin.
-Bien. Continue.
 Soudain l'une des Bacchantes vit une troupe
 nombreuse de bergers placés en embuscade dans
 un taillis touffu, et s'écria : O mes fidèles compagnes, chiennes agiles de Bacchus, voilà que des
@@ -603,8 +587,6 @@ roi, le parti le plus sage de l'écouter et de lui
 Et s'écroulerait ainsi la splendeur de l'orgueilleuse ‘ 4
 Pour l'édification d'une éternelle et divine cité ! # k.
 
-PENTHÉE ne
-
 La gloire serait ternie de la race Cadméide.
 combien heureux qui s'humilierait en vue k:
 d'une gloire immortelle !
@@ -614,7 +596,6 @@ Non! — Tous deux, sortez! A vous, je pardonne, 4
 mais Bacchus périra, et je vais à l'instant rassem-
 bler les citoyens pour exterminer sa bande.
 Adieu, Penthée au nom de deuil!
-É Ils sortent.
 O Persée! Que n''es-tu resté pour combattre ce
 Il commence à s'équiper. Soudain Bacchus apparaît à la porte.
 Fils d'Echion, Penthée, homme impie, las de
@@ -668,7 +649,6 @@ avec mes pères, content d'avoir vu avant de mourir
 le dieu nouveau ton fils.
 Tes cheveux blancs ne descendront pas en paix
 dans le Hadès. -
-è Que m'importe ? J'ai vu ce qu'il me fallait voir!
 Maudis la vieillesse qui te fit atteindre une mort
 Ilne sera pas déshonorant de mourir en l'honneur
 de Bacchus.
@@ -709,7 +689,6 @@ Tacchus est le double fils de ces deux couples;
 C'est clair !
 
 Et cette dualité se transforme ainsi en Trinité. Hè
-Par quel moyen? Ft
 Ne connais-tu pas Bacchus Triphyès ou Trigonos?
 
 Je l'ignorais absolument. at
@@ -718,8 +697,6 @@ l'époux de Perséphoné. ‘4
 Dans trois heures il pourra de nouveau être
 l'époux de Perséphoné. “4
 Il doit trois fois naître, mourir et ressusciter. “4
-PENTHÉE ne.
-Et Sémélé? ‘à
 De bons esprits pensent qu'elle fut la nourrice de
 Bacchus. Mais cette combinaison est fortement
 qu'elle n'a pas existé.
@@ -736,7 +713,6 @@ Bacchus n'est pas fils de Hermès, mais Hermès
 transmit l'enfant de sa mère à sa nourrice.
 
 Que signifie le culte du vin?
-Mes
 juste — le sang de Bacchus, de même que dans les
 mystères de Démêter et Coré infernales, le froment
 représente son corps, ou plutôt son corps représente ; ‘44
@@ -830,13 +806,11 @@ Zagreus, à son père, qui, disait-il, était lui-même.
 nie Souvent ainsi je l'ai vu en songe. Mais voici
 comment je le revis. — Une de mes esclaves, fidèle
 “+ Nomme-moi la proxénète de Bacchus!
-#10 / AUTONOÉ
 “ Elle est morte maintenant — Comme elle mourut
 paisible, heureuse, parlant de fiançailles, de map. riage divin avec Iacchus — J'étais presque jalouse
 de cette mort nuptiale — Un soir elle m'avait menée
 dans l'obscure hypogée où Iacchus enseignait en
 secret — Il y avait là maint disciple, mais je ne vis
-qu lui —
 atroces prononçait cet homme pervers?
 Jidisait: Aimez-vous les uns les autres ; comme
 je vous ai aimés, aimez-vous les uns les autres.
@@ -1068,7 +1042,6 @@ Althaia, sa femme, reçut aussi ta doctrine.
 Je ne comprends pas ton sourire. Althaia reçut
 aussi ma doctrine. ÿ Fe
 
-é Sur ce point je n'ai pas de preuves. Je n'ai connu
 non plus que des rapports vagues sur les débauches
 auxquelles se livraient, sous ta direction, les Mi-
  mallones et les Clodones de Thrace. A cette époque,
@@ -1079,7 +1052,6 @@ fille Carya, et tu la changeas en noyer.
 Est-ce du noyer que tu tiens cette information ?
 L'histoire est connue.
 des accusations aussi ridicules, je ne répondrai
-Fey pas.
 Les miracles que tu montres sur le Cithéron aux
 âmes crédules et simples, les crois-tu entièrement.
 exempts de ridicule ?
@@ -1131,7 +1103,6 @@ Voici devant vous le dernier descendant de Cadmus, 4
 père de la cité. njette ses armes. Frappez-moi, si vous ts
 l'osez ! Tous hésitent. Qui donnera le coup de la Mort au
 dernier des grands rois Thébains ?
-AUTONOÉ “de
 
 Elle se jette sur Penthée un couteau à la main et le frappe. Tous alors
 se ruent sur lui; il tombe accablé de coups. Les uns sortent alors,
@@ -1205,7 +1176,6 @@ réel, il ne peut plus maintenant qu''expliquer le vol
 1 …_ des oiseaux ou les entrailles des victimes. Et tou-
 jours, à l'essor de sa haute raison, la superstition
 Ne: _ première, dont il n'a su se défaire, oppose une bar-
-ANTENOR, après un silence Hs FN RATER
 de Bacchus a introduites dans les esprits. ne
 Maintenant que ces idées peuvent, seules, faire
 leur chemin, Bacchus n'est plus pour moi que le.
@@ -1230,7 +1200,6 @@ Voyez comme la foule servile fuit le contact de
 accomplissent leurs bassesses et leurs crimes! InKL : AR D È
 ‘à terroge-les : c'est l'erreur de Tirésias qu'ils diront
 baïr, et non sa déchéance !
-UN HERAUT, de la porte
 
 Le dieu va manifester sa présence.
 J'aime mieux ne point voir ce qui va se passer.
@@ -1450,13 +1419,11 @@ Cependant les pèlerins étrangers sont sortis,
 
 Penthée est donc mort? k
 la chasse, par accident.
-PERSÉE ne
 quel titre lui succédas-tu ?
 Comme époux de sa sœur Autonoé.
 Et d'où te vient ce costume étranger ?
 Élevé dans la Lydie, j'en ai conservé les mœurs.
 Et toi, mon hôte? J'ai cru entendre qu'on te nommait Persée.
-Je suis Persée.
 Quelle est cette femme?
 
 - Ma compagne Andromède, fille de Cassiopée, que
@@ -1603,7 +1570,6 @@ Que leurs âmes aussi doivent être troublées ! Et
 à quel âge faites-vous commencer ces dangereux
 Chez l'enfant, à onze ou douze ans. Et, vers la
 même époque, nous faisons subir à l'enfant une initiation au mariage: c'est notre principale cérémonie
-ANDROMÈDE sa
 me paraît sage, en effet, d'enseigner à l'enfant
 ce que c'est que l'amour avant qu'il ne s'y laisse
 Bien au contraire, nous lui en laissons ignorer la
@@ -1662,7 +1628,6 @@ raît maintenant affreuse et sombre — Est-ce done
 là le bonheur promis ?
 Parle, Andromède, je saurai te consoler.
 Je ne puis.
-Enfant !
 
 Ton amour est chose profane !
 Depuis un instant je suis là, à genoux devant toi,
@@ -1679,7 +1644,6 @@ doucement vers les coussins où elle tombe assise, Puis il revient vers Bacchus.
 Bacchus, ton grand prêtre porte fort mal le vin.
 Quelle est cette plaisanterie?
 Damis est réellement sous une table.
-L'imbécile!
 
 De plus il m'a appris bien des choses que je ne
 savais pas, entre autres les desseins que tu me fais
@@ -1692,7 +1656,6 @@ doctrine et je n'aime déjà pas les gens à double face.
 De plus je sais que tu prétends être dieu, et jai
 encore moins de sympathie pour les dieux que
 pour les rois — le Grand-Prêtre a été très éloquent!
-L'ivrogne!
 Quelles séductions essayais-tu sur Andromède ?
 Je ne resterai pas un moment de plus dans ce palais.
 Il fait un signe à Andromède qui se lève, et la précède vers la porte; Bacchus se »
@@ -1712,8 +1675,6 @@ La scène se remplit de Thébains et d'esclaves. Tous s'arrêtent, saisis
 d'une terreur superstitieuse, devant le corps de Bacchus, sur lequel s'est
 jetée Autonoé. Persée a reculé vers la droite et reste l'épée à la main,
 au premier plan; derrière lui Andromède est adossée à la muraille.
-
-(Ha RFO D A NE Ent PATIO
 
 DR 4 PERSÉE, l'épée basse, calme, et d'une voix claire
 
@@ -1769,7 +1730,6 @@ mables innovations, qui —
 En un mot, Persée, il faut abolir ce titre de grand_ prêtre, qui rappelle la déplorable époque d'une
 ac rc théocratie obscurantiste, et revenir aux saines tra-
 ditions des âges ——
-LA REC PERSEE, étonné
 
 Ë Mais vous n'y êtes pas du tout —
 F. Vive le roi Persée!
@@ -1780,7 +1740,6 @@ LS Bande d'idolätres! Je viens de vous le dire,
 _ passez-vous de rois et de prêtres!
 Silence. Persée fait une tentative pour sortir.
 Nommez-le donc dieu pendant que vous y êtes.
-L AMPHIDOROS, à part
 ke C'est vrai! haut Celui qui vainquit un dieu ne
 peut plus être que dieu! Vive le p1Eu Persée!
 1e ue Tous répètent ce cri, beaucoup se prosternent.
@@ -1791,7 +1750,6 @@ grave des lettres sur le mur. Le jour seulement où par l'effort
 personnel de votre intelligence vous arriverez à lire
 ces conseils, ce jour-là, vous serez dignes d'être
 Où est le dieu?
-Il a disparu !
 Tous se relèvent; de nouveaux arrivants surviennent, entre autres
 Diomédon et Antenôr, Diomédon examine les caractères empreints
 sur le mur.
@@ -1827,9 +1785,6 @@ Persée et Bacchus, tout cela, ce sont des mythes
 solaires, n'est-ce pas? — —
 
 ne par Louis Ango,
-Ne 2 : Léon Bruel,
-| César Petit,
-À Le Ernest Payen,
 
 Nous prions ceux de nos abonnés qui nous envoient
 des documents et des renseignements de vouloir bien

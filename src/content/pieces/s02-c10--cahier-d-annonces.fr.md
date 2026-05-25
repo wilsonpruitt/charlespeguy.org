@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 16854
 ---
-## Cahier d'annonces
-
-D. Mon cher Péguy
 Nous n'eussions jamais pensé à nous assembler pour
 condamner la Société nouvelle de librairie et d'édition.
 Réciproquement nous n'acceptons pas la condamnation
@@ -20,7 +17,6 @@ la Société nouvelle
 Daniel Delafarge, ancien élève de l'École Normale Supérieure ; À
 de la Société nouvelle;
 René Lavaud, ancien élève de l'École Normale
-L Charles Tharaud
 Ernest Tharaud, ancien élève de l'École Normale
 4 $ Je suis profondément heureux que des amis éprouvés
 garantissent ma défense. Ils me laissent ainsi le loisir
@@ -151,8 +147,6 @@ MEETINCSALLE D'ARRAS, 3, rue d'Arras, le mercredi 27 mars
 à huit heures et demie du soir
 Il sera perçu 0 franc 25 pour les frais
 Hesse (Lettres), Dantez Le Hire (Docteur en droit),
-MariraIN (Sciences), EpGarp MiznauDp (Agrégé de
-philosophie), CHarLes PÉGuy (Lettres), DE LA PORTE
 (Agrégé de philosophie), Wersxopr (Lettres).
 
 dixième cahier de la deuxième série “#
@@ -472,7 +466,6 @@ leur silence vendu la cause de l'humanité, trahissent la
 France elle-même, dont c'est l'honneur traditionnel de
 répondre à l'appel de la justice. Mais la France vaut
 
-ses te ANA ENES ÿ j
 mieux que ce que sa presse et son gouvernement voudraient faire croire. ,
 L'Université française, du moins, a prouvé qu'elle a
 une conscience.
@@ -604,21 +597,15 @@ passe chez nous,
 Nous faisons appel à la presse du monde entier
 pour donner le plus de publicité possible à la constatation des faits lamentables dont nous avons été
 
-Bocpanovsxky, homme de lettres; ArYE BocDANOVITCH, S. et R. BRAGUINSKY, ALEXANDRE
 Marie WATSON, PIERRE WEINBERG, exprofesseur à l'Université de Pétersbourg; G.
 
 dixième cahier de la deuxième série ‘4
 l'Université de Pétersbourg; Gorky (ALExXIS
-YERMOLAYEV, directeur de la revue la Vie;
-KaArEeyEv, professeur à l'Université de Pétersbourg; A. KamiINKA, A. Kazmyrov, A. KorNILOV, N. KoïTLIAREvVSKY, professeur d'histoire
 à l'Université de Pétersbourg ; VLaprmim
 Lessevrrcn, professeur de philosophie
 l'Université de Pétersbourg ; MARIE LETKOv,
 femme de lettres; D. Manixe-Sipirrak,
 MixnaiLovsky, directeur de la revue
-Richesse de la Russie ; BeNEpicr MrAKOTINE, 1
-professeur d'histoire à l'Université de Pétersbourg ; N. MoGxiILANSKY, SERAPHINE PANTELEYEV, LONGUINE PANTELEYEV, GRÉGOIRE
-RosENBERG, N. ROUBAKINE, NADINE RouBAKINE, MARIE SLEPTZOV, A. YAROTZKY, professeur d'économie politique à l'Université de
 Pétersbourg ; P. LesHAFT, professeur d'anatomie à l'Université de Pétersbourg.
 
 Nous publierons dans un prochain cahier la supplique
@@ -633,7 +620,6 @@ Origines et Développement
 Professeur à la Faculté des lettres de l'Université de Paris
 Ce livre est le premier en date qui mérite le nom
 d'histoire de la Révolution française. Extrait de l'avertissement
-Aulard De
 Dans cette histoire politique de la Révolution fran-
 çaise, je me propose de montrer comment les principes
 de la Déclaration des droiïts furent, de 1789 à 1804, mis
@@ -661,7 +647,6 @@ le 22 septembre 1792 qu'après avoir aboli la monarchie
 ils se formèrent en république. On peut dire que la
 forme républicaine dura jusqu'en 1804, c'est-à-dire jusqu'à l'époque où le gouvernement de la république fut
 confié à un empereur. Mais la démocratie fut supprimée
-en 1795, par la constitution de l'an III, ou du moins
 altérée profondément par une combinaison du suffrage
 
 universel et du suffrage censitaire. On demanda d'abord
@@ -1007,8 +992,6 @@ jamais connus.
 Aux bureaux de l'Œuvre même on reçoit chaque jour
 un courrier intéressant, plein d'une sympathie sincère,
 
-te TOUS LES JOURNAUX POUR TOUS
-
 venue de tous les coins du pays. Nos correspondants
 savent qu'ils parlent à des amis et nous content soigneusement tout ce qu'ils trouvent intéressant. Un
 cultivateur nous écrit du dernier orage, des gelées qu'il
@@ -1038,7 +1021,6 @@ Environ 20.000 brochures de Bouglé, Duclaux, Reinach,
 Havet, André Léo, Yves Guyot, Le Pic, Baggio, Fournière,
 
 Elle a pris des abonnements de propagande au “à
-Rappel, à la Paix, à la Fronde, à la Lanterne, au
 Radical, à l'Aurore, à la Petite République, au Petit ‘1
 Bleu, au Paysan de France, au Réveil des Vosges,
 grâce à des collaborateurs qui préféraient la dépense re
@@ -1090,7 +1072,6 @@ Les assemblées générales qui auront lieu tous les mois
 décideront du choix des brochures; la commission exécutive réglera les affaires courantes.
 
 Pour « la Propagande socialiste »:
-La Commission exécutive.
 
 N. B. — Envoyer les adhésions et les communications au )
 citoyen Georges Weill, secrétaire, 9, rue des Feuillantines
@@ -1146,7 +1127,6 @@ Un ami nous avait communiqué cette annonce
 
 rue de Lille
 Autorisée par Arrêtés du Préfet de Police en date des 19 février 1896 et 11 mars 1898
-M. SULLY - PRUDHOMME, de l'Académie Française
 
 But. — L'objet de la Société est de préserver de la
 misère définitive : elle intervient en faveur de ceux qui
@@ -1188,7 +1168,6 @@ Les Visiteurs se réunissent en groupes de quartiers; “4
 un bureau central relie les groupes et gère les services
 Situation et résultats. — 1896-1900 : La Société
 Caisse de prêts gratuits.
-Ù Placement. De
 Familles adoptées depuis l'origine, . . . .
 Remboursements des prêts en 1899 : 1.234 fr.
 
@@ -1231,8 +1210,6 @@ ARTICLE 7. — Les intérêts communs aux Groupes et la à
 direction générale de la Société sont confiés à un comité
 central composé des Présidents des Groupes et du Bureau le)
 
-de la Société. 7%
-ARTICLE 8. — Le Bureau de la Société comprend un Pré- ne.
 sident, qui représente la Société, un Vice-Président, un Se
 crétaire et un Trésorier. ne:
 
@@ -1249,20 +1226,15 @@ de services généraux mis à la disposition de tous les Visi- nn
 teurs en faveur des familles admises et qui sont notam- ‘4
 
 Un service de relations avec les institutions d'assistance
-Un service médical ; Me
 Un service de renseignements pratiques. 4 v:
 
 Ressources de la Société ps
-ARTICLE 10. — Les ressources de la Société sont : (Lu
 1° Les cotisations annuelles ou mensuelles des Visiteurs
 
-i SOCIÉTÉ DES VISITEURS » Les souscriptions des Bienfaiteurs
 3° Les subventions, dons et affectations spéciales
 4° Le produit des ressources créées à titre exceptionnel
 
 ARTICLE 11. — Les Visiteurs fixent eux-mêmes l'importance de leurs cotisations. Ils versent au moins 2 francs
-par an.
-ARTICLE 12. — Les Bienfaiteurs se divisent en
 1° Donateurs, qui versent au moins 20 francs par an, ou
 peuvent se racheter de toute souscription par un versement
 de 300 francs une fois effectué
@@ -1397,7 +1369,6 @@ ont besoin de partager leur pain ou leur cœur avec les
 misérables. Combien de jeunes gens, presque incroyants,
 navons-nous pas vu entrer dans des œuvres confessionnelles parce que les républicains n'avaient pas su orga-
 
-André Voisin MA AA D
 niser des foyers d'amour, et qui, resserrés peu à peu” 4
 ï dans de discrets réseaux, rentraient doucement dans \ #4
 le giron des Églises ; certes, la Société des Visiteurs
@@ -1426,7 +1397,6 @@ d'aider vos amis malheureux; envoyez-nous surtout
 ceux de vos amis que vous n'aurez pu convaincre par fe:
 vos plus habiles arguments: Nous en ferons des … M
 
-Le Mouvement Socialiste
 Paraissant le premier et le 15 de chaque mois Ÿ
 BELGIQUE : Bruxelles, 14, rue du Béguinage
 Le Mouvement Socialiste paraît deux fois par mois,
@@ -1488,7 +1458,6 @@ J. Gozpsreix : La question de la dépopulation en France.
 socialiste. — La leçon des fêtes de Bruxelles. — Karr
 Kaursky : Démocratie et lutte de classe. — Jaurès et Mille-
 rand. — Le cas Millerand et le socialisme français. —
-ANTonIo LABRIOLA : À propos du livre de Bernstein. —
 Huserr LAGARDELLE : Le socialisme et l'affaire Dreyfus. —
 propos des Universités populaires. — Le parti socialiste
 et la crise. — Rosa LuxemBurG : Le cas Millerand, — Karz
@@ -1514,13 +1483,8 @@ au congrès de Hanovre. pe:
 
 CorneLissex : Le socialisme en Hollande (réponse à Vliegen).…
 
-LaLzLa KurreRATH : L'Angleterre et le socialisme. —
 L'unité du parti ouvrier anglais. — QueLcu : L'organisation ]
 unitaire du socialisme anglais. — A propos de l'unité du
-
-XAvIER DE CARVALHO : Le socialisme au Brésil.
-
-A. SImoxs : Le socialisme en Amérique.
 
 RENÉ Aror : Le socialisme aux Antilles.
 
@@ -1532,7 +1496,6 @@ socialiste. — Le congrès national du socialisme français. —
 L'œuvre du congrès. — Le congrès socialiste international.
 
 — Vers l'unité. — La lecon de la conférence Guesde-Jaurès.
-— JEAN LonGuEr : Le dix-septième congrès du P.0O. F.—Le
 congrès de l'unité socialiste. — Le second congrès du parti
 socialiste français. — MarcEez Mauss : L'union et la question
 ministérielle. — Ponarp : Réflexions d'un militant ouvrier
@@ -1551,12 +1514,10 @@ Jean Deck : La situation en Finlande. — Issayey « Les
 finances russes. — PABLo IGzesras : Les élections législatives
 en Espagne. — Marcez Mauss : La guerre du Transvaal.
 
-. — FRANCIS DE PRESSENSÉ : L'Angleterre et le Transvaal. —
 - Supexum: La justice de classe en Allemagne. — PoPoviTcx
 Situation économique de la Serbie. — Rivière : Les Trusts
 
 Max ALBERT : L'Inspection du travail en France. —
-ADpozpx BRAUN : L'état et l'évolution de la législation
 ouvrière en Allemagne. — E. Briar : Congrès de la
 Prud'homie, — Pau DramaAs : La loi du 9 avril 1898, sur
 les accidents du travail. — FAUQUET : La réduction de la
@@ -1569,7 +1530,6 @@ Mourter : La réforme de la loi sur les syndicats : le projet
 Waldeck-Rousseau-Millerand.— Rivière : La législation du
 travail en Australie. — L'industrie à domicile.
 
-RENÉ AROT : A la Martinique. — Nina BaAwG : Lockout en
 Danemark. — La fin du lockout danois. — Brrar : La
 bourse du travail de Paris. — Le syndicat des ouvriers en
 instruments de précision. — Apozr BRAUN : Les syndicats
@@ -1578,38 +1538,30 @@ allemands. — Coupar : L'union des ouvriers mécaniciens
 de la Seine. — Vicror Dazce : Les employées et leur congrès. — Dewinxe : La question syndicale en Belgique. —
 Euro : Grève générale des mineurs belges. — Pau
 Fauconxer : Les secrétariats ouvriers en Allemagne. —
-GEoRGEs FauQuEr : L'interpellation sur le chômage et la
 fédération des Bourses de Travail. — GuérARD : La Confé-
 dération du Travail. — À. Hameznx : La fédération française
 des travailleurs du livre. — H. Haxrior : Les employés de
 magasin au Havre. — Le mouvement ouvrier au Havre. —
 d _ HixrerpiNG : La grève générale des mineurs autrichiens.
-— JEAN JAURÈS : Lés employés et le socialisme. — G.
 dixième cahier de la deuxième série
 Laporte : Les travailleurs de la voie ferrée. — Deux
 congrès des travailleurs de chemin de fer. — JEAN LoNGuer
 Le congrès international des mineurs. — Norrt : Organisation des ouvriers et employés de chemins de fer en Italie.
 — A. Ocrors : Les Dockers belges. — Le premier congrès
-syndical du P. ©. belge. — FERNAND PELLOUTER : Le comité
 fédéral des Bourses du Travail. — La fédération des Bourses
 du Travail et ses congrès. — Réven : La grève de Calais.
 — Rivière : La crise de l'industrie textile. — MAXENCE
 Rozpess : Les grèves du Creusot et de Montceau-les-Mines:
-— VAN VAERBBERE : La grève de Saint-Amand. — H. Ver:
 HAERT : La fédération des ouvriers gantiers et ses congrès.
 
 Émize Aumerr : La verrerie ouvrière d'Albi. — ANSRELE
 La coopération et le socialisme. — Bocx : La coopérative
 « l''Abeïlle suresnoiïise ». — DEewinne : La coopération en
 Belgique. — XAVIER GuILLEMN : L'Avenir de Plaisance. —
-LazzA KurreRATE : Une association coopérative en Amé-
 rique. — Marcez Mauss : Le congrès des coopératives socialistes. — Samson : La coopérative « l'Union de Lille ».
 Socialisme et militarisme
-BzpeL : Le militarisme et le socialisme. — PAUL BROUSSE
-Le désarmement. — EnGeLs : La puissance militaire de la
 Russie. — Pauz Fauconwer : La réforme militaire. — GaAsTON VANDERMEEREN : La propagande antimilitariste en Belgique.
 BRuNELLIÈRE : L'agriculture dans l'ouest de la France. —
-EnceLs : Critique du programme agraire du P. O0. F:="
 Huserr LAGARDELLE : Le programme agraire du P.O:F:
 jugé par le P. O.F. lui-même. — VANDERVELDE : Influence
 des villes sur les campagnes : le Limbourg et Anvers, la
@@ -1629,7 +1581,6 @@ Le parti socialiste et la lutte contre l'alcool. — La lutte
 contre l'alcool.
 E. Berru : Le socialisme et M. Faguet. — MARCEL LANDRIEU : La concentration des forces ouvrières dans l'Amé-
 rique du Nord.— A. Lévy : Réponse de Kautsky à Bernstein.
-— G. Son : Le socialisme et la Révolution française. —
 Les industries monopolisées aux États-Unis. — La Pré-
 voyance sociale en Italie. — La participation aux béné-
 Arts et littérature
@@ -1664,37 +1615,24 @@ n'avons pas institué nos cahiers pour donner sur le.
 mouvement socialiste les nouvelles simultanées complètes et les renseignements rigoureusement contemporains. Pour se tenir au courant du mouvement sotialiste à mesure qu'il se meut, on doit s'abonner au
 
 Paraît le 10 de chaque mois
-La Revue
 Éditeur : Société d'éditions artistiques et littéraires,
 s Extrait des collections
-1887 TOURGUENIEY. — Une Source à Sorrente.
-1888 ALBERT VANDAL. — Molière et le Cérémonial
-1890 MARIE LAURENT. — L'Art du Comédien.
 — Henri HENE. — Les Femmes de Shakespeare.
 1891 HENRY BECQUE. — Hamlet et les chroniques de
-1892 BJORNSTIERNE BJoRNsoN. — Le Gant.
 — Taéopore REINAcCH. — L'Hymne d'Apollon.
 1897 Maurice PoTtEcHER. — Le Drame populaire.
-1898 ROBERT DE FLERS. — Alphonse Daudet.
 1899 Tozsror. — Le premier Bouilleur.
 — RoBErT BRUSSEL. — Emmanuel Chabrier et le Rire
-— J.-G. PRODHOMME. — La Prise de Troie, de Berlioz. k
-1900 LucIEN BesnArRD. — Les Chiens du Maître.
 — GÉRARD HAUPTMANN. — Avant le Lever du Soleil.
-— Ep. Scauré. — Le Drame de l'Ame.
 
 dixième cahier de la deuxième série
-1900 LuGné Por. — L'Art du Machiniste.
 — Eucène Morer. — Projet de Théâtres populaires.
 Récemment réorganisée, la Revue d'Art dramatique
-JEAN JuLLIEN et LucIEN BEsNARD. — Campagne contre la
-RogerT BRUSSEL. — La Schola Cantorum.
 Hexry Lyonner. — Le Théâtre hors de France. Italie. ‘
 Henry Lyonner. — Lettres inédites de Verdi.
 SuarÈs. — L'Amour et la Volupté au théâtre.
 Théâtres. Compte rendu et analyse des pièces jouées sur
 les théâtres du monde entier.
-Elle publiera
 Nous ne pouvons demander à nos amis de s'abonner
 cette Revue comme nous leur demandons de s'abonner
 au Mouvement Socialiste. Mais nous leur demandons
@@ -1770,8 +1708,6 @@ par les actionnaires de la Société nouvelle.
 
 installée à l'Union Moufjetard, université pop re du.
 
-LES LEÇONS SONT FAITES PAR: ii
-HusErT BoURGIN, agrégé de l'Université; PAUL
 connET, agrégé de l'Université; LucIEN HERR, agrégé
 de l'Université; HuBerr LAGARDELLE, directeur dus
 LonquEr; Marcez Mauss, agrégé de l''Univer sité;
@@ -1789,11 +1725,8 @@ séries de leçons ayant pour objet : “URSS
 1° L'Histoire des doctrines socialistes; LR
 L'Organisation des partis socialistes français et
 L'Organisation économique (coopératives, SYndEN
-La Législation sociale. TA he
 Le Le programme sera, d'année en année, él A bte
-complété. La
 
-nt 1. — L'ORGANISATION ÉCONOMIQUE
 Le Lundi à 9 heures du soir
 s COOPÉRATIVES ra » 111 février  L Histoire du mouvement coopératif.
 . > » 925 février I. Nature des diverses institutions coopé-
@@ -1823,10 +1756,6 @@ dixième cahier de la deuxième série
 9° 25 avril I. Depuis la Commune jusqu'en 1889.
 10° 2 mai IL. Depuis 1889 jusqu'au Congrès de Paris.
 11° 9 mai II. Le Congrès de Paris et l'Unité socialiste.
-Les CONGRÈS INTERNATIONAUX
-février FOURIER ET LE FOURIÉRISME.
-3° 2 mars LE MANIFESTE COMMUNISTE.
-4 9 mars LE SOCIALISME FRANÇAIS EN 1848.
 7° 30 mars  Karz Marx : I. La plus-value.
 9° 27 avril — II. La rente foncière.
 Les Samedi 25 et Jeudi 30 mai à 5 heures 1/2.
@@ -1834,9 +1763,7 @@ Les cartes d'entrée sont délivrées à la Société NouVELLE DE LIBRAIRIE ET D
 peuvent étre demandées par correspondance. Elles sont
 délivrées moyennant une cotisation fixée, pour les quatre
 mois, à 2 francs, payables facultativement par quarts.
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
-IMPRIMERIE DE SURESNES (G. RICHARD, administrateur), 9, rue du Pont.—4168
 
 ra Nous prions ceux de nos abonnés qui nous envoient ]
 s des documents et des renseignements de vouloir bien

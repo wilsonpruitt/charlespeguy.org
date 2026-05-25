@@ -7,14 +7,8 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 20302
 ---
-|__ Cahiers
-
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-AD at CUT EX CORRE LA à a AT LM OPEL ERA ENT it ET F: +
-RATS on ee de Pa La ve re Éd a
-tt LUE Pr Ra À un x PIS 275 RS TEA RES re AE À
-SES mA CULE Fons RE
 IT ANR Pour savoir ce que sont les Cahiers de la Quinzaine,
 Re il suffit d'envoyer un mandat de trois francs cinquante ss
 à M. André Bourgeois, administrateur des ca iers,
@@ -87,7 +81,6 @@ nous serons heureux d'établir la communication. Écrire
 Cette lettre nous parvint quelques jours avant le
 commencement des vacances. Nous recevons un assez
 
-pe Le DE JEAN COSTE
 4 grand nombre de lettres écrites par des instituteurs ;
 ; j'aime cette écriture soigneuse, régulière, grammaticale, presque toujours modeste, calme, et déjà conforme à la typographie; ce papier écolier; cette encre
 violette, qui sert à corriger les devoirs.
@@ -158,7 +151,6 @@ socialistes si je disais que l'on ne trouve personne et
 que l'on ne trouve rien; mais tous ceux qui ont essayé
 de préparer ou d'organiser du véritable travail savent,
 
-| DE JEAN COSTE
 à considérer l'ensemble du marché, de combien le rendement qui intéresse le travail est inférieur aux flots qui
 alimentent la représentation. Loin qu'ayant alimenté la
 représentation les souscripteurs habituels se croient
@@ -201,7 +193,6 @@ les pauvres qui sortent de l'égoïsme et de la misère, au
 lieu d'acquérir directement une solidarité de classe,
 commencent par se donner un orgueil de parti, une
 affectation de grandeur, un goût bourgeois de la céré-
-monie et de la représentation. à
 A ces aberrations des pauvres et des riches nous
 savons qu'il y a des exceptions nombreuses; nous
 savons qu'elles sont beaucoup plus nombreuses pour
@@ -223,9 +214,6 @@ avec tous ses abus, mais je dis : de préférence par ses
 abus, sous ses formes d'abus, n'est qu'une introduc- .
 tion particulière de ce gouvernement général, et sauf
 de rares et d'honorables exceptions les travailleurs
-
-|
-|
 
 émancipés pensent à gouverner plutôt qu'ils ne pensent
 à travailler; les romantiques et les classiques vivent
@@ -412,7 +400,6 @@ n'a pas reconnu cette intervention ; ainsi on attribue à la misère les vertus 
 contraire on impute à la pauvreté les déchéances de la
 misère; comme ailleurs on attribue à l'humilité les
 
-vertus de la modestie, ou au contraire on impute à la
 modestie les abaissements de l'humilité.
 
 Ainsi à l'égard de la consommation la différence du
@@ -445,8 +432,6 @@ de la misère les miséreux, sans aucune exception,
 duquel on ne peut pas même examiner quel est le premier devoir social.
 
 Au contraire, étant donné que tous les miséreux,
-
-Qui.
 
 troisième cahier de la quatrième série n
 sans aucune exception, seraient sauvés de la misère, :
@@ -505,7 +490,6 @@ lhorizon de l'élu est ouvert d'une ouverture infinie;
 aucun désespoir absolument, aucune hésitation ne
 
 Cela étant, le purgatoire a beau ressembler à l'enfer
-en ce qu'il est un lieu de peine et d'expiation, en ce
 qu'il comporte la même Absence; il a beau avoir la
 même qualité ; il suffit que le mode n'en soit pas éternel, et que l'espérance non seulement passe mais soit
 assurée pour que tout soit autre ; au jugement dernier
@@ -541,7 +525,6 @@ détournée par les politiciens de son sens profond et
 plein, utilisée d'une utilisation fade et vide; ici encore
 le langage exact, le sens profond appartient au peuple
 
-| ë
 et aux écrivains, par dessus la tête creuse de la plupart des parlementaires de langue et des parlementaires de plume; quand un candidat parle de l'enfer
 social, économique, il veut dire une situation où que
 l'on ne se trouve pas bien; quand le peuple dit que la vie
@@ -729,8 +712,6 @@ M. François Daveillans, de la revue blanche: la lecture
 du deuxième serait d'une grande utilité pour M. Fran-
 çois Simiand, et pour un assez grand nombre de sociologues: ily a dans ce bref paragraphe, indiquées seule-
 
-Que : SOA
-
 ment, les distinctions les plus utiles, et aussi les plus 9
 fondées, entre la science et l'art social. Quand un
 
@@ -778,7 +759,6 @@ la mort dans la vie, c'est un arrière-goût de mort mêlé |
 à toute vie; la mort était pour le sage antique la 1
 dernière libération, un affranchissement indéfaisable. |
 Mais pour le misérable elle n'est que la consommation
-de lamertume et de la défaite, la consommation du
 désespoir. Si Jean Coste acculé se tue un jour avec sa
 femme et ses enfants, son dernier jour sera son plus
 terrible jour. Dies irae, jour de colère.
@@ -803,8 +783,6 @@ limitation; littéralement elle est infinie; point n'est
 besoin que la cause ou l'objet en soit infini pour qu'elle
 soit infinie; une cause, un objet qui n'est pas infini
 pour la science extérieure, pour la physique, peut déterminer dans une âme un sentiment infini si ce sentiment |
-
-|
 
 . emplit toute l'âme; non pas en ce sens qu'il exterminerait de l'âme tout autre sentiment, conscient, subconscient, inconscient, mais en ce sens qu'il affecte sans
 exception, qu'il nuance et qualifie toute la vie sentimentale, intellectuelle, toute la vie de l'âme et de
@@ -885,8 +863,6 @@ et d'une manière générale tous les sentiments qui sont
 
 de la charité; or il n'est pas loyal de le lui demander
 
-|
-
 pendant que l'on persécute le catholicisme ; secondement on lui demande une feinte ; on lui demande, étant
 misérable, de faire comme s'il ne l'était pas; et troisiè-
 mement on lui demande une impossibilité; le misérable
@@ -938,11 +914,8 @@ se demande quelle fête ils imagineraient le jour que la
 révolution serait faite. Mais Jean Coste est dans sa
 misère. Il n'est pas seulement au centre de sa misère
 pour la connaissance qu'il a de sa vie; Jean Coste est
-au centre de sa misère pour la connaissance qu'il a du
 monde. Les peines des autres hommes lui font une multiplication, un redoublement de ses peines. Les bonheurs des autres hommes le repoussent dans sa peine;
 les bonheurs des autres hommes lui laissent un arrièregoût d'amertume et d'ingratitude, parce qu'ils réveil- ,
-
-|
 
 lent en lui la connaissance de légoïsme universel. Vu
 par lui, l'univers est misérable. Notre troisième et dernière conclusion de fait sera que la simple misère
@@ -1000,8 +973,6 @@ aussi mauvaise que l'était de ce chef la cité du Dieu
 catholique. Le prix de la vie n'a pas baissé depuis la
 diminution, depuis l'élimination de la foi catholique.
 
-| 3 gli Vi An . ii.
-; di ui où UHR
 La valeur de la souffrance n'a pas diminué. La valeur '
 de l'effort à faire n'a pas diminué; comme les catholiques sérieux sont préoccupés surtout du salut, nous
 devons nous préoccuper surtout d'arracher ies misé-
@@ -1095,7 +1066,6 @@ c'est un des meilleurs parmi les bons sentiments; c'est
 un sentiment à la fois profondément conservateur et
 profondément révolutionnaire; c'est un sentiment simple: c'est un des principaux parmi les sentiments qui
 
-ne
 troisième cahier de la quatrième série
 ont fait l'humanité, qui l'ont maintenue, qui sans doute L
 l'affranchiront; c'est un grand sentiment, de grande j
@@ -1112,7 +1082,6 @@ biles à deux cent cinquante chèvaux, s'il y en a; il faut è
 que les sentiments de la fraternité soient formidables
 pour avoir tenu en échec depuis le commencement de
 l'humanité, depuis l'évolution de l'animalité, tous les
-sentiments de la guerre, de la barbarie et de la haine,
 et pour avoir gagné sur eux: au contraire le sentiment
 de l'égalité n'est pas un vieux sentiment, un sentiment
 perpétuel, un sentiment universel, de toute grandeur; :
@@ -1528,7 +1497,6 @@ elles; ainsi les romantiques ne font le tour du monde pa
 que parce qu'ils ont commencé par se fabriquer un petit a
 monde circumnavigable. 3
 On a reproché à Jean Coste une certaine grandilo- {
-quence ; on a eu raison de la constater; on a eu tort de 8
 la lui reprocher : il parle comme il peut; on a eu tort 4
 de la reprocher à l'auteur : l'auteur a bien vu: c'est un $
 fait que les misérables se plaisent un peu à ce qui nous
@@ -1608,8 +1576,6 @@ moyen. Les instituteurs nous écrivent longuement ; et je
 lis scrupuleusement tout ce qu'on nous écrit.
 
 Je connais donc les instituteurs. Je les connais comme
-
-| DE JEAN COSTE
 
 | un inspecteur général ne les connaît pas. Je les connais
 comme l'honorable M. Buisson, qui les a faits, qui les
@@ -1727,7 +1693,6 @@ pensai qu'on accueillerait ce livre d'instituteur; je me
 trompais ; on me le fit bien voir. Les grands orateurs
 attitrés se turent; les gens qui parlent de tout ne parlèrent pas du Jean Coste; dans l'Aurore mème le livre
 n'eut que quelques lignes de Geste, un posi-scriptum,
-je crois. |
 
 Sur le conseil de notre ami Pierre Félix, qui alors
 s'intéressait aux cahiers, et que le Jean Coste avait profondément ému, je fis les démarches les plus instantes
@@ -2017,7 +1982,6 @@ première discussion l'idée fausse reparaît, florissante; la
 | comparaison inconsidérée s'impose; elle est commode.
 | Il y a cinq ans, au commencement de l'affaire, ily a
 | deux ans, quand on pensa faussement que l'affaire était
-| :
 
 troisième cahier de la quatrième série
 consommée, toutes les fois que la conversation des
@@ -2113,7 +2077,6 @@ Pressensé dans leurs journaux commencent à s'apercevoir que les partis radicau
 parle de défaillance et pense de trahison. Cette majorité
 qui devait tout bouffer, — style approprié, — se rompt
 devant les bouilleurs de cru et vient de porter M. Doumer
-à la présidence de la commission du budget.
 
 Nous n'avons jamais rien dit que cela. Mais nous
 Pavons dit à temps.
@@ -2157,26 +2120,6 @@ Descartes, Pascal ou Corneille, Rousseau ou Voltaire, |
 Vigny ou Lamartine, c'est en lisant qu'un homme se
 forme, et non pas en récitant des manuels. Et c'est,
 aussi, en travaillant, modestement.
-
-RNCS FH QU hi PNR MA ASE ee RAA RAT
-
-ne JA ea AUS TRE EAU RO M CE NI STE Fe
-
-0 et À PU] MAD: NpL es tr NE er
-
-ra et PAT RES, F3) RL Re CEA TE AU IAOUN AE 7
-
-ÉVMIS ENRES Het RATER NE
-
-> es AC) NN cit RE WA EURS
-
-# L'VELASENSSN * VE
-
-re 1e VOTRE PESTE) & < à À HP ie
-
-| M DURE ARR
-
-LEA Qi Le pates 10 w \ EX F ne h ET
 
 L'an mil neuf cent deux, le vingt-huit octobre, à la
 requête de monsieur Colomb, président du Comité de
@@ -2242,8 +2185,6 @@ qu'elle compærte.
 
 De plus, ne pouvant compter sur l'impartialité du
 
-|
-
 signataire d'un pareil article, se résout à demander à 4
 
 M. Charles Péguy, par les voies légales, l'insertion h
@@ -2253,15 +2194,12 @@ dans son plus prochain Cahier de la Quinzaine, du pré- !
 sent extrait du procès-verbal de ses séances; F
 
 Et passe à l'ordre du jour. |
-Ont signé :
 
 Lui déclarant que faute de satisfaire à la présente
 sommation le requérant se pourvoira ainsi que de |
 droit pour l'y contraindre. |
 
 Sous toutes réserves. ; |
-
-A ce qu'il n'en ignore. 1
 
 Et je lui ai, étant et parlant comme dessus, laissé
 cette copie sous enveloppe fermée ne portant d'autre
@@ -2270,5 +2208,3 @@ partie et de l'autre, le cachet de mon étude apposé sur
 la fermeture du pli, le tout conformément à la loi.
 
 Copie : une feuille de papier spécial à 1 france 0. i
-
-L. Maillard

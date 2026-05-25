@@ -112,7 +112,6 @@ fait courir, il sera temps, si l'on en éprouve le besoin, de
 se redire, plus ou moins gentiment, en famille, ses quatre
 
 Pour faire échec au scandaleux succès d'un Drumont,
-d'un Lemaïtre, d'un Millevoye, d'un Syveton, d'un de Mun,
 d'un de Solages et de cent autres pétris de même farine,
 il n'est pas même nécessaire de connaître le degré de
 républicanisme de leurs concurrents : ils ne peuvent être
@@ -155,7 +154,6 @@ article sur l'élection de Carmaux, dont il demandait l'insertion immédiate. Le
 passer pour d'innocentes berquinades. J'aurais voulu voir
 mon collaborateur pour essayer de lui démontrer que ses
 exagérations allaient plutôt à l'encontre de son but. Peutêtre, toutefois, eussé-je fait passer l'article quand je trouvai, à mon adresse, la lettre de démission que voici
-Mon cher Vaughan
 
 Comme vous l'écrivez fort bien, il faut que chacun
 puisse dire ce qu'il pense.
@@ -312,7 +310,6 @@ hommes que des mobiles bas et vils est bien à plaindre.
 
 Je reçois la lettre suivante
 Paris, le 12 avril 1902
-Mon cher Vaughan
 
 J'ai le profond regret de vous remettre ma démission
 de rédacteur à l'Aurore.
@@ -348,8 +345,6 @@ En attendant, Urbain Gohier est de La Raison.
 M. Gohier nous a fait parvenir peu après la réponse
 Ce que j'aurais à répondre ?
 
-Le voici.
-
 M. Vaughan me fait un grief de mon « intolérance »
 et de la « violence » de mes polémiques.
 
@@ -379,7 +374,6 @@ la tolérance doit s'appliquer aux questions de doctrine
 ou de tactique. En fait de probité pure et simple, elle
 est inadmissible. Elle prend le nom de complicité.
 
-Quant à la « violence » qu'on me reproche, on la
 trouvait digne d'admiration et surtout fort utile pendant
 la grande bataille. On disait alors, dans la rédaction de
 l'Aurore : (« Nous allons lâcher Gohier sur les généraux. »
@@ -635,8 +629,6 @@ A. Mounier, professeur à l'Ecole des Chartes.
 
 THADÉE NATANSON, rédacteur en chef de La Revue Blanche.
 
-FRANCIS DE PRESSENSÉ, publiciste.
-
 Eucène PRÉvosT, avocat à la Cour d'appel de Paris.
 
 JEAN PsicxaRr, directeur d'études à l'École des Hautes-
@@ -688,9 +680,6 @@ qui s'impose; et avis aux citoyens qui ont six sous à
 
 Nous ne pouvons publier tous les documents et renseignements que nos abonnés nous ont envoyés sur les
 dernières élections. Je retiens d'abord l'élection Beauregard, et la proclamation suivante
-
-Paul BEAUREGARD, A SES ELECTEURS
-à Mes cHErs CONCITOYENS,
 
 Je me représente à vos suffrages.
 C'est mon devoir.
@@ -752,7 +741,6 @@ Il n'est que temps de prendre des mesures énergiques
 pour arrêter le déficit, rétablir l'équilibre de nos finances
 et faire des économies. Ces dernières sont indispensables
 pour arriver à une meilleure répartition de l'impôt. —
-Secrétaire Général de la LIGUE des CONTRIBUABLES, je
 demande avec elle qu'il soit interdit aux Députés de prendre
 l'initiative de dépenses nouvelles.
 
@@ -905,7 +893,6 @@ sur les financiers cosmopolites.
 
 La circulaire que nous reproduisons est écrite à la
 
-LA FRANCE 47, rue Taitbout (9°)
 Économique et Financière p F'HRNES
 Organe des Intérêts
 mr ici l'adresse du destinataire
@@ -943,7 +930,6 @@ d'idées, et je vous adresse aujourd'hui un exemplaire-
 
 Veuillez agréer, monsieur, mes salutations distinguées.
 
-à Le Directeur-Administrateur
 [ici la signature] L
 
 Il est particulièrement grave qu'un professeur à la
@@ -1043,7 +1029,6 @@ la foire, ses frères en Jésus-Christ;
 Des Dames quêteuses ses sœurs en la Vierge Marie, mère
 de sept enfants;
 
-MANGHE-DE-PARAPLUIE, dit GRAVIER-TÈTE-A-CLAQUES, Son
 frère de lait; Ê
 
 Père-aux-Hure-Por, dit BeAu-paRD, Dix-MirLe-CIGARES,
@@ -1079,8 +1064,6 @@ département moyen du centre.] à
 Dans le même courrier Fradet nous envoyait cette h
 chanson, vendue aussi par les socialistes au bénéfice de i
 leur propagande : à
-
-Air du Bal à l'Hôtel de Ville
 
 Nous avons un chic candidat, à
 Y'en a pas deux comme celui-là
@@ -1149,7 +1132,6 @@ Il fait partie de la clique. /bis]
 Électeurs, c'est dimanche prochain, à
 Qu'il faut donner tous vos suffrages,
 Et surtout pas de ballottage,
-Que chaque billet 3
 Soit « Lucien Cornet », ; L
 Faut qu'Fillot reste à sa mercerie, !
 C'est pourquoi Hurpeau
@@ -1607,9 +1589,7 @@ Action commune, programme commun : « Je demanderai
 pour vous, si je suis élu, dit Jaurès, la réforme dans un
 sens plus équitable et plus démocratique du système actuel
 d'impôts, l'établissement de l'impôt général et progressif
-(1) Pseudonyme de M. Huc, directeur de la Dépêche, numéro du È
 (2) Sauf dans une circonscription où cela ne peut avoir grande
-importance. L
 
 (3) Discours prononcé à Monestiès (Tarn), par M: Jaurès. La
 Dépêche de Toulouse du 23 mars 1902.
@@ -1649,8 +1629,6 @@ un vœu, nous souhaitons que les candidats républicains-
 
 _ socialistes obtiennent de très grands succès. » Il y a tout intérêt pour tous à ce que l'équivoque se
 dissipe, et cela ne peut se faire que par la constitution
-
-(1) Même discours.
 
 définitive du parti de démocratie réformiste en formation,
 Le sogialisme aura à traverser des jours difficiles. Ce qu'il
@@ -1700,7 +1678,6 @@ trop exposé à prendre la proie pour l'ombre. »
 C'est en ces termes que le citoyen Dubreuilh, dans Le
 Petit Sou du 30 avril, donne très justement la conclusion
 des élections du 27 et résume leur portée au point de vue
-républicain. ; L
 Les socialistes rentreront à la Chambre sans que leur
 nombre se soit très fortement accru. Mais le nombre de
 voix qu'auront groupé leurs candidats marquera sans
@@ -1853,7 +1830,6 @@ battent la campagne.
 
 — Les balles sifflaient dans toutes les directions,
 dit un vieux monsieur; on a tiré au moins vingt coups
-de feu.
 
 — Beaucoup plus, corrigent d'autres badauds.
 
@@ -1929,7 +1905,6 @@ M. de Smet de Naeyer, puis retourne à sa place. — Mon
 ami le professeur n'eut pas l'occasion de secourir son
 ennemi M. Woeste. Il dut se résigner à jouer au whist
 et à pousser des cris d'animaux.
-Le soir à 8 heures, je me rends à la Maison du!
 
 : Peuple pour assister au meeting. J'arrive trop tard
 au bas de la place du Grand Sablon, un cordon de
@@ -1941,8 +1916,6 @@ rayonnent par les grandes baïes du hall et tout en
 haut par la cage vitrée de la Salle des fêtes.
 Alors, j'enfile une petite rue parallèle à la rue Alfred
 
-DU Tes,
-| COURRIER DE BELGIQUE
 Stevens et je débouche place de la Chapelle au-dessous
 de la Maison du Peuple. Même déception qu'en haut:
 ici également la rue Alfred Stevens est barrée. Dans
@@ -1991,11 +1964,9 @@ sévissent au rez-de-chaussée de tous ces logis minables.
 quasi silence ; les hommes ragent et vont les dents serrées. Des gamins sifflent furieusement. Tout à coup des
 cris de terreur, une ruée aveugle : les gendarmes chargent de nouveau. Je me colle contre un murpour laisser passer le torrent. Voici les terribles bonnets à poil.
 Deux jeunes ouvriers me poussent dans un estaminet.
-L'orage s'éloigne.
 Redescendant en ville, je croise lesgendarmes, géants
 massifs, qui s'en reviennent vers la Maïson du Peuple.
 Aucune lueur d'intelligence sur ces machines à cogner. à
-ra _ COURRIER DE BELGIQUE
 Un bon bourgeois m'a dit le lendemain :
 — Hier soir, j'étais de garde près de la Maison du ï
 Peuple. Cn nous a mis dans une petite école. Là on
@@ -2105,7 +2076,6 @@ les pluraux des électeurs qui payent moins de cinq
 FE électorales, M. Béthune (1) ne serait pas député
 Mardi 15.— Je retrouve dans mes notes certains
 chiffres que M. Vandervelde cite parfois dans les u
-meetings. Les voici
 Il y aurait en Belgique 930.000 électeurs simples et
 
 473.487 électeurs pluraux disposant de 1.300.000 suf-
@@ -2114,7 +2084,6 @@ Aux Marolles (faubourg de Bruxelles) 100 ouvriers
 (1) Il fut prouvé aux avant-dernières élections, en 1900, que °
 M. le baron Béthune, échevin d'Alost, avait falsifié les listes électorales. Aucune loi belge n'atteint ce délit. ‘ Li
 
-Li ! COURRIER DE BELGIQUE bé
 A la Hulpe (Brabant) et à Haut-Fay, 100 ouvriers À
 Du mercredi 16 au vendredi 18. — Avant-hier, hier à
 et aujourd'hui, on a gardé autour des Chambres, durant les séances, une longue et large zone dite zone à
@@ -2167,7 +2136,6 @@ agir bêtement ou lourdement des avant-gardes brouillonnes, n'a pas manqué en t
 faire le gouvernement catholique, je te communiquerai,
 quand je serai de retour en France, fin juillet, un certain nombre de faits et de documents sur l'état de l'enseignement primaireen Belgique. vi
 
-COURRIER DE BELGIQUE hf
 ' De même que Jean Deck, nous ayant envoyé un premier courrier de Finlande, nous prépare tout un cahier
 de la Finlande, un cahier d'ensemble, de même je prie
 instamment Salomé de nous préparer non pas seulement une seconde contribution, de l'état de l'enseignement primaire en Belgique, mais une étude plus vaste,

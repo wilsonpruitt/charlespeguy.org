@@ -7,7 +7,6 @@ author: andre-suares
 isAvertissement: false
 wordCount: 19213
 ---
-| = , ÈVE
 Et ce grand général qui ramassait des villes
 Comme on gaule des noix avec un grand épieu
 N'était dans la rumeur et les guerres civiles
@@ -31,8 +30,6 @@ Heureux ceux d'entre nous qui la verront paraître,
 Quand ce grand général et ce chef triomphant
 Rassemblera sa troupe aux pieds de notre maître.
 
-A Ne CDN PU el be ner: Re
-sa : £ LAN ME ON Le PA httoer es EE
 & Et l'une est morte un soir, et Le trois de janvier.
 El Tout un peuple assemblé la regardait mourir. De RAM
 "3 Le bourgeois, le manant, le pâtre et le bouvier
@@ -41,7 +38,6 @@ DE L'éblouissant manteau d'une sévère neige k mi
 Je Couvrait les beaux vallons du pays parisis. a Le es
 Ex L'amour de tout un peuple était tout son cortège. ÿ 10
 | Et ce peuple c'était le peuple de Paris. EE se
-| è ss 12 &.
 | L'éblouissant manteau d'une prudente neige 2 tre ee
 - Couvrait les beaux recreux de la naissante France. 1
 5 L'amour de tout un peuple était son espérance. 3 FT ë » L'amour de tout un peuple était tout son cortège. 7e
@@ -71,30 +67,20 @@ Elle n'avait passé ses humbles dix-neuf ans :
 Que de quatre ou cinq mois et sa cendre charnelle
 Fut dispersée aux vents.
 
-LES Pet LIT NON bee x r
 DU Nous avons donné le bon à tirer après corrections
 AL' pour deux mille exemplaires de ce quatrième cahier
 "4 et pour trente exemplaires sur whatman le mardi
-(LU ri S Le gérant : CnarLes PÉGUY :
 AR, Ce cahier a été composé et tiré par des ouvriers syndig nés une ;
 #3 mi J. CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes, — 8617 # À t
 
-EAUre AUOT E CU ET OT RON ER PORT ON ER POV er te TROP FR ER PLV EN RTE
-
 Dans les quatorze cahiers de leur onzième série, |
 année 1909-1910, nos cahiers ont publié :
-XI-2. — GABRIEL TRARIEUX — le portique........ ÉPUISÉ |
 XI-3. — ALBERT THIERRY. — l'homme en proie aux
-enfants. "TRANS NE CORNE EEE ;
-XI-4. — GEORGES DELAHACHE. — la carte au liséré -
-XI-6. — CHARLES PÉGUY. — le mystère de la charité de Jeanne d'Arc.".................:.. tu
 XI-7. — Romain RoLLAND. — Jean-Christophe, —
-III. — la fin du voyage. — I. — Les amies. — 1..... ÉPUISÉ
 XI-8. — Romain RoLzLAND. — Jean-Christophe. —
 III. — la fin du voyage.— I. — les amies. — 2..... ÉPUISÉ |
 XI-9. — MaxIME VUILLAUME. — mes cahiers rouges. k
 XI-10. — DANIEL HALÉVY. — apologie pour notre Û
-passé. de ÉTÉ NR Etre à 0e MN ONNIRREREES
 XI-11. — Josepx MéLon. — la maison vers le lac. 2 »
 XI-12. — CHARLES PÉGUY. — notre jeunesse. — une Î
 famille de républicains fouriéristes. — les Milliet.... ÉPUISÉ
@@ -113,19 +99,8 @@ vert de 396 pages; in-18 grand jésus; nous le vendons “dix francs. — Les ex
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
-AU L af Ç M4 LONAN ET AIRIPRNEERS
-| LUHENE | {HONNES
-Le è ex té F NT TENPONTE : ATEN
-
-USM OS DRE DA Le ee Rire LA STE PRET,
-
-: ET FLN MOTS PR MIT eo PS RE SRE AP RON rte Lee
-à : SRE ne ES PR RUN ES FOUT NT RNA
-| IN ; EL TEA RENE
-
 | 118
 
-aux CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne :
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'Electre, 1 volume grand in-18, 1905.
 Le portrait d'Ibsen, 1 volume grand in-18, 1908.
@@ -143,41 +118,7 @@ Sur la vie ; Essais, tome II, 1 volume grand in-16, 1910.
 Sur la vie; Essais, tome III, r volume in-18, 1912.
 Idées et Visions, 1 volume in-18, 1913.
 Voyage du Condottière, tome I, nouvelle édition, 1913.
-à la NOUVELLE REVUE FRANÇAISE, 37, rue Madame :
 | Chronique de Caerdal, 2 volumes in-8 couronne, 1912-1913.
-
-LT SES ER RE ne
-
-en: Dre : $ que
-
-gi EST TS SE A dE FAN TES
-Me ER LE Eat GPA ras De vif 2 CE:
-Sr ERP NOUE  CRES ne y ER TES do 1°. TS DO ENTREE
-PT SAT ST AA is a Rte ERRON C TES TA
-F5, FETES er à! RACE er 5 h + LP Tec. 2 VERS
-#2 È TM EU £ Pile
-ER = À À era de See as ;
-re L Lo c MT NE OSER
-RE TS REA LE OR GO lens De M Sr RL Ne
-Een Dirt D VÉbRNRS M LT CAR PS s FA SERRES Dir ne
-
-RCD DRE RS TE SR RS ne UE nr
-
-RON NE de SE ETS VAE LE DEN AP RES
-
-Rae 100 AR le à OUT el IN SR M AT
-
-ep HF EE e x Ro? et j cs K
-
-LL NE SRE RATER er RAR
-ne CC Rae 7.5 à RU >
-
-Ps d'u SR aptes ARS ER CETTE PAU PR PE
-RE RER SR AT LES AT nt PR pen La P TS ie
-ERPS AUS UM CEE le. Ces de L'OTAN Met UT A LE “ ALES “3
-re FER PES BR et PTS IS
-re De £ £ À Le EN RES ASE C'AMEPRRRRS
-12e EN ERR RE ef: u # La ee PT NT re OR CARRE
 
 1 BR: gens, qui l'irez sans doute voir ae
 re pendre à Montfaucon, voyez le mau- 4
@@ -206,10 +147,8 @@ monde tourne et tourne entre les tombes :
 c'est le jardin de Paris, en ces vieux
 temps. On va y humer l'air frais. Ici, l'on
 chante et l'on s'amuse. On y danse même,
-on sy poursuit ; on sy pince et l'on se
 
 Cependant, jour même de juin n'est pas F
-si long qu'il ne s'achève ; et le crépuscule
 vient, qui fait le lit pour la très chaude
 
 Tous les vivants s'en vont souper, et g
@@ -328,7 +267,6 @@ Jour même où les Anglais brüûlèrent
 
 : portraits te ne SE
 Jehanne, la bonne Lorraine, à Rouen, pe
-LT AMRE Pontoise. È L:
 D Ses parents étaient pauvres. Sa bonne ee
 mère toute simple, pieuse et sans lettres. na
 0 La famille était de petite bourgeoisie. Il ie
@@ -341,23 +279,19 @@ Mais le plus écolier des écoliers, en un
 temps d'anarchie générale, où la sédition .
 était continuelle à Paris, et le pays latin :
 un chaos dans le chaos, Villon a vécu ë
-#
 Jollement, sans frein ni règles, toujours #
 aux tavernes, avec les turbulents, les ;
 escrocs et les filles. 4
-Il a volé; il a été ruffian; il a pris LA
 rang dans la pègre. Il a connu les ;
 Coquillards, la plus fameuse troupe de ce 4
 siècle, en fait de ribauds, de voleurs et de 3
 20 24
 
 mauvais larrons. À Paris et en province,
-il a été de la bande.
 
 Il est condamné deux ou trois fois à
 mort. Il passe des mois au cachot, sur la
 paille, dans les prisons de Meung-sur-Loire
-et de Paris. La potence le guette, où il a
 ou hisser plusieurs de ses amis. À trentetrois ans, il disparaît, qu'il soit mort de maladie, qu'il ait fait retraite, ou autrement.
 
 É Plus près de nous que pas un autre,
@@ -496,8 +430,6 @@ qu'ils se donnent, tout est là-dessous,
 comme les chevaux de l'attelage sous les
 rênes : le front porte pensée ; l'esprit tient
 
-| il
-
 les brides même aux sentiments les plus 4
 É débridés. Enfin, jamais l'intelligence n'est
 re Les émotions de Villon sont violentes et + ;
@@ -540,7 +472,6 @@ chanter sa misère, riant sourdement sur
 la basse des glas, et d'où il se dresse
 pour lâcher ses facéties. Or, c'est lui-même,
 et lui seul, qui soulève le couvercle. :
-De là, qu'il voit tout en peinture, et
 tout peut-être sur les murs du charnier, HS
 lui-même et son destin, les grandeurs du :
 
@@ -556,10 +487,6 @@ L est bon, et friandes les repues franches, ue,
 parce que la chair est suave des folles d
 se femmes, Villon pare la morne ronde en s
 | carnaval, et à tous ces morts il met ur. 4
-
-|
-
-|
 
 4 Le sincère Villon. Si vrai même, que
 personne ne le fut jamais comme lui.
@@ -578,7 +505,6 @@ j ce qu'il voit. Avant Baudelaire, il est le
 1 Comme il se connaît, lui qui s'inquiète
 toujours de se connaître! Et la preuve,
 
-qu'il dit : « Je ne me connais pas. » Son \
 La doute sur lui-même est à la racine de sa »
 
 : double nature. Tout ce qu'il tente contre
@@ -590,7 +516,6 @@ F sont vrais; et plus qu'il n'est ordinaire
 4 aux poètes. Il n'accommode pas la vérité :
 | à l'opinion qu'il veut donner de soi : il
 
-| portraits © 4:70
 ne s'en fait pas une parure. Il n'avoue pas #3
 une faiblesse, pour s'orner de cent vertus. Ki
 Sa misère, ses péchés; ses besoins, ses ‘4
@@ -617,9 +542,6 @@ est sa campagne; ses couchers de soleil, | <
 les rixes dans la rue. 8
 Cette langue plaît par la saveur 4
 
-nn ni HR ee Se HTFS10
-
-INTIME a Eh RTE RTE Pres PAS FRE De =.
 Éd “oyable du mot à côté du mot. Etle
 Dr _ mot jaillit de la chose, comme source du
 _ rocher sous bois. La courte phrase est un ES
@@ -627,27 +549,19 @@ _ mets simple, de qualité parfaite, assai-
 % sonné de parfaites épices. Toute la bouche
 en est enchantée. Le palais se parfame. es
 _ La saveur se répand dans toute la tête.
-< 10 _ On goûte ce qu'il dit. On l'a, on lesent
 LE avec lui : on y est. LTÉE
-de. PE KR e P F ne
-
-| A SETRR #7 Ÿ - pe LUE
 
 PIE S'* n'ayment fors que pour l'argent, 5 YU
 Le: On ne les ayme que pour l'eure. / TE
->: : 553
 5e Et m''eust il fait les rains trayner, 1 + FES
 LIRE S'il m'eust dit que je le baisasse…. ra 2 Ke
 LR Mais que ce jeune bacheler ; Ge ,, LC
 2 : Laissast ces jeunes bacheletes ? AURA
-77408 Non ! et le deust on vif brusler. « 1! ACCES
 paie Faulse beauté qui tant me couste chier, + Le.
 D Charme felon, la mort d'ung povre cuer,… LF 20
 
 ne Et nu à nu pour mieulx des corps s'aisier… TR FPE
 A _ Tout aux tavernes et aux filles. FT ee
-es, Pas ne le dy pour vous le reprouchier.…. RE ee.
-De EE Car en amours mourut martir, M
 SUR Où mieulx te plaist qu'onneur ceste meschance. 2
 ie Villon, le premier aussi,sme semble L
 nn avoir connu l'extrême dépit de la luxure. ; F
@@ -698,7 +612,6 @@ suspectes. On y soupçonne telles violences
 ou tels détours de l'instinct, qui sont les
 fareurs de l'imagination. Et l'on cherche
 ce qui pourrait bien être dit contre eux,
-quand il n'y a rien à en dire. Si ag
 Mais la luxure se parle cruellement à 5“
 elle-même, sans remuer les lèvres. Et
 plus: il est silencieux, plus son péché est 74
@@ -729,7 +642,6 @@ d'abord l'appétit que l'habitude dégoûte.
 | « Seigneur, vous voyez la fureur de
 | mon péché, et si j'en soufre.
 
-| | portraits, {| 15 MORE
 SES « J'y suis lié, comme la femme du
 A sultan nouée au chat et à la vipère, dans pes
 es le sac qu'on jette au Bosphore. Jen suis me
@@ -744,22 +656,17 @@ reine enivrante et fécondée. ;
 | « Sinon vous, Seigneur, rien ne peut Fe.
 | m'arracher à cette prise profonde. Rien Vel
 | ne peut me sauver. Et nul ne peut rompre fs
-ne
 que vous, Seigneur, cette attache cruelle. » |
 Quelle que soit sa repentance, Villon >
 à bondit sur le premier espoir qu'il Le
-rencontre; et il se prend à rire. Il fait la : N
 cabriole devant le gibet, et le pied de nez E
 | au bourreau. La raillerie est sa luxure
 spirituelle, non moins vive que l'autre. À
-
-Pr Ar Ve Te Et ue LT ne tt te, 9)
 
 PS A deux doigts de la hart, il lègue aux Lite
 _ aveugles des Quinze Vingts ses grandes A
 4 lunettes, sans l'étui, pour qu'ils séparent, S
 E: dans le cimetière, « les gens de bien des PU
-_  déshonnestes ». Il a horreur de la mort, PPT
 35 mais il lui fait la nique. Il faut qu'il a
 5 se moque, il faut qu'il beffle sa terreur ie
 -_ même, et même sa chère vie. Passant de a “À
@@ -807,9 +714,7 @@ supplices. Il a une forte santé de pêlerin,
 : que n'a pas usée la débauche ni la
 | prison. Tout plaisir lui plaît et l'appelle.
 
-PR ee PR D de IR AR RES
 Le F Il aime tout ce que la fortune donne, et r
-en qu'il n'a pas : il le prend. we: E 3 #
 _ Maigre, maigre! Tous les petits Pari- À “
 4 : siens furent maigres en ce temps-là et 2
 . ne ceux qui ne devinrent pas chanoines, le ne:
@@ -823,10 +728,8 @@ basses fosses; on lui a ferré les pieds 6
 è dans un cep. On lui a fait boire bien de #
 | l'eau, à l'entonnoir de la question, mn
 54 pauvre Villon, lui, si bon buveur de vin
-* # morillon : et il le préfère d'Anjou et de Pr
 
 De l'argent! de l'argent! il lui faut
-1 de l'argent. :
 È On vole comme on joue. Et on joue
 ; pour gagner de l'argent. Villon est
 È joueur à perdre son âme, jusqu'à jouer |
@@ -846,7 +749,6 @@ l ! Tout infâme qu'elle est, la Grosse Margot
 
 He encore si elles étaient jetées à la rue, D.
 Fe réduites à leur corps sans chemise. À vos Fe
-PAS) femmes de maudisson, il ne manque un #4
 % peu que l'enseigne. La Grosse Margot we
 ‘2 paie de sa personne. ‘SOS
 Ke Il lui faut de l'argent, à ce Villon. A …
@@ -860,8 +762,6 @@ défend. Il se bat; il rend les coups. Il ne ‘4
 veut pas qu'on lui dérobe sous le bras 1
 - gauche sa mie, ni sa vie.
 
-| 2:30
-
 + Une tristesse qui va bien loin, parce 10
 14 qu'elle paraît nécessaire : elle accompagne |
 Fe une oue supérieure des passions. Voilà à
@@ -874,11 +774,9 @@ s. si puissante, Dante, le grand poète du
 z Cette fatale tristesse descend dans Lee
 | l'homme à de telles profondeurs, qu'elle ve
 % porte tous les palais enchantés de l'espé- FR
-+  rance et de l'illusion. Le sentiment de la ge
 E: mort partout présente est l'une de ses e
 
 si racines : et l'autre, l'instinct de raillerie:
-Se le besoin de moquer la réalité et de
 a. bafouer le siècle, cet appétit d'ironie
 RAA _ occupe la colère d'un grand cœur. Ainsi “50
 50 le Florentin superbe, qui aurait nourri sa 4
@@ -945,13 +843,10 @@ Au contraire, il est criminel avec inno- *.
 cence. Comme Verlaine, et encore plus. À
 Une perversité sans dessein n'est pas fort F
 
-| ra FRANÇOIS VILLON
 | coupable. Les actions ne sont pas si perverses que la conscience. Enfin la perver-
 | sité n'est point tant à méfaire, qu'au
 4 plaisir qu'on y prend.
-| On a fait de Villon un monstre de
 4 duplicité, de fourbe pateline, de souplesse
-et de mensonge. Je ne connaïs rien de si
 Jaux que cette vue. Dans ses vers, Villon
 est le plus sincère des hommes. Il ne se
 vante même pas de ses péchés ni de ses vices.
@@ -966,18 +861,13 @@ voit vraiment, et il fait voir. Il peint
 Margot, la Belle Heaulmière, et Franc
 -Gontier, à la Vélasquès, à la Goya.
 
-SC NR On trouve partout la perversité, si on
-Fe F la cherche : Elle est où on la désire : il PAC.
-Lo. ny a qu'à l'y mettre. er.
 ” Docte et non peuple. 5e
 RAR Villon sait du latin. Il sait les lois. Il 158
 ae a lu les histoires, et les chroniques de son OO
 à = temps. Il sait les Ecritures. Il sait beau- ER
 oh” Parlant des Grecs et des Anciens, quand 4
 ee il se trompe, il semble le faire exprès. ROSE
-#4 4 re
 De Ses erreurs sont délicieuses. On dirait 13
-a. qu'il en a joui, comme Shakspeare. rs
 (a Il ne fait jamais le savant; il joue
 ie plutôt l'ignorance. Il est ingénu, non pas À
 “ naïf. Dans l'ingénu, il y a le génie. Si
@@ -1004,7 +894,6 @@ l'élite, gens d'esprit et de bonne culture.
 Il est par fois subtil comme Verlaine; mais
 comme il sied à la différence des temps,
 peintre autant que Verlaine est musicien.
-Il a le don de la couleur et du trait fort |
 
 . dans la lumière. Il n'est pas seulement
 réaliste à la flamande ou à l'espagnole;
@@ -1099,8 +988,6 @@ ee avec lui. Paris a déjà quinze siècles. #
 5 ancienne que la ville des rois. LR
 La mère de Villon élait sans doute RE
 2 angevine. Lui, Villon, est Parisien de :
-à Paris, s'il en fut jamais un. Et là encore, Es
-. le premier. =
 
 4 Merle plus que rossignol : merle de la 4
 : montagne Sainte-Geneviève où, depuis 4
@@ -1129,12 +1016,9 @@ sans se faire hair. On l'aimait avec dépit ;
 el l'on Jfinissait par rompre, non sans
 Il donnait à rougir de lui. Ses plaisanteries sont trop bonnes : ce ruffian, ce :
 
-| 2 ; ARE RAR RON SR RENE EE
-ë + PORTAREC CE RES TS pie PS2
 _ voleur, ce condamné à mort, ce trois fois ce
 pendu et dépendu, qui nomme ses léga- #4
 se laires les plus austères personnages et 208
-#
 | les plus gens de loi! Il charge les 2
 : conseillers au Parlement de veiller aux a
 legs qu'il prétend faire à des condamnés
@@ -1149,7 +1033,6 @@ quelque ami, entre deux maladies et deux à
 aventures sombres, Villon, d'une potence à 5
 l'autre et de l'une à l'autre prison, allait À
 faire séjour à la Porte-Rouge, au cloître Re.
-| ê
 
 Saint-Benoît, chez maître Guillaume, son
 « plus que père ». Ou bien, il se réfugiait
@@ -1180,7 +1063,6 @@ douloureusement ; il caresse les mains
 A la pauvre femme, il égaye les yeux rouges - <
 Le de pleurs pourtant ; il défronce, pour un %
 À instant, le vieux visage plissé par les
-: ravines si longues et si creuses de l'an- #
 goisse. Et peut-être ne s'en va-t-il pas,
 qu'il n'ait dit avec elle Notre Père, ou
 quelque prière à Notre Dame.
@@ -1196,7 +1078,6 @@ tout. Pauvre François, si gai, si triste, :
 tout à caprice, hélas, un fol enfant ! Et les 3
 femmes l'ont perdu, Sainte Vierge, et les |
 
-| XIV
 Pense-t-on que Villon ait jamais été
 dupe des figures qu'il a prises? Dupe, il :
 ne peut l'être, pas même de ses passions.
@@ -1210,19 +1091,15 @@ manque rarement, je crois : même S'il :
 joue un rôle ignoble dans la farce, ou
 dangereux ; même s'il court le risque
 d'être pris au collet par le démon du
-| drame.
 Il me semble que, pour Villon, le
 plaisir du plaisir, la plus aiguë de la
 | volupté est spirituelle : c'est la profonde
 
-1 ADR je CORRE _ portraits pee ARE SE
 er raillerie ; et qui sait, là où elle pique le
 o cœur si subtilement, qu'elle le fait
-rs Ses amis, allant et venant, il en a de 0
 de rencontre, et pas un, sans doute, solide et
 de bien fonds. Il aurait fallu être comme _
 è lui, de tous rangs et de toutes mœurs à TA
-s la fois. IL s'amuse où il peut, et se donne
 e ses aises où on l'invite. Il ne boude pas à a
 x la vie, la sachant si précaire et si courte, ….
 * toute plongée dans la mort comme une
@@ -1237,7 +1114,6 @@ we bien à des gueux. On lui sent une étonfe nante souplesse d'esprit. Il est c
 | Mais enfin la crapule est mieux son
 fait que la cour des ducs : parce qu'il est
 | pauvre; parce qu'il est libre, comme on
-ne le fut jamais, à la Montaigne. La
 | passion de la liberté est une espèce de
 folie dans la mauvaise fortune ; et elle y
 2 tourne souvent à crime. Les amis de
@@ -1254,13 +1130,9 @@ indomptable et fuyante, si vive et si diverse.
 Elles sont bien faites pour un siècle où
 tout est en question, où la règle cède
 : partout au soufle du hasard, et sous le
-| 65 Villon. — 4. |
 
-| portraits D
-pouce de la violence. Les nécessités de la +
 vie marquent Villon pour la chute; et. à
 comme la fleur de lis sur l'épaule, elles
-le désignent au désordre et à la gueu- f
 | saille, si ce n'esl au bourreau.
 Il faut bien comprendre que cette âme
 si faible et si forte ensemble, si indolente
@@ -1286,7 +1158,6 @@ en effet fondés que sur lui.
 Ainsi, la crapule peut être la seule
 société, où l'homme non social fasse valoir
 ses droits, et vive un peu à l'aise. Même
-s'il y a la nausée, du moins il vomit à
 son heure. L'homme à double et triple
 nature, à cent visages, qui ne fait jamais
 que ce qui lui plaît, c'est le poète même.
@@ -1308,7 +1179,6 @@ pervers à ses heures, et enfant le reste du Ss
 temps. Qu'on le prenne en vrai poète : il €
 est tout ce que la nature veut qu'il soit. #
 Les contraires sont en lui. À l'occasion e
-de ce qu'il est, on sent tout ce qu'il peut va
 être. Enfant pervers, il ne l'est pas plus
 ni moins que Verlaine. Je ne puis oublier 5
 que nous n'avons rien de lui, passé l'âge
@@ -1367,7 +1237,6 @@ Ce. qu'on appelle leur faiblesse est la
 force sans frein de leur nature cachée, et
 _ le mors aux dents de leur propre secret,
 dès qu'ils rendent la bride. :
-|
 
 Villon sait bien sa mauvaise vie. Mais
 il est bon de savoir comme lui qu'il n'en
@@ -1386,9 +1255,7 @@ Verlaine. Et il l'eût été plus souvent, s'il
 n'avait pas dû consumer tant de jours
 détestables dans le dénûüment et à l'hô-
 
-Rev à à se FAR RE TES ARS TE NS SRE EPS
 RE os Qu'on ne rie pas de Villon accusant la
-ne fa pauvreté de sa mort et de ses crimes. Il
 54 ; me fait frémir. Lui, toujours si vrai, il D:
 . lâche l'aveu que de plus grands n'osent
 ii pas faire. La misère ne tue peut-être pas T'ES
@@ -1403,8 +1270,6 @@ besoin de gagner sa vie. Encore moins 54
 Mr: de's'y soumettre. Les habiles, eux, naïs- 15
 É 1 sent pour bien gagner leur vie; et le 4
 ve succès les vante. a:
-un Il y a donc un parti héroïque, dans le à
-es déshonneur de Villon et la faiblesse de
 PAR Verlaine : ils se sont sacrifiés à leur 5
 À propre génie. Il en est, peut-être, qui se me.
 He. désespèrent de ne le pouvoir pas : c'est On
@@ -1522,7 +1387,6 @@ son unique de la cloche.
 Il signe affreusement de son nom l'envoi
 1 77
 
-nt CNE PPS SES NEREE ;
 de sa ballade à Margot. Le rire de l'écolier
 cynique ne donne pas le change sur le s:
 fond ténébreux de sa pensée : elle tient le :
@@ -1566,7 +1430,6 @@ la condition de tous; qui en pâtit pour
 tous, puisqu'entre nous il en a passionné- js
 ment conscience. Et sa charité fleurit de
 
-Pre portrgité “10 "SES
 se ses transes égoïstes. Le « povre petit.
 rs escollier » a pitié de tous les pauvres,
 Le comme lui. Il oublie l'indulgence terrible,
@@ -1576,7 +1439,6 @@ Es ces petits que la misère foule et que le
 mal atterre. Il a compassion des malades te
 et des captifs, des suppliciés et des filles. A
 Il ne rit pas cruellement de la potence ni
-: à de l'hôpital. Il réclame, au nom de Dieu, É He
 = -qu'on pense un peu à lui. Il a pitié de
 | soi, sans vanité et sans complaisance : =
 ce regard pour soi-même est ce qu'on peut “à
@@ -1585,7 +1447,6 @@ soi, le pauvre que l'on connaît le mieux.
 ; Et, au bout du compte, dans cette mort ‘4
 > où il est déjà jusqu'au cou, criant à toutes D
 de gens merci, il implore une douce pensée,
-| 7 , FA a En:
 _et c'est le repos perpétuel qu'il demande.
 Mais certes tous les amants de la vie,
 tous ceux qui savent ce qu'il en coûte de
@@ -1597,8 +1458,6 @@ JÉcES chère folie, ceux-là diront toujours plus “à
 D _ d'un verset et plus d'un psaume pour l'âme “
 ER du pauvre petit écolier, qui fut nommé : F3
 - François Villon. de FA
-
-| AG STRESS
 
 A u Charnier des Innocents,
 Dans l'éternel tourbillon
@@ -1616,9 +1475,7 @@ Ne te feront plus misère :
 C'est toi le plus innocent,
 
 Sur Tous ceux qui furent paissant
-ru Un quignon de vie amère TIRE à
 “4 Dans les pleurs et la misère, Me
-f = Le cul nu, en guenillons, Le
 1 Te chantent avec ta mère : CES
 0 Dors bien, mon pauvre Villon, ES
 re C'est toi le plus innocent. 4 4
@@ -1629,39 +1486,15 @@ Leur chair pue et leur chef sent. : NS
 : Bonne nuit et bonne terre, des
 = Dors bien, mon pauvre Villon : ‘5
 C'est toi le plus innocent. ‘400
-FAR Princes de l'or et du sang, N.
 PA Vos Louvres n'ont plus de pierres; Le
 Le moindre est le plus puissant : « 1
 Plus que vous, il dure en terre! 2
 d Dors bien, ô pauvre Villon: 4
 C'est toi le plus innocent. LITE
 
-: PAP NTMRE NAT: Mer CAR D
-RCE ARE DURS PEN A PER de ER Me. Me
-ER | A TE RE EAN PE Le EEE LT re
-# MS 3 : ;: 5 pr ; Fe Lyree LE 4
-2 PTE ROLE $ VASE ARC AUERS AR RENNES cet ET are 2*
-TN SR RP ENS Re CP ee ET SE CRETE
-
-PANRAREA RSC ee RACE TE TNT NT ACT En SES Pape TR.
-
-Do ne
-
-on PIS TO MARS ARE RARES ne RAA PT Rare es ds RSR
-ne | Ée HPDRA TEA DEMI IT N RENNES EU
-
-M TR ES te ons ne CU TR NU D SIREN SEE EEE
-SERRE sé er RENNES TOP NAN FAN SA
-
-| HSE PRE de ; RO
-
-RAR re : 3 ne RO
-
 .
-| VILLON ET SON PEINTRE
 T est à Paris un artiste, qui grandit peu à
 peu en force et en clarté, plein de patience
-et de réflexion, scrupuleux au travail, et s'il
 ne l'est déjà, qui sera de l'ordre le plus élevé.
 Les premières œuvres du graveur Bernard
 Naudin (1) m'avaient beaucoup étonné et
@@ -1677,7 +1510,6 @@ Pourtant, j'avais confiance en ce disciple;
 je le sentais vivant par soi-même, et homme ;
 ( ») Les dessins de Bernard Naudin, au Musée des Arts
 Décoratifs, Pavillon de Marsan. ;
-#9 :
 
 de foi. Bernard Naudin gardait une saveur 2
 propre, jusque dans limitation la plus directe.
@@ -1699,7 +1531,6 @@ Partout ce trait d'un œil aigu, ce regard qui
 pénètre, ce don des caractères; et dans la 4
 violence ou l'horreur même, cette exquise %
 élégance qui est le parfum de tous nos raffi- d
-Il va de soi qu'il aime la musique, et sans ; à
 doute il est musicien, Cependant, sa dévotion < 4
 
 90 4
@@ -1758,8 +1589,6 @@ Là, d'ailleurs, est la faiblesse de Naudin : ‘240
 il n'est guère peintre, jusqu'ici. Chez lui, il y 4
 a beaucoup plus d'intelligence que d''instinct. 7%
 .
-
-Ms co VILLON ET SON PEINTRE
 
 Son goût n'est pas simple; mais il est
 
@@ -1875,7 +1704,6 @@ grande victime qui les figure toutes : toujours sg
 l'hostie qui a besoin du salut, même si elle le
 porte, et qui appelle la rédemption pour tout :
 ce qui trempe, comme elle, dans le plein vase
-de la nuit. .
 pi Dans son portrait par lui-même, Naudin a
 le visage creux et usé avant le temps, des
 yeux mordants et caressants, le cheveu rare.
@@ -1887,7 +1715,6 @@ secourue. Il a donné de ses traits à Villon; et
 
 bien que Villon se soit décrit petit homme et
 menu, Naudin l'a voulu faire de haute taille.
-On en devine les raisons, et il en tire un si ;
 juste parti qu'on les approuve. Plus grand,
 Villon en est plus dangereux et plus hardi.
 Plus maigre aussi, il paraît plus eynique. Ses
@@ -1965,20 +1792,6 @@ seulement Yorick, Villon, c'est le Bon Larron
 è - sent dans les images de Bernard Naudin, né
 pour le poyre Villon et pour nous le rendre.
 
-nue É Le tu (PEN Êl LES
-
-TT es RU NE RER RL TIR
-ER AR OS Ne ue? tu dE : 2 ÉFTRMERS
-iæ RE LE
-De LATE ns 4 « ae L à # | SE Ce Fa
-Eee HS T EPA ce $ d LÉ SE, ARR
-
-de 0 Ro ee SRE
-
-#] ra 1 EEE VISE
-
-ONE 5 L LAS nee
-
 Ne nier Dieux... 1 et EST -
 I. — Bonnes gens, qui l'irez sans doute voir
 A quelques jours près, et peut-être le jour
@@ -1990,7 +1803,6 @@ _ IV. — Une tristesse qui va bien loin....... 47 ÿr
 à VI. — Je ne vois rien, dans Villon......... 50
 
 cinquième cahier de la quinzième série US
-IX. — Villon, dans la crapule, ou à la
 X. — Comme il aime son cher Paris!.. 57 6
 . XI. — Merle plus que rossignol......... 58 AE
 XII. — Il donnait à rougir de lui........ 59 |
@@ -2002,18 +1814,5 @@ XVIII. — Une profonde connaissance de lavie 73
 ë L'erreur emporte les hommes çà et là...... 75
 Il croit donc à son malheur, plus qu'à son
 XIX. — Où aller enfin, à travers ce char- LE
-HOT Pa. ne DRE Dee RE à UTC LATTES Ë
 IL. — Dans son portrait par lui-même...... 97 4
 III. — La raillerie de Villon, telle que Ber- à
-TABLE DE CE CAHIER ....4. vec tte OS
-
-ÿ à “ LE OR Een Le, ES: fe
-RS EN OP PSP CR ET Ein A RE EC ETS ARE
-RE à Vi le
-LES LR SE » à n DEN JE LEA Eur
-Mn re. 2 PAR ANSE. 7 LERRTSES
-mc su peer ras dt PL LR 1e Es v L ” # NE 1 <
-
-LES prise RAS Qu en:
-on St
-| 12 EN

@@ -8,7 +8,6 @@ isAvertissement: false
 wordCount: 20686
 ---
 de paraître
-| CAHIERS DE LA QUINZAINE
 | paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
@@ -56,8 +55,6 @@ tous métiers et de toutes cultures. Cela est mutuellement
 indispensable, et pour ces hommes, et pour ces œuvres.
 
 Sachons nous limiter, pour aujourd'hui :
-
-|
 
 Il en est tout autrement si l'on s'installe d'emblée,
 par un effort d'intuition, dans l'écoulement concret
@@ -245,7 +242,6 @@ de la philosophie moderne. Bien au contraire, à
 mesure qu'elle fera plus de chemin, elle rencontrera
 des objets plus intraduisibles en symboles. Mais
 elle aura du moins commencé par prendre contact
-avec la continuité et la mobilité du réel là où ce
 contact est le plus merveilleusement utilisable. Elle
 se sera contemplée dans un miroir qui lui renvoie
 une image très rétrécie sans doute, mais très lumipeuse aussi, d'elle-même. Elle aura vu avec une
@@ -255,8 +251,6 @@ dans celui des procédés mathématiques. Disons
 donc, ayant atténué par avance ce que la formule
 aurait à la fois de trop modeste et de trop ambitieux, que l'objet de la métaphysique est d'opérer
 des différenciations et des intégrations qualitatives.
-
-|
 
 VIII. Ce qui a fait perdre de vue cet objet, et ce
 qui a trompé la science elle-même sur l'origine des
@@ -438,9 +432,6 @@ que les modernes ont laissée le plus souvent à leur
 pensée. Elle vaut contre une métaphysique qui
 prétend nous donner un système unique et tout
 
-ni
-de:
-
 fait de choses, contre une science qui serait un
 système unique de relations, enfin contre une
 science et une métaphysique qui se présenteraient avec la simplicité architecturale de la
@@ -510,7 +501,6 @@ connaissance métaphysique est bien ce qu'a voulu
 Kant, elle se réduit à l'égale possibilité de deux atiitudes opposées de l'esprit devant tous les grands
 problèmes; ses manifestations sont autant d'options
 
-PP les LU 1." tel : LR à She nt EE:
 arbitraires, toujours éphémères, entre deux solutions formulées virtuellement de toute éternité :
 elle vit et elle meurt d'antinomies. Mais la vérité
 est que ni la science des modernes ne présente cette
@@ -638,25 +628,17 @@ visibles dans la pendule. En ce sens, la métaphysique n'a rien de commun avec u
 de l'expérience, et néanmoins elle pourrait se dé-
 finir l'expérience intégrale.
 
-il
-
-11e Année, No1 Janvier 1903
 Revue de Métaphysique
-et de
-Secrétaire de la Rédaction : M. XAVIER LÉON
 H. Berason . Introduction à la métaphysique . . 1-36
 E. Durkueim. Pédagogie et sociologie . . . . . . 37-04
-J. PERRIN. . . Le CL d'équivalence et la
 L. CoururaAT. Le système de Leibniz d'après
 A. LAnpry., . La superstition des principes . . . 121-137
 de doctorat.
 5, rue de Mézières, Paris
 Publication paraissant tous les deux mois. — Le
-numéro : 8 fr. — Un an (6 numéros) : France : 12 îr.;
 Colonies et Union postale, 15 fr.
 Pour l'envoi de toute correspondance, valeurs, mandatsposte, libeller ainsi l'adresse : Librairie Armand Colin,
 5, rue de Mézières, Paris, 6°.
-#
 
 Société française de Philosophie
 
@@ -664,7 +646,6 @@ Chaque année du Bulletin de la Société française de Philosophie comprendra h
 raison de un numéro par mois.
 
 ABONNEMENT ANNUEL {du 1° janvier)
-Le numéro : 1 fr. 50
 
 La Première Année (1901), commencée en mai, s'est terminée en
 août; le prix de celte première année est de 4 fr. pour la France et
@@ -673,15 +654,11 @@ de 5 fr. pour l'Union postale.
 La Deuxième Année (janvier à août 1902) est en vente au prix de
 8 fr. pour la France et de 10 fr. pour l'Union postale,
 
-SOMMAIRES DES QUATRE NUMÉROS DE LA DEUXIÈME ANNÉE. — Janvier : L'idée d'être es M. WEBER). — Février : l'Agrégation de
 philosophie (thèse, M. Raun). — Mars : Discussion sur les Eléments
 chrétiens de la conscience contemporaine (thèse, M. A. DarLu). —
-Avril: Sur les rapports de la et TE et de la Te ur de
 Leibniz ie M. uni. — Mai : Le matérialisme historique
 (thèse, M. SorEL). — Juin : Le luxe (thèse, M. BELOT). — Juillet et
 Août: Constitution d'un vocabulaire philosophique (thèse, MM. BeLOT, COUTURAT, DELBOS, LALANDE).
-
-du
 
 Congrès international de Philosophie
 
@@ -1020,8 +997,6 @@ m'approprie la parole d'un célèbre écrivain qui fut aussi
 un homme d'action : « J'envoie ce livre dans le monde avec
 l'espoir qu'il déplaira à toutes les sectes politiques. » (1)
 
-de: mi
-
 Pendant que je rédigeais les derniers chapitres de ce
 livre et qu'il s'imprimait, il s'est produit dans l'ordre politique et dans le domaine de la législation des événements
 qui n'ont pu être naturellement ni appréciés ici ni mentionnés. Mais comme ces faits nouveaux ne modifient pas
@@ -1030,7 +1005,6 @@ ni pour le lecteur ni pour moi, de s'en préoccuper.
 Il nous faudrait quatre-vingts pages, que je n'ai
 pas, pour publier ici les 43 pages des deux tables des
 matières ; nous ne pouvons donner que les titres des
-L'ancienne unité;
 Désagrégation de l'ancienne société ;
 —  Tentatives de contre-révolution;
 Triomphe définitif du nouvel ordre;
@@ -1038,8 +1012,6 @@ Les origines des associations politiques;
 Les commencements des organisations de partis ;
 L'établissement du Caucus ; |
 Le développement du Caucus ;
-Le Caucus au pouvoir ;
-L'organisation conservatrice ;
 La crise de 1886 et les dernières phases de l'organi- ‘4
 Le mécanisme du Caucus;
 L'action du Caucus; . |
@@ -1047,18 +1019,11 @@ L'action du Caucus; . |
 Candidats et campagne électorale ;
 Le gouvernement suprême dans le Caucus ;
 Organisations auxiliaires et rivales ;
-Le bilan.
 Les premières organisations de partis aux ÉtatsUnis ;
 L'établissement du système des conventions ;
 L'évolution du système des conventions ;
-L'organisation locale ;
-Les conventions ;
-La convention nationale ; L
-La campagne électorale ;
 Les politiciens et la machine ;
 Ÿ Les luttes pour l'émancipation ; $
-Le bilan;
-| CoNcLUSION
 Contribuons tant que nous pouvons, s'il en est
 temps encore, à l'éducation de la démocratie; et
 d'abord, sincèrement, par l'histoire de la démocratie.
@@ -1168,7 +1133,6 @@ vertu de son Organisation qui vulgarisait la raison
 sociale, la notion abstraite du parti, si longue à s'emparer des esprits. Mais finalement le Caucus se
 trouva impuissant à enrayer les divisions du parti,
 
-| DES PARTIS POLITIQUES
 car elles étaient un effet fatal de la complexité croissante des conditions sociales qui a depuis longtemps
 frappé et condamné le dualisme classique des partis |
 9 avec leur ancienne cohésion. S'acharnant à vouloir
@@ -1312,8 +1276,6 @@ vie publique locale amené par le Caucus n'a pas été
 
 atténué par le fait que son œuvre centralisatrice a
 
-Sa le: NORMES Pts
-be DES PARTIS POLITIQUES
 d'autre part contribué à l'accroissement bienfaisant
 de l'influence de l'Union.
 
@@ -1679,8 +1641,6 @@ ces doctrines aboutissent chez Rousseau aussi bien
 que celles que leurs critiques ont cherché à leur ÿ
 56 4
 
-de È s A pe QUers:
-
 XIII. Examen des principales objections contre la nouvelle
 méthode d'action politique : l'existence de plusieurs
 organisations à objets différents occasionnerait une
@@ -1718,7 +1678,6 @@ sentation. La « théorie organique » et la représentation des intérêts. Com
 qu'il est erroné dans sa conception. Pour autant que
 le manque aux Chambres des porte-parole autorisés des « intérêts » est réel, on pourrait y remédier
 
-A TR ei je
 par l'introduction dans le Parlement, à titre accessoire, d'un certain nombre de représentants des
 grandes organisations économiques et des corps
 
@@ -1788,7 +1747,6 @@ complément le changement des méthodes politiques
 dans le sens de l'action libre, fondée sur la respon-
 
 | 59
-de
 
 sabilité individuelle. Comment ces trois facteurs individualistes de la rénovation politique se présentent
 
@@ -1895,7 +1853,6 @@ le soutenons sans faiblesse, et nous nous maintiendrons
 sans aucune arrière-pensée ; que l'alcool soit ou ne soit
 pas un aliment de laboratoire ; qu'il soit ou ne soit pas
 un aliment d'usage, commun; qu'il soit un combustible
-et non un aliment, ou qu'il soit et un combustible et un
 aliment; il est acquis depuis longtemps, il est indéniable
 que l'alcoolisme est un empoisonnement et que l'empoisonnement alcoolique est devenu l'empoisonnement le
 plus menaçant, le plus dangereux pour l'avenir du
@@ -2132,7 +2089,6 @@ dernières élections législatives les paysans n'avaient
 voté pour les candidats républicains et ne les avaient
 élus que parce que les candidats républicains avaient ;
 
-F te CAHIERS DE LA QUINZAINE
 _ solennellement juré que la République maintiendrait
 leur privilège de bouilleurs ; cette admirable séance où
 ce même député de la plus radicale défense républicaine
@@ -2146,7 +2102,6 @@ _ sa circonscription, mais se ruina pour toujours dans
 l'estime des honnêtes gens ; comme une telle séance est
 précieuse pour l'historien; par quel admirable retour
 M. Rouvier seul faisait un peu de socialisme, contre tout
-le monde, si le socialisme est en un sens le souci et le
 maintien de l'intérèt commun contre la ruée des égoïsmes,
 contre les louches coalitions des appétits, des avidités,
 des intérêts individuels et particuliers ; il est vrai qu'il
@@ -2443,7 +2398,6 @@ sauve de l'aventure, qu'importe que le résultat soit
 à acquis plus ou moins par un travail de laboratoire ou
 L par un travail de prédication morale, ces deux formes
 k. hautement respectables du respectable travail humain.
-|
 
 douzième cahier de la quatrième série
 Je voulais traiter d'ensemble ces grosses questions;

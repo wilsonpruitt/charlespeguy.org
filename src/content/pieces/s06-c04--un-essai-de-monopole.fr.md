@@ -9,25 +9,9 @@ wordCount: 16307
 ocrSource: "Trimmed 2026-05-25; the Madagascar cahier by Allier (lines 1449-5502) was extracted to s06-c04--l-enseignement-primaire-a-madagascar.fr.md."
 translationNotes: "Cette portion conserve l'introduction de Péguy (Un essai de monopole) plus l'Arrêté gouvernemental annexé en back-matter. La portion Allier/Chazel a été extraite vers la pièce sœur."
 ---
-neue CAHIER DE LA SIXIÈME SÉRIE
-
 k paraissant vingt fois par an
 
 _ 8, rue de la Sorbonne, au rez-de-chaussée
-
-Et: re RÉ a See HITS
-ae « Le CERTES RTE:
-vi CS D‘ et r RAS
->. VASTES RAS me Ce
-ROVER 0 ns FRS PNNE Re NE ON CREER
-
-Fer RS EE ee) PROS Et _ AUDE TEA
-AE “AE 2 DURE A LATE ES ee À Sr LES
-TARN PRE et SN REGIS DES AN Mouse
-LIVRES 2 td É DIRE RS AR MR ur EE LR) RME Fev $
-Me PORN RSI Rte +R dE
-o METRE UT UE Terre RCE DEN EN LA ENT YF sou SC ARE DE
-er. l'O re MPOS EN ni nd A
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un si grand
@@ -68,21 +52,6 @@ série; toute personne qui s'abonne à la sixième série Ë
 le reçoit, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
 cinq francs à toute personne qui nous en fait la
-
-ES DUC Les, PRET AN À CO NS LA ALU EEE See ES
-_ LISTEN PO PA Cle PH ue Le DE RE
-La WA frs L le Char! 4 HER ET VE DA Ep LE TETE À
-Don. 2 TES RC RUE PEAR SSSR
-M tie ni ee
-26 ANR LE Puerto a een St RL M
-Un. die RE ae a A nn RAT NCRE) « ue PANNEAU
-
-LE SR ie
-
-ire RS et SAS
-% ose 7 SE SNERER LCA Le
-PORTES : jé À LS LE a NA TE ARENA ESC
-NN et, ë DENT DILUMDNES FE, Pt nes RE a
 
 £ Nos anciens abonnés savent, pour l'avoir éprouvé
 pendant cinq ans, nos nouveaux abonnés reconnaîtront
@@ -140,7 +109,6 @@ nouvelles vraies de quelque part; et tous nos cahiers,
 en un sens, ne sont-ils pas des cahiers d'enseignement;
 puisque tous nos cahiers, sans aucune exception,
 
-UN ESSAI DE MONOPOLE di
 apportent à nos abonnés les meilleurs des enseigne- :
 ments, les seuls enseignements qui soient valables, les
 
@@ -197,7 +165,6 @@ j commandement paraît former une plaisanterie excessi-
 > vement spirituelle, parce que l'on ne pense alors qu'à
 : embêter les catholiques; en France tout anticléricaic lisme paraît être uniquement un anticatholicisme;
 LE quand on parle du monopole, quand on veut faire le
-#,
 
 monopole, on s'amuse extrêmement, parce qu'on ne
 pense qu'à embêter les catholiques.
@@ -232,7 +199,6 @@ indigènes à Madagascar, à le lire comme un cahier de
 l'enseignement primaire des indigènes à Madagascar;
 comme un cahier de courrier; comme un cahier de l'enseignement.
 
-| Charles Péguy à
 Pour tout travail, pour toute œuvre, la bonne lec-
 : ture consiste à lire l'œuvre en elle-même, par ellemême, pour elle-même.
 Je me hâte d'ajouter, pour dégager toute sa responsabilité, que cette lecture est la lecture de l'auteur; et 3
@@ -386,7 +352,6 @@ style, politiques parlementaires, ouvriers de la cent
 soixante-et-onzième heure, mais qui ne surprendra
 point tous ceux qui connaissent M. Raoul Allier. Plus
 
-Charles Pégur DE
 | « Ce n'est pas le général Gallieni qui avait inventé 4
 \ ce régime. J'ajouterai même qu'il ne faut pas, non plus,
 | en rendre responsable le ministre d'alors, M. André
@@ -416,8 +381,6 @@ protestante française, qui, pendant plus de deux ans,
 il en eut toute la responsabilité morale et, presque en
 $ entier, la responsabilité financière. »
 
-ae UN ESSAI DE MONOPOLE 172
-Plus loin : 3
 « Il ne s'agit pas de faire ici l'éloge d'une mission particulière. Je n'ai pas attaqué, dans mon dernier article,
 _ l'œuvre des Frères. Je n'exalte pas, dans celui-ci,
 l'œuvre des Anglais. La production des documents
@@ -488,7 +451,6 @@ senter une aussi lointaine situation; figurez-vous que
 ce gouvernement de Madagascar est une satrapie; ce
 n'est pas comme le gouvernement de cette France; le
 gouvernement de cette France n'en est pas une,
-satrapie; le gouvernement de ce Madagascar, ou de
 cette Madagascar, nous représente assez bien ce que
 sera le gouvernement de cette France quand le commandement de M. Jaurès nous aura tous courbés; il
 fera bon vivre dans la satrapie du satrape Jaurès ; on
@@ -502,7 +464,6 @@ Jaurès, périssent mes principes, et vive ma colonie.
 > Conclusion du chapitre IV : x
 .… € D'aucuns diront sans doute que le principe de
 
-| Charles Péguy SE
 la laïcité absolue de l'État ne permet pas à celui-ci
 | d'avoir le moindre rapport avec une mission, même
 | quand elle n'est investie d'aucun caractère ofliciel, et
@@ -516,7 +477,6 @@ mettre en doute l'utilité pratique de cette suppression
 | subite. Personne n'en saurait contester la parfaite léga-
 . lité, la complète conformité avec l'esprit et la lettre de
 notre droit public. » 3
-|
 Un homme qui parle encore de principes, de thèses,
 | de régimes, de principes encore, de principes toujours;
 | de parfaite légalité, de complète conformité avec l'esprit j
@@ -531,7 +491,6 @@ règlements. Il n'était point nécessaire de tout bousculer et de choquer par d
 ss le système lui déplaisait et qu'il préférait réserver dans
 l'avenir loutes ses ressources pour ses propres écoles.
 ra Le régime des subventions conditionnelles était tout à
-le
 
 fait défendable. De même, sa suppression ne lésait, en
 théorie, aucun droit. A condition de n'être pas opérée
@@ -570,11 +529,6 @@ sionary Society et à la Mission protestante française
 
 pour être entrées résolument dans les vues du gouver-
 
-| XXI
-
-| a 5 ou 24
-| Charles Pégur
-|
 | nement de la colonie et pour les résultats très satisfai-
 | sants déjà constatés. Ces trois missions ont devancé
 R dans cette voie l'enseignement officiel. »
@@ -632,13 +586,9 @@ menuiserie qui serve à faire des tables; je cite la
 « Le plus souvent, au lieu de passer sous la direction de x
 leurs maîtres par toutes les phases » …
 
-Toutes Les phases!
-
 .… (d'un enseignement professionnel donné, les élèves sont, non pas instruits,
 mais simplement utilisés à la fabrication courante du mobilier et du matériel nécessaires aux missions. On les spé-
 
-| Charles Péguy | ONE rs à
-#4
 | . cialise ainsi, non pas dans un métier, mais dans un certain 4
 détail de métier, suivant le principe de la division ‘du LA
 | 8 travail, qui est sans doute le plus avantageux au point de
@@ -764,7 +714,6 @@ gouvernement, — j'entends le gouvernement de Madagascar, — s'aperçoit que d
 
 et qui, au regard du sens commun, paraissaient contradictoires, décousues, très heureusement sont commandées par une grande pensée synthétique :
 
-ni « L'administration de Tananarive a dû se contempler
 s'e dans ce miroir, peut-être avec quelque surprise, du
 1 moins avec un contentement naturel et auquel il me
 Li : serait doux de m'associer de grand cœur. Il n'était pas
@@ -788,8 +737,6 @@ ke FR fera des apparences, on travaillera les statistiques ;
 
 Fi Parmi tous ces efforts, il y en a eu de toutes les qua-
 
-SPL On pouvait s'y attendre.
-
 | Le gouvernement général, pour agir sur les imaginations,
 k : a donné à ses instituteurs un bel uniforme, magnifique-
 
@@ -799,7 +746,6 @@ pa tout au sérieux; en France on n'a point donné encore
 je aux instituteurs un bel uniforme, magnifiquement
 fu galonné ; mais cela viendra ; en attendant on leur
 
-ne. UN ESSAI DE MONOPOLE
 Ô donne le plus qu'on peut de croix, de bannières, de
 | rubans et de médailles, qui sont des morceaux d'uni-
 . formes, et même mieux ; et quand on n'a pas assez de
@@ -827,8 +773,6 @@ point faire de la délation.
 premiers inscrits, les fait mettre en rang, puis commande :
 « Par file à droite, marche! » Il se rend à l'école catholique
 
-| 4 Me.
-| Charles Péguy
 et fait la même opération. Les cent élèves, réunis dans
 l'école officielle, reçurent de Fofficier l'avis de n'avoir plus
 | L'histoire est brève, on le voit; elle s'est passée il y
@@ -855,7 +799,6 @@ d'État, étant docteur, — professeur de philosophie;
 montant de l'enseignement primaire, traversant le secondaire, le monopole d'État aura gagné le supérieur;
 Fe Jaurès enseignera, de deux années l'une, alternative-
 
-ment la métaphysique de la morale, et la morale de la
 métaphysique; mais il s'agira de lui trouver des élèves;
 un oflicier, — un officier de défense républicaine, — se
 rendra au cours de M. Raub; il demandera la liste des
@@ -1005,7 +948,6 @@ caractérisés, deux véritables sujets de laboratoire,
 sujets d'expériences limitées, closes, préparées, réalisées par la nature; Madagascar est dans l'ordre des
 colonies ce que sont l'Angleterre et le Japon dans
 
-LE Charles Péguy 1
 ls ) l'ordre des nations libres. Son gouvernement même est
 Le insulaire, monarchique, monocratique, sans frontières
 | ave ni communications terrestres.
@@ -1085,7 +1027,6 @@ Le mais encore, à cause de la fermeture d'une des écoles
 k blancs), il y a là quelques centaines d'enfants mal-
 É gaches qui s'en vont frapper à la porte de toutes les
 | écoles privées et qui, faute de place, n'y sont pas
-| admis.
 | « Le développement de l'instruction officielle et laïque
 est réel à Madagascar. Il est réel et il est normal. Le
 général Gallieni a raison d'y tenir et de lui donner tous
@@ -1157,7 +1098,6 @@ A satisfaite de l'installation du groupe scolaire, qu'elle a
 \ déclaré convenir parfaitement à sa destination. Satisfaction
 ; immédiate a été donnée aux quelques desiderata qu'elle a
 formulés en ce qui concerne certains aménagements supplé-
-+ « Le groupe comprend : ;
 } « 1. — Une école préparatoire de garçons, fréquentée par
 ; « 2. — Une école préparatoire de filles, fréquentée par
 ER « Ces deux établissements sont organisés conformément
@@ -1203,8 +1143,6 @@ _ exercé par l'État; quand l'État ne peut plus ni en
 donner, ni en vendre, il interdit rigoureusement aux
 particuliers d'en donner, ou d'en vendre; c'est l'idée
 même du monopole; et voilà de la bonne laïcisation :
-
-| Ù XLI
 
 Hi mieux vaut un abandon laïque dans la rue que la
 Î présence aux écoles protestantes; ou plutôt un abandon
@@ -1420,34 +1358,10 @@ Au moins nous avons l'assurance que nous n'y retom-
 + cahier, comme on le verra du premier regard, est un
 Hi de ces cahiers qui n'admettent que leur texte.
 
-RE SE SUD AL ee ee EE ÉD LRQ ES QUE Ra DUR HQE ANT
-
-LE ME ER Re RE ES PR TR D te RER
-
 Nos abonnés trouveront sur les cartes usuelles de
 Madagascar les localités mentionnées dans ce cahier ;
 nous publierons des cartes pour nos cahiers de courriers aussitôt que nous en aurons les moyens.
 
-Ph JE A ET RE Li TER RE AE A ADR Es Be PE NT UT ee un LES
-Le tr ES LT PPT NL OS? 4 MONT AUS AE
-
-EE de, OT ET ere UE à. Er er = LUN CEE LE 2
-É PAUL CRETE ETR PRE LE en EE pts 2 ANR Er Jp SARA TRUE 5 qu A ne Ki]
-ATANGRE RE ao M NE ve MEN CENTRE Le TES pe
-
-| EN PT SEMESTRE ÉTÉ Ca TR et) je LAN HAT EN ASTM
-CE TEE RSR A St CPAS LE Cane HN ARS Me) ie
-
-x ral Ê Re Le
-FACE ARR L 5 ANT TERRES cr
-on ; A Ca eue; C LE NO)
-nat =, PA) eu le RES
-CNE de M
-RTE Ce Se ne NP EE ne,
-+ "RP tes . LS tr Ge
-ARE RME 2 er ES TES ER SRE
-
-y & MR RPÉ QT LS V4 1 ns 4 que
 Arrêté organisant le service de l'enseignement
 des indigènes à Madagascar
 
@@ -1479,13 +1393,10 @@ Vu les instructions ministérielles en date du 8 dé-
 
 fi Sur la proposition du chef du service de l'enseignement;
 NS Le conseil d'administration entendu, 3
-| Arrête :
 { V ARTICLE PREMIER. — L'arrêté du 15 juin 1903 est abrogé et
 ul : remplacé par les dispositions suivantes :
-| jh
 k| 4 ARTICLE 2. — l'enseignement est donné à Madagascar
 fo dans les écoles officielles et les écoles privées.
-Va Au point de vue de la direction pédagogique et de la
 | # surveillance administrative, les écoles officielles et les
 écoles privées ressortissent à l'une des quatre circonscrip1 tions scolaires ci-après :
 | Circonscription scolaire du Centre :
@@ -1537,8 +1448,6 @@ fe Le temps nécessaire sera laissé aux élèves pour pratiquer,
 
 (il en dehors de l'école, la religion qu'ils ont choisie.
 
-je DE L'ENSEIGNEMENT
-
 pr ARTICLE 8. — Les écoles supérieures sont :
 
 14 L'école de médecine indigène de Tananarive ;
@@ -1580,20 +1489,13 @@ Hs actuellement en vigueur. Elle relève du directeur du service
 | 2 de Tananarive, Mahanoro et Analalava, restent organisées
 conformément aux dispositions de l'arrêté du 5 juillet 1903.
 
-|
-
-| ÉCOLES RÉGIONALES
-
 dE ARTICLE 13. — Il pourra être fondé dans chaque province
 
 ou cercle, pour former des cultivateurs et des ouvriers
 
 5 exercés, une école dite : « École régionale d'apprentissage
 
-| KR 136
-
 as industriel et agricole », qui pourra être, d'après les instruc3 tions du Gouverneur Général, soumise aux inspections du
-| chef de la province ou du cercle et du fonctionnement de
 É laquelle celui-ci rendra compte dans ses rapports pério-
 ARTICLE 14. — Les écoles régionales d'apprentissage
 comprennent deux sections : une section industrielle, une
@@ -1627,8 +1529,6 @@ aménagement intérieur et extérieur, l'hygiène de l'établissement; il soumet
 
 | visés par l'article 27 ci-après, qui doivent toujours être
 
-let) ua ES | is SMS EST NO TEEN RER ch
-pal 3 A PAR Rp NRA re
 établis en tenant compte de la situation économique parti: .
 culière de la région. j
 ARTICLE 19. — La durée des études dans chacune des sec-
@@ -1645,8 +1545,6 @@ se Toutéfois, exceptionnellement, il pourra être admis des
 
 4 présenter, au moment de leur inscription, un certificat
 du directeur de l'école dans laquelle ils ont fait leurs
-
-| études. f
 
 ARTICLE 22. — La commission chargée d'examiner les |
 candidats se compose de l'inspecteur de la circonscription,
@@ -1712,19 +1610,9 @@ Les plus méritants et les plus nécessiteux d'entre eux,
 âgés de plus de seize ans, pourront recevoir des allocations
 annuelles, dont le taux est fixé comme suit :
 
-| RAR Van een + noie inst Pe TO DARCE
-4 PROPRES HU Le) RON PUS fit Crop
-RATES OA. 22e On es + nl D4
-
-4 Vatomandry-Mahanoro: ©7202 NE
-LAON F'enerives 47 02e et AT NOIR RUE +.
-|}. 5 n AE
-| LS Marolambo:: 1.11 2150 NN NSTE TA x
-| 542 Béforona: 4. 22061.) NRA O EE ne
 IS ARTICLE 32. — Les professeurs assistants des écoles régio- 2
 LC nales sont répartis en cinq classes, dont le traitement 4
 re + mensuel est fixé ainsi qu'il suit : À à
-1:30 Len de des MN UE LE CM ER NOIRS 55
 ARE Les professeurs assistants originaires de l'Imérina ou du É
 A Betsiléo, en service dans les régions excentriques, pourront
 | (tE recevoir un supplément de traitement de 15 à 30 francs
@@ -1737,12 +1625,7 @@ REA. Les instituteurs officiels pourvus du certificat d'aptitude
 HA à l'enseignement, ayant au moins trois années d'exercice
 LS et agréés par le chef du service de l'enseignement. x.
 | ER Le concours pour l'emploi de professeur assistant comLT ES prend des épreuves écrites, des épreuves pratiques et des
-Je Epreuves écrites Fe
-h Fa Une dictée d'un texte français ; a.
-| FAO) Un thème; Es
 
-Une version;
-Une composition française;
 Deux problèmes d'arithmétique et de système métrique.
 
 Croquis à main levée d'un objet;
@@ -1760,7 +1643,6 @@ ARTICLE 34. — L'avancement a lieu exclusivement au
 choix, après deux ans au moins passés dans la classe
 
 ARTICLE 35. — Les professeurs assistants débutent tous à
-la 5° classe.
 
 ARTICLE 36. — Les dispositions des articles 64, 65 et 66 du
 présent arrêté sont applicables aux professeurs assistants.
@@ -1776,7 +1658,6 @@ est créée dans chacune des localités où existe une école
 
 ARTICLE 39. — La durée des études est de deux ans.
 
-| annexes 5 Fe à
 | ARTICLE 40. — Pour être admises à l'école, les candidates
 | doivent justifier, devant une commission ayant la compo- Oo.
 fl sition indiquée à l'article 22, de la connaissance du probi gramme des écoles primaires.
@@ -1802,8 +1683,6 @@ ARTICLE 45. — Les enfants âgés de plus de quatorze ans -
 y sont autorisés par le chef de la province et le chef du
 service de l'enseignement.
 | ARTICLE 46. — L'enseignement primaire rural comprend :
-La langue malgache; ;
-s La langue française;
 £ La lecture et l'écriture; |
 
 | Le caleul et le système métrique ;
@@ -1845,10 +1724,6 @@ ARTICLE 52. — L'examen du certificat d'aptitude à l'enseignement dans les éc
 
 2° Des épreuves d'enseignement pratique éliminatoires ;
 
-3 Des épreuves orales.
-
-| Ets F < PAR D Ua (Patte CORTE n
-
 (Es #0 ARTICLE 53. — Les épreuves écrites comprennent : REA
 
 Hu ‘# 1° Une dictée d'un texte français simple; #1
@@ -1856,8 +1731,6 @@ f 1 à 2° Une composition française élémentaire;
 Bee 3° Une composition malgache, dont le sujet pourra porter
 
 | ie sur une-question de pédagogie; G £
-
-MIT ÉER * Un thème;
 
 {pas ie 5 Une version.
 
@@ -1870,12 +1743,10 @@ Rés de l'école normale ou de l'école régionale;
 AE 3° L'exécution d'un croquis coté;
 11111 ‘* Des interrogations sur l'agriculture. ;
 
-La it ARTICLE 55. — Les épreuves orales comprennent : Ë
 fe 1 1° La lecture d'une page de texte français avec traduction
 |. 11 et explication en malgache;
 1502 2° La lécture d'une page de texte en malgache avec tra-
 {f ML duction en français et explication en malgache;
-Ha fs 3° Une conversation en français;
 HAE 4° Des interrogations sur les matières du programme
 Le je k des écoles primaires (arithmétique, système métrique, his-
 jé 18 + ARTICLE 56.— L'examen aura lieu au siège de chaque cours
@@ -1891,8 +1762,6 @@ FILE proposition du chef du service de l'enseignement.
 EH Le diplôme ne sera délivré aux élèves reçus à l'examen
 
 î jl 4 qu'après dix-huit mois au moins d'exercice dans une école.
-
-fl L'ARRÊTÉ OFFICIEL
 
 ! A Tananarive, la commission comprendra :
 
@@ -1918,17 +1787,12 @@ raison de leurs aptitudes par le chef de la province. } |
 ARTICLE 58. — Les instituteurs officiels sont répartis en
 cinq classes dont le traitement est fixé ainsi qu'il suit :
 
-SL ET RUe RRNE OR ORNE EAN PE RC AT at te PE ;
-
-AR FR tan M PAP A AN PAR A SARL Go
-
 ARTIGLE 59. — Les instituteurs officiels sont logés. Dans
 les localités rurales, et, autant que possible, dans la banlieue des villes où ils sontemployés, un terrain comprenant
 une rizière est mis à leur disposition. Ils ont l'obligation
 d'utiliser ce terrain pour l'enseignement pratique agricole
 de leurs élèves.
 
-LE HE annexes
 {l 14 AnrTicLe 60. — Les contremaîtres employés dans les écoles
 Le officielles reçoivent un salaire mensuel de 45 francs et
 js jouissent des mêmes avantages que les instituteurs officiels,
@@ -1959,14 +1823,6 @@ service de l'enseignement annotée par le chef de la pro-
 ARTICLE 66. — Les instituteurs et les contremaîtres offi-
 
 ciels sont passibles des peines disciplinaires suivantes :
-
-1° La réprimande; È k
-
-2° La suspension ;
-
-3 La rétrogradation;
-
-4° La révocation.
 
 ARTICLE 67. — La réprimande est prononcée par le chef
 du service de l'enseignement ou par le chef de la province.
@@ -1999,61 +1855,29 @@ indigène comprend des épreuves écrites, des épreuves pratiques et des épreu
 
 Une dictée d'un texte français;
 
-Un thème;
-
-Une version ;
-
 Une composition malgache sur un sujet de pédagogie;
-
-Une composition française;
 
 Deux problèmes d'arithmétique et de système métrique.
 
-| RTE Le RTE î ie 14 PU nexes AE Wr4 # di Meur,
-il DE Free 5 ; ne
-|A TA À ERA objet; échelle donn ANA
-|E NS in levée d'un à une éc FA Ro
-[NRA f ( uis à mai 'un croquis x : 5 (
 l Ke : Relevé au sur l'ag une éco CRE
 it ENS Interrogation classe dans î QUE
 11 TAN Une tion d'un les alci a
 j ‘Hu L'inspec ipreuves orale , la langue Bt Eu
-L L LE M e française, l'histoire et j
 
-LE Le 1 langu étrique,
-l ER \ la étriq À
 { 1 ions sur stème m
-ie ol Jap A RTE e, le sy épartis en
 l “I jte l'arithmétiqu s sont répa insi
-fe Le A { k hie. urs el es |
-fe | PALIN geograp Les eu pense { rl
-ik vi) ui fé ARTICLE 70. Faq le traite Frs is
 ji ‘1 lasses, 5 francs (un
-1e MN cinq cla Une) (ps
-le AU | 5° classe . . NUE ASIE 105 ru ÿ
 | toi aus RARE HAS UE 115 nue À
-l, | {uns EE M HT ERS 125 du
 ‘1 nl nue érinaet du |
-FUIT ALES . Que a js
-sl 10 } A Aa Are Ï de l'Imérin: Al ji
 A0 LE originair triques pote ns
 fi 18 s indigènes égions excen les condition: V4
-EU MA k eur s ré ans WA
 A fau cevo 'artic indigè | tous 5
 li ÉRTSE par l inspecteurs débutent LUE
-Ê. dt qu indiq M pi officiels des ‘ii
-(FU ni ù { ARTICLE Ve instituteur. dans le M us 708
 
-| D TÉMCoUre Do Là à laqu Ï
 1 HAE 5* classe. cteurs indig ébuient à la èsdeux
 NE Les inspe ssistants “ nier cadre. choix, A infé- Ne
 
 NPA fesseu. ns ce ivemen édiatem “104
 RTE artien t a lieu la class
 ” 24 ii | avancemen passés dans les 64, 65 et si a
-117 ! FI PR D itions des à ae
 de 0 rieure. Les Pace gi +
-185 HP ARTICLE RE sont app h
-1 ‘9 du présent a :l
-
-JE \ de nt. L

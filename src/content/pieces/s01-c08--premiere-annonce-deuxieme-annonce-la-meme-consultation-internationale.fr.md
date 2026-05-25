@@ -7,7 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 11855
 ---
-Mon ami, RC:
 Si tu étais encore à Paris, tu te serais fait un devoir À a
 et un plaisir d'assister à la conférence que le citoyen
 Paul Lafargue a donnée à l'Hôtel des Sociétés Savantes, ‘ta
@@ -120,25 +119,18 @@ et s'associe à toutes les manifestations de l'action socialiste nationale
 et internationale. Te:
 Il portait au verso le tableau de l'emploi du temps
 Conférences publiques à l'Hôtel des Sociétés Savantes
-Û DÉCEMBRE 1899 FRANCIS de PRESSENSÉ Le conflit transvaalien et l'impérialisme
-JANVIER 1900 ÉMILE VANDERVELDE Le collectivisme et
 la concentration capitaliste
 . JEAN JAURÈS Bernstein et l'évolution de la doctrine socialiste
 : FévRIER GASTON MOCH L'organisation des
 milices et la suppression des armées per-
-ENRICO FERRI Le socialisme et
 l'évolution
 de BROUCKÈRE  L'oplimisme économique au dix-huitiè-
-Mars GUSTAVE ROUANET L'antisémitisme
-AVRIL HECTOR DENIS Les premiers socia-
 
 Causeries à l'intérieur du groupe, à son siège social, 23, rue de
 Pontoise, près le square Monge
 N. B, — Chaque Causerie est suivie d'une discussion générale sur
 la question traitée par le Conférencier.
-s LOUIS RÉVELIN La théorie de la population dans
 professeur au Collège des Malthus et dans Marx
-JOSEPH SARRAUTE Le socialisme et la démocratie
 membre du Groupe ; L
 G. SOREL Les nouvelles conceptions sociaprofesseur à l'École de listes.
 LOUIS DE BROUCKÈRE La foule au point de vue socialiste
@@ -147,7 +139,6 @@ nouvelle de Bruxelles
 HUBERT LAGARDELLE L'évolution du socialisme
 du Mouvement Socialiste,
 membre du Groupe
-BERNARD LAZARE L'antisémitisme u
 JEAN LONGUET Analyse du livre de Bernstein
 membre du Groupe
 RENÉ AROT Le socialisme et la question colomembre du Groupe niale
@@ -157,11 +148,8 @@ membre du Groupe
 membre du Groupe
 Docteur FAUQUET L'inspection du travail en France ‘à
 membre du Groupe
-HUBERT LAGARDELLE Le truck-system
 
-i FRANÇOIS SIMIAND Le salaire en France
 agrégé de philosophie
-JEAN LONGUET Le salaire en Angleterre
 PHILIPPE LANDRIEU Les projets de législation contre
 licencié ès sciences les grands magasins F0
 membre du Groupe
@@ -169,7 +157,6 @@ ANATOLE DE MONZIE La nouvelle loi sur les syndicats
 membre du Groupe ouvriers
 HENRI THIROUX La protection légale des femmes
 membre du Groupe en couches dans la classe ouvrière
-BRIAT Les institutions de la Bourse du
 membre de la Commission Travail de Paris
 consultative de la Bourse
 du Travail.
@@ -186,9 +173,7 @@ VEDITZ Les trade-unions américaines
 membre du Groupe
 EDGARD MILHAUD L'organisation syndicale en Alle- .
 agrégé de philosophie magne
-OLIVIER La coopération en France
 membre du Groupe
-PREMIÈRE ANNONCE je
 LOUIS RÉVELIN L'unité socialiste en France j
 LOUIS DUBREUILH L'unité socialiste et les grandes
 à la Petite République
@@ -198,7 +183,6 @@ SZMÉRÉ Le parti socialiste autrichien
 membre du Groupe y
 G. PINARDI Le parti socialiste italien
 correspondant de l'Avanti
-G. SERGE Le socialisme en Russie ‘4
 membre du Groupe
 Je ne sais où en est l'exécution du programme inté- -
 rieur. Je pense, d'après les précédents, qu'il fut exécuté
@@ -212,7 +196,6 @@ La conférence du citoyen Francis de Pressensé, Le « Ne
 Transvaal et l'Angleterre, fut donnée le mardi 12 dé-
 cembre 1899, sous la présidence du citoyen Jaurès; nous
 l'avons lue dans le Mouvement Socialiste, numéros 26 du
-janvier et 27 du 1° février 1900. La conférence de Van-
 
 dervelde, député de Charleroi, professeur à l'Université
 
@@ -370,7 +353,6 @@ d'idées comme ça entre Sembat et Jaurès.
 Un troisième témoin me dit : J'étais un peu au courant. Cet incident m'a fait beaucoup, beaucoup de
 peine. Seulement, il vaut mieux ne pas publier tout
 cela : c'est trop mince, pour la publicité. Puis la publication, en elle-même, et même fidèle, fausse toujours
-un peu.
 
 Et moi je dis : Tu départageras mieux que moi ces
 témoins. Mais je sais bien que ces incidents introduisent dans l'action des insincérités incessantes, et des
@@ -522,7 +504,6 @@ le Socialiste a donné la conférence toute seule, sans
 l'introduction du citoyen Vaillant, sans les interruptions et, sans doute, sans la discussion suivante. Nous
 avons, nous, à présenter une image de tout cela.
 
-Mon ami, 4
 Si tu étais à Paris, tu serais allé à la grande fête organisée pour le vendredi 13 avril, avant-veille de Pâques,
 par la Petite République.
 Dès le numéro daté du samedi 7, le journal avait annoncé cette fête. Les lundi 9, mardi 10, mercredi 11,
@@ -544,7 +525,6 @@ M. RENAUD (de l'Opéra)
 La Romance de l'Étoile (Richard Wagner), accompagnée par M. LÉON MOREAU;
 Les seuls Pleurs (Camille Erlanger), accompagnés par l'auteur,
 Poèmes d'Alfred de Vigny
-Mesdemoiselles RIOTTON et MARIÉ DE L'ILE (de l'Opéra-Comique)
 M. ISNARDON (de l''Opéra-Comique)
 Poèmes d'Alfred de Musset
 Poèmes de Pottier
@@ -608,7 +588,6 @@ morale de la fête, amusement douteux que de verser
 d'en haut sur les crânes inférieurs le refrain que l'his22
 
 toire nous interdit malheureusement de ne pas prendre
-‘au sérieux : Le
 Tous les bourgeois à la lanterne!
 Tous les bourgeois on les pendra!
 Le rideau levé Anatole France lut une allocution que
@@ -623,7 +602,6 @@ Il va nous entretenir des destinées de l'art dans les pro-
 grès de la démocratie, et c'est un sujet qui devait attirer l'attention d'un esprit comme le sien, fortement
 occupé du juste et du beau. Un lien, parfois presque
 insensible, mais jamais rompu, subtil et fort, conduit
-de l'idée de la justice à l'idée de la beauté; et c'est de
 la constitution intime d'une société que résultent les
 expansions de l'art, comme la sève qui nourrit le tronc
 et les branches de l'arbre fait la fraîcheur du feuillage
@@ -671,7 +649,6 @@ multipliant autour de nous de belles formes, exprimant
 de belles pensées. L'artiste et l'artisan travaillent à la
 même œuvre magnifique; ils concourent à nous rendre
 agréable et chère l'habitation humaine, à communiquér
-un air de grâce et de noblesse à la maison, à la ville, au
 
 Ils sont semblables l'un à l'autre par la fonction. Ils
 sont collaborateurs. L'œuvre de l'orfèvre, du potier de h
@@ -734,7 +711,6 @@ Le Socialiste ainsi daté : Dimanche 20-27 Août 1899, ; è
 publiant le compte rendu officiel du dix-septième Con- EUX
 grès national du Parti ouvrier français, tenu à Épernay
 les 13, 14, 15 et 16 août, publiait en effet cette réponse
-Mes chers amis, .
 Vous savez que je me suis fait une règle de ne pas me
 mêler des affaires des socialistes des autres pays. Mais
 puisque vous me demandez mon opinion sur les questions
@@ -1293,7 +1269,6 @@ les ministres socialistes, entrés au pouvoir pour une tâche
 strictement limitée et avec un programme bien défini,
 devront se retirer aussitôt que la situation sera redevenue
 
-M'HRER NSP AT RDA VOIE PAT NAS LA U, D ut SC Re és
 normale ou qu'ils se seront heurtés, dans l'exécution du
 programme élaboré par le parti, à la résistance de leurs
 collègues bourgeois. Des ministres socialistes ne sauraient
@@ -1328,7 +1303,6 @@ délices de la vie.
 les royaumes de la Terre.
 — Nous lui demandions d'attendre la réalisation
 d'une Promesse.
-— Et quelle Promesse !
 — Il a voulu jouir tout de suite. Il s'est laissé
 tenter par des sons, par des contacts — par des
 — Depuis dix-neuf siècles, ses ancêtres vivent

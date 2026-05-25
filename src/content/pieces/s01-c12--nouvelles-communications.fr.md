@@ -199,7 +199,6 @@ que les superbes toiles du peintre Castellani qui constituent
 - mystérieuses régions de l'Afrique dans toute sa saisissante
 réalité, c'est également une œuvre d'un haut intérêt artis_ tique et le public ne se lasse pas de l'admirer.
 a Jè lis dans {a Petite République du vendredi 8 juin
-F4 PA Le panorama Marchand
 Le … La société de cette attraction nous communique la note
 x Le très retentissant et très légitime succès du Panorama
 - … dehors de l'enceinte de l'Exposition, des imitations de la
@@ -243,7 +242,6 @@ Je m'étais imaginé que c'étaient les bourgeois qui
 avaient de ces élégantes. Je m'étais imaginé aussi que
 nous n'étions pas du monde qui s'amuse,mais du monde
 qui s'ennuie et qui s'impatiente en attendant la révolu
-- tion sociale. De
 Je lis dans l'Aurore du dimanche r7 juin : Re
 C'est un spectacle vraiment impressionnant et d'un réel er.
 caractère artistique que celui du Panorama Marchand, où ; E.
@@ -251,7 +249,6 @@ le peintre Castellani a représenté de si saisissante façon les
 principaux épisodes de la mission Congo-Nil. < LAS
 
 Je lis dans la Petite République du lundi 18 juin
-Le panorama Marchand
 C'est un spectacle vraiment impressionnant et d'un réel
 caractère que celui du « Panorama Marchand », où le peintre Castellani a représenté de si saisissante façon les principaux épisodes de la mission Congo-Nil. Chaque jour,
 une foule admiratrice défile au Trocadéro devant ces curieuses toiles, consacrant de plus en plus le succès du panorama.
@@ -263,7 +260,6 @@ nombre des visiteurs augmente régulièrement.
 Demain vendredi, jour select, le prix d'entrée est porté
 Serions-nous devenus select ?
 Je lis dans la Petite République du vendredi 22 juin
-NS Le panorama Marchand
 Le nombre des entrées journalières à l'Exposition subit
 d'inévitables variations, mais au Panorama Marchand, la
 grande attraction du Trocadéro, le nombre des visiteurs
@@ -302,24 +298,19 @@ Mercier, pendant la journée de dimanche, a été de 6,793
 
 Quatorze mille guides ont été offerts aux visiteurs du} SR
 panorama représentant les célèbres caves de la maison 5 Se
-Mercier, à Épernay. 2 ‘NE ARE
 
 Je croyais que nous ne combattions pas moins Pal.
 coolisme des riches que l'alcoolisme des pauvres. dedis
 dans la Petite République du même jeudi 5 juillet: ASE
-Le Diorama Fachoda VA IPN PRE UUESS
 Toutes les personnes qui descendent à la gare du Champ et
-sue à 5: ST DNS LE SRPRN
 x de Mars, avant d'entrer à l'Exposilion, vont voir Fachoda, 24 à
 
 diorama de la mission Marchand, qui se trouve tout à côté, A.
 
 e au numéro 16 de l'avenue de Suffren. : LS ont
 a -_ C'est un spectacle fort instructif que tous les amate s de PA A
-toiles artistiques et de scènes de la vie sauvage ne pe n se
 
 Je lis dans la Petite République du lendemain vende dredi
-Le panorama Marchand
 Comme il fallait s'y attendre, le très retentissant et très
 à légitime succès du Panorama Marchand a amené des imita-
 tions du captivant spectacle de la mission Congo-Nil. Mais
@@ -330,7 +321,6 @@ par le commissariat général. Chaque jour d'ailleurs, un
 public de plus en plus nombreux se presse devant les toiles
 de M. Castellani, le peintre de la mission Marchand.
 Je relis dans La Petite République du dimanche
-Un curieux panorama
 La Compagnie des grands vins de Champagne est la plus
 importante de toute la région champenoise; située au
 centre même des vignobles, elle possède les caves les plus
@@ -343,7 +333,6 @@ cette curiosité naturelle ; au Champ de Mars, au Pavillon
 4 - champagne admirer le magnifique « Panorama des caves
 x de la maison Mercier, à Epernay ».
 je Je lis dans la Petite République du lendemain lundi
-Ne. Un diorama
 Le diorama de la Mission Marchand dit Fachoda ne se
 pt trouve pas dans l'intérieur de l'Exposition, mais au 16 de
 l'avenue de Suffren, tout à côté de la gare du Champ de. ‘
@@ -354,13 +343,11 @@ titude absolue avec laquelle sont reproduites les scènes
 sauvages et les paysages des rives de l'Oubanghi et du “à
 ‘Je lis dans la Petite République du lendemain mardi - “4
 
-A Madagascar Ses
 Le succès de l'Exposition est toujours pour le Panorama - T5
 à de Madagascar, si artistique et si fidèle pour le tapis roulant
 — le seul gratuit — qui y conduit et pour l'excellente et or
 ginale musique malgache qu'on y applaudit.
 J'attends quatre jours et je lis dans la Petite République du samedi 14 juillet : b SITES
-Le diorama Marchand Fi “4
 Les visiteurs à l'Exposition, qui n'ont que quelques jours
 à passer à Paris, ne doivent pas y être venus sans alle
 admirer le Diorama de la Mission Marchand dont le superbe +: 00
@@ -384,7 +371,6 @@ Ru _ teur, et que ce pauvre Scaramouche en est tout à faitin-
 SPOR _ nocent. Mais enfin cette note apposée en première page
 FHTATR l'Aurore est un peu violente. Quand on a fait un
 livre de cochonneries, on a au moins le courage de dire
-qu'on a fait unlivre de cochonneries, et on ne dit pas ou sn
 See _ du moins on ne fait pas ou on ne laisse pas imprimer
 et: que c'est un roman social. Pourquoi pas de la sociolo- FD
 gie? Toutes les tartufferies me dégoûtent. Au moins
@@ -405,7 +391,6 @@ me causent plus la même satisfaction, mais parfois me es
 font mal au cœur. As-tu encore présent à l'esprit son
 plaidoyer en faveur de la loi d'amnistie, au temps même Dr
 douzième et dernier cahier de la première série ÉRIANES
-pes CDR NE 7 Pr
 de la discussion au Sénat? plaidoyer indigne d'un ferme : RPM
 républicain, palinodie étrange de l'auteur des Preuves.
 L'amitié de Jaurès pour Millerand le rend trop minis »
@@ -434,8 +419,6 @@ du bon ; il préserve jusqu'à un certain point le parti des ÂGE.
 fée compromissions bourgeoises, il maintient l'esprit LÉVO SE Ë
 Mais nous causerons de tout cela jeudi prochain, rue 7 Cyt
 des Fossés-Saint-Jacques. ‘ * VER me
-Bien affectueusement. TASER ax
-Fe FAR MAR À Line: Le PATES
 
 D Un républicain bourgeois d'Orléans, intelligent et
 à très conscient, ancien notaire, M. André Thouvet, nous
@@ -455,7 +438,6 @@ ne Il n'y a pas de lutte de classes, mais d'appétits.
 Et je trouve cette lutte d'appétits, si prosaïque qu'en
 soit l'image, absolument naturelle, légitime et nécesPa saire, en principe. De telle façon que je ne comprends
 pas pourquoi on parle plutôt de lutte de classes que de
-Le Il n'y a point de classes, il n'y a que des appétits, —
 a les uns satisfaits, les autres non.
 : Il n'y a point de classes, car je défie bien que l'on
 montre une ligne de démarcation.
@@ -591,7 +573,6 @@ Pourquoi venons-nous au monde non pas seulement
 msi différents, mais frappés de tant d'inégalités ?
 —_ Le problème est redoutable, il est effrayant et nous
 Le ôte tout moyen d'envisager clairement l'avenir de l'hu-
-|. manité.
 Nous devons nous borner à travailler pour le progrès
 réel, scientifique et certain, nos descendants verront
 peut-être mieux que nous.
@@ -613,7 +594,6 @@ jamais parfaite.
 Votre tout dévoué concitoyen,
 
 Bourgues-les-Eaux, dimanche 19 août 1900 k
-Mon cher Péguy, À
 
 Voici longtemps que je voulais n'entretenir avec toi,
 mais ma paresse retardait de jour en jour. Et puis
@@ -634,11 +614,9 @@ tés libre-penseur qui a mangé la grenouille — et qu'on a. Ve Fe
 envoyé dans un autre département pour y renouveler Mur
 ses exploits. Et j'en conclus que l'idée a fait peu de
 
-ne ue. NOUVELLES COMMUNICATIONS LATE
 chemin, car elle s'est heurtée dès ses premiers pas à un
 terrible obstacle : c'est l'horrible amoncellement de ran- EE
 Fe ‘cunes, de haines, d'amours-propres, d'intérêts person_ nels, de petitesses et de bêtises qu'on nomme la politi- Î
-0% si Mon cher ami, ps
 ch 'Tn trouveras ci-inclus un mandat de cinq francs, qui,
 ai peur, ne pourra l'être payé qu'à la Poste centrale.
 Fu te demanderas pourguoi je n'envoie pas huit francs.
@@ -667,7 +645,6 @@ ger — j'ai entendu cette expression un peu forte. Les
 Anglais ont le triomphe féroce. Et puis j'assiste à la
 fab ot ation des journaux : faussetés, faussetés, et à 12 À
 
-AAA AMOR RCE de: RE
 dousième et dernier cahier de la première série
 ‘Paris le public avale les dépêches anglaises — toutes à V4
 la gloire de l'Angleterre; naturellement on supprime les “
@@ -685,7 +662,6 @@ mécanique. Je ne suis pas internationaliste, comme +4
 plus provincial que les provinciaux.
 Très cordialement à toi, ‘%
 Perrusquier, par Vesoul (Haute-Saône) ÿ
-Mon cher Péguy, À ‘4
 ! Nous nous demandons ici à quoi peuvent bien servir -
 tes cahiers. Ils sont déjà passablement rasants. Toutes
 les petites histoires que tu te complais à nous conter
@@ -699,7 +675,6 @@ de chambre, et tu was pas encore publié que C'était
 immonde. Jamais tu ne me feras croire que c'est parce 'ÉURR
 que tu n'as pas eu le temps. Seulement tu fais comme
 tout le monde. Les bons camarades avant tout. Tu tes
-DE NE SET ANNE Me At 7 0 NUE en LA ge eee ere ANT M
 
 “" aittardé à Lafargue. C'était moins comprometitant.
 Lafargue n'a pourtant pas eu tort de s'élever violemk ment contre les intellectuels qui se font des rentes en
@@ -764,7 +739,6 @@ Marpaux a pris la parole — a été pour eux un effondrement. Cinq cents audite
 ont fait une ovation à Marpaux. Ce fut extraordinaire.
 Au revoir — bien à toi
 Thermes les Bourgues, jeudi 28 juin 1900 (r)
-Mon cher Péguy
 J'ai le plaisir de t''annoncer la fondation d'une U. P.
 Bourgues sous le nom de Cercle Edgar Quinet —
 Quinet était Bourguessan. Tu enverras les cahiers au
@@ -772,7 +746,6 @@ Cercle Edgar Quinet, 14, rue de la République, Bourgues.
 Très cordialement à toi
 Saint Pierre la Tourbe
 Lundi de Pâques 16 avril 1900
-‘Mon pauvre ami
 x Je ne puis m'empêcher de te conter une histoire
 bien pénible qui vient de nvarriver. Nous avons fondé
 ici une espèce d''Université populaire, la Tourbière.
@@ -853,8 +826,6 @@ ue s'étant pas imaginé qu'un professeur se mît en colère.
 Il y eut un froid. Les ouvriers ne comprenaient pas très EX ci
 
 Ne _ bien. Mon collèguc d'anglais et M. Thomas vinrent,
-
-ue LE e BAGCE
 
 douzième et dernier cahier de la première série
 s'approchèrent. M. Thomas voulut d'abord sauver la
@@ -952,7 +923,6 @@ remettre la suite à un prochain cahier, Lau 4 41e : (1
 
 ù Nous publions cette réponse comme elle était préte
 partir au commencement des vacances.
-Mon cher Lantier,
 
 Il est facile à toi de me raïller agréablement sur ce que
 je n'ai pas encore donné mon histoire projetée de la dé-
@@ -1011,8 +981,6 @@ d'honneur socialiste si l'on savait qu'il a des communi- \ ci
 cations avec ces cahiers. Il voulut bien présenter au
 Comité vénérable, dont il fait partie, cette requête : \ 4 3
 
-L'AIR Pne—
-
 Que devons-nous faire des Juifs quand les antisémites
 
 feront la deuxième Saint-Barthélemy? A cette requête »_. il demandait une réponse formelle. -
@@ -1022,7 +990,6 @@ AY Ajournée de semaine en semaine, la requête vint enfin
 -_ le samedi 35 juillet dernier. (1) La séance du vénérable
 
 Ar Comité s'annonçait comme une séance orageuse.
-ne SRE CRT EE
 ee 11 yavait là beaucoup de ministériels et beaucoup d'an-
 
 tiministériels. Mais il y avait peu de véritables socia-
@@ -1073,7 +1040,6 @@ liste qui lui apparaissait fortement instituée.
 La prudence la plus élémentairé m'interdisait de lais-
 ser voir dans les parages de l'auguste Assemblée les
 traits importuns d'un visage défavorable et défavorisé.
-Je ne puis donc te donner du siège et du voisinage la e
 description que tu attendais à bon droit. Je ne sais rien 433 3
 de cette rue Portefoin, sinon ce que ta sagacité a pu en Re
 deviner : qu'elle a un de ces vieux noms français qui … M
@@ -1282,7 +1248,6 @@ avait pensé à présenter à l'approbation du Comité ES “e
 général cette motion:
 Considérant que déjà dans la barbarie bourgeoise le
 socialisme a charge de l'humanité ; UNS:
-ss ae 1 ae LPO AVE au PUR UNE PAT re Léa
 douzième et dernier cahier de la première série
 Considérant que tous les Juifs sont des hommes en
 attendant que tous les Juifs soient des citoyens ; L
@@ -1387,7 +1352,6 @@ précipité dans les rangs du Parti Ouvrier Français. Un IT Xe
 ) instinct profond lui avait enseigné de bonne heure que
 ds les persécutés doivent se concilier leurs ennemis, puis- RS "7
 qu'ils n'ont rien à redouter de leurs amis. Sanstardeæ 2e.
-AN MES un seul instant, il se mit en devoir de ‘se donner un
 ï . pseudonyme, alléguant que tel était l'usage au Parti 13 A ne:
 pis Ouvrier Français. Il choisit innocemment le nom de
 Roger Dumanoir. Il vaut toujours mieux avoir un nom Fe
@@ -1536,7 +1500,6 @@ Constatant que les devoirs modestes et nécessaires
 doivent passer avant les devoirs de luxe, — et d'orgueil; ÿ ".
 - Ce dernier mot fut placé avec un art scénique irréprochable. Pots
 
-k des ne fo Put a Lee 7 AE TEN Ale ENNS NAME"
 ‘TE Fri Considérant enfin que le Comité g'énéral est institué
 non pour séduire le Prolétariat mais pour l'éclairer sur
 pat _ ses véritables intérêts
@@ -1561,7 +1524,6 @@ _.  quisera du Parti;
 A. Mais que le Parti sera forcé de négliger les Juifs qui
 vf . ne sont pas du Parti. ‘
 Tee Une seconde rumeur favorable courut. La phrase fut
-votée. On se hâtait.
 douzième et dernier cahier de la première série
 — N'oublions pas, dit le citoyen Desmarais, que nous
 devons bien expliquer qui est du Parti, pour qu'il n'y
@@ -1666,7 +1628,6 @@ net une peur épouvantable des faux depuis qu'il avait i
 qu'à étayer les Preuves de Jaurès.
 -  — Un des meilleurs moyens d'éviter les faux, dit Du-
 
-dousième et dernier cahier de la Pre AVES PES
 Lu manoir, est encore d'imaginer un sceau d'une imita- | APE ‘74
 tion difficile, un cachet d'une empreinte compliquée,
 . : un symbole inextricable, un papier d'une pâte inconnue, Lu Res
@@ -1683,7 +1644,6 @@ obtenu l'attestation ? ina a
 dit froidement le citoyen Jacob Isaac. LS ER per k
 j — Bien. Les deux citoyens qui nous garantiront Ne
 signature du citoyen bénéficiaire ? M ÿ Hs
-1e — Les citoyens témoins ? Fa 1x
 — Les citoyens témoins, bien. Le citoyen membre du pe sh #
 Comité général... n'ATR “a du.
 — Nous pouvons encore les nommer les citoyens par- Aa
@@ -1714,7 +1674,6 @@ Fi — Altestations de profession de foi, proposa Bracqueur, dont la langue s'em
 ÿ que, un mot clérical. Nous ne pouvons pas. Il faut aussi
 remplacer attestation, qui est lourd.
 à — Attestation de profession de foi socialiste, hasarda
-Je citoyen Bracqueur.
 Te — Cela ne fait que souligner la relation cléricale.
 Nous avons besoin d'un seul mot qui remplace profession de foi.
 St — Confession, dit posément le citoyen Jacob Isaac.
@@ -1808,9 +1767,7 @@ que nous leur accordons. Messieurs, continua-t-il,
 entraîné par une vieille habitude, messieurs, il faut une
 s feuille de soixante centimes. fe j
 Ainsi fut institué le papier timbré socialiste. nee
-ji Le Gérant : CnarLes PÉGUY
 Ÿ . Ce cahier a été composé par des ouvriers syndiqués
-IMPRIMERIE DE SURESNES (G. RicHARD, administrateur), 9, rue du Pont 9061 ra
 en non s donnant les noms et adresses des personnes
 ‘qui nous-servirions utilement des abonnements éventuels
 où « es abonnements gratuits
@@ -1839,7 +1796,6 @@ Adres: er à M. André Bourgeois, administrateur des Lee
 da fée d'administration : abonnements et réabonnements,
  rectifications et changements d'adresse, cahiers manquants, mandats, indication de nouveaux abonnés.
 Adresser à M. Charles Péguy, gérant des cahiers,
-“ue de la Sorbonne, Paris, la correspondance de
 rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy pourrait entrainer pour
 la réponse un retard considérable. s
 
@@ -1877,5 +1833,3 @@ Nous avons donné le bon à tirer après correctionderce
 douzième cahier le vendredi 16 novembre. 4 à
 
 AP Cahiers de la quinzaine
-
-sér.1l

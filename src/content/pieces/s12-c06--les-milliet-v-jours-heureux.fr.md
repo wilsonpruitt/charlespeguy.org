@@ -21,7 +21,6 @@ porte elle recommence de se garder à ellemême... Non, jamais l'on ne dira asse
 =. Et la joie de posséder doit s'aviver encore
 . quand le milieu où l'on possède un être, étant
 _ le milieu même où cet être vit & sent, fait
-comme un prolongement à la conscience où S
 l'on s'installe... Et il considéra que l'on
 n'avait pleinement une femme que chez elle, PME
 + que dans sa chambre, que dans son lit... Et et
@@ -68,7 +67,6 @@ mâle, refusée à la femme : lui seul se sert
 É: Toutefois il lui semblait que certaines
 femmes (point jeunes) s'étaient servies de lui.
 É. Cette idée d'avoir été méprisé l'attachait au
-qui s s é
 
 souvenir de ces femmes par les liens les plus
 bas, c'est-à-dire les plus profonds.) FÉES
@@ -172,20 +170,6 @@ Mar) lendemain, dans le bois, comme la jeune A
 un u femme adorait leur nuit, il songeait que la me
 maîtrise en amour est la même qu'en art De #
 CE discipliner son émotion sans la perdre. EAU Fe
-es + ne Ÿr Le ri D
-
-É Re si AE A PR SA GR ee - LOTS
-DES TER TR RAS Lee - Ru D nn
-'RREERONESEEES ë rs L 2 200 ANNEES FA F4
-LE HAS Ve Sen ES os Le PAPA UE RTE
-ÉRRRpEe  re AR CE 7 Le Ne.
-1 RAA ERE RS PE ee Pa real PRE RCE Ne LT
-RIRES ENS D ANT Re PEARL EE ou à FANS Ve
-A NE ER SR en ie
-
-EEE de LH "l'AS Fr
-
-LEO e ES ER pr ES Le RE NAS REA re
 
 AUL Rodrigues entra de bon matin chez |
 P Eleuthère. 11 avait à lui dire des choses
@@ -204,12 +188,10 @@ cette manie sémitique d'abolir la joie de ue
 | __ Et vous rêvez, dit-il, d'un amour sans Le à
 — Où personne ne « triomphe ». 4
 __ Où aucun « moi » ne s'impose. TS
-| — Parfaitement. 0 CT
 — Où au contraire la frontière des con- TA
 = C'est cela: SEE d ;
 : __ En somme, vous rèvez d'un amour sans LA
 _ Je rêve d'un amour où ilny aurait que
-de l'amour. HS. 3)
 : — C'est bien ce que je voulais dire. Car 214
 on le connaît cet amour-là. C'est celui de F
 Tristan. Il mène directement à la mort its
@@ -220,8 +202,6 @@ _— Ah ça! est-ce que par hasard vous dé-
 laissez l'Éternité ! ‘1:14
 | __ Je délaisse tout ce qui n'est pas à saplace. GE
 
-RENE es NE PERS NAME TÉ ANR AE MES Æ ke
-NE Ch VS ME L PSSLU a nel ” sil $
 _ Et l'Éternité n'est pas à sa place dans les
 ; _ affaires humaines. Et vous le savez comme
 nous ; & vous le dites; & c'est bien la plus
@@ -241,7 +221,6 @@ _  « ]l'amour divin diffère de l'amour humain 2
 - comme la constellation du Chien diffère de
 Puis, un jour, vous vous ennuyez sur la monta__  gne;l'Éternité ne vous suffit plus; vous voulez,
 % comme les autres, exister, qu'on vous sente.
-# # (2) Bergson.
 
 Et vous descendez chezles hommes, y imposer
 vos dieux. Et alors on apprend cette chose |
@@ -252,7 +231,6 @@ passer de l'arrêt au mouvement, mais qu'on
 peut passer du mouvement à l'arrêt; en un |
 mot on apprend cette chose étrange, c'est
 qu'il n'y avait pas de pont entre À & B, mais
-qu'il y en a un entre B & A!... -
 — Pardon, dit Rodrigues, c'est les infinitistes
 de salon qui disent ça, ceux qui font des cours
 d'Infini aux belles dames. (4) Allez donc faire
@@ -289,8 +267,6 @@ _ pour devenir la Nature! Pas un n'accepte
 Les' Éléates !.. Ceux-là étaient fiers. Car ça
 date de Socrate cette prostitution du divin à
 l'humain. C'est lui qui porte le double poids
-(8) Les Chrétiens.
-| : 43
 
 d'avoir souillé la métaphysique au service
 
@@ -348,31 +324,6 @@ PA votre passé que vous reniez.…. CEE LE
 E _ qu'une horrible mer morte s'il n'y avait au
 monde que des conciliateurs bénins & des
 
-DE #1 EVENTS nn
-SUMMER re AIMER PETER ne AT 5 2
-
-LENS à À Ne RTS A NET nel
-Mes Eur : 1 TPE
-
-; sa LPO DE 2h FA HN Late M LAC ar AE RL A
-CAL TENLADN ERA L'ART IS en NE EN EE SE ES HAE el
-
-nie VESTE le Ur Lo STATE ER
-
-| * k : 5 LS
-D 0 » PEN ! es LE FAN Les,
-DR h Tr œ 3 Der LE FEAR LS
-0 fre FORCE QUE, DRE eu EN PRINT RER
-
-| PEN A OPEL SE RS EE PE CEE 2
-se AR ae RSR M 1 TANT Er RTE Si
-ee Dr Lies et OT PR RS M D LE MEN A
-rer Ne ve É— D ROLE A PERS ENOESE D fs en PEU É
-VU L'or Re à » - Le fon so , "TRS Fe ‘À
-US - AR _ Gers CE ne" à tot
-
-LAS Une A UT R RES Tete Enr iEe Tr a . 2 J ñ APP EE
-FRE j (re Fa NE
 #0 | LEUTHÈRE alla voir le comte *#*, qui lui
 4 E avait écrit qu'il était souffrant. C'était un +
 homme d'une cinquantaine d'années qui, élevé
@@ -382,7 +333,6 @@ __ penser. Il vivait retiré, & son monde lui vouait Fes
 6 _ une méfiance mêlée de respect. ) #2 non
 _  Eleuthère trouva là, faisant visite, la prési- Le fe
 M: de plusieurs volumes que son nom avait Pres
-_ rendus célèbres. si 3 ATP SEES je
 _ Après les propos dits d'usage, & avectous
 __ les ménagements qu'on doit à la présence
 
@@ -402,7 +352,6 @@ paraître plus riches qu'ils ne sont (pour
 consentent à paraître ce qu'ils sont, qu'estce que ça peut leur faire qu'on sache leur |
 situation !... En somme, la liberté ici atteinte,
 c'est la liberté de mentir... Or, cette liberté-
-là, qu'on la réclame au nom de l'intérêt (il à
 paraît que le commerce ne peut pas s'en pas- |
 ser), rien de mieux; qu'on la réclame même 4
 au nom d'un certain bluff nécessaire aux fonc- |
@@ -458,8 +407,6 @@ une raison : car la vie sociale deviendra de à
 en plus de vos affaires... 4
 52 5
 
-ue À — Alors, intervint la présidente, il y a
-
 à _ maldonne... Car enfin, la République avait
 
 È promis la liberté. ‘
@@ -509,7 +456,6 @@ auquel vous faites allusion — et dont je ne
 vais pas nier l'importance (c'est la base de
 l'esprit militaire) (2) — en quoi, s'il vous plaît,
 mérite-t-il le nom de liberté ? :
-— Il le mérite en ce qu'il est l'abolition de :
 notre prison individuelle en faveur d'une $
 conscience anonyme, en ce qu'il est le passage
 du distinct au confus. Il est liberté comme est
@@ -528,13 +474,11 @@ ce n'est pas le sentiment de dépendance consentie, c'est le 4
 sentiment de la grandeur de cette dépendance.
 54 4
 
-| | DIALOGUE D'ELEUTHÈRE
  — Singulier panthéisme, dit-elle, qui nie
 l'individu, c'est-à-dire la sensation. :
 — Mais, dit Eleuthère interloqué, c'est sa
 Puis, comme s'il s'éveillait d'un rêve :
 — Pardon! dit-il... Il est bien entendu qu'il
-y a deux panthéismes. Il ÿ en a un par qui
 l'homme veut résorber son moi dans la
 nature... Et puis il y en a un autre par quoi
 . il veut absorber la nature dans son moi... Le
@@ -543,30 +487,6 @@ je parlais. Le second est celui de toutes les
 midinettes quand vient le printemps...
 — Monsieur a la manie des distinctions,
 | dit la présidente en prenant congé.
-
-FR PEN 7 A PS LT CPAS Des
-ET 5 Se HD En C)Ree CT FES bee Pl SF re SEE
-
-LE TS NES : EN D tas PEAR TNE EUTA
-
-LS Me ir L'ETÉ
-rue AT: L 3 LOS na SR
-
-PR Era ver MAT TOR" AA UN, QUE Gr triés à
-ROM Pt Dora DU Lt MEL Me EPORETR es RCD ETES
-AOL SNREEEE CEGER Ses airs RES SRE LRU RSS
-Dee, ce $ 2. Lu Pe UT
-‘pis? Fra ltie À x re Le CA
-MP et à Ca f À tu 26 LA PSS NT:
-MNT TA: PER EE Ris LEE » RCIEE SE
-
-Ÿ RS SA PRES pes Le LS ROSES RS FA
-RU RARE de RE RO ER EEE 2 tn
-
-ar NE ÉPANE 52 PENRESREE c
-
-USENET, PNEUS je 5 3 hr) PRE DE Ph} TS
-La} st de 0) ENS NE REP MERE
 
 : Es rues étaient pavoisées de drapeaux
 L tricolores... Les deux promeneurs arrivèrent à une grande place que l'on tendait de
@@ -591,7 +511,6 @@ une attitude qui consistait en ce que, sous le
 ciel de l'Attique, la procession des êtres qui
 posèrent pour Phidias montait à l'Acropole
 en franchissant les Propylées ?
-Alors Eleuthère :
 — Pour beaucoup d'hommes, en effet, il y
 aurait lieu de sourire. IL est en effet des
 hommes qui ne sauraient déclarer beau que — é
@@ -666,7 +585,6 @@ laid, ce n'est pas telle ou telle joie, c'est la
 
 —.
 
-F0 je DIALOGUE D'ELEUTHÈRE
 # souffrance; ce n'est pas telle ou telle vie, c'est
 Fe: la mort. Quant à cette société où quelques
 hommes vivaient tandis que des milliers |
@@ -715,9 +633,6 @@ Sentir la plus grande beauté de la démocratie
 semble bien l'esthétique des seuls aristocrates :
 ô fidèles du « miracle grec », avec non moins <
 
-RL RAT eee Tes PRG ANIREE
-A PR A TR DDC AL Rr CA ne
-LR _ DIALOGUE de GPA NE SR EE CBS
 __ de droits que les plus fins des vôtres, j'ai, dès ‘4
 de mes premiers pas dans ces bois populaires, Ho
 = À s j'ai été, moi aussi, écœuré par les paniers de |
@@ -731,24 +646,10 @@ Hi ment au-delà de ses rapports avec mon
 _ agrément; & je me trouverais un assez pauvre Ta
 De cœur si, percevant alors le sens de ce mouve
 44 ment qui est un soulèvement vers un peu plus
-ë _ de bonheur, je n'y trouvais de la beauté &ne
 - sentais soudain toutes les survies de mon édu- Fe
 se cation académique sombrer dans l'émotion de
 SEE la sympathie sociale. STE
 ne Da nee Eleuthère: — #, LRO
-
-RE ee à a L'ATTENTE Le CNRS
-RE an É 2E ane : <11 CETTE
-LE AT ns EL OS
-Y'a TES « Rss AESCRER
-
-“+ PE ; O petit d'homme, tu es de
-:È “ee la jungle & tu n'es pas dela
-: LES "à s 7 pe Lip
-a. re FRRERTPEES Fe REA ; Le
-\ , NÉ QUES ou Re Aie LR MAN 2e A LME LPS
-
-NA Là PS où LE  JÉRCRIE
 
 30 Éa présidente n'oubliait pas Eleuthère. Ga:
 Le : persistance à ne point voir les jambes +
@@ -759,11 +660,9 @@ NE plus, elle flairait là une manière de penser Ps
 de tout autre que celles qu'elle accoutumait &
 | - dont elle pourrait bien tirer parti... Quinze
 __. jours après leur rencontre, elle lui écrivit:
-be #4 J'ai pioché le « panthéisme » ! J'ai lu Plotin so
 # -5 & Spinoza! Mais je ne comprends pas tout... pre
 __ S'il vous plaisait un jour, vers cinq heures, Ets
 : Mr. de venir m'en éclairer, je vous en serais Léa
-| reconnaissante. NI OR
 
 En même temps elle lui envoyait ses deux mt
 derniers volumes : car, certainement, l'autre
@@ -772,7 +671,6 @@ Eleuthère goûtait assez, après une journée
 passée au jeu de l'esprit, de se reposer dans
 la pensée mondaine. Et puis, de temps en
 : temps, il avait besoin des salons & de l'orgueil
-$ qu'on y respire comme d'un contrepoison à la ;
 sérénité. Un jour, vers la fin de l'après-midi, |
 il alla chez la présidente.
 Elle commença par lui parler de lui, ou
@@ -815,7 +713,6 @@ trouva un peu grosse, elle lui demanda alors
 È faire exception : mais le premier vivait à l'hôtel & le second : -
 4 avec madame Taylor, ce qui est bien le commencement de. “
 
-MES Julien :Bénd@" 1 F0 ARE
 pourquoi il n'écrivait pas. Il répondit qu'il ;
 n'avait rien à dire. Elle ne s'en blessa point... :
 Comme elle voulait qu'il eût des choses à dire
@@ -856,7 +753,6 @@ _  cédents chez un philosophe! c'était déloyal.)
 £ oute croyance en leur « mystère ». Elle lui
 3 toute ance en le t Elle 1
 
-.__ en vouait de la haine & de la considération. — |
 EX Enfin elle sentait l'homme qui se laisse aimer È
 dec & ne se met pas en frais de conquête. Elle en k
 _ avait pour lui de la colère (plus encore pour
@@ -918,8 +814,6 @@ D cains, toujours naïfs, disaient qu'il ne pensait
 
 | orgueil était sans joie & sa haine sans chaleur. Sa face & tout son être disaient la mort,
 
-! & il était un maître en décomposition. Il ne
-
 F vénérait que l'énergie.
 
 M. Il y avait Lyonnel de Pinto-Leide, drama-
@@ -940,8 +834,6 @@ F sique : il avait observé l'unité d'intérêt, non
 
 D. discourait avec autant d'aisance, d'aplomb &
 
-‘3 A _ de succès du guesdisme, du debussysme ou -
-
 … dela civilisation des Étrusques. Tous ces gens
 
 | l'aimaient bien : il les instruisait sans leur s
@@ -957,14 +849,12 @@ leur cercle, & en même temps de la considération pour l'honneur qu'il en avait
 avaient pour lui le dédain des gens notoires Re
 pour les inconnus. Eleuthère en éprouvait -
 quelque malaise, d'autant plus qu'il trouvait 4
-cela juste. SUR
 La conversation s'engagea sur de récents
 livres, sur les pièces nouvelles, &c.… Ils
 disaient : l'entr'acte du « deux », le soir de la 73
 « générale », la prochaine « tape » de F**... È 3
 Eleuthère trouvait cela tout simple : après “3
 
-OPA MR DE ces Ur NT
 _ tout, pensait-il, les serruriers aussi ont leur
 _ vocabulaire & ils en sont fiers... Ce qui l'inté- 4
 AR ressait davantage, c'était les prétentions
@@ -979,7 +869,6 @@ pe: connue, &c... C'est drôle, pensait Eleuthère, l
 __  « penseurs ». Cela est nouveau. Molière ne
 __  songeait pas du tout à enfoncer Descartes...
 _ C'est pourtant quelque chose d'être un grand
-de & he ee +
 __ artiste! C'est, se dit-il, un effet de l'instrucURL . . . E
 +R Un trait commun à tout ce monde, c'était Ms
 * une extraordinaire facilité de parole. Ces À
@@ -1044,7 +933,6 @@ L se donnaient les airs d'une grande puissance
 - admirative & créaient un grand homme, en en.
 
 ayant soin de ne point le choisir trop humi- 4 4
-liant, 2 ne
 A La conversation dévia vers la politique. es.
 Re Marcel Leleude méprisa lentement des ;
 à ouvriers qui avaient dans la journée fait une k 4
@@ -1055,7 +943,6 @@ tions. Visiblement il agissait par influence & Le.
 : non par sympathie. LB
 | Eleuthère sentit qu'une partie de l'assistance 3
 
-| ne demandait qu'à protester. a} À ? “4
 — En somme, avança-t-il, ces gens-là sont À #
 
 comme tant d'autres : ils sont de leur classe 2)
@@ -1078,7 +965,6 @@ dessus les frontières, sont l'un pour l'autre ‘5
 
 des rois avant d'être des étrangers. Ils se 0
 
-Me Ce me Re ROC RE
 À 1 marient entre eux par-dessus les haines sécu__  laires de leurs patries, un roi de France à une
 ur fille d'Autriche, un roi d'Espagne à une fille
 HER d'Angleterre... Un roi vainqueur d'un roi
@@ -1090,7 +976,6 @@ RU: êtes mon hôte... » (3)
 ÿ ce qu'en effet la manière dont on vit, dont on É
 | se loge, dont on se nourrit, dont on s'habille, #
 : ne vous définit pas d'autrement près que le sol
-: 228 ou la langue ou la « tradition historique »? Une
 À jeune femme déclara qu'elle se sentait bien plus
 Le près d'une allemande qui a sa salle de bains,
 > & même d'une juive, que d'une française qui
@@ -1151,7 +1036,6 @@ qu'avec un tel nom il ne pouvait pas parler de la patrie.
 Sur quoi Eleuthère eût dit à assemblée : « Ce penseur a
 L une singulière méthode... En quoi n'avoir point de patrie
 empêcherait-il d'avoir des idées sur la patrie ?.. C'est comme
-4 si je l''empêchais, lui, à cause de sa figure, de parler de la
 nr beauté. » — Cette version est inadmissible : tant de cruauté
 IE n'entre pas au cœur des philosophes.
 
@@ -1160,7 +1044,6 @@ du général de L** frappé pour communication E.
 à la presse. Lenfant soutint que le général 1
 était fautif mais qu'on n'eût pas dû le frapper, A
 parce que les généraux étaient pour les soldats 3
-la tête de l'armée (le ministre de la guerre ne Ten
 comptait pas) & qu'il importait pour la discipline que la tête de l'armée apparût intan- ;
 gible. Un fougueux césarien, Raoul Léon, en. À
 profita pour développer ce thème que la pos- =
@@ -1178,7 +1061,6 @@ Eleuthère sentit le coup & la nécessité d'y pe:
 aux généraux bien mieux sous une République 4
 que sous une Monarchie militaire. C'est ce 4
 
-TTL A RE OT Rs te de > TES £ re 4 *
 D 2 Dudvait admirabl i des ofli
 158 CR qu avait admirablement compris un des ofl-. s
 FASS ciers les plus intelligents de ces dernières
@@ -1193,18 +1075,14 @@ second dans les pompiers de Fouilly-lesFPS Oies… » A
 3 position devant le consul de Londres. S
 HA Léon allait bondir. Un regard de la pré-
 2 hs sidente l'arrêta.
-# Fr
 ee Puis on causa quelque temps par groupes
 
 ; indépendants. Bientôt, à un bout dé la table,
 
 une discussion attira l'attention générale. Il
-Les. ; s'agissait de la « supériorité » de la peinture Es
-_ ou de la musique. Un vieil académicien; le
 _ général baron de B**, tenait pour la peinEr: ture ; un littérateur avancé, George Félizay, |
 + _ pour la musique. Très vite, les partis se forEs een à 85
 
-= LS Julien Benda CE À “4
 mèrent. Chacun jetaït ses preuves avec d'autant plus d'aflirmation que ce n'était que des
 
 préférences. Une dame versa aux débats
@@ -1260,7 +1138,6 @@ Le (5) Cette promptitude à comprendre & à exploiter une
 
 4 - distinction faite par un autre est tout à fait invraisemblable.
 
-: i Julien Benda ep dE nn
 + — Pendant que vous y êtes, dit le général. Me
 dites donc aussi qu'un son fait aboyer un
 chien, ce que ne fera jamais une couleur. : |
@@ -1287,7 +1164,6 @@ Et une autre : ;
 — Si quelque chose ressemble à un NN
 
 Lee son, c'est bien plutôt un parfum qu'une cou-
-| leur. |
 — Eh bien alors, éclata le général en se |
 | tournant vers Eleuthère auteur de tout ce
 ; mal, la musique est l'art le plus matériel, le
@@ -1300,7 +1176,6 @@ que l'explosion moderne de furie musicale
 signifie avant tout le besoin qu'on a aujour-
 | d'hui de se vautrer dans la sensation : elle est à
 à ‘rapprocher de la furie du théâtre, de la furie
-É. du scandale, de la furie de la vitesse, de la furie :
 = (moderne aussi) de l'amour & de la femme,
 & bien plus que d'aucun besoin d'émotion d'art.
 Ë Ici tout le monde s'insurgea. Qu'est-ce que :
@@ -1389,7 +1264,6 @@ l'espace, & elle semble n'être pas — ou presque pas — extérieure à la con
 apparaît, mais venir comme du fond même de 4
 cette conscience. En somme, elle offre cette F
 
-ARS PEN d'A TETE ON NT D Er SA Eat: ie CE 413
 condition extraordinaire d'être un être sans :
 * À être un objet. (7) [Voilà pourquoi les gens
 _  « positifs », les gens « sérieux » n'aiment
@@ -1454,8 +1328,6 @@ la notion d'objet & aide tant de gens à supporter la musique.
 par exemple Ce qu'a eu le vent d'Ouest (CI. Debussy, *
 Préludes); mais pas encore ce qu'a vu Le vent du Sud-Ouest... #
 
-a Par
-
 e — C'est sa supériorité.
 — C'est son infériorité.
 Mais tous, de sang théologien :
@@ -1515,7 +1387,6 @@ sonne la mort du sujet. Dire : « Peau contient l'oxygène »,
 c'est, disait-il, prononcer une phrase qui se suicide du fait s
 qu'elle se développe.
 
-A ne ce É nes ÉD pe Séeure St nÉ CES
 FN fera jamais connaître la forme d'un nombre, n
 _ 3 ou 4 par exemple, avec ses propriétés parti- ;
 ner culières...] (12) D'ailleurs, M. Bergson vous
@@ -1526,12 +1397,10 @@ sa le mouvement & l'arrêt? te
 E Puis, les voyant songeuses, il ajouta : £ £
 | — La flèche, n'est-ce pas, n'est pas en mou- HN
 “4 vement puisqu'elle n'est à chaque instant
-5e qu'en un point déterminé... Aa 7
 : 25 — Eh bien, il y a le contraire (il allait dire 7.
 _+ la « réciproque », maisil épargna leur jeunesse) *
 ee _ à quoi l'on ne songe pas & qui n'estpas moins
 à vrai... : la flèche n'est en aucun point déteres miné.. puisqu'elle est en mouvement. | ï 3 » à < P:
-he On passa au salon. Le
 Er. Dès ce moment, les positions à l'égard du 5
 …_ nouveau venu étaient prises : les gens faits — %
 Me. _ (12) On pourra supprimer cette partie entre crochets si ae
@@ -1573,7 +1442,6 @@ sait. — [I ya bien, pensait-il, la croyance un
 supérieurs à leur public ; tandis que tous ceux
 qui lisaient Saint-Evremond écrivaient aussi
 bien que lui...
-s Et puis, on l'écoutait, on le consultait.
 Il en était flatté. IL s'avouait d'en être flatté.
 ; Il se surprit à croire que, comme il s'avouait
 cette faiblesse, il en était affranchi.
@@ -1618,11 +1486,9 @@ Mere c'est drôle : on se sent comme des devoirs
 À ; Puis, disait-il encore, rester « l'ami » d'une
 EE femme, c'est lui supprimer l'occasion de se
 Fe. refuser. Et les femmes n'aiment pas ça... Il
-ne analysait la joie de se refuser. Il y a la joie de
 ; faire souffrir. IL y a la joie d'affirmer son
 L droit sur soi-même (on aflirme bien mieux A
 # son droit sur une chose en la refusant qu'en
-L l'accordant). Il y a la joie de signifier que d
 | — asservissante — on est inasservie.. Il pré-
 + ._ tendait que l'instinctif mouvement de toute.
 à femme sollicitée, füt-ce la plus amoureuse,
@@ -1717,9 +1583,7 @@ Il leur montrait comme toute l'esthétique
 
 x moderne est femme : la haine qu'elle a du |
 
-AS Mel LÉ + 7e SAPIN nr | PE CE Le 7e 2 7
 Fr ge s clair, du défini, de l'intelligent, l'amour qu'elle *
-_ a du trouble, du mobile, de l'instinctif... Ils
 voulaient fuir tous les ouvrages modernes, |
 __  siques... Gardez-vous-en, leur disait-il! A votre :
 … âge! — Qu'en faire donc, de cette littérature
@@ -1814,30 +1678,6 @@ _ Un soir, elle lui déclara qu'on neconnaïissait
 vraiment un homme que chez lui, & elle es
 _  déplorales surveillances dont elle était l'objet.
 
-va PR SA Een PERS ER AR AL et
-be MATE à MÉRITE LA at "Sr LINER D TEL ae
-LL FN RE 7 re Sun f: î (ROMAIN RSA ER dE :
-
-: M MC Cost Se NE M: LE SE Ea Fe FOR nr 104
-
-sphrÉ e PANVT ENT SU ER USE ONE AOC US E-ANE | AR SEE et 10 LA AT T te El TRE
-
-DR AL ne * PTE fee nl PL s he RAS ET CET ORES
-
-EN 2e Lil LE SE EN SP
-
-A RUE LR PE on cr, Va RE AS LÉ,
-
-Le MENT ARS PR FE eu NÉE Fr
-ES LES RARES FRS RRT RREN ire Res US
-M ST NE HAS à Le] n L'E ER NOT el CPR EE ce,
-
-Ge: LE Sache Le + TES He
-
-AT 4 + s re L'ése d
-
-ADEME RG Ta) à FRE TRE DE pire CAS
-
 | DIET attendait la présidente.
 
 Étendu, il songeait :
@@ -1875,8 +1715,6 @@ cacha le portrait de madame Camignani, non É
 ce sans en vouloir à celle qui l'y obligeait. 4
 Puis il se regarda dans la glace. Il arrangea ca
 sa coiffure. Hélas! le moindre baiser déran- 3
-
-ne RU CE EN Te ire de da Vi Vin does
 
 _  gerait tout ça... Comme la coiffure des femmes |
 
@@ -1965,33 +1803,6 @@ plus généraux de l'anatomie féminine, il réus-
 
 LÀ Et la présidente se sentit aimée.
 
-rs FL PL 1e PSN os F RON ET nd Ni LS ee
-pa À ; LE PR VER ON RICE TOME
-PÉTER : fa Et For LÉ TÉERER
-SCA Caen de + ? THIN L
-
-PAL « F Leg L ? ati
-A Ce ÉMOR RE Eee PARA EE RE M nn
-
-# Les a NE ADN PE. Lane & mes EL, M Ne 7e
-RARE: PAR DRE 7 CNE D ME ML 07 EP SR en ER et 1
-
-RAT AU de 0. TT ET. ML ie LUE LE RE RE NE
-
-RE : de Gr er "EME Re 2)
-|! FRÉTROTERSS KEMPA
-RE Ne on it RS irc 4h17 à VOTE) n
-MER Ÿ SES RQ ARTE TEE ef Leg ds 2 ET
-LA re a Le NT PRES RS) LS PAF PERS RO
-
-ET 2 he LUCE RE LI Tee
-
-F te HOT DT re RAR EAN EE PAR OR RS D ere
-
-14 L és re SENS
-
-<a PRITR TES AA fi; FER: misre reste we A Ve 2h
-
 13 accepté les faveurs de la présidente, Eleuthère avait du moins gagné
 
 de lui pouvoir dire quelques vérités.
@@ -2005,20 +1816,14 @@ lui & au verso il traça une petite ligne. £
 — Penses-tu, dit-il, que cette grandeur soit
 la plus petite possible?
 
-HE de Re
-RTS ER ENRREE EREEN Sr nos Sn
 MU re Bien sûr que non. FPE +
 ne e — Et cette autre? (Il en fit une plus petite __
-ee. encore.) < A EE ne
-FE SUR — Pas davantage. L'ARMÉE
 cu — Et cette autre? ne
-HS — Tu m'ennuies. Où veux-tu en venir? F3ÈS
 L 1 — A te montrer qu il en sera ainsi tant que + 3
 notre grandeur sera « déterminée », c'est-à- ES
 DE à dire telle que toute grandeur plus petite
 à ee qu elle sera en même temps autre qu'elle. 30
 PARA Elle ne répondait plus. Elle commençait à :
-se méfier. Il continuait : (OR
 ne — Et qu'alors nous n'aurons la grandeur NN
 ie ; « la plus petite possible » — l'infiniment
 SE petite — qu'en infirmant cette notion de
@@ -2030,10 +1835,7 @@ ES qu'elle ne soit plus autre qu'elle. nn
 Æ4 — Je voudrais bien savoir, dit-elle, comment Le
 une chose peut devenir plus petite, c'est-à:
 AT dire changer, & en même temps rester la NN
-#2 même. (1) AT LE PRÈS
 4: — En étant, par définition, une chose qui
-
-fr QE MSN CC D ARE A RÉ EE ER ES TA
 
 _ change. C'est précisément l'infini. Tu vois
 bien que tu ne le diras jamais, toi qui ne dis  :
@@ -2043,7 +1845,6 @@ RAR Elle se rebiffait. Elle avait dit le nuage, le
 _. clair-obscur, le rêve! PAM
 Pt — Images décolorées, dit-il, mais toujours
 42 _ images. Le rêve, c'est du moins-fini, ce n'est
-is pas de l'in-fini. Re sk
 É — Enfin, comment peut-on le dire, ton a
 #46 — En mourant résolument à toute espèce
 __ d'image & en s'installant dans la définition. SD
@@ -2055,8 +1856,6 @@ _ pas, ce que je te dis à ?... Puisque vous avez AE
 _ décidé que l'Instinct est au-dessus de l'Intelli- FAT
 Roy r gence. Et puis ta part n'est pas petite... Tu Lie
 _ as enrichi le sensible... Où les autres voyaient &
-+0 une nuance, toi tu en as vu vingt... Tu as de
-| AT ARS É à ; Ÿ mn 2
 SP F4 _ Elle restait boudeuse.. AUS
 FER _— Tu ne peux pourtant pas, dit-il, être à la À 2 à
 
@@ -2081,7 +1880,6 @@ Une autre fois, elle lui demandait : ‘a
 
 — Qu'est-ce que c'est enfin que ce fameux “à
 
-#5 < DIALOGUE D'ELEUTHÈRE
 | Comme le chevalier bleu conduit la noble
 Elsa, il la conduisait vers la fenêtre :
 | — Regarde cet arbre, disait-il... Tu crois
@@ -2111,7 +1909,6 @@ RUN à SON Italienne) savent mourir à leurs caté- TE
 Ex ne -gories & prendre avec les choses un contact Se à 5
 _ innommé, ceux-là sont grands. 7 RETEES
 FER Elle prenait ça pour elle. Elle buvait ses
-‘à _ paroles. Il ajouta : } É
 FETE — Mais d'autres sont plus grands. C'est de:
 54 ceux qui, par-dessus ce naufrage voulu des PRES
 ” * formes, font des formes nouvelles... Trois nee:
@@ -2127,22 +1924,18 @@ FN — Et puis, disait-il, je n'aime pas ceux qui 5128
 EN raillent les hommes. J'aime mieux ceux qu 4
 F5 les comprennent. Et comprendre, c'est touAve jours aimer. j 204
 
-Aire Re Aion Lee RE RER SES FOR
 _ Elle était curieuse qu'on lui montre ça. à.
 éÿ 1:54 Pour elle, elle savait bien qu'il y avait un es
 ee tas de choses qu'elle comprenait très bien &
 __ qu'elle n'aimait pas du tout. 2 ARTS
 ee » — C'est parce que tu confonds « compren__ dre » & « avoir compris ». Comprendre, être ii
-ie Eee en train de comprendre, se sentir en train de PÉCE
 se _ s'accroître & tenir en même temps la chose Re
 …_ qui vous accroît (qu'elle vous soit sympa
 _  thique ou non, qu'importe!), qu'est-ce que “
 _ - c'est que ça, voyons, si ce n'est pas aimer? mer
-2 KT TP la ré SE see
 Tee Souvent elle lui enviait les bases de ses LEURS :
 .  pensers & comme ils semblaient plonger au
 _ loin dans son esprit & dans son cœur. FE
-LR Il répondait : É A Le De
 GLS — C'est que j'ai derrière moi quinze ans ae
 : HS _ de pure vie... Quinze ans où je vivais, où je Re
 pensais, où j'aimais... pendant que, vous pa.
@@ -2168,7 +1961,6 @@ idées... Quand vient le mois d'août & que les 1
 journaux demandent aux auteurs ce quils 4
 préparent pour l'hiver, pas un pour répondre : L
 « Je ne prépare rien, je n'ai pas d'idée pour à
-le moment. » 1
 Elle alléguait alors les besoins d'argent, les +
 (2) Parmi ces derniers, qui cherchent des idées parce quil v:
 faut écrire, il y a encore une subdivision : il y a ceux qui Ë
@@ -2176,7 +1968,6 @@ les trouvent & ceux qui ne les trouvent pas. é
 
 - traités avec les éditeurs, la nécessité parisienne de ne point se faire oublier.
 Et, à son tour, elle lui apprenait bien des
-| choses. 6
 Il fustigeait aussi son besoin de succès. Il la
 voyait heureuse du moindre article aimable,
 malheureuse du moindre « éreintement ».. Et
@@ -2202,7 +1993,6 @@ we I1 y déplorait toujours une volonté visible
 Ê2 & continuelle d'être rare; les choses à quoi Lee
 mA: l'on compare dites plus longuement que les . Se
 Le Fe choses comparées; une savante impropriété NN
-177 de'termes.. : SR DR:
 LR te Il lui conseillait d'apprendre les langues D:
 DES qui avaient formé la langue qu'elle employait; 57
 USE d'essayèr de temps en temps de dire les
@@ -2260,10 +2050,6 @@ son aristocratisme : sa furie d'étonner, son
 impolitesse, l'exploitation de l'impunité assurée à son sexe, son impudeur romantique,
 ses dons inorganisés, l'inorganisation montée
 
-| 132 1%
-
-Lo ar! pee 2 Dig dat) TR ES US Ur RSR ET C1 ea
-Ver HU he Rta PE Dre # SAM PAR EPA = LOTO ST SEAT
 ‘5 en esthétique. Dans l'amour, elle l'exas- D
 __  pérait : ses gaucheries, ses eries, ARE
 a CAC, he ses minauderies, ses Ex
@@ -2279,7 +2065,6 @@ a sans plaisir. £ ENTER
 ee _ Ge jour-là, il lui en voulait plus que d'ha- 1e
 ss bitude. (Il avait dû, pour elle, contremandee
 
-1200 Il ne cessait de la harceler, de la blesser e o.
 _ où il la savait sensible. Pourquoi, l'autre
 - jour, était-elle venue diner à neuf heures, ne
 ._  recevait-elle sur une chaise longue, quand 55
@@ -2290,7 +2075,6 @@ _ bon portrait que CG... venait de faire d'elle... #
 —._ Pourquoi tout ça? Pour faire des « effets ».
 + Parce qu'elle ne pensait qu'à « faire des 3
 
-| SR
 : effets »... Parce que c'était toute sa vie. :
 Est-ce qu'elle croyait qu'il ne la voyait pas —
 en face d'un tableau, en face d'un paysage,
@@ -2342,23 +2126,18 @@ de EE que tu as: que je suis le luxe, la superfluité,
 
 L ra le raffinement, l'amour multiplié, toujours “5e
 APTE insatisfait, opulent, éperdu.…., l'amour enfin ! 7
-a HS _ Alors il éclata : FRS LASR UT
-"DER — Tu es l'amour? Toi? Tu es le bavar- Be.
-ie dage de l'amour. Oui. Tu es le désir de
 + he troubler par l'amour; de régner, d'humilier, .SS
 se de torturer par l'amour... Voilà comme tu es 7.
 FA A l'amour... Ton fameux « besoin de jouir » mA *
 que tu nous cornes aux oreilles, c'est le. 14
 LP besoin de te pâmer à renifler ta puissance. RO
 5 Æ Voilà ce que c'est & rien de plus... Hors de ça, ; Se.
-vi Le tu es bien la créature la plus nettement. Rs >
 __  dénuée de tout ce qui est l'amour... Qu'est-ce SA
 = Ê donc que ton acharnement à l'amour « com- .
 fx pliqué » sinon l'affreuse misère de ta sen
 ne | sualité native 2... Crois-tu que je n'ai pas vu #
 En que tous tes spasmes sont simulés?.… Crois-tu Re.
 | que je n'ai pas vu ton souci qui ne te quitte … : 1e
-PRATPE jamais de ne pas te fatiguer, de ne pas SU
 ‘É | : vieillir tes formes, de ne pas compromettre À 2
 ton teint pour le soir ?... Et crois-tu que je à a
 HP n'ai pas vu que dans tes instants les plus … Le.
@@ -2367,7 +2146,6 @@ ca est de surveiller la prudence de ton amant? ne.
 Ne à Et tu es l'amour! Ah! c'est autre chose que
 nr à toi les femmes qui « sont » l'amour! Elles ER e.
 
-#1: 400 Feue DIALOGUE D'ELEUTHÈRE TES
 Fe “4 _ acceptent les risques de l'amour, celles-là...
 _ Elles ne s'occupent pas à humer leur puis
 Mt: sance; ça leur volerait de l'amour. Et le don
@@ -2384,7 +2162,6 @@ me. tence de l'Italienne. Au bout de deux jours,
 « 4 elle vit sortir de chez Eleuthère une grande
 
 56 femme onduleuse, à l'air noble & heureux. EX
-AUS vu g Re
 22e Elle la suivit quelque temps. Elle s'appliSE quait à la trouver mal habillée, à se répéter
 "he que les étrangères ne sont pas soignées.… à
 h prendre en dérision l'homme qui lui préférait QUE
@@ -2395,25 +2172,6 @@ TE Eleuthère devait l'aimer. : or
 2 25 Elle se fit conduire chez Raoul Léon... Le
 __ lendemain paraissait dans une feuille à la
  . mode une note injurieuse pour Eleuthère.
-
-RO a en SUN LUE ENT ONE MON PRET EE EEE
-es de EUR eg De Lo PRESS MOT EAN
-LE L + he A pate
-
-TT ae A DRE Le Be AT NRC Des ree Ur D EL TT e re
-L'ART PC DEN PART M PLCE AT, de RARE RES Sn Le Arr.
-À te fe A Et PER RE LS CRT R L'ETAT NES
-NE me . : AT se Leo ARS + ELU ARCS
-Gs MN de ou NRUNTES A PE PERL" OT pe PUS SE ME 1e. FORCES
-UN Vue NE RAS ARTS
-
-Le FES Rue ve rt EN ENTORES à RE 0 TS
-
-ET FT tY e z ARS ” fond ex * à:
-
-15 13ate CRETE TRES PS he ES L'CNS 3A ATOS
-
-# CE res
 
 ne - D': heures du matin. Ils étaient réunis a
 ira autour d'une table de café. Eleuthère, … A
@@ -2426,8 +2184,6 @@ __ Que ceux-là qui ne vivent que pour le monde, HE
 FR qui veulent ses voix & ses hommages, aient FRS ra
 _ perdu le droit de s'élever au-dessus de dep
 _ mépris, rien de plus juste. Et peut-être line. HR
-
-yo x Leur QE
 
 jure les blesse-t-elle réellement... Mais qu'un |
 Eleuthère, qui toute sa vie avait dédaigné les
@@ -2460,7 +2216,6 @@ pensez pas, je suppose, que nos sentiments
 changeraient parce que-vous auriez négligé de
 répondre à ce drôle ?
 — Je sais que les vôtres ne changeraient
-Eu pas.
 - Les deux jeunes gens protestaient. Les
 leurs aussi ne changeraient pas. Ils l'adjuce raient de le croire... Il les remerciait du
 Fe regard, les savait sincères dans leur incon-
@@ -2472,7 +2227,6 @@ S tombait, brutalement, à son âge, en pleine
 le. naissance d'un Newton ou que l'apparition de
 #: l'Homme sur la terre... Un accident heureux
 
-SRE ET alien :Benda SEE TERRESTRE
 à n'est pas moins immoral qu'un accident mal
 2e heureux... C'est l'accident qui est immoral.
 te Ils passèrent au « courage » des provoca- CE,
@@ -2532,8 +2286,6 @@ de — Eh bien! admettons que la capacité de
 s'exposer soit toujours nécessaire... Au moins ,
 Le n'érigerons-nous en valeur que la capacité de
 à s'exposer pour une chose qui en vaut la
-| peine. +
-# Eleuthère se souvint : x RS
 P : — « Courageux, mais seulement quand il le …
 faut, » dit-il doucement. (3) s
 — Mais sait-on toujours quand il le faut?
@@ -2549,7 +2301,6 @@ soi-même pourrait bien être de se priver du
 danger, au même titre que dans l'autre cas
 elle est de l'affronter.
 " (3) Gobineau, porte d'Ulysse. (Essai sur l'inégalité des
-| races humaines, IV, 3)
 
 — Oui, je sais. Je sais même la démonstra- -
 tion. (4) C'est parce qu'alors on triomphe de
@@ -2558,7 +2309,6 @@ titre que la peur.
 
 — Seulement, en s'exposant à la légère on
 triomphe peut-être de l'amour immodéré de la
-vie.
 
 — Mais l'amour immodéré de la vie, ce |
 n'est pas une passion, c'est la raison, c'est la
@@ -2589,20 +2339,16 @@ Eleuthère ne prenait plus part. Avenue du
 Bois, ils s'assirent sur un banc... Au milieu
 d'un silence Eleuthère leur dit :
 
-— Je songe au courage... En somme il ne
 consiste pas du tout à accueillir sans peur
 
 . l'idée de danger, il consiste à masquer cette
 idée par une autre... Par exemple par l'idée
-de la grandeur qu'il y a à s'exposer, ou de la
-gloire qu'il y a à mourir, ou de la joie qu'il y
 a à se venger, ou encore par cette idée que la
 chance vous favorisera & que vous ne serez
 pas atteint... Chez moi malheureusement ces
 idées ne réussissent pas à s'imposer, l'idée de
 danger subsiste, & j'ai peur... Après quoi il
 arrive que ma volonté inhibe les mouvements
-de la peur : le tremblement & la fuite. Et ça,
 c'est encore du courage : on a l'idée du danger,
 on a peur, & on domine la peur... Mais ils
 
@@ -2613,8 +2359,6 @@ Ne disent-ils : c'est d'avoir l'idée du danger
 | peur ?.. Peut-être, après tout, chez des cœurs
 
 bien accrochés, qui n'ont pas de tendance à
-
-Il rêéva :
 
 | — $e sauver : signifie proprement « assurer
 
@@ -2645,7 +2389,6 @@ Allons! nous n'allons tout de même pas perdre
 À Fee le monde pour garder nos succès... Crionsle
 donc: ils n'ont attaché que trop d'importance
 PARC A nos jeux. RTE
-ne Il dit : ; REA
 FER . — Une des forces des héros c'est le pouvoir
 RS - qu'ils ont, au reçu d'un horion, de toujours
 _ s'indigner & de ne jamais se demander s'ilne
@@ -2702,8 +2445,6 @@ Des hommes marcheraient auprès des jeunes
 
 6) Souvenir d'un grand poète qu'il eût aimé connaître.
 
-du "es DIALOGUE D'ELEUTHÈRE
-me TETE AGEN CE PES ER
 Un moment il se crut redevenu un philo-
 = sophe : il chérissait l'idée de la mort... C'était,
 tout humainement, — amenée par l'idée de
@@ -2744,7 +2485,6 @@ de Dieu : c'est celui qui ne vous aura pas
 Puis il songeait à ceux qu'il avait fait souffrir, aux femmes qu'il avait quittées.. L'une
 d'elles surtout. Elle était sur le quai de la
 
-| LEE DIALOGUE D'ELEUTHÈRE S
 gare, lui à la portière du wagon. Il l'assurait
 qu'il reviendrait. Elle voulait le croire. Elle
 sentait qu'il ne reviendrait pas. Il ne revint
@@ -2762,104 +2502,33 @@ Ils étaient arrivés au lieu de la rencontre.
 * Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce cinquième cahier
 et pour quatorze exemplaires sur whaitman le mardi
-Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 5427
-
-_ ni LEP TRR ce. AUTANT CRUE EU
-RS VO RAS M te D ju Ur rt TN de:
-F 1 PE ES PANNE de ET E" ue. VAR 24h FOUT TAE, PARA RIEL » EI
-L # tr ES Vorr HER AEUR # ROBE AL” HAE HAE
-LAN ENERRE ( à ou A + [ACHECAPE
-ALES LE À rx F. Lu « ra Let ' 1 n HR Ds à
-pa d Â La Jos VEN 4 ur
-dis "À él vy AC F SEM MA
-RES 2 2# de h 4 RL EROL EE HE à Rae M HITS
-| 1} LR AÉRANA TE PUMA ANT
-RIERS “ { pa t Li ta ed 67
-DRAEv Mise d'YNPT EL MA ne EANTE HPN RL PSE ei 0 FT. EE Na
-as rt UT, CU VIT RAS EUR CUT EM NET (4 ET
 
 - Dans les vingt-et-un cahiers de leur troisième série, FES
 année scolaire 1901-1902, nos cahiers ont publié:
 I-1. — Charles Péguy. — compte rendu de congrès. 1 »! »
-IIl-2. — CHARLES Guievsss. — Les Universités
 Populaires et le mouvement ouvrier............ I »
-II-3. — GeorGes SoreL. — De l'Eglise et de l'Etat,
 Il-4. — Charles Péguy. — de la raison. — JEAN
 *  JII-6. — JeAN Hucurs. — la Grève. — trois actes... 1 »
 III-8. — BEerRNARD-LAZARE.— les Juifs en Roumanie. 2 » 4
 l IlI-10. — les Universités Populaires 1900-1901 Paris
-GE et-banlene: 552 222 MER A PIRE RS LOT SE RRS
 | Il-117. — Romain RoLLAND. — le 14 Juillet, — action À
-Il-15. — ANATOLE FRANCE. — Cahiers de la Quin-
 Ill-15. — cahier de courriers. — Félicien Challaye. —
 impressions sur la pie japonaise. — Edmond Bernus.—
 la Russie vue de la Vistule. — Jean Deck. — courrier La
 Il-18. — Charles Péguy. — Personnalités. — Mono- . earaphies "ue, QUE NAN ENE RET SRUPRESESRR
 Ill-19. — PIERRE QuiLcarD. — Pour l'Arménie..... 3 »
-IlI-20. — Les Universités Populaires 1900-1901
 Voir en fin des autres cahiers les conditions et le
 prix de l'abonnement.
 Nous mettons le présent cahier dans le commerce; x
 | cinquième cahier de la douzième série; un cahier jaune “3
 . de 156 pages; in-18 grand jésus; nous le vendons  "
 
-| SIXIÈME CAHIER DE LA DOUZIÈME SÉRIE
-
 pe de périodique paraissant tous les deux dimanches | 4e
 Fer.8, rue de la Sorbonne, au rez-de-chaussée
 
-ARS rl pre (En Le Nr ane RE QU Ne SNS HARAS À LR St Erin) cf
-
-RAT PATENÉ BL Ce à Me FÉMAASEE Lo AVS ER NTE mcre ar
-
-> PL T * D Tor GENE A ART LIRE Pas |
-
-72 ra » 7 ” n Sr (w « EE hf STARS ENS res L Et
-
-re cé ne y ps : à a ee a Ah ÉS < ge : > VE SITE ES Dr € s
-
-on ee ane s SA pa Re # Date FEES “y Len
-
-LEE Ÿ dE ss AT BR Mr Ce VIT AMENER
-
-sr d HSE PASS TA SA RM Mr Us PUR SE
-
-ES ts EL je * RE $ ARLES #] DE AA TER SNES me _
-
-A enr 71 RIRE PEN TT TES) AFS 368 Asa 4 ee a PA en ERIC VA
-
-SP RASERSES £ ce PTT UT ST ENONSS
-4 Em Mers sage L FOSE ds p ARS
-
-ESS RP LS Fe RES SR te NT DE ASE RS re
-RER Red ONE es EST
-
-PRE tem ne LS Aie OV ER RO Te D ECS PIN RE EL
-Fes LE SRE RS PRE = Rte ren à
-SE NES LS 4$ Q J L 3 Une LAS ee
-LE AE SEA ce : age | “ ; < JR NES
-
-VE: "RS w ee Er PE prete HP LES
-TELE ; rs £ PE Et RES se
-
-ra QUE RCE Lie At A ae né > A
-Les PROMESSE TEE Ée En 3 MSA NAES AAA SORT REP EE nr ERA
-> UE SRE à t 3: re Rs
-Lors Fe AR FT Re Re DES "
-M. re ARE Ce FA ut AL EN RUE SEE
-
-y Ras 27 OS SO NT PIEDS eee De SES LR MIVTS
-# *RRSTE LE « it FRE) re
-
 1860-1862
-
-3 SRE, nr L je AS ARS ETS PER Ne ver 4
-BTE FR RES at : RES LT TA
-| She etes : STE - LÉ :
-a DATÉE ë Tri FR De +
-386 À ne Las ses
 
 _ Mariage d'Alix. — Séjour à Paris. — Un cadre en filigrane.
 
@@ -2885,8 +2554,6 @@ _ les affaires et la distinction de ses manières étaient très pont î
 _ ciées par les Anglais, ses clients, mais sa veuve fut, je crois, victime 1
 
 de liquidateurs peu consciencieux. ë AA
-
-: NE CRE ave ce 4 LL CARS
 
 Tous les dimanches les deux familles se réunissaient
 pour faire de charmantes promenades dans le beau
@@ -2957,7 +2624,6 @@ Ton hôtel-hôpital suinte la tristesse; :
 La femme y jette en vain les parfums de sa grâce, 3
 : Cet arome divin, blanc nuage, s'efface Ë
 Et se perd, englobé dans d'immondes vapeurs. *
-É c Par un jour de pluie, juillet 186r.
 Alix à son père (aux bains de Saint-Gervais) :
 à .… Nous avons commencé, Suzanne et moi, nos leçons de
 chant avec M. Servais, un vieux monsieur, le plus original à
@@ -3119,8 +2785,6 @@ conscience. Une si bonne petite fille, qui comprenait si )
 
 famille d'Henri sera venue, je ne serai pas si sévère. Le:
 
-#
-
 … Nous n'avons pas encore commencé à faire des écono- h
 
 É mies et ce mois-ci nous pouvons encore nous permettre = #
@@ -3138,8 +2802,6 @@ De temps en temps, elle pense à Genève, et la tristesse D
 que cela s'efface et j'y parviens un peu. Je crois, chère mère, &
 
 qu'il est impossible à un homme d'être plus heureux que Re.
-
-à . Alix à sa mère à
 
 .… Nous n'étions pas encore allés au spectacle. Samedi 4
 
@@ -3159,7 +2821,6 @@ il tient avec cette main; je crois que si je n'avais rien Su
 
 je ne me serais pas même aperçue d'un peu de raideur.
 
-#70 BE" RME RÉ TORRES 7 DPREN 2 ET +$ LA
 _  M.Payen t'a beaucoup exagéré mes talents commerciaux.
 SES J'ai seulement prêté mes oreilles pour essayer des boucles;
 
@@ -3210,7 +2871,6 @@ us Doret fait Jocrisse; Fick, pour faire de l'opposition, trou-
 
 toujours douter de toi comme tu le fais. C'est ta mère qui
 
-È te le dit, tu as de l'intelligence, des moyens, mais si tu
 Ke crois toujours n'être qu'une petite sotte, tu finiras par le
 Fe faire croire aux autres. Commence par t'apprécier, et les
 LH autres apprécieront. Je suis sûre que ton bon Henri est de
@@ -3223,7 +2883,6 @@ D. Paul arrive avec une figure longue comme le bras.
 È 24 _ quelques bouteilles de bon vin, comme dédommagement;
 ER = mais venant eux-mêmes, ils n'envoient rien. à
 
-| jours heureux
 Chère sœur,
 … M. Lugardon me fait faire un dessin par séance,
 - espérant que je prendrai un peu plus de facilité. J'en ai
@@ -3292,7 +2951,6 @@ d'elle, par cet atome bavard qu'on nomme étudiant? Rapr. pelez-vous, messieurs,
 parfois; souvenez-vous du bon Horace, et de ces pères
 indulgents dont Plaute aime à retracer le caractère. Rapne pelez-vous enfin les héros d''Homère que vous nous apprenez
 
-re RAS TANT joars' hedrenx ONE CESSE
 à admirer, et estimez-vous heureux de ne les avoir pas pour PAR
 - __ disciples à notre place. Hector et Achille eussent fait sans ‘HU
 __ doute de bien turbulents écoliers. Ils avaient du moins le ÈS
@@ -3321,7 +2979,6 @@ ee je lui donne des conseils, mais elle trouve très bien tout ce Re
 _ qu'elle fait. Si tu voyais sa joie à l'approche du premier de #
 l'an! Elle garde bien ses secrets, quoiqu'elle grille d'envie
 de les dire. Si
-| 1 Alix à Paul "8
 ; … La renommée at-elle porté jusqu'à Genève le bruit de :. 1
 : la chute de Gaëtana, grand drame d''Edmond About? Jene
 ; connais pas la pièce, mais tout le monde est outré. On n'a
@@ -3334,7 +2991,6 @@ Comment va M. Lugardon? Le pauvre homme, je serais |
 2e _bien fâchée d'apprendre qu'il est toujours malade.
 ne. M. Payen t'a décidément en admiration. Son plus grand
 “à _ bonheur, dit-il, aurait été d'avoir un fils comme toi
-de M. F. Milliet à sa fille Alix ER
 : T0 .… Je te plans, ma chère fille, de n'avoir pour.te rensei- 3,
 à _  gner que l'immense, l'imposant, l'officiel, limpérial, mais
 re peu véridique Moniteur. Pauvres Parisiens! On ne leu.
@@ -3413,7 +3069,6 @@ enfants, sans compter les petits enfants que vous nous
 | Ce que je vous souhaite, chers enfants, c'est d'être tou-
 | 24
 
-| it DAT NS , ;
 jours l'un pour l'autre ce que vous avez été jusqu'à présent.
 Aimez-vous et soyez toujours bien unis, c'est le meilleur
 _ moyen d'être heureux, et de supporter l'adversité quand
@@ -3513,7 +3168,6 @@ NI .… Je ne dirai rien à papa sur Gaëtana, sinon que je
 l'approuve pleinement, quoique, au premier moment, j'aie
 été choquée de son manque de sensibilité. À
 
-"1e il 7 CP DRE TPS LD, CORRE ar  ÉT 4x * ps ALT - 4
 Vis .. Je reçois à l'instant une lettre de Fernand. Il se porte
 - bien et me demande de lui donner des nouvelles de la
 cé politique, pour savoir s'il n'y a pas quelque espoir d'aller
@@ -3537,7 +3191,6 @@ voulant m'influencer en rien, ne m'en ouvre pas la bouche.
 | donnerait du courage; mais me mettre à une chose qui me.
 déplaît tant, si cela lui est égal? eh bien non! Parle-moi
 de cela, grende-moi, raisonne-moi, cela me fera du bien. Il
-. y a si longtemps que tu ne l'as pas fait. As-tu pensé le 24 *
 qu'il y avait quatre mois que nous sommes mariés ?:. sx
 5 Fernand à sa mère ; PRE
 ; . Je viens d'avoir une affaire avec un de mes collègues;
@@ -3584,7 +3237,6 @@ plaque en émaux cloisonnés représentait la distribution des récompenses. Ali
 .… M. Payen m'a emmenée l'autre jour à Romainville où
 
 > l'on passe au feu la fameuse plaque. Nous sommes arrivés
-au moment où on la retirait de la fournaise. L'émailleur la
 regarde maintenant comme réussie, bien qu'elle doive
 
 passer au feu encore quatre ou cinq fois. Il y a un émail
@@ -3681,7 +3333,6 @@ parents ; mais cela n'a rien d'étonnant; est-ce que tout le ù
 monde ne vous aime pas? — Si je pouvais donc lui donner
 un fils.
 Alix à sa mère Re
-LE Samedi 8 mars 62. re
 .… J'allais oublier de te raconter mon bal de mardi. Voici :
 d'abord ma toilette : ma robe blanche à pois avec trois [ue
 petits volants tuyautés dans le bas, mon fichu blanc et des Ja
@@ -3707,7 +3358,6 @@ Cela me faisait pitié, et pourtant la pauvre fille s'apercevait
 si peu qu'on se moquait d'elle, elle semblait si fière, si heureuse, qu'on ne pouvait s'empêcher de rire.
 
 Hier nous avons fait une gentille promenade au moulin
-d'Orgemont où l'on mange de la galette. Il y a longtemps
 que je n'avais si bien respiré du bon air et tant sauté et
 couru. Henri et Léon (son frère) ont joué à saute-mouton; il
 faisait un peu de vent, enfin c'était charmant.
@@ -3732,7 +3382,6 @@ aime et vous embrasse.
 
 e Après un charmant séjour à Genève, Alix revint à
 Paris accompagnée de son mari et de son frère Paul.
-Elle écrivit :
 
 Nous voici rentrés dans nos pénates après un excellent
 voyage. À peine arrivé, Paul a visité le Musée, et s'est
@@ -3793,7 +3442,6 @@ senter à l'examen qu'après les vacances. Je ne crois pas que
 cela soit nécessaire. Paul est décidé à se risquer. Le pauvre
 garçon doit être bien inquiet, bien tourmenté, et papa et
 : toi aussi. Je souhaite qu'il soit débarrassé une bonne fois
-* de ce tourment, il a si grande envie de faire de la peinture.
 Mon gros vous embrasse, et tous deux nous nous jetons au
 cou de la Colonie entière.
 Alix étant allée pendant l'été avec sa mère visiter la
@@ -3904,7 +3552,6 @@ Donne-nous des nouvelles du Fils de Giboyer.
 lettre si touchante du vieux poète méconnu, qui essaie de tourner
 en plaisanterie son profond chagrin, j'ai été pris de remords, et je
 
-LisACTETES A AU ROSE PARA ET Ne DT dr |
 _ Les poésies légères de F. Milliet me semblent bien :
 supérieures à ses œuvres dramatiques. Voici par 5
 exemple un rondeau qui devait servir de préface au
@@ -4008,7 +3655,6 @@ _ Vaction d'événements tragiques, à un courageux dévouement
 _ ne sont point ceci ou cela. Elles deviennent. Tous nous nous 4
 Ë adaptons, et nous nous transformons incessamment. Le lâche peut
 
-# \ re D EVE Aer 2 NS TE ne
 Madame Milliet à sa fille |
 
 Louise vient de me tenir une conversation philosophique
@@ -4035,55 +3681,30 @@ enragé; cela dépend des circonstances. Cette complication et cette
 plasticité des caractères, Shakespeare les a vues, mieux encore
 que Molière.
 
-in SON = RE f Re PR 1e RAT ES À est EE". :
-Le se F PO e Sie Eu at ES RIT. ÉRRE ES ÉAOEEN ME 6 % LS. ;
 _ Voici la liste des œuvres imprimées ou inédites de Félix
 FA El Roman d'Amour. — 1838-1845. — Un volume manuscrit. Fe HE Fc
 :L Vers et Chansons. — Le Mans, Monnoyer, 1848. 13 LA
 VA Chansons. — Le Mans, A la Propagande démocratique, 1850. Vie É
 _ Chansons politiques. — 1852-1854. — Un volume manuscrit. ITA
 Chansonnier impérial pour Van de grâce 1853. — Bruxelles et
-Londres [Genève]. LA 1e
 :, Rimes intimes, publiées par son fils. — Paris, La Plume, 1994. RES AA
-EUX: F HU RE de
 | Fol Amour, drame ique en trois actes, tiré de Henri Heine, 1862,
 _  Sigismond ou la Vie est un songe, opéra en trois actes, tiré de ET
-_  Calderon, manuscrit. : SN CE MR Le
 ee _ La Tempéte, opéra en trois actes et un prologue. Sr HAE
 HE Almanzor et Zuleima, en trois actes, d'après Henri Heine. RU RE : Ps
 Le Geôlier de soi-même, comédie en quatre actes en vers, d'après
-FRE Calderon, 1869, manuscrit. NE < EN
 _ Le Triomphe d'Amour, légende dramatique en deux actes en vers, 5
 Re. traduit de Giuseppe Giacosa. — Le Mans, Lebrault, 1882 ER Æ
 Laure d'Arona, feuilleton du Publieateur, 1879. ARE Fe.
 
-x VER LISE GTR AL CIM 7 hab TOUTE 3
-5 (1e POTERIE NT ET if PU THE ve
-
-ne Ces Re. : ù Ne TER NT se e
-
-SAN ER Fe cos SUR il FA) ER DANS
-
-Dr re De PRE
-LS LES INFÉEN ne i ne € REPARER S
-MR ares LAS u x à PAR UE Ne
-| DÉDRASEES £ 2e RES |
-LAUÉ 3 LR PESTE se Een CEE DE de « 4
-PRE A RE |. de et PR EE D, br Re UE
-
-RAT TA ne Pa LC
-
-#4 TROIS MOIS A VERSAILLES :| LARMES
 _ Culture intensive. — Lettres de Jules Nicole et de Mare
 FA : Doret. — Baccalauréat. — Lettres de Fernand. Gas a
 : Pour se préparer d'une manière spéciale à l'examen
 - du baccalauréat français, Paul passa trois mois à Ver- se
 _ sailles dans l'institution Fleury. Séparé pour la première <br
 _ fois de sa famille, il s'ennuya profondément : | TS
-Du latin, puis du grec, ; MN CT en:
 Enter écrivait-il, à ie ren
 PNR ; du grec, puis du latin, Fe :
-SE et c'est tout. Le dimanche, M. Fleury me permet D MT à es
 des mathématiques, de la géographie, de l'histoire, de la ET
 4 logique, etc... C'est ce qu'il appelle se reposer. Encore,
 _ si j'étais sûr que dans trois mois tout cela soit fini, jeme qe
@@ -4134,8 +3755,6 @@ procession. Je ne puis te dire combien cela est ridicule par
 phalanstérienne de Condé-sur Vègre. Cétait un vrai paradis et
 nous l'appelions la Céleste Colonie.
 
-|. FH ee
-
 le manque de goût. Seuls les enfants sont toujours charmants de grâce naïve, mais ils sont entourés de tant de
 vieux curés qui chantent faux, affublés comme pour une
 mascarade; il y a tant de tambours qui battent la charge
@@ -4161,7 +3780,6 @@ Je tenverrai ma poésie et tu m'en feras une critique
 sévère. Je me réjouis de ton retour; nous pourrons, notre
 grand poème achevé, (1) entamer une étude sur les comiques
 anciens et modernes. Relis la scène II de l'acte IV du Cordage, relis-la en latin, compare avec le fameux Châteaux
-en Espagne de Collin d''Harleville, et tu me diras si l'on
 peut supporter une aussi mauvaise imitation d'une œuvre
 
 (1) Je crois me souvenir que dans le premier chant de cette
@@ -4208,7 +3826,6 @@ x on vit complètement à côté. Du reste la philosophie n'a pas -
 la prétention de se mêler de vos affaires.
 : L'idée du salut par la foi, c'est céèlle que M. Radcliffe
 
-on FAQ TROIS MOIS À VERSAILLES
 de venait exprimer chez nous. Il quittait ses intérêts, ses
 - affaires d'argent, son pays d'Écosse, pour aller en France, |
 en Suisse, en Allemagne, prêcher tous les jours et plusieurs
@@ -4357,8 +3974,6 @@ pensée, tout cela est bien loin du ton de fausse humi-
 m'a rien appris de certain sur une seconde vie. La salle que j'ai
 traversée était pleine d'hommes pervers qui se battaient, ivres de
 
-A D ER as NE OR Re ‘re En
-
 (+ lité, de dépendance servile et de louche sévérité morale
 qu'on observe trop souvent chez nos séminaristes.
 
@@ -4370,7 +3985,6 @@ qui veut que l'on fasse aux autres ce que, etc.., puis le
 plaisir de blaguer un peu avec toi, l'espoir de te distraire
 un moment, les instances de Nicole, le manque d'excuse,
 voilà je pense suflisamment de raisons pour réagir contre F
-la réaction. | :
 
 Tu sauras donc que c'est un Maître ès-arts qui t'écril.
 Franchement ce n'est pas quelque chose de fameux qu'un
@@ -4424,7 +4038,6 @@ heureusement on a des amis qui respirent la poésie et les
 arts, et qui vous tirent du bourbier.
 
 Néanmoins je puis déclarer que rien dans les sciences, à
-mon vu et su, ne s'oppose à l'existence d'un Dieu; de :
 l'âme, c'est autre chose, mais d'un Dieu, non. Aussi je
 comprends les matérialistes, mais non les athées.
 
@@ -4458,7 +4071,6 @@ Je te l'avoue, j'aimerais mieux le voir aller à Saumur, et
 pourtant je comprends bien que le Mexique l'attire. De toute
 manière, son avancement semble assuré, et c'est l'essentiel.
 * Alix m'a dit qu'elle allait prêter sa traduction de Hermann
-_ et Dorothée à M. Nus. Je souhaite qu'il ne l'accapare pas
 trop longtemps, afin de pouvoir la lire aussi. :
 | Je sors de la Sorbonne. On m'avait dit et répété : « Rien
 de plus facile que cet examen », mais j'ai été désagréablement surpris de la malveillance des examinateurs. Ils posent e
@@ -4575,7 +4187,6 @@ C'est ainsi que j'obtins le diplôme tant désiré. Ouf!
 Les examinateurs, lorsqu'ils sont intelligents, — on
 peut être très instruit sans être intelligent — cherchent
 
-ne? TROIS MOIS À VERSAILLES
 à classer chaque candidat dans l'une ou l'autre de deux
 catégories : Les uns, et c'est le plus grand nombre, ont
 fait un pénible effort pour se bourrer la mémoire de
@@ -4591,28 +4202,6 @@ ont le désir de s'instruire et qu'ils continueront toute
 leur vie à étudier. Inspirer ce désir, tel devrait être le
 but et tel est le talent des vrais professeurs. Mes juges
 m'ayant reçu bachelier, je les trouvai très intelligents.
-
-STAR RE SE Ne ta ES Mets LASQUX CNE DELQUE:
-MEMOIRE à E ET EUR he
-
-ne RCE Se
-
-on à ei v Î x 4 o L
-DD be Moss RTL, r 45 + Pare ‘ HSE ae De
-
-- pre te MERE Cr 1: He 2 3 4 CRC LE ris
-ART TE RAT UE EN SE MN den ce "AC EY £
-LT ORRNOE ae à AU ne Le FAP ET: COURS
-| IT ET SE 2. Que me |
-RE FES RSR LE EX si S FU È
-
-OL SA Mrs RME PO eu HE TES TÉLÉ ae RAS %
-EST es. ARS TEE RISES RC HE
-LA AT tre A LT FR) L EVE x S ARE « 35 TR Lys
-
-Mer En. ge ATV: ? a wait SRI DASTEN Le "d
-
-HAT PEL ET NUE te ESS
 
 Fernand Milliet à son père 2
 
@@ -4640,8 +4229,6 @@ que ce sera possible. à
 Je reviens à notre voyage, car ce n'est pas à proprement
 parler une expédition : nous n'avions pas d'ennemis à
 combattre, nous allions seulement faire voir aux popula-
-
-| ) 63
 
 tions des plaines une force suffisante pour les contenir, si
 elles s'avisaient de se joindre aux Kabyles.
@@ -4793,7 +4380,6 @@ Ton frère et ami.
 (1) Les chefs-d'œuyre ne se fabriquent pas si vite et j'attends
 encore le mien.
 
-: e jours heureux DE
 Fernand à sa mère
 
 .… Je suis nommé maréchal des logis au 2° escadron. Tu
@@ -4860,23 +4446,7 @@ nouveau cheval. Quant au sauteur qui m'a si bien décroché Fe
 _ une fois, je me moque de lui maintenant; voilà plusieurs
 fois que je le monte, et je tiens dessus.
 
-1 NULS AT ia FRE L55T EE RASE
-
-LE ET QUE TER PT CRE NE Re vs MER
-
 1861-1862
-
-PA OR ee DE D DEP IA NN EN ATEE ER
-ES: HU ARTE CEA Ce RAP en DS
-ÉRIC T PRAOEP É Are RE ni 5
-PR EN ne ee x ë TNA EEE
-RE et ET É TONER 3
-7 NS TES RE Pardi 1 Lette + LATINE
-| LÉ TTERTE SRE re er k
-| PARTIE IICERRERSES 2 2 à PU : ï FÉES CE
-ou si s A
-CSS Het L'ÉSPOR RTSUREE É ; eee it
-L'art Rene ee ee EL RER D MR de
 
 1861-1862
 
@@ -5102,8 +4672,6 @@ claire de leurs erreurs.
 
 4 79
 
-i ONE tue TA | mé |
-| Jours heureux 3
 La vérité ressemble à un vin précieux dont Dieu aurait
 : versé quelques gouttes dans l'Océan, en disant à l'homme :
 « Tu ne boiras que de ce vin. » Seigneur, quelle dérision!
@@ -5267,7 +4835,6 @@ lui, que la brillante jeunesse d'Athènes est suspendue à ses
 lèvres, et il est heureux de faire un peu parade de la sou- w
 - plesse et de la vigueur sans égale de son esprit. Il parle, et
 
-ke RHÉTORIQUE ET PHILOSOPHIE
 à peine a-t-il commencé qu'on l'admire déjà. Il jongle alors
 avec les mots et avec les pensées, il définit, il distingue; .
 Prodicus lui a appris les nuances les plus subtiles des synonymes; tantôt il ergote finement, tantôt il discute avec force,
@@ -5312,7 +4879,6 @@ d'esclaves qui pourtant les font vivre de leur travail;
 ils oublient la pitié pour ceux qui souffrent, ils ne savent
 nt pastendrela main àleurs frères inférieurs et infortunés. (1)
 (1) J'ai exprimé depuis des sentiments analogues dans les vers
-| LucRèÈèCE, u.
 Accoudé tristement au roc de nos rivages,
 ; Je contemple les flots cabrés sous le grand vent,
 Et je plains le pêcheur qu'un espoir décevant
@@ -5342,7 +4908,6 @@ De l'infini des cieux escaladez le faite,
 Nous, restons ici-bas pour aimer et pleurer.
 
 ab big dtie one sédibiatrige À) th dti. 4t;) 8 dote des deg CS ES den CS
-Li Pas RUES
 
 Obligés d'étudier les grands écrivains, les jeunes
 gens sont amenés tout naturellement à les imiter, et ils
@@ -5372,7 +4937,6 @@ b (1) Cest d'une manière un peu forcée que j'en ai fait entrer
 . plusieurs dans les livres que j'ai publiés depuis; elles ont subi
 - quelques retouches et j'y ai ajouté quelques commentaires. ‘
 
-| - jours heureux
 | . — Se connaître, quoi de plus difficile et de plus rare?
 À D'ailleurs qui se préoccupe de cela? Chacun s'admire naïveke ; ment et sincèrement, chacun déploie une habileté meri à veilleuse pour pallier à ses propres yeux ses travers et ses
 k vices. Si vous disiez à une vipère qu'elle est méchante,
@@ -5405,7 +4969,6 @@ Choisis-le pourtant. .
 Indulgence. — Ceux qui n'ont pas bon estomac se conforment docilement à l'ordonnance du médecin qui leur
 défend le vinaigre. Mais ils n'en veulent pas au vinaigre.
 
-yo RHÉTORIQUE ET PHILOSOPHIE
 Est-ce sa faute s'il leur fait mal? Ils sont prévenus, c'est à
 S eux d'éviter les acides. Faisons de même pour les méchants.
 Puisqu'ils nous blessent, évitons-les, éloignons-nous d'eux,
@@ -5428,8 +4991,6 @@ Mon esprit flottant oscillait entre des doctrines contraires. Les beaux précept
 et chrétienne excitaient mon enthousiasme, et pourtant
 je devinais la force des arguments déterministes qui
 atténuent la responsabilité :
-
-— L'hygiène,
 
 écrivais-je,
 
@@ -5460,7 +5021,6 @@ des agneaux et des bœufs. Mille circonstances fatales pèsent
 sur la volonté et la déterminent. La société finira peut-être
 par reconnaître qu'elle a sa part de responsabilité dans
 bien des crimes. Un progrès nécessaire s'accomplira dans
-le sens de la pitié, de l'indulgence et du pardon. Nos
 descendants, plus humains, s'étonneront de la tardive
 férocité de nos lois et de nos mœurs.
 
@@ -5524,7 +5084,6 @@ f dont il a été spolié par la violence. Ceux qui meurent de
 | faim accepteront difficilement la théorie de la prescripk Ù tion. (1) +
 put — Le progrès pacifique n'est pas impossible, Il suffit que
 4 \ le peuple sache bien ce qu'il veut, et qu'il ne veuille que ce
-Et peup q qu qu
 ï. qui est légitime. Alors sa voix ne sera pas celle d'un briy gand révolté, ce sera la voix de la Justice elle-même; qui
 F criera aux riches : &« La bourse ou la vie! » Malheur aux
 KT aveugles qui ne voient pas à l'horizon ce grand cata-
@@ -5536,7 +5095,6 @@ KT aveugles qui ne voient pas à l'horizon ce grand cata-
 F étre coupé et jeté au feu. »
 (1) Quelques grandes fortunes ont une autre source qui n'est pas |
 plus pure : Pagiotage et les spéculations de Bourse.
-| MENT
 
 .Ivre de sa rosée et de son doux printemps, j
 La terre s'éveillait sous la divine Aurore; Û à
@@ -5563,8 +5121,6 @@ devenir peintre. La peinture est une maîtresse jalouse qui n'admet
 guère de rivale, A Paris je n'allais plus avoir envie d'écrire des Ÿ
 _ vers, mais de faire des tableaux.
 
-| “2 Les FLeurs ;
-À Où t'en vas-tu si farouche,
 Mon bel éphèbe, où vas-tu ?
 Pourquoi ce pli sur ta bouche,
 4 Pourquoi cet air abattu ?
@@ -5601,7 +5157,6 @@ Lance de tous côtés son timide regard,
 Et, quand la biche accourt vers lui dans les futaies,
 . Dédaigneux s'enfuit à l'écart;
 
-rer RHÉTORIQUE ET PHILOSOPHIE AU
 À Ainsi tu marches seul, sans savoir que lon taime,
 Tu vas loin de la danse et de tous les plaisirs,
 Tu vas, pensif et fier, amoureux de toi-même,
@@ -5629,7 +5184,6 @@ Nous irions, enivrés de la chaude lumière
 À Qui ruisselle en flots d'or sur les fauves épis; *
 : Nous irions en chantant une même prière
 Dans le calme des nuits.
-Les ROCHERS :
 D'un vain rêve, enfant, tu te leurres; ù
 Insensé, profite des heures, ù
 Cherche enfin la réalité.
@@ -5643,7 +5197,6 @@ port ; Cette ardeur qui vient tembraser.
 TC a Hâte-toi, la Mort est avide,
 ; Bientôt de sa lèvre livide è
 ‘à £ Tu sentiras le froid baiser:
-k ; Les NUAGES
 5 i Assez de profanes paroles!
 Pere Il faut, enfant, que tu t'envoles |
 LA Dans l'éther, bien loin du réel.
@@ -5652,7 +5205,6 @@ LA Dans l'éther, bien loin du réel.
 ; ‘ Ton esprit seul est éternel. :
 Déjà, plein d'un sacré délire,
 JE Dans son triste exil, il aspire
-| Au mystérieux Inconnu,
 & Et bientôt, déployant ses ailes, '
 4 Vers les régions éternelles :
 D: Il ira chercher l''Absolu.
@@ -5688,13 +5240,10 @@ Allons, jeune homme, il faut revenir sur la terre. à
 Entends-tu gazouiller la source au fond des bois?
 A travers les taillis pleins d'ombre et de mystère ;
 Elle court en chantant de sa joyeuse voix : j ©
-LA SOURCE nl
 ; Quelqu'un là-bas nous écoute, +
 Il faut l'attirer à nous,
-Glou, glou, glou; Le
 Sur la mousse et les cailloux, ' 11
 Pareille au vent qui frissonne, $
-Une rumeur monotone < |
 À Flotte dans l'air embaume.
 Cest ma voix, ma voix lointaine, 3
 Cest la voix de la fontaine,
@@ -5716,7 +5265,6 @@ b', ” - Qui jusqu'à ses genoux montaient avec les fleurs.
 Il aperçoit la source au fond des bois déserts;
 s : Il s'arrête, il se tait. L'onde s'étale, pure, F
 F Et les cris des oiseaux peuplent les chênes verts.
-; Les OrsEAUx
 À ; Par ici, par ici, vite!
 Le voici près du ruisseau,
 A chanter tout nous invite,
@@ -5823,7 +5371,6 @@ cp 11 avait dépouillé sa légère tunique,
 ne Mais il ne rougit point de voir sa nudité; £
 ‘4 3 ë Rougir ! N'était-il pas comme le marbre antique,
 
-MT x Vêtu de sa beauté ?
 à Le bonheur sur son front formait une auréole.
 14 Adieu la tristesse et l'ennui!
 à: Sa bouche restait sans parole,
@@ -5832,9 +5379,6 @@ MT x Vêtu de sa beauté ?
 fi D'un rayon vermeil !
 À C'est toi ! Tu m'entraînes,
 x , Ton feu, dans mes veines, ce
-di ; Mes lèvres pâlissent, ;
-À , Mes yeux s'obscurcissent, d
-À] ÿ Je languis tremblant.
 
 7 | Le voilà l'idéal, le voilà le doux rêve! |
 * Oh! dis-moi que jamais tu ne m'échapperas.
@@ -5861,9 +5405,6 @@ Viens unir leur destinée, k
 4 L'air abattu, Lykos, dans les taillis épais
 S'en va, le cœur brisé, l'œil perdu dans l'espace,
 e Tandis que la grenouille, au fond de son marais, ;
-
-| - jours heureux
-Les GRENOUILLES -
 
 Ne me fuis pas, jeune grec!
 
@@ -5894,17 +5435,6 @@ Ami, contente-toi d'un reflet du bonheur. »
 
 1861-1862
 .
-
-De Dee ea RC NAT MATTER “pt jà 7e à PE
-Eprs MT LAVAL JERUEM EN sa ENTRER RINESNAT RENTE re ie AREA
-RU LA) AO PRE LAS AE ARR RUES nt | A
-et APT NAME SIA) o RER + ATARI
-
-FAR POS HAINE HEAR pi fief , RUE NE LTE LR ,
-
-LE re da A art Le ÿ px FRE +
-
-HV ni ER MANS RE RS fe 514 “ D: |
 
 1861-1862
 Contradictions mathématiques. — Le Jupiter de Phidias. — Vas
@@ -6011,7 +5541,6 @@ ES présentées, non pas à la science elle-même, maïs à ses
 FULE C'est avec l'aplomb des demi-savants que je soulevai
 ; quelques graves problèmes. Je n'ai nullement la préten-
 # tion de les avoir résolus.
-, L'esprit humain,
 disais-je,
 ayant des”limites, ne saurait
 4 atteindre l''Absolu. Les mathématiques elles-mêmes, malgré
@@ -6046,7 +5575,6 @@ sphère est la limite d'un polyèdre dont le nombre des sur- …
 faces croilrait indéfiniment. » — Autrementdit: Nous savons
 | 4
 
-Fes LE __ LA SCIENCE ET L'ART ÿ Fe
 a È qu'un polygone, malgré la multiplication indéfinie dunombre
 _ deses côtés, n'arrivera jamais à être un cercle; nous savons ‘
 qu'un polyèdre ne se confondra jamais avec une sphère, |
@@ -6055,7 +5583,6 @@ donc nous allons raisonner sur le cercle comme si c'était un Se
 s Mon manuel de géométrie ajoute en effet : « Il résulte
 évidemment de ce qui vient d'être dit, que {oute propriété Ë
 - qui aura lieu pour le périmètre ou la surface d'un polygone inscrit, quel que soit le nombre de ses côtés, s'appli- ds
-quera à la longueur ou à la surface du cercle. » LT
 Mais, direz-vous, l'erreur pourra être aussi petite que lon IE
 _ voudra. — D'accord; cependant une erreur reste toujours +
 une erreur. Me ferez-vous croire que le cercle aura toutes TE
@@ -6089,12 +5616,10 @@ résiste pas à l'examen. Et qu'on ne vienne pas nous parler
 n'avons pas à nous occuper de savoir sivouslimaginezounon.
 Il n'y a pas d'atomes.
 ! I n'y a pas de point mathématique.
-Il n'y a pas d'Infini, il n'y a que de l'indéfini.
 Les grands X ne sont pas ce qu'un vain peuple pense.
 Notre crédulité fait toute leur puissance.
 Point de respect pour les superstitions, fussent-elles
 scientifiques ! Haïssons tout ce qui est faux, laid, mauvais
-; et puissant! :
 
 Je respecte aujourd'hui la science et je suis devenu
 un partisan convaincu de l'hypothèse atomique. La
@@ -6180,7 +5705,6 @@ HER pas eu cette audace ? Tous n'ont fait, il est vrai, que des"
 #5 images indignes de toi. Je voudrais te représenter tel que F
 ée tu m'apparais, à Souverain, splendide et bon. : 4
 
-ne à MT AR ds à NT CA
 _ Zeus alors se radoucissant lui dit : Essaie donc, puisque
 tu le veux. — Et chaque matin Phidias, après avoir versé ne
 - à terre une libation, invoquait le Maître tout puissant des HAE
@@ -6209,7 +5733,6 @@ D + ; vanité, une fausse gloire quiestlégèreté, 2
 Ne cr une fausse grandeur qui est petitesse, se
 + une fausse vertu qui est hypocrisie, NN
 & une fausse sagesse qui est pruderie, »
-| NS LA BRUYÉRE LE EE)
 Comme tous les artistes, M. Lugardon savait que la
 à nudité n'a rien d'indécent. Je suivais donc les leçons de _
 _ mon maître, lorsque j'essayai de combattre un préjugé
@@ -6293,7 +5816,6 @@ __  (r) Elles ne portaient qu'une ceinture extrêmement légère.
 _ (2) Il faut considérer la description suivante comme le projet
 7 ur tableau qui n'a pas été exécuté. £
 
-PAS ‘jours heureux à . AE
 1 ô Alors, au milieu d'un silence religieux, s'éleva, merveil-
 | -  leusement pure, la voix du jeune coryphée, lançant au ciel
 We la joie enthousiaste de l'hymne triomphal. Puis le chœur
@@ -6421,13 +5943,11 @@ temps. Nous croyons nous accrocher au rivage; nous
 « Frère, il faut mourir. » Cette parole est impie. Rien n'est
 - plus déprimant, plus antisocial, plus immoral que ce rappel
 
-eur 19: 1 e . ee m4 QU CR À OR ET nr res, À
 incessant d'une fin prochaine. Cette idée fixe détourne de
 Sr l'action. Plus sages étaient les Grecs. Épicure disait avec
 : une sérénité admirable: « La mort ne nous concerne
 REA point. Tant que nous sommes, elle n'est pas; quand elle
 S est là, nous ne sommes plus. » C'est ainsi que pense tout
-LA esprit sain.
 L'hérédité n'apporte à aucun homme cette préoccupation
 REA morbide de sa fin. L'enfant végète plutôt qu'il ne vit. S'il
 ‘ie souffre déjà et s'il jouit un peu, du moins il n'a souci ni
@@ -6461,7 +5981,6 @@ n créant des images durables de l'éphémère beauté, ils ont su
 4 flux perpétuel des choses et des êtres, l'art demeure; il.
 ; nous suit partout, il nous charme et nous console. C'est lui
 
-ne M ee € ue <
 a seul qui, dans les plus dures épreuves, apporte à nes âmes
 + _  inquiètes et endolories la joie pure, la sérénité, l'amour de a
 la vie, l'oubli de la Mort. es
@@ -6491,12 +6010,6 @@ __ avec vous sont de ceux, bien rares, quine laissent après
 __ eux aucune amertume. ne .
 & _ Un jour peut-être quelques-uns d'entre vous viendront à
 "hf Paris; frappez alors à ma porte, un ami vous y attendra
-
-PNR CE Re MER EN ON RS En dE nr 7e
-Fe ne Pme SAGE RE M nee RSR EUTIE FR CAT RR SE 3 VE
-À en à Re DT ne AU PRE PE APR NEO PRE | -
-| REPORT RES À. { HÈE TFIE
-F0 VA Ces (PET ee , LÉ
 
 Ce titre, emprunté à Sextus Empiricus, n'indique
 nullement une injustifiable hostilité contre les mathé-
@@ -6548,7 +6061,6 @@ nous croyons rester en place, tandis que les arbres, Fa
 les maisons et ‘tout le paysage passent devant nos AN
 yeux emportés par un mouvement bizarre, d'autant GS
 plus rapide que les objets sont plus rapprochés de T4
-_ nous. me.
 C'est aussi une illusion d'optique qui a fait croire à
 pendant de longs siècles au mouvement du soleil et 4
 des étoiles autour de la terre, et ces illusions ont donné +
@@ -6564,10 +6076,6 @@ pouvons, il est vrai, faire un instant abstraction du À à
 _ temps et du lieu. Les vérités que nous démontrons PES
 seront valables demain comme aujourd'hui, en Asie : ;
 | () Journal de Psychologie. V. 2. — Mars 1908, : e
-
-|
-
-|
 
 médiunr s et diseuses de bonne aventure voient 1É
 d'avanc ements dits futurs, qui existent déjà. » } |
@@ -6596,7 +6104,6 @@ pas y a nombre infini, ou absolu. Ce qui 33
 n'exprime rapport n'est pas un nombre. Fe
 Pascal nombre infini : « Il est faux qu'il soit f F
 
-| Jours heureux
 comme en Europe; mais faire abstraction de l'espace
 et du temps, ce n'est aucunement supprimer l'existence
 | de ce que nous négligeons volontairement et par convention. La succession des événements existe, même
@@ -6623,9 +6130,7 @@ après les autres, c'est que vous faites une promenade à £
 travers la durée. Oubliez donc, si vous Le pouvez,
 Le Temps, cette image mobile |
 De l'immobile Éternité.
-|
 
-; LA SCIENCE ET L'ART rs
 Prophètes et voyants, chiromanciens, spiritualistes,
 médiums, spirites et diseuses de bonne aventure voient
 d'avance les événements dits futurs, qui existent déjà. »
@@ -6658,7 +6163,6 @@ l'unité de grandeur de son espèce). Il ne peut donc
 
 : Pascal disait du nombre infini : « Il est faux qu'il soit
 
-ES Re NAT : Ni MS RO: ve fs |
 pi pair, il est faux qu'il soit impair..., cependant c'est un
 r nombre, et tout nombre est pair ou impair : il est vrai
 ; Es que cela s'entend de tous les nombres finis. »
@@ -6691,13 +6195,11 @@ J ; peut toujours la rattacher aisément à des images de choses con
 ; un rien. Entre l'un et l'autre il n'y a pas de transition possible."
 ê (2) Sept leçons de Physique générale (5° leçon). ÿ Ë
 
-LL. sa
 _ grand que l'autre. Cette conséquence absurde montre
 F que nous ne devons pas considérer la série indéfinie : é
 des nombres comme actuellement donnée. RATE CE
 . Cest cependant ce que font les mathématiciens, ,
 _ lorsqu'ils nous parlent d'un infini positif actuel et Eee
-| donné. FE
 M. Couturat cherche à nous faire avaler ce qu'il
 _- nomme lui-même « un merveilleux artifice » : É re
 : On ne commet pas une erreur en considérant un cercle 52
@@ -6720,7 +6222,6 @@ a: l'on suppose les éléments infiniment petits et par-suite
 contraire de ce qu'on avait posé tout d'abord? N'est-ce
 _ pas appliquer à la fiction de la continuité un raison ni
 À nement qui n'est valable que pour le discontinu? S'il ur
-- ny a pas là contradiction, je ne sais plus ce qu'on FES
 4 entend par ce mot. Corriger une erreur en en faisant
 une seconde, singulière méthode! QE LeRe
 7 Dans l'essai d'explication de M. Couturat, il faut SE
@@ -6812,10 +6313,8 @@ se dictions latentes qu'il faut dégager. La distinction car-
 
 de tésienne entre l''Infini et l'Indéfini peut seule nous ;
 ii è mettre en garde contre certains sophismes de la méta- 4
-à e physique et de la logique formelle. 1
 En Le monde extérieur, le Non-moi, est indéfini, il n'a”
 
-nr LA SCIENCE ET L'ART
 à pas de limites, mais il a des parties, il est indéfiniment
 divisible, et, quelques-unes de ses parties nous étant
 connues, nous avons le droit d'affirmer son existence :
@@ -6888,22 +6387,6 @@ trouve que rien n'a changé autour d'elle; chaque chose
 a conservé sa place et son nom; il ne s'est point fait
 de vide dans la réalité. »
 
-PTE ete SUN DE idtet RON : « PES: ‘ d + SE V
-2 TRE lu pu SR SES D Rere
-| F'RANÉ AN STEP 4 RL
-
-'ÉURERE IX ets PEN a: LES Se MERE SE fr RNCS IE
-SR De jen LES LR SL NE RER. ? 5 at On PAC NT TE
-*. lee Fée DRE Past SUR FRE RU rer LEE Se LUSTA L'
-MST « TA ST TRI PT LT ERERSS CSN ne
-MR : es ee 1: MES ENS AND: Han
-RÉ ACTES hu PR NS M Et VE NS
-
-LS SERGE ENSRE AE FE PR RS et RTE CIE
-L ETIENNE £ Re AE ERC Vrar LES
-
-ri ne Ê ”
-|' AE
 une famille de républicains fouriéristes ..... I
 Mariage d'Alix. — Séjour à Paris. — Un cadre
 en filigrane. — « Gaëtana ». — « Le Fils de
@@ -6912,7 +6395,6 @@ Culture intensive. — Lettres de Jules Nicole et de
 Marc Doret. — Baccalauréat. — Lettres de Fernand.
 Portraits. — Critique de Polyeucte par Jules
 | ! Nicole. — M. Amiel. — Le doute cartésien. —
-| 139 ;
 
 sixième cahier de la douzième série
 Port-Royal : Des diverses manières de mal raisonner. — Platon. — Maximes. — Déterminisme;

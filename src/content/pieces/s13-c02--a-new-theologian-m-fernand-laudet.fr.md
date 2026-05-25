@@ -8,10 +8,6 @@ isAvertissement: false
 wordCount: 75800
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s13-c02-ocr.txt); ingested 2026-05-25"
 ---
-
-UN NOUVEAU THÉOLOGIEN
-M. FERNAND LAUDET
-
 Le Bulletin des professeurs catholiques de l'Université, publication mensuelle, première année, abonnement six francs par an, Joseph Lotte, professeur au Lycée, 1, rue Daniel, Coutances, Manche, dans son numéro 7, du 20 juillet 1911, a publié le communiqué suivant. Nous le reproduisons intégralement. Nous changeons seulement les numéros des paragraphes, pour les faire entrer dans notre comptabilité générale. Nous avons rétabli quelques paragraphes et fragments de paragraphes supprimés du Bulletin au dernier moment pour obéir aux nécessités de la mise en page.
 
 Coutances, le jeudi 20 juillet 1911.
@@ -48,19 +44,12 @@ dénoncer. Ce plan éclate dans les autres propositions de M. Laudet.
 
 Laissons de côté cette métaphore imbécile de la fin, ce sillon lumineux qui veut se hausser au grand style. Remettons en forme la proposition centrale. Nous disons que cette proposition centrale est tout ce qu'il y a de plus injurieux pour les principes essentiels de notre foi. Laissons de côté la mauvaise foi avec laquelle M. Laudet attaque l'œuvre de M. Péguy. Si M. Péguy consent de se détourner quelques semaines d'écrire le deuxième Mystère de Jeanne d'Arc, il pourra peut-être engager avec M. Laudet une conversation intéressante. La proposition centrale de M. Laudet est la suivante :
 
-A. — Il y a l'histoire et il y a la légende,
-
-B. — Restituer :
 la Jeanne d'Arc de notre populaire histoire de France ;
 la Jeanne d'Arc de « quand nous étions petits » ;
 la surnaturelle Jeanne d'Arc ;
 enfin sainte Jeanne d'Arc ;
 
 ce n'est pas une entreprise historique ; la légende suffit,
-
-en d'autres termes :
-
-C. — Il y a l'histoire et il y a la légende. La légende comprend :
 
 la Jeanne d'Arc de notre populaire histoire de France ;
 la Jeanne d'Arc de « quand nous étions petits » ;
@@ -380,8 +369,6 @@ de boisseau, de veuves, de drachmes, de péagers, de porchers, de bergers, qu'il
 § 135. — Particulièrement Jésus homme public, prédicateur et missionnaire, nous a formellement commandé de vivre comme des enfants. Matthieu, XVIII-3, sicut parvuli. Les enfants n'étant point généralement des personnages publics. Jésus-Christ lui-même nous rabat ainsi et en ces propres termes, lui-même étant homme et public, sur la vie de « quand nous étions petits ». Enfin si M. Laudet méprise les saints petits, les saints enfants, qu'est-ce qu'il fait de Bernadette. De tant d'autres. Il est constant que la Vierge aime mieux apparaître aux enfants.
 
 § 136. — Cette représentation des saints entre eux et en Jésus jusque dans le détail, et par suite et avant au premier degré ce parallélisme des saints entre eux et avec Jésus, jusque dans le détail, n'est jamais peut-être aussi saisissante, ne s'impose peut-être jamais à la pensée chrétienne avec une autorité aussi saisissante que dans la considération de l'histoire de la sainteté de Jeanne d'Arc. Nul parallélisme mystique, nulle représentation mystique, d'un saint en un saint, d'un saint en Jésus, n'est peut-être poussée, dans toute l'histoire de la communion mystique, à un degré aussi saisissant que la représentation, dans le détail même, de Jeanne d'Arc en Jésus. Il faut tenir notamment que les Mystères de M. Péguy ne garderaient point leur propre couronnement si cette représentation mystique cessait un seul instant d'être la grande régulation interne de son œuvre.
-
-§ 137. — Redescendons à M. Laudet. Ce que M. Lau-
 
 det ne veut pas voir, ce qu'il ne veut pas considérer, c'est que l'on fait quelquefois du public avec du privé, des hommes publics avec des hommes privés, et réciproquement. Les événements publics sont gros, sont nourris d'événements privés, et retentissent indéfiniment en événements privés. Les hommes publics sont gros, sont nourris d'hommes privés, et retentissent indéfiniment pour ainsi dire en hommes privés. Et réciproquement tous ces témoins qui vinrent, qui furent appelés de Domremy à Paris ou à Rouen au Procès de Réhabilitation ou à Reims, qu'étaient-ils que des petites gens, des pauvres, des gens privés, non publics, qu'une sorte de grande vocation brusque, une vocation d'ensemble, entraînant tout à coup à faire, à constituer la plus grande action publique, la plus grande opération, la plus grande œuvre publique. Une telle, femme Un tel ; une telle, femme un tel, y a-t-il rien de plus saisissant, et vraiment de plus angoissant, que ce défilé de petites gens, que ce chapelet de pauvres et d'ignorants, — (mais ils savent la plus grande science, car ils ont été témoins du plus grand fait), — qui au Procès de Réhabilitation viennent innocemment apporter leur pierre au plus grand monument public, au plus grand monument de l'histoire. Pour moi je ne sais rien de si poignant au monde que les pauvres témoignages, ou plutôt que les témoignages pauvres de ces femmes qui se suivent comme à la procession, une telle, femme une telle, née une telle, de la paroisse de Domremy, les femmes de son âge, si elle avait vécu, qui l'avaient connue petite fille, qui avaient joué avec elle, qui l'avaient vu partir et qui viennent témoigner, apporter ici des histoires
 
@@ -801,8 +788,6 @@ Et ce grand Assiégé, ce grand Général aux innombrables têtes, (si seulement
 
 § 263. — Une lettre dans le genre humoristique de M. Salomon Reinach à M. Lotte sur ce communiqué du Bulletin me rappelle fort opportunément que je suis fort en retard de ma correspondance avec M. Salomon Reinach. Nous en étions restés à Bernard-Lazare. Ce n'est pas sans un poignement, sans un serrement de cœur que loin de ces misérables arguties de M. Laudet je remonte brusquement à la haute mémoire que nous avons gardée de notre grand ami Bernard-Lazare. Quelques jours après Notre Jeunesse M. Salomon Reinach m'écrivait une lettre à laquelle je souscris à peu près entièrement. Fixons ce point d'histoire. J'ai dit, et je maintiens, que Bernard-Lazare dans le triomphe ou plutôt
 
-BERNARD-LAZARE
-
 aussitôt après le triomphe politique d'un certain parti politique dreyfusiste immédiatement installé dans le triomphe de l'affaire Dreyfus même fut en quelques semaines délaissé, renié par l'État-Major politique dreyfusiste aussi instantanément constitué parce qu'il devenait embarrassant, parce qu'il demeurait fidèle à une première, à une ancienne, a la originelle mystique dreyfusiste premièrement instituée. Je l'ai dit, et commencons le ne maintiendrai-je pas quand tout ceci est aujourd'hui acquis, universellement reconnu. Ceci dit, qui est une thèse de politique générale, d'histoire générale en général, si je puis dire, et d'histoire générale de la politique, il est entendu aussi et je sais bien que Bernard-Lazare conserva jusqu'au dernier jour, — (jusqu'à ce dernier jour qui vint tôt, qui venait, qui était là), — en Israël un faisceau non pas seulement d'amitiés fidèles, mais de fidélités propres, de fidélités fidèles et de fidélités réelles, de fidélités non pas seulement d'amitié (c'est déjà le fond de l'homme), mais de fidélités proprement religieuses, de fidélités de foi, de créance, de suite, d'accompagnement, d'un crédit total. C'est l'honneur d'Israël que cette suite, que cet accompagnement, que cette fidélité n'a jamais manqué au prophète. Si donc l'on veut dire que jusqu'à son dernier jour imminent, jusqu'à son dernier jour qui était là une poignée de Juifs, de fidèles, et non pas seulement d'amis, accompagna, étreignit pour ainsi dire Bernard-Lazare et ne le lâcha point jusque dans la mort, non seulement j'y consens, mais j'y consens d'autant plus volontiers que c'est exactement et totalement ce que j'ai dit, et
 
 que je suis le premier qui l'ai dit. Et même le seul, puisqu'il n'y a que moi qui parle de Bernard-Lazare. C'est un point d'histoire acquis et sur lequel il n'y a point à revenir. C'est l'honneur d'Israël que cette sorte de poignée d'hommes, de serrement, d'étreinte, que cette sorte d'accompagnement n'a jamais manqué au prophète. Je serais d'autant moins fondé à le nier ou à le taire ou à le contester que toute cette poignée d'hommes est restée personnellement de nos amis, et en un sens de nos fidèles. Hier encore un nouveau, un tout jeune homme venait me voir, me rapportant précisément un petit paquet des lettres que j'écrivais à Bernard-Lazare dans ces temps héroïques.
@@ -810,8 +795,6 @@ que je suis le premier qui l'ai dit. Et même le seul, puisqu'il n'y a que moi q
 Que si ensuite et aussi l'on veut dire que tout autour, plus largement un certain nombre de Juifs d'un certain monde garda à Bernard-Lazare jusqu'à sa mort et même perpétuellement après une sorte de fidélité sociale, de dédicité historique, une fidélité matérielle d'une certaine sorte inébranlable, une fidélité pour tout dire temporelle, c'est ce que nul ne conteste, c'est ce que je contesterai moins que personne, et c'est encore un très grand honneur d'Israël que de savoir généralement très bien régler ces sortes de situation. Israël en ceci, et sur beaucoup d'autres points, pourrait nous servir de modèle. Nous savons tous comment les affaires de Bernard-Lazare furent réglées, comment sa situation fut établie. Jusqu'à sa mort et pour durer perpétuellement pour après sa mort. Ceci aussi est un point d'histoire définitivement acquis.
 
 En d'autres termes, et en résumé pour ainsi dire
-
-BERNARD-LAZARE
 
 géographique Bernard-Lazare fut abandonné, pour les raisons que j'ai dites, par un énorme État-Major de politiciens également juifs et chrétiens. Il ne fut abandonné ni par une poignée de Juifs mystiques ni par une certaine société de ce que je nommerais volontiers des Juifs sociaux, — des Juifs non pas mystiquement ni ethniquement mais socialement Juifs.
 
@@ -833,13 +816,9 @@ Vais-je faire état d'un billet écrit au courant de la plume, et sur le coup d'
 
 Mettons-nous à la place de M. Reinach. Quand j'ai commencé, comme on dit, enfin quand j'avais vingt ans, il avait précisément l'âge que j'ai aujourd'hui, il s'acheminait rapidement vers la quarantaine. L'Annuaire de l'Association Amicale de Secours des Anciens Élèves de l'École Normale Supérieure, (familièrement A. A. A S. A. E. E. N. S.) (mon cher camarade, mon cher camarade, (c'est M. Salomon Reinach lui-même que j'ose nommer ainsi), on a fondé une association amicale de secours des anciens élèves de l'École Normale Supérieure, c'était bien. Mon cher camarade
 
-M. SALOMON REINACH
-
 ce qui serait mieux, voulez-vous vous mettre avec moi, nous allons fonder l'association amicale de secours de l'(ancienne) école Normale elle-même. Elle en a bougrement besoin de secours, notre vieille maison ; et peut-être qu'en travaillant beaucoup nous arriverions à en sauver quelques reliques des mains politiciennes, des séniles mains de M. Lavisse). cet Annuaire nous porte donc, M. Reinach et moi, à une distance de dix-huit ans en promotion. J'ai su compté dans la promotion de 94, et M. Reinach dans la promotion de 76. Cela fait sensiblement 18. Si précoce que pût être M. Reinach et si enfant arriéré que j'aie toujours été, et bien que de son temps on ne fît pas de service militaire, il ne peut guère y avoir qu'un flottement de quelques années entre les âges d'admission, d'entrée à l'École. M. Reinach abordait donc la quarantaine quand nous levions l'ancre de nos vingt années. Je sais à M. Reinach, (on me passera cette expression mathématique), comme sont à moi ces tous jeunes gens qui viennent aujourd'hui me voir.
 
 Or il est extrêmement difficile sinon impossible à une génération, à une promotion qui vieillit de croire que les autres vieillissent aussi. Plus précisément ils veulent bien voir que leurs anciens vieillissent, et ils mesurent ce vieillissement d'une façon pour ainsi dire géométrique, comme des arpenteurs, par leur propre avancement dans les grandeurs, dans les places, dans les autorités temporelles, dans les puissances, mais ils ne veulent point se rendre compte que les autres, que leurs cadets, que les jeunes, hélas, que les générations suivantes progressent sensiblement avec la même
-
-LA SORBONNE MODERNE
 
 vitesse. Toutes les crises de famille, les pères et les fils, viennent de là. Cet homme ne veut pas comprendre que cet homme aussi, son fils, est devenu un homme. Et les mères sont généralement pires que les pères. Parce que les femmes sont encore pires que les hommes. Toute cette crise de la Sorbonne, qui est si profonde, (pas la Sorbonne, la crise), vient de ce que toute une génération, qui arrive à la soixantaine, ne veut pas comprendre que toute une génération, une autre, la nôtre, arrive à la quarantaine.
 
@@ -853,15 +832,11 @@ C'est ainsi que la vieille Sorbonne est devenue une sorte d'ogresse au moment m�
 
 Nous le voyons assez toutes les fois qu'au régiment nous retrouvons « les hommes », nos Français comme
 
-LA SORBONNE MODERNE
-
 ils sont, libérés de toutes les servitudes sociales, réaiguisés de tous les émoussements sociaux. Car l'homme n'est jamais libre qu'au régiment. Et nous aussi nous ne sommes jamais libres qu'au régiment. Hors des servitudes civiles ; hors des émoussements civils. Sensible au bon procédé, sensible au mauvais ; sensible au mot courtois, sensible à l'injure ; suivant jusqu'à la mort le chef aimé, le chef aimé, le chef courtois, haïssant à mort le chef discourtois, le chef injurieux, tel est le Français, tel est le peuple, tels nous sommes. Il n'y avait pas de crise de la Sorbonne quand un homme comme Gaston Paris, quand un homme comme Brunetière, l'un austère et doux, l'autre austère et apparemment dur et secrètement tendre faisaient, et largement, leur devoir d'aînés envers toute une pléiade, envers toute une génération, envers toute une promotion. Installant précisément au pouvoir spirituel en l'installant au pouvoir temporel précisément cette génération, ce parti qui aujourd'hui veut fermer les portes derrière lui, qui refuse de continuer le mouvement, la tradition du pouvoir spirituel et du pouvoir temporel. Parti doublement coupable, qui ne veut plus derrière lui que des esclaves spirituels et temporels, qui ne veut même plus d'élèves derrière lui, loin qu'il y veuille des hommes libres. Parti doublement coupable, car ce flambeau de tradition qu'il refuse de léguer, qu'il refuse de passer, quem tradere non vult, ce flambeau de commandement, spirituel, temporel, ce flambeau de haute amitié, d'aînesse, de paternité spirituelle, ils ne l'avaient point inventé, ce flambeau, ils ne l'avaient point allumé eux-mêmes, allumé premiers, ils l'avaient emprunté, eux-mêmes ils l'avaient reçu de
 
 leurs anciens, de leurs propres aînés, de leurs pères spirituels. C'est précisément la génération installée par Paris et Brunetière, et qui sans Paris et Brunetière ne serait rien, qui fait le Croquemitaine et la Barbe Bleue avec nous, avec la génération suivante. Mais nous ne nous laisserons peut-être pas manger.
 
 Nous ne souffrirons pas d'être traités en suspects par quelques coquebins, par quelques francs-fileurs dans une République qui nous doit tout, qui tout entière n'est que par nous, qui sans nous, sans notre solidité sombrerait il y a quinze ans dans la tourmente antisémitique. Par quelques francs-fileurs qui à la moindre apparence de danger filaient jusqu'au Nouveau en Thébaïde et tremblaient dans leur peau et allaient se terrer. Pour moi, qu'on le sache bien, personnellement je n'endurerai pas qu'un Lavisse, tout gonflé de rentes et de pensions et de traitements et d'honneurs, (au pluriel, au pluriel), tout enripaillé de prébendes pour avoir semé autour de lui des désastres dans la République et dans l'Université, je n'endurerai pas qu'un Lavisse, quand même il serait de vingt Académies, vienne impunément faire des facéties et des grossièretés, fussent-elles normaliennes, sur la carrière de peines et de soucis, de travail et de détresses de toutes sortes que nous fournissons depuis vingt ans, en très grande partie justement par la faute de la génération précédente. Il en a assez dit cette année. Il en a assez fait cette année. Il s'est assez occupé de moi cette année. Qu'il recommence à s'occuper de Louis XIV. Que ce gras fossoyeur porte sa main papale sur quelque cadavre moins récalcitrant. Qu'il continue seulement d'enterrer l'École Normale. C'est un grand
-
-LA SORBONNE MODERNE
 
 crime, et un grand cadavre, et qui demandera beaucoup de terre. S'il revenait à s'occuper de moi je le préviens que les démarches les plus instantes ne m'empêcheraient plus de lui demander les seuls comptes, hélas, que l'on ait jamais pu songer à demander de lui.
 
@@ -875,8 +850,6 @@ ne parle jamais des pauvres gens), (je ne parle que des grands seigneurs de la P
 
 Ce que je veux dire, — et ce serait le commencement d'une conversation avec M. Salomon Reinach, ce serait même le commencement de toute conversation qui por-
 
-LA SORBONNE MODERNE
-
 terait sur cette matière, — prolégomènes à toute métaphysique future, — c'est qu'il y a entre la génération qui nous précède et nous une coupure comme il n'y en a peut-être jamais eu entre deux générations qui se suivaient. Et que l'on ne nous dise pas que c'est l'habitude, qu'il en est toujours ainsi, qu'il en est forcément ainsi. Nous avons deux témoins, nous avons deux (autres) exemples. L'un avant, l'autre après. Premièrement la liaison de la génération qu'illustraient Paris et Brunetière précisément à la génération qui nous précède. Deuxièmement notre propre liaison à la génération qui nous suit. Aux nouveaux jeunes gens.
 
 Je demande pardon à M. Salomon Reinach d'avoir ainsi été conduit par un simple rapprochement purement géographique dans le temps, si je puis dire, à mettre à côté de son nom le nom de M. Lavisse. Il est évident que par ailleurs il ne peut rien y avoir de commun entre ces deux hommes. M. Salomon Reinach n'a point un Nouveau en Thébaïde où il s'enfuie. Toutes les fois que des guerres presque civiles et presque plus que civiles ont conduit ce pays à deux doigts de plus extrêmes dangers, M. Salomon Reinach était là. Comme nous. Parmi nous. Il était présent.
@@ -886,8 +859,6 @@ M. Salomon Reinach m'arrêterait peut-être ici. — Que parlez-vous de généra
 Monsieur Reinach quand un parti intellectuel, quand un pouvoir spirituel temporel dispose du budget de l'État, de toutes les places de l'État, — (de toutes les hautes places et de toutes les places de Paris, laissant aux autres le soin d'aller enseigner dans de censément ingrates provinces), — quand il dispose de toutes les faveurs, de tout l'avancement, de tout le pouvoir, de tout l'argent, de toutes les relations, — (notamment des mariages, il y aurait un beau travail à faire sur l'accélération des genres dans l'Université depuis trente ans), — (avant je n'y étais pas), — quand on dispose de tout il faudrait que l'on eût bien changé l'humanité depuis trente ans pour n'avoir pas avec soi quelques douzaines de jeunes gens ; — (et j'ajoute : quand on dispose de pouvoir casser les reins à quelques autres, à tous ceux qui ne marcheraient pas droit ; cela s'est vu ; cela se voit ; cela se verra).
 
 Puisque M. Salomon Reinach est certainement pour les méthodes expérimentales, qu'il rouvre l'annuaire, moi aussi je suis pour l'expérience. Qu'il dresse les tables. Qu'il dresse les présences, les absences, les variations concomitantes. Qu'il compte, qu'il mesure les carrières que l'on fait, — (j'entends les carrières politiques et les carrières universitaires), — quand on marche avec le parti intellectuel, et celles que l'on ne fait pas quand on ne marche pas avec. Les plus hautes valeurs des différentes promotions reléguées, laissées en province, (le seul philosophe qu'il y ait dans ma promotion encore à Bordeaux après un tour du monde et je pense au moins dix ans du meilleur enseignement de lycée), et des galopins de vingt-cinq ans pourvus de
-
-M. RUDLER
 
 chaires, pourvu qu'ils y enseignent ce qu'ils nomment la sociologie. Faites les comparaisons, monsieur Reinach, reparcourez les carrières de tous ceux qui marchent avec le Parti Intellectuel, et étonnez-vous avec moi au contraire qu'il y ait encore quelques voix libres qui s'élèvent.
 
@@ -901,8 +872,6 @@ De tous les camarades qui figurent à l'Annuaire, cher monsieur Reinach, notre c
 
 encore il faut distinguer), — l'ont conduit, — eh bien oui, il y a des gens qui n'ont pas de chance, — l'ont conduit à découvrir que notre maître, — (et son maître), — enfin que notre commun maître M. Lanson était un homme d'un génie extraordinaire. Que faire quand par un coup de la fortune ennemie on a découvert, on se trouve brusquement le détenteur d'un aussi pesant secret. Ah si M. Rudler avait découvert, si ses études et recherches micrographiques l'avaient conduit à découvrir que notre commun maître M. Lanson n'était pas tout à fait un homme d'un génie extraordinaire, oh alors la voie du devoir était toute indiquée. Heureux les devoirs difficiles. Macrioi, heureux les devoirs austères. Mais voilà. Mettez-vous un peu à la place de M. Rudler. Je ne dis pas à sa place de maître de conférences. L'État ne le voudrait peut-être pas. Ne riez pas. Il n'y a pas de quoi plaisanter. M. Rudler, notre camarade M. Rudler n'avait pas découvert que notre commun maître M. Lanson n'était pas tout à fait un homme d'un génie extraordinaire ; il avait justement, comme par hasard il avait justement découvert au contraire que notre commun maître M. Lanson était un homme d'un génie extraordinaire. La vérité avant tout. Ingrats qui riez, futiles et frivoles, c'est que vous ne savez pas combien un tel secret pèse. Pour les stoïciens, et M. Rudler est évidemment stoïcien, les devoirs faciles sont évidemment les seuls qui soient difficiles ; il n'y a qu'eux qui comptent, il n'y a qu'eux qui embarrassent ; braver les infortunes ne serait rien ; nous en avons l'habitude ; mais braver les fortunes. M. Rudler n'hésita pourtant point. Il prit son courage à deux mains. Dans
 
-M. RUDLER
-
 un élan de sincérité qui est demeuré célèbre M. Rudler proclama devant l'univers étonné que notre maître M. Lanson est un homme d'un génie extraordinaire.
 
 Aujourd'hui M. Rudler fait à l'École Normale Supérieure un cours, ou des cours, notamment un sur Hugo, que les élèves trouvent généralement mauvais.
@@ -913,15 +882,11 @@ entendu dire à l'École Normale, passant le seuil de la porte, pour entrer : «
 
 De tels mots forment la jeunesse. Nos anciens, nos aînés s'étonnent que nous nous soyons éloignés d'eux, détachés, qu'il y ait entre eux et nous, entre leur génération et la nôtre une coupure la plus profonde peut-
 
-M. RUDLER
-
 être qu'il y ait jamais eu entre deux générations. Des hommes que nous étions le plus portés à respecter, à aimer, que déjà nous respections par provision, que nous aimions d'avance, des hommes à qui nous avions donné notre cœur, des lèvres dont nous attendions des bonnes paroles, des encouragements, des conseils, les légitimes leçons d'une expérience aînée fraternelle nous n'avons jamais entendu tomber que l'injure et l'offense et l'ingratitude et l'aigreur et la dérision et l'envie. Or nous sommes de la race des Français qui ne supportons point l'offense.
 
 Voilà des textes. De telles paroles, de tels propos forment la jeunesse. C'est encore dans ce milieu de l'École Normale, c'est dans ce petit monde qui ne se croit pas rien et qui n'est pas rien que fut prononcée une autre parole mémorable. Elle fut prononcée par un des maîtres de la maison. — « Cette fois-ci, dit-il, nous le tenons, nous aurons sa peau. » — La peau dont il s'agissait n'était point si je puis dire une peau ordinaire. Il ne s'agissait de rien moins que de la peau de Pascal. — Quel Pascal ? — Pascal, quoi ; pas Paschal Grousset, bien sûr ; Blaise Pascal. C'était au seuil de cette petite conjuration, de cette petite cabale qui fut tramée à l'École Normale et dans le milieu de l'École Normale par un nommé Mathieu ou Matthieu pour démontrer que Pascal était le dernier des faussaires et qui n'a pas laissé de traces. Ni la cabale ni Mathieu. M. Lavisse naturellement avait prêté la Revue de Paris pour la perpétration de cet attentat. Quand il vit que cela tournait mal, lâche dans le crime même, il lâcha ses complices et déclara qu'il ne s'était pas aperçu qu'on faisait ça.
 
 Ayant donc fait cette découverte que notre maître M. Lanson était un homme d'un génie extraordinaire, — (plaignons le jeune homme qui est le dépositaire d'un tel secret), — M. Rudler prit sur lui, entreprit de divulguer ce secret et cette découverte. En quels termes nous le savons, et ces termes si je puis dire ont en tant d'échos que M. Rudler lui-même ne les oubliera peut-être jamais plus. Aujourd'hui M. Rudler est à l'École Normale, il enseigne à l'École Normale. Y est-il professeur, professeur-adjoint, chargé de cours, maître de conférences, (professeur) suppléant, chargé d'un cours supplémentaire, ou complémentaire, ou quelque autre titre, c'est ce qu'il ne sera jamais possible de savoir, notre malheureuse École ayant subi de tels bouleversements que le diable n'y reconnaîtrait jamais un suppléant d'un titulaire. Aujourd'hui M. Rudler a découvert que M. Lanson, M. Rudler est entré à l'École Normale. Je ne dis point que ceci soit le résultat de cela. Moi aussi je veux voir dans ce résultat une simple coïncidence. Sous la Troisième République il n'y a point de faveurs. Les avancements ne sont jamais accordés qu'au mérite. Et il n'y a jamais eu une seule exception. Et tout est toujours exactement proportionné au mérite, à la vingtième décimale près. Notamment dans l'Université. Et très notamment dans la Haute Université. Les influences n'ont jamais servi à rien, ni les protections, ni les relations, ni les liaisons, ni les compromissions, ni les alliances, ni le politique et tout le parlementaire. Je suis convaincu qu'un jeune homme qui aurait eu le malheur de découvrir que notre maître M. Lanson n'écrit pas en français aurait eu une aussi belle fortune
-
-M. RUDLER
 
 universitaire que M. Rudler. Il n'y a point de coteries dans l'Université. Notamment dans la Haute Université. Il n'y a point de coterie à la Sorbonne qui fasse les avancements. Par conséquent M. Rudler n'est à l'École Normale que par son seul mérite.
 
@@ -938,8 +903,6 @@ Et Saint-Arnaud la pastourelle!
 
 Tout va bien. Il n'y a pas une crise de la Sorbonne, une question de la Sorbonne. C'est une illusion d'optique. C'est nous qui avons inventé ça, qu'il y a une crise de la Sorbonne, une question de la Sorbonne. Personne ne s'aperçoit qu'il y en ait une. C'est la télégraphie sans fil qui a fait croire qu'il y avait une question de la Sorbonne. Il n'y a point une crise de l'enseignement, de tous les enseignements. Ça ne se voit pas. C'est une invention des méchants. Il n'y a pas une crise de l'Université, des trois ordres d'enseignement. Et même de l'enseignement extérieur. Il n'y a pas une crise, il n'y a pas eu tout un bouleversement de l'École Normale. C'est une paille. C'est un souffle. C'est un rien. Ça passe. C'est la thermo-dynamique qui en est cause. M. Rudler y est. M. Rudler y enseigne. Comment ça irait-il mal. Comment pourrait-il y avoir une crise, quand M. Rudler y est, quand M. Rudler y enseigne. M. Rudler est gai. M. Rudler est content. M. Rudler y est. M. Rudler est heureux. M. Rudler y enseigne. M. Rudler n'est pas geignard. Il n'y a jamais eu une crise de l'École Normale, une question de l'École Normale. Il n'y a pas une crise du latin. Ce sont les journalistes qui ont inventé ça. Il n'y a pas une crise
 
-M. RUDLER
-
 du grec. Il n'y a pas une crise du français. Il n'y a pas une crise de la culture en général. Il n'y a pas une crise de toute la mentalité publique. Il n'y a pas une crise dans les lycées. Il n'y a pas une crise dans les Facultés. Il n'y a pas une crise dans tout le monde universitaire et même dans tout le monde pensant. Comment voulez-vous qu'il y ait une crise, puisque M. Rudler enseigne à l'École Normale Supérieure.
 
 Le Parti Intellectuel, lui, n'est pas geignard. Non, mais il en est venu dans sa soif de domination, dans son besoin de tyrannie à un tel degré de susceptibilité, à un tel point de sursensibilité, — (je ne dis point de suprasensibilité, ce qui prouve que le latin dans le français est encore une belle langue), — que l'on ne peut plus seulement prononcer ce mot, ces trois syllabes, la Sorbonne, sans s'attirer aussitôt de bas en haut des regards obligatoirement circonférentiels. Que si vous ajoutez que vous connaissez M. Massis et que c'est un fort honnête homme, aussitôt on vous regarde, on vous regarde, — ou plutôt on ne vous regarde pas, — comme je n'aimerais pas à être regardé. Il était naturel d'ailleurs que cette affaire, qu'une affaire qui venait du Parti Intellectuel et qui intéressait le Parti Intellectuel finît par des mots tabous. Je connais une maison où l'on ne peut plus aller, parce que si vous dites par exemple : Il y a un fiacre qui remonte la rue de la Sorbonne, à ce seul nom, à ce seul mot de Sorbonne tout le monde vousse les épaules et regarde obstinément dans le fond de son verre. Je veux dire, dans le fond de sa tasse.
@@ -949,8 +912,6 @@ Le Parti Intellectuel est comme tous les pouvoirs absolus, quand les prend l'esp
 C'est l'événement de toutes les tyrannies.
 
 Ce sera évidemment plus tard aussi une grande question dans l'histoire des littératures que de savoir si ce Pons je ne sais plus comment, Pons Daumelas aussi existe ou si ce ne serait pas un pseudonyme de notre M. Rudler. Il y a du pour et du contre. Les balances des méthodes scientifiques hésitent, fléchissent en des oscillations d'une ténuité merveilleuse. Les deux thèses se balancent avec des rallonements de volupté. (Toujours les voluptés sourdes de M. Rudler, si j'ai bonne mémoire). Ce qui me ferait croire que cet article, fort bas, ne serait pas de M. Rudler, c'est qu'il est tout de même écrit en un certain français auquel M. Rudler n'atteint pas. Mais ce qui me ferait croire que c'est un pseudonyme, et non pas un onyme tout court ni même un préonyme, c'est que c'est un nom si évidemment forgé. Faisons appel, mes enfants, non plus à nos vieux instincts, ni à notre goût, ils sont passés de règne, mais à ces règles subtiles que nos maîtres ont instaurées parmi nous, Pons Domelas, Ponce Daumelas, je ne sais
-
-M. RUDLER
 
 pas si vous êtes comme moi, c'est un nom qui sent la forgerie. On ne me fera jamais croire qu'un vrai homme s'appelle comme ça. C'est un nom fabriqué, un nom bissecteur, un nom si évidemment composé, juste au milieu, Pons Daumelas on voit tout de suite que c'est un petit compromis mitigé entre le célèbre Ponce Pilate et le presque aussi célèbre Domela Nieuwenhuis.
 
@@ -962,13 +923,9 @@ tion sur ce numéro, j'ignorais toute ma vie cette phrase extraordinaire, Scarla
 
 Frappé de mon indignité, et de voir que je ne savais pas le français, et que c'était le cousin Pons qui le savait, mais nullement entêté, il faut me rendre cette justice, je me mis incontinent en devoir de l'apprendre, — (pas le Pons, le français), — dans cette Revue qui m'enseignait si gentiment que je ne le savais pas. J'avoue que j'allai de surprise en surprise. Si le cousin Médicis n'avait point attiré mon attention sur ce numéro, j'étais frustré de grands enseignements. Le cousin Pons est évidemment du pays de M. Combes. Il y a longtemps que je soupçonnais cette Revue Critique des Livres Nouveaux d'être un organe, si je puis dire, combiste. Cette Revue porte des enseignements jusque sur sa couverture. Ainsi on y voit, sur sa couverture, que le cousin Rudler y est représenté comme Docteur ès lettres et comme Professeur au Lycée Louis le Grand. Il n'y est pas représenté comme exerçant quelque domination à l'École Normale Supérieure. Serait-ce une erreur de mes sens abusés, que notre camarade fait un cours à l'École Normale Supérieure, et des mauvaises leçons sur Hugo. Mais ouvrons la revue du cousin Pamela. La première leçon que j'y prends est une assez bonne leçon de classement. Tout peu cousin que je sois, je distingue assez rapidement que ce que c'est que cette Revue. C'est une Revue cousine. Je veux dire entre cou-
 
-M. RUDLER
-
 sins. C'est d'abord, et excellemment, c'est au premier degré une revue où ceux qui ne font rien disent du mal de ceux qui font quelque chose. Mais si par malheur, — (ou par erreur), — un de ceux qui ne font rien a eu le malheur de faire quelque chose, alors un autre de ceux qui ne font rien est délégué à dire de celui qui par malheur a fait quelque chose un bien dont sur un exemple on va avoir une légère idée. Ainsi la Revue devient au deuxième degré une Revue d'encensement mutuel. Mon Dieu ce n'est pas la première fois que ça se voit. En un mot il y a pour ces gens-là ceux qui sont de la Revue, et ceux qui ne sont pas de la Revue. Le cousin Pénélope est de la Revue, et moi Péguy on se rend compte assez rapidement que je ne suis pas de la Revue. Car chaque numéro de la Revue, si j'en crois la dernière page de la couverture, est divisé en trois parties : 1° étude sur un ouvrage récent, ou sur un ensemble de publications récentes de premier ordre ou d'actualité ; 2° comptes rendus ordinaires ; 3° livres annoncés sommairement. « On pense bien que je suis dans les comptes rendus ordinaires. On n'aurait bien mis dans les livres annoncés sommairement, mais on n'aurait pas en la place pour m'éreinter. Il fallait deux pages et neuf lignes au cousin Babylas. Le livre hors ligne, ou pour parler exactement le livre de premier ordre d'aujourd'hui est le tome III de l'Histoire de la langue française, des origines à 1900, de notre maître M. Brunot (attention, attention, il faut dire ici notre maître et ne pas aller dire notre cousin M. Brunot, le roi n'est pas son cousin). (Et je ne me fierais qu'à demi à sa jovialité). C'est donc le tome III de
 
 M. Brunot qui est l'ouvrage récent ou d'actualité. On pouvait tomber beaucoup plus mal. Je n'ai aucune compétence dans l'Histoire de la langue française, mais en attendant que j'y aie acquis quelque compétence, ce qui ne saurait tarder, je suis plein de respect pour notre maître M. Brunot, j'ai pour les travaux de M. Brunot, moi écrivain, tout le respect qu'un soldat qui a fait la guerre a pour un historien des poudres et salpêtres, qui ne l'a pas faite, tout le respect qu'un peintre, qui a fait des tableaux, a pour un historien de la boîte à couleurs, qui n'en a point fait. Mais en attendant que j'aie acquis quelque compétence dans l'Histoire de la langue française je dois à M. Brunot par ce numéro même un bon enseignement. Car c'est un cousin nommé Sudre ou si vous voulez c'est un nommé le cousin Sudre qui fut chargé, ou qui se chargea de présenter le livre de M. Brunot. Vous dites, monsieur Reinach, ou enfin vous me direz que vous avez des jeunes gens avec vous, que le Parti Intellectuel a des jeunes gens avec lui. Voyez quels sont vos jeunes gens. Écoutez, puisque aussi bien vos collaboreurs, vous aussi, à cette Revue, et que votre nom est dans le petit rectangle de la couverture, dans le petit cartel de tête, écoutez, instruisez-vous avec moi, écoutez, apprenons comment et jusqu'où ces jeunes gens-là, les vôtres, poussent l'art de la flagornerie, écoutez en quels termes ils parlent d'un patron. On se croirait aux meilleurs jours de la Faculté de Médecine. Le cousin Sudre dit tout le bien qu'il pense du livre du patron. Il en a le droit et ce n'est pas là que commence la flagornerie littéraire. Et universitaire. Mais quand il a fini le cousin Sudre se dit : C'est pas tout ça. Est-ce que le patron va
-
-M. RUDLER
 
 être content. Il fait cette injure au patron, que nous ne lui ferions pas, de supposer que le patron aime la louange. Et alors le cousin Sudre se lance dans un lyrisme qui n'est pas de Château-Thierry. (M. le Grix avait bien raison de nous annoncer une renaissance du lyrisme en France). Écoutons un peu. Notez que c'est après la fin de son article. Son article est fini quand il commence :
 
@@ -980,13 +937,9 @@ gymnastique aux agrès avait été remplacée dans les écoles par la gymnastiqu
 
 Nous savions tous le degré de haute perfection qu'atteint la phrase du professeur de français qu'on vous a parlé. Il y avait aussi une phrase de Patin qui était célèbre quand nous étions au lycée. L'une et l'autre ne sont plus rien depuis cette phrase que je vois. Elle est dans les comptes rendus ordinaires. Il faut passer pour la trouver par dessus le compte rendu « ordinaire » que m'a réservé le cousin Péloponèse. Après trois ou quatre comptes rendus on arrive à la phrase suivante. Je préviens que malgré le jeu des premières métaphores, il ne s'agit point dans cette Revue Critique de géographie marine ni d'un traité d'obstétrique. Il s'agit d'un livre d'un certain Cazamian sur l'Angleterre moderne. Voici la phrase : « Il a essayé, et réussi, la synthèse de l'âme et de l'histoire anglaises depuis cent ans. Non plus l'une de ces synthèses psychologiques à la manière de Taine et de son école, qui ne sont que des portraits classiques agrandis à la taille des peuples, mais une synthèse historique, dans laquelle une connaissance étendue des faits en soutient et en nourrit l'interprétation. » Voici le beau de la phrase, et les métaphores : « Il a évité les principaux écueils de sa conception. Sous le schéma
 
-M. RUDLER
-
 philosophique il est aisé même à des lecteurs moyennement au fait des choses anglaises, de replacer le drame, avec ses angoisses. Mais le schéma lui-même ne crée point de rigidité. L'auteur ne fige pas la vie dans des constructions systématiques. Partout il donne à entendre qu'il n'existe point de tendances pures, sans mélange de tendances contraires, et qu'un peuple ne peut pas se jeter tout entier du côté de l'une ou de l'autre adaptation. Grâce à la variété nuancée et heureuse de ses formules, il a dégagé les dominantes, mais respecté la complexité profonde des choses. Aussi, quand on discuterait avec lui sur des dosages de réflexion et de raison, ou même sur le rattachement de telle ou telle tendance à l'une ou à l'autre des adaptations, on n'ébranlerait ni l'ensemble de sa construction ni son idée générale, parfaitement légitime quoiqu'appliquée rétrospectivement au siècle passé. »
 
 Eh bien voilà, j'ai honte à le dire parce que c'est tellement extraordinaire qu'on ne va pas me croire : Voilà : L'homme qui écrit ça enseigne le français à l'École Normale Supérieure. Cette phrase est de Rudler lui-même.
-
-Charles Péguy
 
 ... « parfaitement légitime quoiqu'appliquée rétrospectivement au siècle passé. » Et si on l'appliquait rétrospectivement au siècle futur, mon cher camarade, est-ce qu'elle serait encore parfaitement légitime, son
 
@@ -1000,15 +953,11 @@ On me dit : Ne vous excitez pas. Ce Rudler est un médiocre. Il ne porte ombrage
 
 Je sais bien que c'est leur théorie, (et encore plus leur pratique, certes), qu'on n'a pas besoin de savoir écrire pour s'occuper des écrivains et des écritures, (et ils
 
-M. RUDLER
-
 ne s'en privent pas, de ne pas savoir écrire), peut-être au contraire, (ils en abusent un peu de ce contraire), qu'il vaut même mieux ne pas savoir écrire pour s'occuper des écrivains et des écritures, (on est moins partial, sans doute), pour faire l'histoire des écrivains et des écritures. Mais notre thèse à nous écrivains est que nous avons sur les œuvres et sur les vies et dans les œuvres et dans les vies de nos modèles et de nos maîtres des intelligences profondes que les non écrivains n'y ont pas. Il y aura toujours ceux qui sont du métier et ceux qui n'en sont pas. Notre thèse à nous écrivains est que nous avons sur les œuvres et sur les vies et dans les œuvres et dans les vies de nos anciens et de nos pères, de nos modèles et de nos maîtres des intelligences profondes. Je dis qu'un Tharaud, parce que Tharaud est écrivain, parce que Tharaud est romancier, parce que Tharaud vient de faire la Maîtresse Servante, je dis qu'un Tharaud, quand il ouvre seulement un roman de Flaubert, un roman de Maupassant, y a, y trouve, (sans chercher), y reçoit des intelligences instantanées qu'un Rudler ne recevra jamais, qui d'ailleurs ne se trouvent point, ne s'obtiennent point. Et par contre notre thèse est qu'il y a une certaine incapacité d'écrire, une sorte de certaine malpropreté d'écriture qui dé(ha)bilite un homme pour les hommes et pour les œuvres de l'écriture. Que ça ne trompe pas, que c'est incurable, et qu'un homme qui a une fois commis une phrase comme cette phrase de M. Rudler, un vers de Racine ou un vers de Ronsard ne lui sonnera jamais dans la tête. Après ça il peut avoir deux cent cinquante et une mille fiches. Nous nous en foutons, de
 
 ses fiches. Nous en avons assez de ces petits dominateurs qui prétendent faire l'histoire d'une réalité sans entendre à cette réalité. L'homme qui se joue dans ses métaphores comme un tardigrade, l'homme qui est tardigrade restera tardigrade.
 
 Même jour, le soir. — Je me rends bien compte de tout ce qu'il y a de bas à relever toutes ces bassesses, et la haine et l'envie et l'ordure et la honte. Ce n'est pas sans une tristesse elle-même incurable et sans une amertume, ce n'est pas sans un serrement de cœur, sans une angoisse, sans un discrédit et une déconsidération de soi, sans un sentiment d'un avilissement à ses propres yeux qu'on engage la conversation avec ces gens. On a le sentiment d'une grande diminution. On n'a jamais la connaissance, d'avance, de l'épreuve. On ne prévoit jamais comme sera, quelle sera l'épreuve. Je croyais avoir l'expérience de la vie. Je croyais que ma procession pourrait se dérouler sans avanie ; qu'elle pourrait se dérouler innocemment devant un public innocent ; innocemment comme elle était conçue ; innocente devant un public innocent, pure devant un public pur. Je me trompais. Mais quand quelques mauvais garnements viennent publiquement faire des incongruités, il faut bien faire avancer quelques pertiiisaniers. J'ai fait avancer quelques pertiiisaniers. Si l'on m'en demande, j'en ferai avancer d'autres, tant qu'il en faudra. Je ferai tous les métiers, tant qu'il en faudra. Si on salit la rue, je me ferai balayeur de la rue,
-
-M. RUDLER
 
 afin que les pieds purs, afin que les pieds propres ne se salissent point.
 
@@ -1026,13 +975,9 @@ J'étais assez ridicule en effet quand parut le premier cahier de la première s
 
 Le calcul du Parti Intellectuel était double, était à double révolution. On montait cette cabale au développement de laquelle nous assistons depuis bientôt un an. Et alors de deux choses l'une. Ou bien je ne répondais pas et on espérait nous écraser sous cette cabale. Ou bien je répondais, je perdais mon temps à répondre, je ne travaillais pas, et la deuxième Jeanne d'Arc ne paraissait pas tout de même. Ce double calcul est don-
 
-M. RUDLER
-
 blement déjoué. Je réponds. Et il faut espérer que la deuxième Jeanne d'Arc paraîtra tout de même. Ils n'ont pas évité les principaux écueils de leur conception.
 
 M. Laudet non plus n'a point évité les principaux écueils de sa conception. Il y a en effet un point, il faut qu'il y ait un point qui soit bien acquis, c'est un point de méthode, c'est que je sais beaucoup trop bien mon métier d'homme d'action pour me laisser embarquiner jamais, embarquiner à la signature de quelque compare. Ce n'est pas la première fois que je suis l'objet d'un guet-apens. Je commence à savoir. C'est une des premières leçons que j'ai reçue de notre maître M. Sorel il y a douze quinze ans, du temps que je commençais mon deuxième apprentissage, (le seul qui compte, l'apprentissage de la méchanceté des autres), et le Parti Intellectuel se chargeait de me dresser. Il faut lui rendre cette justice, (au Parti Intellectuel) que d'ailleurs il ne le faisait pas gratuitement. Si vous voulez travailler tranquille, me disait M. Sorel, (on pense que je voulais travailler tranquille), quand vous voyez, quand vous sentez qu'on vous monte un coup, une cabale, tous ces gens-là sont généralement pleutres et sournois, ne lanternez pas ; ne vous laissez pas lanterner ; dans une revue ; ne vous laissez pas arrêter à celui qui signe l'article. Vous comprenez. Si on lui fait signer l'article, à celui-là, c'est justement parce que l'on pense qu'ayant moins de volume il est le moins vulnérable. Allez droit à la tête, à l'auteur de la
-
-CAHIERS DE LA QUINZAINE
 
 cabale, au directeur de la revue, et descendez-le. Après on vous laissera la paix.
 
@@ -1040,23 +985,17 @@ J'ai constamment appliqué cette méthode et je m'en suis toujours trouvé bien.
 
 Qu'on nous laisse la paix, c'est tout ce que nous demandons. Qu'on nous laisse tranquilles. Qu'on nous laisse travailler. Mais si on nous dérange, au moins nous ferons qu'on ne nous aura pas dérangés pour rien. J'ai suivi cette méthode il y a dix ans et nous y avons gagné dix ans de paix. Puisqu'on m'a dérangé cette année, je suivrai cette méthode de telle sorte que nous y gagnerons dix nouvelles années de paix. Je veux un nouveau décennat. Je suis modeste. Je l'aurai. Ce qui perd M. Laudet, c'est qu'il est trop jeune. Je veux dire trop nouveau venu dans les lettres. S'il savait les précédents, s'il avait connu les histoires d'il y a dix ans, il est probable qu'il aurait cherché une victime
 
-M. RUDLER
-
 un peu moins récalcitrante. Je sais bien qu'aujourd'hui M. Laudet aimerait mieux que tout ceci n'eût pas eu lieu. Mais puisqu'il m'a dérangé je puis lui assurer, — (ou l'assurer), — qu'il ne m'aura pas dérangé pour rien.
 
 C'est cette méthode que j'ai appliquée il y a dix ans. C'est cette méthode que j'ai constamment tenue prête. C'est cette méthode que j'appliquerai cette année. Je ne connais que les têtes. Je ne connais pas Ménélas. Ni Pénélope. Je connais Rudler et je ne connais que Rudler. Et s'il est nécessaire j'irai plus haut que Rudler encore, j'atteindrai plus haut, j'irai jusqu'à quelque tête de communard. Je monte toujours. Je ne descends jamais. Je ne connais pas M. le Grix. Quand même on me ferait déjeuner vingt-sept fois avec lui, je ne le connais pas, je ne veux pas le connaître. Je connais M. Laudet. Je ne connais que M. Laudet. Je ne veux connaître que M. Laudet. Autrement ce serait trop commode. Si M. le Grix réclame son droit à l'existence et tout ce qui s'ensuit, il passera deuxième. Il se mettra derrière son patron.
 
 Comme M. Sorel me l'a dit quand j'étais jeune, ainsi je me retourne et je le dis à mon tour à tout jeune homme qui voudrait fonder une institution, une entreprise, une maison, une œuvre et qui naturellement serait aussitôt assailli de cabales démagogiques. Frapper à la tête. Ce n'est pas tout à fait le mot de
 
-UN NOUVEAU THÉOLOGIEN
-
 César. Frapper au visage. — Non : feri vultum ; sed : feri caput. Frapper à la tête. Et alors ne pas y aller de main morte. Ne pas se battre pour la frime. Toute cette vigueur que ces jeunes gens déploient pour l'encensement, la déployer pour l'enfoncement. Tout ce courage qu'un Sudre déploie pour manœuvrer l'encensoir sur le nez de M. Brunot, le déployer pour casser sur les mêmes sortes de nez d'autres sortes d'encensoirs. (Ce qui rend tout à fait comique l'opération dudit Sudre, c'est que quand M. Brunot est conduit à parler dudit, il ne manque jamais de le juger ainsi : Ah oui, dit-il, Sudre, c'est encore un de ces nécrophages. (Enfin un de ces insectes qui vivent de cadavres). — Et pendant ce temps le Sudre tremblant se dit : Est-ce qu'au moins le patron trouvera que je lui ai fait assez de compliments dans mon papier.
 
 Non que je ne distingue entre les deux agressions que nous avons à repousser simultanément. Quand le Parti Intellectuel nous attaque avec cette violence, et cette mauvaise foi, et cet acharnement, il fait son devoir pour ainsi dire, il fait son métier, il fait son office. Il reste fidèle à son caractère propre. Il reprend une lutte qui date de plus de dix ans, un nouveau siège de Troie, plus long que le siège de Troie, une lutte plus que décennale, une lutte qu'il perd depuis plus de dix ans. C'est son affaire. Nous sommes à ses ordres.
 
 Mais quand M. Laudet, quand la Revue hebdomadaire choisit pour se jeter sur nous exactement le même
-
-M. FERNAND LAUDET
 
 temps que d'autre part le Parti Intellectuel prend pour se jeter sur nous, j'ai le droit, j'ai le devoir de dire que cette coïncidence est extrêmement suspecte.
 
@@ -1066,8 +1005,6 @@ Je dirais que ma méthode est celle qui fait sortir le loup du bois, si le loup 
 
 § 264. — Enfin j'ai quelqu'un devant moi. — « Le Bulletin des Professeurs catholiques de l'Université, écrit M. Laudet, du 20 juillet 1911, qui paraît à Coutances et qui, de son aveu, a 190 abonnés, parmi lesquels trente-trois abonnés fermes n'ont pas encore acquitté leur abonnement,... » — M. Laudet s'amuse beaucoup de ce Bulletin qui paraît à Coutances, qui de son aveu a 190 abonnés, parmi lesquels trente-trois abonnés fermes n'ont pas encore acquitté leur abonnement. Ceci est à la page 271. Il y revient à la page 273 : « d'autre part Péguy n'en est pas réduit à ne trouver d'hospitalité pour sa prose qu'à Coutances dans le Bulletin des Professeurs catholiques de l'Université qui a 190 abonnés, parmi lesquels 33 abonnés fermes n'ont pas encore acquitté leur abonnement. » Ce
 
-UN NOUVEAU THÉOLOGIEN
-
 doublon ne lui suffit pas. Il raille. Il jubile. Il est comme Rudler. Lui non plus il n'est pas un geignard. Il est façonné d'autre sorte. Il recommence à la 278 : « Le journal qui a publié cette pauvre lettre littéraire, c'est-à-dire le Bulletin des Professeurs catholiques de l'Université, qui n'a que 190 abonnés fermes dont 33 n'ont pas encore acquitté leur abonnement,... » On sent qu'il y tient. Il est fasciné par ces 190 abonnés dont 33. Ce n'est pas un homme qui fait deux fois la même plaisanterie. Il ne la fait que trois fois. Il n'est pas comme moi. Il n'est pas lourd dans ses plaisanteries.
 
 Les abonnés du Bulletin, (les 190 abonnés, moi aussi), savent que Lotte se fait un devoir, (ne se considérant que comme un simple gérant), de rendre compte régulièrement à ses abonnés de la situation du Bulletin. Je pense qu'il le fait régulièrement dans tous ses numéros. En tout cas il l'a fait dans son numéro 7, du 20 juillet 1911. Il devait d'autant plus le faire dans ce numéro que ce numéro 7, du 20 juillet 1911 était le dernier numéro de son année scolaire, le numéro qui fermait son année avant son départ en vacances. Il doit suivre mon communiqué d'une correspondance, comme il le fallait pour mettre à jour le courrier du journal, et d'une note de gérance. Je lis dans cette note de gérance, sous la signature E.-J. L., qui pour tout Coutances veut dire Joseph Lotte, les lignes suivantes :
@@ -1076,27 +1013,15 @@ Les abonnés du Bulletin, (les 190 abonnés, moi aussi), savent que Lotte se fai
 
 Abonnés fermes : 190 (parmi lesquels Mgr. l'Archevêque d'Avignon et Mgr. l'Évêque d'Évreux).
 
-M. FERNAND LAUDET
-
-Abonnés possibles : 611.
-
-Recettes globales : 1,002 fr. 45.
-
 Dépenses globales : 1,211 fr. 10 (y compris bien entendu les frais d'établissement et d'envoi de ce numéro exceptionnel).
 
 N. B. — 33 abonnés fermes des premiers mois n'ont pas encore acquitté leur abonnement. Qu'ils se libèrent dès octobre.
 
-E.-J. L. »
-
 C'est cette note de gérance qui a eu le don de mettre en joie notre cousin Laudet. Au moment même où les pataquès de notre cousin le Grix commençaient à l'inquiéter, cette note de gérance l'a soudain rasséréné. Elle a eu la vertu de le rasséréner. Ces abonnés fermes et ces abonnés possibles, ces 190 et ces 611, et ces 33, ces nombres fatidiques, et ces recettes globales, — (petit globe), — et ces dépenses globales, ces misérables recettes et ces misérables dépenses, tout cela a paru du dernier ridicule à M. Laudet. Jusqu'à cette phrase qu'il y a dans le paragraphe précédent, cette attention pour les abonnés pauvres. Il faut voir comme le gaillard s'ébaudit. Il est gai s'est content, monsieur Laudet. Son toit s'égaye et rit de mille odeurs divines. Il faut voir comme il se fiche de ces 190 abonnés fermes, (il est vrai qu'en se fichant de ces 190 abonnés fermes dans la parenthèse il se fiche aussi, dedans, de Mgr. l'Archevêque d'Avignon et de Mgr. l'Évêque d'Évreux, qui y sont inclus, mais il ne s'en aperçoit pas, il est tout à la joie).
-
-UN NOUVEAU THÉOLOGIEN
 
 C'est ce Lotte surtout qui lui paraît un imbécile. Comment, voilà un garçon qui a un Bulletin catholique, qui écrit pour des catholiques et il n'a pas encore su en soutirer des rentes. Il entend que son Bulletin pour ainsi dire mène littéralement une vie chrétienne. Catholique il a, il gère gratuitement un Bulletin chrétien, un Bulletin pauvre. Quel scandale pour M. Laudet. Et lui-même, Lotte, ayant, gérant ce Bulletin il fait tranquillement sa classe au lycée, il enseigne aux jeunes citoyens le latin, le français, peut-être le grec, il continue, il fait son métier, il fait tranquillement sa classe de sixième ou de cinquième au lycée, à moins que ce ne soit sa classe de quatrième, enfin sa classe de grammaire. Comme on sent que M. Laudet méprise un pareil imbécile.
 
 1,002 fr. 45 — 1,211 fr. 10. — Évidemment quand on est M. Laudet, quand on a vingt mille, trente mille, quarante mille abonnés, (on ne sait jamais avec les Revues, excepté avec le Bulletin de Lotte et les Cahiers de la Quinzaine et quelques autres petites Revues), vingt, trente, quarante mille abonnés à vingt et trente francs et non plus à six francs, quand on est une grosse puissance sociale, quand on a donc un budget de quatre ou cinq cent mille francs, et qui passe peut-être le million, quand on a un gros volume social, comment ne pas mépriser ce budget d'un millier de francs. M. Laudet est convaincu que nous allons jouer le pot de terre contre lui qui va jouer le pot de fer. Cela se fait rire. Il a raison de connaître La Fontaine. Ça peut beaucoup servir. Mais il n'y a pas seulement La Fontaine et ses fables. Il y a une vieille histoire
-
-M. FERNAND LAUDET
 
 dans une tout autre sorte de fabuliste. (Et encore peut-être pas tout à fait si autre que cela, puisque ce La Fontaine était fanatique d'un de ces anciens). M. Laudet la connaît peut-être. Il la cherchera au livre des Rois, livre I, chapitre XVII, verset 4, (on les a mis en versets) :
 
@@ -1112,8 +1037,6 @@ M. Laudet connaît la suite. M. Laudet connaît la fin. M. Laudet fera bien de s
 
 Pendant que nous y sommes et que M. Laudet exerce son mépris de gros volume, je lui demande instamment de me comprendre dans ce mépris où il enferme Lotte. On ne saurait être en meilleure compagnie. Et de comprendre les cahiers dans ce mépris où il enferme le
 
-UN NOUVEAU THÉOLOGIEN
-
 Bulletin. Car les cahiers sont, dans leur genre, une revue aussi pauvre, peut-être plus pauvre que le Bulletin. Cette année autant que jamais, monsieur Laudet, les cahiers oscillent de neuf cents à onze cents abonnements.
 
 § 265. — Puisque M. Laudet veut absolument assurer l'existence à M. le Grix, j'y consens. M. le Grix n'y gagnera peut-être pas. M. Laudet non plus. Dans ce système et sans rien engager du fond du débat nous nommerons pour le bon ordre article de M. le Grix celui auquel répond le communiqué et article de M. Laudet celui auquel je réponds en ce moment même.
@@ -1122,17 +1045,11 @@ Bulletin. Car les cahiers sont, dans leur genre, une revue aussi pauvre, peut-ê
 
 M. Laudet sait très bien qu'il ne s'agit aucunement, dans tout ce débat, de la liberté de la critique. La liberté de la critique n'est pas en cause. Quand même je le voudrais, je ne vois pas bien comment je m'y prendrais pour empêcher M. le Grix d'écrire chez M. Laudet. Seulement si la liberté de la critique joue pour M. le Grix et pour M. Laudet elle joue également pour moi. M. Laudet et M. le Grix ont tous le droit de critiquer mes textes. Mais ensuite, quand ils ont fini, ou quand ils en ont fini de commencer, ou quand ils ont fini de commencer, j'ai bien le droit, à mon tour, de considérer, de traiter leur critique comme un texte et de la critiquer. Il n'y a pas de privilège de critique. M. Laudet et M. le
 
-M. FERNAND LAUDET
-
 Grix ne peuvent pas m'empêcher de me faire critique. Je ne les empêche pas de se faire écrivains. Qu'est-ce que ça veut dire, la liberté de la critique. Je crois que nous sommes libres, de nous critiquer. Quand même je le voudrais, la liberté de la critique est hors de mon atteinte.
 
 § 266. — Avec sa liberté de la critique M. Laudet détourne le débat. Ou enfin essaye de le détourner. Je ramènerai M. Laudet. J'ai accusé, j'accuse M. Laudet de tenter d'opérer un détournement des consciences fidèles. C'est clair, (comme disait l'autre). M. Laudet ne peut pas me demander de refaire ici et perpétuellement mon communiqué. Qu'il apprenne à lire un texte. Je ne puis que confirmer ici, en beaucoup moins bons termes, ce que j'ai mis, ce que j'ai prouvé tout au long de mon communiqué : M. Laudet veut opérer un détournement des consciences fidèles. Il faut, il veut faire littéralement une prévarication, un abus de confiance spirituel qui dans sa pensée peut avoir, doit avoir pour lui d'heureuses conséquences matérielles. Je me résume. M. Laudet veut tenter l'opération suivante, apparemment spirituelle, réellement temporelle, si je puis dire, en un certain sens propre de ce mot temporel. M. Laudet a beaucoup d'abonnements, — (est-ce de la « diffamation », monsieur Laudet). — M. Laudet a une grosse clientèle bourgeoise. Plutôt libérale, comme on dit, c'est-à-dire généralement plutôt voltairienne, renanienne par les côtés inférieurs de Renan, enfin inchrétienne. Je n'y vois pour ma part aucune sorte d'inconvénient. Il faut qu'il y ait des Revues pour tout le monde et ce
 
-UN NOUVEAU THÉOLOGIEN
-
 n'est certainement pas moi qui dirai le contraire. Il faut que tout le monde gagne sa vie. En travaillant. Il faut que tout le monde vive. Sera-ce diffamer, monsieur Laudet, sera-ce commettre une « diffamation » que d'avancer qu'il faut que M. Laudet vive ; et avec lui et derrière lui qu'il faut que la Revue Hebdomadaire vive. M. Laudet voudrait accroître son fonds de commerce. Je ne vois aucun mal à cela. Moi aussi je voudrais bien accroître le mien. J'ai trop le respect du commerce, et de l'industrie, et de l'agriculture, pour trouver à redire à ce que M. Laudet veuille étendre ses affaires. Il voudrait bien doubler sa clientèle. A sa clientèle actuelle, à sa grosse clientèle bourgeoise dite libérale, voltairienne, renanienne par les bas-côtés, — (je n'écris pas par les bas côtés), — combiste enfin et plus ou moins inchrétienne et antichrétienne il voudrait bien s'adjoindre une grosse clientèle bourgeoise chrétienne, — (autant que ces mots peuvent aller ensemble, c'est-à-dire, j'en conviens, très peu ou pas du tout je l'avoue). — C'est ici que l'opération se gâte. Car les positions sont prises de telle sorte, et pour l'éternité, qu'il ne peut y arriver qu'en trompant, — (en essayant de tromper), — les uns et les autres. C'est ce que j'ai dit, c'est ce que je maintiens, c'est ce que j'ai mis, c'est ce que j'ai prouvé tout au long de mon communiqué. M. Laudet ne peut pas me demander de refaire indéfiniment mon communiqué. M. Laudet a beau faire. Il n'est point le maître des situations. Son intention est louable, commercialement. — (Elle le serait peut-être moins moralement et en philosophie). — Mais il ne peut pas contenter les deux clientèles. Il ne peut songer à vouloir cumuler les deux
-
-M. FERNAND LAUDET
 
 clientèles qu'en ayant l'intention de tromper l'une et l'autre. Aux rationalistes, — (comme ils se nomment), — il n'offrira jamais qu'une raison frelatée. Aux chrétiens, — (on vient de le voir), — il n'offrira jamais qu'une foi frelatée.
 
@@ -1140,13 +1057,9 @@ Que M. Laudet le veuille ou non, le monde et la réalité ne se met point encore
 
 J'ajoute aussitôt que ceux qui seront toujours les plus trahis, dans cette combinaison, dans toute combinaison de cette nature et de ce modèle, ce seront toujours les catholiques. On l'a vu amplement par cet article de M. le Grix. D'abord c'est leur habitude. Ensuite c'est une sorte de loi. Quand on fait de ces falsifications et de ces sophistications de denrées alimentaires, quand on fait de ces mélanges et, comme disent nos typos, de ces mastics de publics, ce sont toujours les cœurs fidèles qui sont contaminés, ce sont toujours les cœurs fidèles qui sont lésés, qui reçoivent une atteinte. L'impur tache toujours le pur, le pur, hélas, ne purifie point l'impur. On l'a bien vu par cet article de M. le Grix, où l'opération n'a point consisté à faire croire aux amis de M. Anatole France que la Jeanne d'Arc des Procès, que la Jeanne d'Arc de notre populaire Histoire de France, que la
 
-UN NOUVEAU THÉOLOGIEN
-
 surnaturelle Jeanne d'Arc, enfin, que sainte Jeanne d'Arc était historique, mais où naturellement elle a consisté au contraire à vouloir faire croire aux chrétiens que la Vie de Jeanne d'Arc, de M. Anatole France, était une pieuse et laïque exégèse.
 
 Je ne puis que m'en tenir à la position que j'ai exposée dans le communiqué et qui sur ce point a toujours été la mienne. Je ne puis que confirmer ce que j'ai posé, et en beaucoup meilleurs termes, dans le communiqué. Le commencement, ou plutôt l'avant-commencement de toute conversation, de tout propos, de toute guerre, — (qu'il y a une première et une deuxième loyauté de la guerre), — de toute entrée en matière même, de toute alliance, de toute amitié, de toute paix, c'est d'abord que d'abord chacun soit ce qu'il est, loyalement, sincèrement, clairement, sérieusement ; que chacun soit proprement ce qu'il est. L'être. Et le plus profondément qu'il le peut. Alors on peut causer. Alors on peut voir. Alors on peut être. Alors, mais alors seulement. Celui qui fait des brouillages, des contaminations et des mastics, des micmacs et des chevauchements, celui qui rompt les parenthèses n'est pas criminel seulement envers ceux qu'il contamine ou fait contaminer. Il est criminel envers tout le monde parce qu'il est criminel envers tout le système. Il blesse tout le système. Il empêche le propos même, la conversation, la guerre, la paix, l'existence, l'être, tout. Il frelate pas seulement ceux qu'il frelate. Il frelate ensemble les amis et les ennemis de ceux qu'il frelate et les tiers de ceux qu'il frelate et ensemble les témoins et ensemble tous les autres. Tout.
-
-M. FERNAND LAUDET
 
 § 267. — Ce grief me paraît infiniment grave et M. Laudet a peut-être tort de regretter que sur cette matière j'aie fait un communiqué. Ce communiqué au contraire l'a sauvé de quelques vivacités que j'eusse certainement laissé passer dans un article ordinaire. Ce grief, ce premier crimen, ce premier chef d'accusation est selon moi tellement grave que ce que je veux dire à présent n'a plus qu'une importance évidemment secondaire, n'est plus qu'une trahison du deuxième plan. D'autant que j'en suis plus particulièrement la victime et qu'une simple décence m'interdit de trop y insister.
 
@@ -1154,17 +1067,11 @@ Voici ce que je vais dire. Il y a une première duplicité, une première trahis
 
 Que M. Laudet ne fasse pas l'ignorant. Qu'il ne se fasse pas plus ignorant que nous ne sommes. M. Laudet sait fort bien que l'année qui vient de finir s'achevait sur une bataille acharnée entre le Parti Intellectuel et le reste de la nation. Que ces vacances ne sont qu'une courte trêve. Que l'année qui va s'ouvrir est déjà toute chande d'avance. Qu'elle n'attend que de s'ouvrir. Qu'elle ne demande qu'à s'ouvrir. Que dès son principe, dès son début nous allons assister, je veux dire que j'espère bien que nous allons participer à la re-
 
-UN NOUVEAU THÉOLOGIEN
-
 prise, au recommencement de cette lutte acharnée, à peine interrompue. Qu'on a rarement vu autant d'acharnement, autant de passion, autant de violence, autant de ressentiment, autant de haine, — (ce qui est malheureusement généralement bon signe), — autant d'amour. Spirituel. Qu'une fois de plus la France montre qu'elle est le grand pays, le terrain né des batailles spirituelles, des haines spirituelles, des révolutions spirituelles. Que porté en particulier sur la question du latin, et sur la question du français, — (et sur la question du grec), — ce grand débat porte très profondément sur toute la culture, à une profondeur la plus profonde, et que c'est la culture même qui est en cause, comme aux heures les plus graves des dangers d'écrasement de la culture par la barbarie.
 
 D'autre part que M. Laudet ne fasse pas l'ignorant. Qu'il ne se fasse pas plus ignorant que nous ne sommes. D'autre part M. Laudet sait très bien qu'à tort ou à raison les Cahiers de la Quinzaine et moi sommes ou si l'on veut sont ce qui est le plus en butte aux attaques, aux violences, aux perfidies, aux offenses, aux campagnes, aux cabales, aux ignominies, à tous les coups du Parti Intellectuel. Dans ce grand débat qui met d'un côté le Parti Intellectuel conjuré pour la domination spirituelle et ensemble temporelle de ce peuple, sur ce peuple, et de l'autre côté tout le reste de la nation enfin révoltée, à tort ou à raison les cahiers sont ce qui est le plus assailli, le plus violemment, le plus sournoisement, le plus dangereusement par le Parti Intellectuel. Nous sommes la forteresse la plus assaillie. C'est contre nous que le Parti Intellectuel déploie, et
 
-M. FERNAND LAUDET
-
 replie, sa plus virulente haine, — (et il y est compétent, en haine), — cette haine que ne connaissent point tous ceux qui n'ont point été en le contact du Parti Intellectuel, tous ceux qui n'y ont point directement passé, cette haine qui ne peut avoir d'égale que certaines haines ecclésiastiques. Nous sommes la forteresse la plus assaillie. La plus violemment, la plus sournoisement ; la plus dangereusement, la plus mauvaisement. Nous aussi, et sur ce terrain, nous sommes aux marches extrêmes. C'est un grand honneur pour nous, et qui nous impose de grands devoirs. Le plus dangereusement, le plus mauvaisement, le plus haineusement on vient de le voir encore par le coup de ce Daumelas. Pourquoi le Parti Intellectuel est-il aussi furieusement acharné à notre perte, d'une haine aussi profonde, aussi sourde, aussi tenace, venant d'aussi loin, aussi profondément sincère, il y en a vingt raisons qu'il serait aisé de développer. Mais c'était, mais ce serait un travail historique. Nous sommes ses plus anciens et ses plus fermes ennemis. Les plus anciens. Ces cahiers étaient à peine fondés que déjà, seuls, pauvres, nuds nous entreprenions de lutter contre ce Parti qui préparait et officiellement et sournoisement, — (les deux peuvent aller ensemble), — l'abaissement de tout un peuple, l'abaissement mental, intellectuel, — (car, par un phénomène assez singulier, le Parti Intellectuel est le parti de l'abaissement intellectuel même, le parti qui est contre l'intelligence), — l'abaissement moral et de cœur et d'esprit, l'abaissement de race même. Le Parti Intellectuel en riait beaucoup alors. Il en faisait des gorges chaudes. Nous n'étions rien, et eux ils avaient quel-
-
-UN NOUVEAU THÉOLOGIEN
 
 immense bateau. — L'heure est venue de payer. Il paraît que depuis quelque temps ils rient beaucoup moins.
 
@@ -1174,11 +1081,7 @@ Qu'ils ne s'abusent point d'ailleurs. Ils n'ont parmi les anciens élèves de no
 
 Là n'est pas leur force. On ne saurait trop le répéter, leur force n'est pas dans l'enseignement. Leur force
 
-M. FERNAND LAUDET
-
 est dans une sorte de maçonnerie extrêmement bien organisée ; leur force est une sorte de force de gouvernement à la fois officiel et occulte. Dans une attention constante et sournoise à accaparer, à usurper tout ce qu'ils peuvent du gouvernement de l'État. Et non seulement de l'État, mais tout ce qui est corps, situation, position, établissement temporel-spirituel. Mais là leur force est immense, on ne saurait trop le répéter, et ménage de cruelles surprises à ceux qui ne veulent pas la voir, ou qui ne veulent pas la voir toute, qui ne veulent pas croire qu'elle est immense. Un exemple récent l'a durement montré. S'il y avait un corps que l'on croyait qui avait échappé à la domination du Parti Intellectuel, c'était bien l'Académie Française. Or l'Académie Française voulait l'année dernière, enfin dans le courant de la dernière année scolaire, fonder un grand prix qui honorât les lettres françaises, qui marquât expressément le rang que les lettres doivent occuper dans une société comme la nôtre. Le Parti Intellectuel, mal rassemblé, ne put arriver à temps pour empêcher la création du prix. Il se ressaisit vite. La tyrannie est toujours mieux organisée que la liberté. Le Parti Intellectuel décida que le prix ne serait pas attribué. On sait assez que le Parti Intellectuel n'a pas de plus grand ennemi que les Lettres : les Lettres grecques ; les Lettres latines ; les Lettres françaises. Le Parti Intellectuel résolut que le prix ne serait pas attribué. Il ne l'a pas été. On réussissait ainsi deux coups. Premièrement on discréditait les Lettres dans leur ensemble, en corps, on les montrait incapables de
-
-UN NOUVEAU THÉOLOGIEN
 
 recevoir, de se faire attribuer, décerner un prix expressément fondé pour elles. Deuxièmement on tentait de discréditer l'écrivain, quel qu'il fût, à qui l'Académie pouvait penser pour l'attribution de ce prix. Or cet écrivain, il suffisait qu'il fût un écrivain pour être un ennemi né du Parti Intellectuel.
 
@@ -1186,15 +1089,11 @@ La preuve est faite. Quand je disais aux nouveaux : Vous ne savez pas combien il
 
 Tout cela n'est peut-être que misère, j'y consens, en
 
-M. FERNAND LAUDET
-
 comparaison de l'autre opération que je reproche à M. Laudet. Je consens que les matières de la foi sont infiniment graves et que toute tentative de contamination de ces matières est infiniment grave. Mais je crois aussi et d'autre part que les matières de la culture sont graves, très graves, infiniment sérieuses et que toute tentative de contamination de la culture est grave, très grave, infiniment sérieuse. Or en nous assaillant à cette date et en ces termes, M. Laudet a commis envers la culture une trahison de même ordre, sur un autre plan, et de même forme que celle qu'il avait commise contre la foi.
 
 Que M. Laudet le veuille ou non, les positions sont prises, les partis sont engagés. Il n'y a pas trois armées ennemies entre elles trois sur un champ de bataille. Il n'y a pas trois armées ennemies telles, ainsi définies qu'elles se battent, sur un même champ de bataille, chacune contre les deux autres ensemble et séparément. Sur un champ de bataille il n'y a qu'une ligne de bataille, acres, et de part et d'autre une et une autre armée. Ennemies. En ce sens et sur ce terrain on n'est pas ennemi à trois.
 
 Après cette courte trêve des vacances, qui n'est même pas une trêve pour tout le monde, on le voit, une bataille va recommencer, une des plus ardentes batailles spirituelles que l'on ait vu depuis longtemps. Il n'y aura qu'une ligne de bataille, acres, et de part et d'autre une et une autre armée. Ennemis. D'un côté il y aura le Parti Intellectuel et de l'autre tout le reste de la nation. Tout le reste d'un peuple enfin réveillé. La lutte n'est
-
-UN NOUVEAU THÉOLOGIEN
 
 point inégale. Ou si elle l'est elle l'est en sens contraire de ce que l'on veut dire. Car le Parti est organisé et le peuple n'est pas méfiant.
 
@@ -1204,19 +1103,13 @@ Je sais combien la foi est infiniment grave. Je sais aussi que la culture est in
 
 Ce que M. Laudet fait pour la foi : donner des gages aux Infidèles, qu'il veut garder, au moment même où il veut pénétrer dans la clientèle fidèle, se faire une
 
-M. FERNAND LAUDET
-
 grosse clientèle fidèle, — (autant que tous ces trois mots peuvent aller ensemble), — cela même il le fait, cette même opération il la fait pour la culture. D'une part il fait semblant de défendre la culture. C'est la position qu'il adopte officiellement. Il est je pense mon propre collègue dans un des comités de cette Ligue excellente que M. Richepin vient de fonder pour la culture française, pour la défense du français, du latin, et du grec. En même temps il donne, de l'autre main il donne des gages au Parti Intellectuel. Il prend le temps que le Parti Intellectuel va m'assaillir pour m'assaillir en la même forme ; dans les mêmes termes ; à la même date. Ce que faisant il donne au Parti Intellectuel certainement le gage le plus important qu'il pût lui donner. Le gage discriminatoire. Celui qui compte. Le seul peut-être qui compte. Le seul au fond auquel le Parti Intellectuel tint, et tienne. Le seul qu'il ait à cœur. Et qui soit au fond.
 
 Laissons-moi de côté. Ne considérons pour ainsi dire que le dessin et la forme de l'opération. Je dis que M. le Grix aura beau chercher dans son dictionnaire, dans toutes les langues du monde cette belle opération n'a qu'un nom, dans toutes les langues du monde cette savante opération se nomme une trahison. Elle est peut-être très habile, mais elle est, mais elle se nomme une trahison tout de même. M. Laudet est doublement double. Il trahit la foi et il trahit la culture. En deux trahisons de même forme, symétriques, ou plutôt homothétiques, poursuivies sur deux plans différents dont nous avons commencé de montrer la relation. Et
 
-UN NOUVEAU THÉOLOGIEN
-
 puisque M. Laudet veut des signatures, il voit que je l'écris ici, sous ma signature et sous ma responsabilité.
 
 § 268. — Je veux bien marcher contre le Parti Intellectuel. J'ai l'habitude. Je consens même de marcher encadré contre le Parti Intellectuel, bien que j'aie perdu l'habitude de marcher encadré. Mais pendant que je marche je ne veux pas être trahi par mon camarade de combat. Je sais trop ce que c'est. J'ai assez pris l'habitude pendant l'affaire Dreyfus. Je sais, j'ai appris ce que c'est que d'être trahi par son État-Major et par ses camarades de la ligne. Cette expérience m'a suffi pour ma vie entière. Je ne veux pas recommencer. Pendant l'affaire Dreyfus Jaurès nous excitait : Marchons à fond contre les antisémites, criait-il. Et pendant que en effet nous nous marchions à fond contre les antisémites, lui et ses acolytes, Jaurès et les acolytes de Jaurès avaient déjà commencé de nous trahir par derrière, avaient déjà commencé de nous tirer dans le dos. Il avait trahi Bernard-Lazare même. Les tractations avaient commencé. Une seule expérience me suffit. Cette expérience m'a dressé pour ma vie entière. Je ne veux pas recommencer avec M. Laudet. J'ai des drôles d'idées, — (s'il m'est encore permis de parler ainsi) ; — je ne veux pas que mon camarade de rang me fusille. J'en ai une ambition. Je ne veux pas que l'on crie, que M. Laudet me crie : Marchons à fond contre le Parti Intellectuel, et que pendant ce temps-là M. Laudet fasse une alliance occulte avec le Parti Intellectuel, s'entende derrière mon dos avec le Parti Intellectuel pour me fusiller dans le dos. Si c'est
-
-M. FERNAND LAUDET
 
 ainsi, j'aime beaucoup mieux continuer à marcher tout seul contre le Parti Intellectuel. J'ai l'habitude. Il y a vingt ans que je marche tout seul. Ça me réussit très bien.
 
@@ -1228,19 +1121,13 @@ ainsi, j'aime beaucoup mieux continuer à marcher tout seul contre le Parti Inte
 
 § 272. — Dans cette sorte de singulier échange de trahison, dans ce contre-appointement, dans ce singulier balancement de trahison ce sont toujours les cœurs purs qui sont le plus atteints, qui sont pour ainsi dire
 
-UN NOUVEAU THÉOLOGIEN
-
 frustrés. Non seulement les cœurs purs de tous les uns et de tous les autres partis, mais en outre ce sont les cœurs fidèles qui sont frustrés. Ils perdent toujours plus. La contamination a toujours lieu dans le mauvais sens. Sur le plan de la foi les chrétiens sont frustrés. Sur le plan de la culture les tenants de la culture sont frustrés.
 
 § 273. — Recettes globales : 1,002 fr. 45. — Dépenses globales : 1,211 fr. 10 (y compris bien entendu les frais d'établissement et d'envoi de ce numéro exceptionnel). — J'avoue que cette note de gérance ne m'inspire point les mêmes sentiments de mépris qu'elle inspire à M. Laudet. — Abonnés fermes, abonnés possibles, — et des abonnés fermes des premiers mois qui n'ont pas encore acquitté leur abonnement, ce n'est pas sans une grande tendresse que je retrouve ces vieux amis. Ce n'est pas sans un grand retour en arrière et sans une certaine mélancolie. Ces commencements du Bulletin sont tellement identiques pour l'esprit et pour les mœurs aux commencements des cahiers. Cette note de gérance ressemble tellement à tant de notes de gérance que j'ai fait passer pendant les premières années des cahiers. C'est tellement le même ton, la même résonance de pauvreté, la même petitesse de vie, la même petitesse, la même sincérité, la même pureté de pauvreté. C'est tellement une de ces notes comme que j'en fasse de série en série, d'année en année. Ces abonnements fermes et ces abonnés mous, c'est tellement de nos vieilles connaissances. Nos abonnés de la première heure, les quelques
 
-M. FERNAND LAUDET
-
 personnes qui peuvent encore avoir de nos si rares première et deuxième séries et quelques autres n'ont point oublié, retrouveront aisément que c'était toujours ainsi. Elles verront sur nos vieilles couvertures, sur les deuxième, troisième et quatrième pages de nos vieilles couvertures. M. Laudet me permettra donc de lui demander de me mettre, c'est-à-dire qu'il me mette, qu'il me comprenne avec Lotte dans le mépris qu'il manifeste pour cette sorte de notes de gérances.
 
 § 274. — Ce mépris s'explique d'autant plus que ce n'est point par de semblables, par d'aussi petits procédés que M. Laudet conduit sa barque. M. Laudet est un excellent homme d'affaires, — (est-ce là de la diffamation, monsieur Laudet). — M. Laudet est un gros commerçant, — (est-ce là de la diffamation), — (monsieur Laudet). — M. Laudet sait très bien gouverner, M. Laudet sait très bien comment on gouverne une grosse affaire. — (Est-ce là de la diffamation, monsieur Laudet). — M. Laudet a un excellent esprit mercantile. — (Mais c'est nécessaire, dans une affaire, c'est même très bien, monsieur Laudet). — M. Laudet a dans sa Revue beaucoup d'annonces commerciales. — Je voudrais qu'il en eût dix fois plus. — M. Laudet doit y gagner beaucoup d'argent. — Je voudrais qu'il y en gagnât dix fois plus. — (Est-ce là vous vouloir du mal, monsieur Laudet, est-ce là de la diffamation). — M. Laudet conduit très bien son affaire. — (Est-ce là de la diffamation, monsieur Laudet). — Si j'étais de ses commanditaires je serais rassuré. Je voudrais bien être de ses commanditaires. — (Ai-je assez bonne opinion de vous, monsieur Laudet).
-
-UN NOUVEAU THÉOLOGIEN
 
 — M. Laudet sait comment on gagne une grosse clientèle bourgeoise. Il sait même comment on essaie d'en gagner deux. — M. Laudet fait des économies sur les petites gens, sur son petit personnel, — (peut-être sur M. le Grix, — (je serais tenté de défendre M. le Grix contre M. Laudet), — sur ses collaborateurs obscurs, — (je ne dis pas cela pour M. le Grix, il n'est plus obscur), — sur les jeunes gens. — Il a cent fois raison. C'est ainsi qu'on fait les bonnes maisons. — Il fait des ponts d'or, il fait un énorme traitement aux grosses signatures littéraires, il fait travailler à des prix de famine les écrivains inconnus, eussent-ils, connus M. le Grix, du talent. — Mais oui, c'est pour compenser. Et c'est pour cela que Victor Hugo, qui se connaissait en affaires de librairie, et qui a eu souvent à traiter avec lui, — (du côté des grosses signatures, s'entend), — dit encore fort souvent de lui, quand il pense à leurs anciens traités. Il a un assez bon mot, Hugo. Laudet, me disait-il tout récemment encore,
 
@@ -1248,19 +1135,13 @@ Il était généreux,... quoiqu'il fût économe.
 
 § 275. — Quelques amis de province, qui ne connaissent ni ce Laudet ni ce le Grix m'écrivent : N'y a-t-il pas une grande cruauté à passer ainsi au laminoir deux malheureux que personne ne connaît. — Que nos amis se détrompent. Ces deux malheureux ne sont pas en effet très connus, mais ils sont très puissants. M. Laudet est très puissant. Puisqu'il endosse aujourd'hui M. le Grix, par cet endossement à la date d'aujourd'hui M. le Grix devient très puissant. Il n'est pas dans mes habitudes d'attaquer quelqu'un qui n'est pas puissant.
 
-M. FERNAND LAUDET
-
 J'ai failli il y a quelques mois, ou quelques années, — (décidément c'est un homme avec qui je n'ai pas la mémoire des dates), — me laisser embrayer dans une polémique avec un publiciste qui était en même temps un de nos abonnés et qui avait failli devenir un de nos collaborateurs. — (Et mon Dieu, la vie est si longue, je ne réponds point qu'il ne le devienne pas un jour). — J'ai des raisons de croire que j'avais raison dans le fond de ce débat. Aussitôt pourtant que j'eus connu que mon adversaire n'était pas une puissance, j'arrêtai net la polémique. Je publiai dans mon plus prochain numéro et intégralement la réponse de mon adversaire, sans un commentaire, sans un mot de moi, me donnant ainsi, et bien gratuitement, toutes les apparences d'avoir tort. C'est ma seule règle. Qu'on se rassure. M. Laudet est une des plus grosses puissances de Paris. Ça ne durera peut-être pas toujours. Ça ne durera peut-être pas longtemps. Mais actuellement M. Laudet est une des puissances, une des grosses puissances de Paris. L'homme qui peut du jour au lendemain payer vingt mille, trente mille francs aux maîtres du roman pour publier dans sa Revue un seul roman inédit est toujours une des très grosses puissances de Paris. Aussi est-il aisé de sentir dans l'article de M. Laudet un certain étonnement. L'étonnement de l'homme à qui on ne s'oppose point d'habitude, et qui en veut un, qui en trouve un, qui s'oppose. Il se demande un peu, dans son article, d'où lui vient cette audace.
 
 § 276. — Venons-en aux personnes. Ce sera vite fait. Il faut en finir aujourd'hui. La réponse de M. Laudet
 
-UN NOUVEAU THÉOLOGIEN
-
 est si hésitante, si fluctuante ; et en même temps si poussiéreuse. Elle est en même temps si vaseuse. Elle est si discréditée d'allées et venues, d'allées et de retours, de reprises, de regrets, de repentirs et quelquefois de remords que cette fois-ci il faut que je la résume moi-même et que j'en fasse quelques propositions.
 
 § 277. — Pour donner une idée, toutefois, avant de commencer d'établir ces quelques propositions, de ce que je nomme les regrets perpétuels de M. Laudet, — (et je prends ce mot au sens où les peintres le prennent), — (et aussi les écrivains), — voici comment, voici expressément en quels termes M. Laudet endosse M. le Grix et l'article de M. le Grix sans l'endosser tout en l'endossant ; « Et voilà pourquoi c'est moi, dit M. Laudet, qui prends la plame, aujourd'hui, non pas pour défendre un article que j'ai approuvé sans cependant en avoir écrit ni inspiré un traître mot, ... » — (Traître mot est un mot heureux, monsieur Laudet). — (Ça c'est un mot trouvé. Vous êtes un assez bon coinçeur). — C'est ce qu'on nomme couvrir et découvrir. On peut dire que sa main gauche ignore ce que ne donne pas sa main droite. Si c'est dans la diplomatie que M. Laudet a appris l'art de formules aussi heureusement équilibrées, d'endossements aussi savamment compensés, de faux fuyants aussi merveilleusement dosés, il faut renforcer le sort de ce qu'auquel M. Laudet n'exerce plus ces incontestables talents dans la diplomatie de l'État, mais seulement dans la diplomatie de la Revue hebdomadaire. C'est moins dangereux pour la France.
-
-M. FERNAND LAUDET
 
 § 278. — Premièrement de l'existence même de M. le Grix. — M. Laudet sait très bien pourquoi je n'ai pas voulu saisir M. le Grix dans mon communiqué, pourquoi j'ai voulu saisir et j'ai saisi M. Laudet.
 
@@ -1268,27 +1149,17 @@ Premièrement pour une raison de méthode générale que j'ai longuement exposé
 
 Deuxièmement parce que dans l'espèce et sur ce point je suis forcé d'opposer le démenti le plus formel et à M. Laudet et à M. le Grix, — (et ainsi cette règle de méthode générale se trouve doublement justifiée dans ce cas particulier), — parce que cette agression de la Revue hebdomadaire non seulement n'a pas été inventée, imaginée, voulue par le seul M. le Grix, mais encore n'a pas été seulement concertée, liée, préparée par le seul M. Laudet uni, lié à M. le Grix. Au premier degré l'agression de la Revue hebdomadaire n'est pas du seul M. le Grix. Elle est de M. le Grix lié à M. Laudet et dans cette liaison M. Laudet est évidemment la tête, a évidemment la responsabilité capitale. Au deuxième degré l'agression de la Revue hebdomadaire n'est pas seulement de ce couple, elle n'est pas seulement de M. le Grix lié à M. Laudet, M. le Grix quelque façon de secrétaire et M. Laudet directeur, tête, responsable, elle est je ne dirai pas de tout un monde mais de tout un certain milieu où circulerait ce couple, de tout un petit milieu de beau monde, — (et de faux monde), — où ce couple a
 
-UN NOUVEAU THÉOLOGIEN
-
 quelque circulation. Ainsi la responsabilité s'équilibre, se répartit, se polarise ainsi : dans ce certain milieu ce couple centralise l'affaire, et dans ce couple M. Laudet centralise l'affaire et la responsabilité. Dans ce certain petit milieu c'était une affaire connue, une affaire courre, d'avance, une affaire classée. Tout le monde le savait, que ce coup allait sortir. Tout le monde en parlait. M. le Grix promenait partout sa face moche, disant d'un air fin, le seul qui lui soit naturel : Je fais un article sur la Jeanne d'Arc de Péguy. Je ne sais pas si il sera bien content. — Aujourd'hui vous savez, monsieur le Grix, si je suis bien content. Et c'est peut-être vous qui n'(en) êtes pas bien content, aujourd'hui.
 
 Je ne dis pas, mon impression est même que leur principale idée, si je puis dire, était de s'amuser. Dans ce certain petit milieu. C'est une bande qui commettrait tous les crimes pour s'amuser. De même qu'ils renieraient Dieu pour ne pas prêter à rire, pour ne pas s'exposer au ridicule, de même ils vendraient leur père et leur mère pour s'amuser un peu, au sens où ils entendent s'amuser, c'est-à-dire pour être les promoteurs, aux yeux d'une assemblée, d'un certain ridicule public, d'une certaine risée qu'ils projetteraient sur une tierce personne. Où l'affaire devint assez cocasse, c'est que ces deux imbéciles, — (M. Laudet et M. le Grix), — ayant à choisir une victime qui ne récalciterait pas, m'ont choisi.
 
-De préférence.
-
 Il est fort possible que leur idée, si je puis dire, ait
-
-M. FERNAND LAUDET
 
 été surtout de me brimer. Je ne suis pas chargé de faire leur psychologie. Je suis chargé de les remettre à leur place. Qui n'est pas très bonne. Actuellement. Il est très possible qu'ils se soient dit d'abord seulement : On va rigoler avec Péguy, — (je veux dire de Péguy), — (si j'ai encore le droit d'employer ce mot rigoler). — Ils rigolent moins, aujourd'hui. Il y avait aussi ce le Grix, qui écrit que je ronronne. Il trouve peut-être, à présent, que je ronronne trop. Il aimerait mieux que je ronronne après un autre.
 
 Je savais tout cela. Je voyais venir. Pendant des semaines et des semaines le Grix préparait son article, comme il disait. Toutes les fois que je rencontrais non pas un ami commun, je ne dis pas un ami commun à Laudet et à moi, nous n'en avons naturellement pas, mais un camarade commun, dans ce grand Paris où tout le monde se connaît, une connaissance commune, à Laudet et à moi, à le Grix et à moi, je lui disais : Laudet me prépare un coup. Il a tort. Ça l'amuse beaucoup. Il a tort. Ça l'amuse avant. Ça ne l'amusera pas autant après. Vous devriez lui dire qu'il a tort. Lui expliquer. Qu'il me laisse tranquille. Moi je ne sais pas me battre. Je ne sais rien qu'à travailler. Je n'aime que la tranquillité. Je sacrifierais tout à ma tranquillité. Je suis un écrivain. Je ne suis pas un militant. Et puis je ne me bats pas comme ces messieurs. Je suis un homme de paix. Je suis très capable de donner un mauvais coup. Avec moi on sait bien quand on commence. On ne sait pas quand on finit. Comment on finit. M. Laudet peut se faire embarquer bien loin. Il faut croire qu'au-
 
-UN NOUVEAU THÉOLOGIEN
-
 cun de ces avis au porteur n'est arrivé à sa destination. J'ose affirmer ici que M. Laudet n'a pas un (seul) ami. Si M. Laudet avait un seul ami, on l'eût averti, on l'eût avisé des risques qu'il courait, des risques de l'opération qu'il préparait. Tout le monde autour de lui savait à quoi s'en tenir, savait à quoi il s'exposait. Lui seul ne l'a point su. Les grands n'ont point d'amis. Lui ne me connaît que depuis quelques mois. Il ne connaît généralement les lettres que depuis quelques mois. — (Il ne connaît, enfin je sais ce que je veux dire). — Mais il est entouré de gens qui me connaissent depuis quinze ans, qui avaient vu d'autres exemples, connu d'anciennes histoires, qui pouvaient, qui devaient le mettre en garde. Qui pouvaient, qui devaient lui dire : Vous allez commencer une vilaine histoire. Nul ne l'a fait. C'était pourtant l'office d'un véritable ami. Je ne suis pas sûr au contraire qu'ils ne l'aient point excité, encouragé plutôt peut-être, pour lui plaire, pour le flatter, hélas lui-même pour le trahir peut-être, pour abonder dans son sens, peut-être par une bassesse du cœur, par un besoin obscur, par une complicité, par un besoin de complicité de crime. M. Laudet n'a pas un ami. Peut-être hélas pour se moquer de lui. Par jalousie, par envie. Pour le voir engagé, lui camarade, confrère, peut-être lui, sûrement lui, dans une mauvaise histoire, cœurs ténébreux peut-être pour le voir basculé, périlleux, engagé dans une aventure. Périlleuse. C'est à dire, ils ont tous en au moins peur de lui déplaire. C'est ainsi que les puissants ne connaissent jamais la vérité. J'ai donc le droit d'avancer que M. Laudet n'a pas un ami. C'est la grande tristesse
-
-M. FERNAND LAUDET
 
 et c'est la grande infortune des rois, c'est la grande incapacité, la grande faiblesse, la grande diminution des puissants et des dominateurs, c'est la grande solitude des monarques, qu'ils ne sont jamais entourés que de courtisans, que nul n'ose leur dire la vérité. M. Laudet n'est malheureusement entouré que de gens, et de jeunes gens, qui n'ont qu'une pensée : qu'un jour ou l'autre ils pourraient lui apporter un roman qui leur fasse quinze ou vingt mille francs.
 
@@ -1298,13 +1169,9 @@ Tant qu'il n'existe pas, ça va bien. Dès qu'il existe, il existe polisson.
 
 M. Laudet annonce une réponse de M. le Grix. Il veut dire un nouvel article. Il faut classer. Je n'ai pas encore commencé de répondre à M. le Grix. S'il le veut absolument je ferai un dossier de tous ses articles écrits et à écrire, parus et à paraître, et je lui ferai pour lui un cahier qui sera bien à lui.
 
-UN NOUVEAU THÉOLOGIEN
-
 « François Le Grix, dit M. Laudet, connaissait Péguy et son œuvre, aussi bien que Péguy, qui ne lui a pas ménagé les dédicaces de ses livres, le connaissait ; ... » Si par là on veut démontrer que je suis un sot, on y arrivera aisément et j'y donne les deux mains. Je ne serais pas surpris que M. le Grix pratiquât le mal élevé, poussât la polissonnerie jusqu'à sortir les dédicaces qu'il a de moi sur quelques-uns de mes livres. C'est ma grande faiblesse, je le sais, — (c'est mon grand honneur), — que cette incapacité incurable de défiance, que cette incompétence née dans tout ce qui est de la défiance, et qu'après vingt ans de trahisons et de défections de toutes sortes je sois aussi enfant, je sois aussi innocent à recevoir le premier jeune homme qui vient me voir, sans aucune circonspection, de plano, sans aucune arrière-pensée comme si j'avais vingt ans de moins. Si l'on veut dire que je serai toujours berné, on a cent fois raison. Si l'on veut dire que je serai toujours un sot, je le sais. Je le suis. Mais plus on prouvera que je suis un sot, plus on prouvera en même temps que M. le Grix est un fourbe. Plus on prouvera que je ne suis pas défiant, plus on prouvera en même temps que M. le Grix est un traître.
 
 § 279. — Je repense à cette note de gérance et malgré moi je me reporte à douze quinze ans en arrière, aux commencements des cahiers. Quelle identité profonde de mœurs. Et comme cette identité profonde de mœurs prouve une fois de plus ce que j'ai posé dans Notre Jeunesse, que notre socialisme était un socialisme mystique et un socialisme profond, profondément appa-
-
-M. FERNAND LAUDET
 
 renté au christianisme, un tronc sorti de la vieille souche, littéralement déjà, (en encore), une religion de la pauvreté.
 
@@ -1314,8 +1181,6 @@ Ce sont des feintes inutiles et des malices cousues de fil blanc et des enfantil
 
 Deuxièmement, renseignés par les mêmes moyens,
 
-UN NOUVEAU THÉOLOGIEN
-
 par les mêmes déclarations, tous les journaux qui en ont parlé non seulement ont parlé du communiqué comme étant de moi, mais n'ont fait aucune affaire et en ont parlé naturellement comme étant de moi. Comme étant une réponse de moi.
 
 Ainsi premièrement et deuxièmement renseigné par tous les moyens extérieurs, par tous les renseignements objectifs, par tous les témoignages concordants, par tous les avis et comptes rendus officieux, par la presse, par les déclarations officielles, publiques les plus formelles M. Laudet savait parfaitement que le communiqué était de moi. Il le savait dès le principe et d'avance. Il le sait toujours. Il le savait notamment au moment où il écrivait lui-même sa réponse.
@@ -1324,13 +1189,9 @@ Ajouterai-je que M. Laudet n'avait pas besoin de tous ces monuments pour savoir 
 
 Il ne m'échappe pas que M. Laudet en refusant de me reconnaître dans un aussi mauvais communiqué a cru me jouer un bon tour. Il a pensé qu'il me rendait la
 
-M. FERNAND LAUDET
-
 monnaie de ma pièce. Il s'est imaginé, fort sincèrement peut-être, qu'il m'en faisait autant que je lui en avais fait en refusant de saisir M. le Grix. Il a été ici, en ceci, fort sincèrement peut-être, victime d'une illusion. Il a pris une fausse équivalence pour une vraie, une fausse similitude pour une vraie. Le mouvement qu'il a fait, l'opération qu'il a faite n'est nullement une réplique de la mienne, n'est nullement symétrique, ni homothétique de la mienne. Quand j'ai refusé de saisir M. le Grix dans le premier article pour saisir M. Laudet, je suis allé à la tête. Quand M. Laudet refuse de me saisir dans le communiqué, il se détourne de la tête. Enfin il montre que lui, directeur d'une grosse revue, il ne sait pas ce que c'est qu'un communiqué.
 
 § 281. — Car tout son raisonnement revient en somme à me demander, toute son objurgation à me réclamer pourquoi je n'ai pas signé mon communiqué. Si M. Laudet je ne dis pas connaissait son métier, je dis avait quelque lueur de son métier de Directeur de Revue il saurait ce qui est un des premiers enseignements, ou renseignements, que l'on reçoit, qu'un communiqué ne se signe jamais, que c'en est un caractère propre essentiel et littéralement de fondation. Que c'est du style, et de l'ordre même du communiqué. Que le communiqué, comme son nom l'indique, est un certain ordre de communication faite au public. Que cet ordre est propre. Qu'il ne se confond avec aucun autre. Qu'il obéit aux règles suivantes. Que ces règles sont absolues. Que d'ailleurs elles sont admirables, comme toutes les règles de la typographie. Que dans
-
-UN NOUVEAU THÉOLOGIEN
 
 l'espèce elles sont merveilleusement significatives ; et merveilleusement équilibrées :
 
@@ -1340,8 +1201,6 @@ Deuxièmement que le communiqué soit composé dans le même corps que le corps 
 
 Troisièmement que le communiqué paraisse sans titre ni signature entre deux filets maigres. Tout au plus une date, et un lieu d'origine. Cette troisième règle est évidemment la règle principale du communiqué, j'entends sa règle principale typographique, celle qui lui donne sa marque même. Celle qui en fait un communiqué. L'absence de signature répond évidemment à l'absence d'articulation générale, à
 
-M. FERNAND LAUDET
-
 l'absence de titre, fait particulièrement équilibre à l'absence de titre.
 
 Telles sont les principales règles typographiques du communiqué. Elles sont singulièrement belles. Elles sont singulièrement significatives. Elles font du communiqué dans le journal ou dans la revue un souverain uniforme, qui n'a aucunement besoin d'élever la voix pour se faire entendre, un souverain qui parle toujours dans le même ton, un souverain sans panache et sans liséré d'or. Napoléon laissait à Murat les beaux uniformes.
@@ -1349,8 +1208,6 @@ Telles sont les principales règles typographiques du communiqué. Elles sont si
 § 282. — Mais que vais-je entreprendre d'initier ce diplomate aux beautés, aux secrètes beautés de la typographie. Sait-il seulement ce que c'est qu'un corps typographique. Sait-il seulement ce que c'est que du corps huit, et neuf et dix et douze. Sait-il seulement ce que c'est que de l'italique et de la romaine. Il croit peut-être que c'est de la salade, de la romaine. Sait-il seulement ce que c'est que du bas de casse, et des grandes et petites capitales. A-t-il quelquefois entendu parler de compactes ordinaires et de compactes penchées. Sait-il seulement qu'il y a de la normande et qu'il y a de l'égyptienne.
 
 § 283. — Ces règles de la composition typographique et de la mise en pages du communiqué impliquent évidemment que le communiqué est écrit en principe à la troisième personne. Elles signifient, ou plutôt elles traduisent, sur leur plan propre, enfin elles représentent
-
-UN NOUVEAU THÉOLOGIEN
 
 que le communiqué est autre, tout autre et infiniment plus qu'un article ; notamment qu'il est un acte. C'est pour cela qu'il ne faut pas abuser du communiqué. Le communiqué est une sorte propre de communication que l'on fait au public. Sans être déjà ni une déclaration ni un manifeste, il est certainement sur le chemin qui conduit à la déclaration et au manifeste. Il est un peu déjà de leur gravité. Il est certainement de leur parenté. Il est même en un sens d'une certaine plus haute gravité, parce qu'il est d'une gravité sourde.
 
@@ -1362,8 +1219,6 @@ L'absence de signature répond particulièrement à l'absence de titre, elle éq
 
 § 284. — Cette absence de signature engage aussi la
 
-M. FERNAND LAUDET
-
 Revue ou le journal où paraît le communiqué, non pas en ce sens que la Revue ou le journal endosserait le communiqué et le sens et la responsabilité du sens du communiqué, mais en ce sens que la Revue ou le journal, en publiant un communiqué en forme de communiqué, certifient par là même que ce communiqué est bien un communiqué ayant valeur de communiqué, qu'ainsi l'auteur de ce « communiqué », que tout le monde connaît, s'y engage sérieusement et tout.
 
 En d'autres termes en publiant le communiqué la Revue ou le journal n'en endosse pas, n'en certifie pas la teneur. Elle en certifie la forme. Elle ne certifie pas ce qu'il y a dedans. Elle certifie que c'est bien un communiqué. Avec tout ce qu'il implique, avec tout ce qu'il comporte de conséquence et de responsabilité. Pour en revenir à notre vieux langage de l'école la Revue ou le journal qui publiant un communiqué, en forme de communiqué, en certifiant la forme et n'en certifiant pas la matière.
@@ -1374,21 +1229,15 @@ J'ai fait un communiqué précisément parce que je voulais m'engager davantage,
 
 J'ai fait un communiqué d'abord parce que j'ai voulu
 
-UN NOUVEAU THÉOLOGIEN
-
 faire un communiqué. Je suis bien libre de faire un communiqué. J'ai peut-être bien le droit de faire un communiqué. Un communiqué est un certain ordre propre de communication que l'on fait au public. J'ai peut-être bien le droit de faire cet ordre de communication. Quand je veux. Comme je veux. Je n'en dois point compte à M. Laudet. Aucun compte. Je n'ai point de raisons à lui en donner. Je ne puis que lui en rendre raison, s'il veut. L'ordre du communiqué ne m'est pas plus interdit, je pense, ne m'est pas plus fermé que n'importe quel autre ordre d'écriture, que n'importe quel autre ordre d'acte.
 
 Tout ce que M. Laudet peut demander, — et cette demande est fort légitime, — c'est que derrière un communiqué il y ait quelqu'un. — Notamment derrière un communiqué où il est pris à partie. Personnellement. Mais M. Laudet sait très bien, dès le principe et même d'avance, que je suis derrière mon communiqué, que j'y suis entièrement et personnellement, que j'y suis, depuis bientôt un mois, et plus, à son entière disposition.
 
 Cela étant, vingt raisons apparaissent aussitôt, pourquoi j'ai fait un communiqué. Il me plaît d'en indiquer quelques-unes. Il est certain que généralement j'ai peut-être le droit de faire ce que je veux et que l'on ne voit pas bien pourquoi un ordre de communication me demeurerait interdit. Mais il est certain aussi qu'à moins d'être un étourneau on ne fait pas un communiqué sans savoir pourquoi, sans en avoir des raisons expresses. Un communiqué n'est pas un article. Un
 
-M. FERNAND LAUDET
-
 communiqué si je puis dire ne doit pas se dépenser inutilement, il ne doit pas se dépenser à la légère. Il est donc certain que ce n'est pas sans les raisons les plus graves que je me suis résolu à faire un communiqué.
 
 Je puis donc avouer que l'article de M. le Grix m'avait porté une atteinte particulièrement profonde. Que M. le Grix ne s'en enorgueillisse point. Ce n'est point une haute valeur propre de cet article qui m'avait porté une atteinte particulièrement profonde, c'est une certaine valeur propre de malice, que M. le Grix ne soit point comblé d'orgueil, c'est aussi et peut-être surtout, c'étaient les conditions propres historiques de laideur et de trahison où cet article avait été fabriqué. Aujourd'hui encore, après tous ces débats, je ne me rends pas bien compte. Je me demande ce qui a pu pousser un jeune homme, à qui je n'ai jamais rien fait, à préparer, à combiner, à composer, à inventer, — à exercer contre moi une trahison aussi gratuite, — (et même plus que gratuite), — (je veux dire ingrate), — historiquement aussi laide, moralement aussi basse. Pareillement pour M. Laudet. C'est un de ces problèmes qui me dépassent, un de ces problèmes où j'ai bien peur que je ne sois incompétent toute ma vie. Pareillement pour ce Laudet, à qui je n'avais jamais rien fait. Je me demande encore d'où vient le coup. J'ai bien l'impression que ce Laudet est un instrument, et ce le Grix un sous-instrument. Maintenant il y a aussi une certaine force de malice dans l'homme, un certain goût malsain dans le riche et dans le bourgeois de poursuivre, d'humilier le pauvre.
-
-UN NOUVEAU THÉOLOGIEN
 
 D'autant que l'entreprise ne va pas pour eux sans quelque risque, et même sans quelque danger. — (Il est vrai qu'ils sont comme bien d'autres. Quand ils ont commencé, ils ne pensaient point peut-être comment cela finirait et ils n'en ont point cherché si long). — (Aujourd'hui ils aimeraient peut-être mieux n'avoir pas commencé). — Plus ils ont de volume précisément et plus ils ont d'ambition, plus aussi ils peuvent perdre dans une bataille, plus ils offrent de prise à la fortune.
 
@@ -1396,21 +1245,15 @@ Peut-être y a-t-il beaucoup d'inconsidération dans leur cas. Mais aujourd'hui 
 
 Il est donc certain qu'atteint à une profondeur où je n'avais jamais été atteint par cette agression nouvelle, par cette agression comme je n'en avais jamais subi je dus me ressaisir soudainement et à une profondeur où depuis longtemps je ne m'étais pas ressaisi. La forme, et la force, d'un article ne me suffisaient donc plus pour
 
-M. FERNAND LAUDET
-
 répondre, ne portaient donc plus ma réponse. De toutes parts j'étais conduit, j'étais contraint à faire un communiqué.
 
 L'expérience, hélas, le résultat devait malheureusement me justifier au delà de toute prévision. Ce n'est point sans une grande honte intérieure, sans le sentiment d'un grand abaissement de soi qu'on est ainsi l'objet d'une ingratitude et d'une bassesse. Il y a des fautes que l'on commet, qui sont graves, qui impliquent, qui emportent moins cette honte, le sentiment de cette bassesse et de cet abaissement que ces sortes d'offenses dont on est l'objet, que l'on n'a rien fait pour faire naître. Que l'on voie l'expérience ; que l'on voie le résultat. Que l'on voie ce ton de bassesse, ce niveau de bassesse où je tombe moi-même, où je suis moi-même descendu et dont j'ai honte aussitôt que je réponds moi-même à M. Laudet en me plaçant sur le terrain de M. Laudet et en entrant en conversation avec M. Laudet. Qu'est-ce qui resterait de tout ce débat, malheureux, si je n'eusse point fait, si je n'eusse point écrit ce communiqué. Qu'est-ce qu'il y aurait dans ce cahier, hélas, si je n'eusse point écrit ce communiqué. Je serais bien malheureux si j'avais dû consacrer deux mois de ma vie à ces misères et à ces bassesses, deux mois pleins de ma vie à M. Laudet et à répondre à M. Laudet en me tenant uniquement à M. Laudet, en me mettant sur le terrain, sur le plan de M. Laudet, en tenant la conversation vile et uniquement avec M. Laudet. On n'a qu'à voir le misérable résultat, le bas résultat auquel j'arrive moi-même dans ce cahier et dont je suis honteux
-
-UN NOUVEAU THÉOLOGIEN
 
 aussitôt que j'engage la conversation avec M. Laudet. Quelle bassesse. Quelle grossièreté. Quelle bassesse devient la mienne, quelle bassesse communiquée. Comme la grossièreté est contagieuse. Comme la bassesse est communicante. Qu'est-ce que je n'aurais pas commis, (on le voit, on le pressent), si j'avais répondu par un article à M. Laudet à l'article de M. « le Grix ».
 
 Que mes amis n'aient dit généralement : Pourquoi avez-vous mis M. le Grix et M. Laudet dans tout cela. Ils en étaient bien indignes. Il fallait faire de ce gros morceau, de toute cette matière que vous avez traitée là une introduction à une vie de Jeanne d'Arc, il est fort probable, il est même certain que mes amis ont raison. J'ai mis dans ce communiqué une matière, des préoccupations qui dépassent infiniment M. Laudet et M. le Grix. J'ai comblé M. Laudet et M. le Grix. Ils sont les seuls qui n'aient pas le droit de s'en plaindre. Que mes amis défendent mon œuvre contre moi, une œuvre durable contre un coup de colère passager, c'est la plus grande marque d'amitié qu'ils puissent me donner. Mais M. Laudet n'a pas à défendre mon œuvre contre moi.
 
 Que mes amis me disent un grief d'avoir introduit M. le Grix et M. Laudet dans un niveau de pensée, dans un niveau de propos, dans un niveau de conversation dont ils n'étaient pas dignes, j'y consens. Mais ce n'était ni à M. le Grix ni à M. Laudet à me le reprocher. Que j'aie élevé à ce point et en même temps approfondi le débat, ils y ont trop gagné, ils sont bien les seuls qui n'aient pas le droit de me le reprocher. Ils sont bien les seuls qui ne soient autorisés qu'à m'en remercier. J'ai
-
-M. FERNAND LAUDET
 
 lié leurs noms, ce nom ignoré de Laudet, ce nom ignoré de le Grix, à des questions qui les dépassent de beaucoup, à des pages qui vivront longtemps après eux. De quoi se plaignent-ils.
 
@@ -1428,8 +1271,6 @@ Ici aussi, pareillement ici je suis forcé de répondre préalablement que je su
 
 M. Laudet là-dessus triomphe bruyamment. « d'autre part Péguy n'en est pas réduit à ne trouver d'hospitalité pour sa prose qu'à Coutances dans le Bulletin des Professeurs catholiques de l'Université qui a 190 abonnés,
 
-UN NOUVEAU THÉOLOGIEN
-
 parmi lesquels 33 abonnés fermes n'ont pas encore acquitté leur abonnement. » Vous saisissez comme moi la finesse de la plaisanterie, surtout répétée trois fois. C'est le cas de le dire : Numero Deus.
 
 Eh bien il faut que M. Laudet en prenne son parti. Il est très puissant. Il sait très bien qu'il est très puissant. Il est redouté pour sa puissance et non moins pour ses alliances temporelles. Il sait très bien, j'aime mieux lui dire tout de suite qu'un communiqué sur M. Laudet ne se placerait pas facilement. Il en triomphe un peu grossièrement. Il a raison. Il est juste que les gros volumes sociaux triomphent.
@@ -1438,15 +1279,11 @@ Il est certain que profondément atteint par cette agression inattendue, par cet
 
 L'idée ne me vint pas un seul instant de faire passer ce communiqué dans les Cahiers de la Quinzaine. Je
 
-M. FERNAND LAUDET
-
 considère essentiellement ces Cahiers comme une sorte de libre cité, comme un libre faisceau, comme une institution libre ; comme un institut. M. Laudet comprendra difficilement ce statut et ces mœurs, lui qui gouverne sa Revue et qui ne se gouverne que par le gouvernement capricieux d'un despote. La fondation même des Cahiers et la vie, — (on pourrait presque dire la survie), — des cahiers depuis douze ans est réglée par une discipline, est gouvernée par un statut que tout le monde a toujours observé, qu'il n'a jamais cessé d'être respecté de toutes parts. C'est une maison que je gère. Ce n'est point un État que je gouverne. Telles sont les mœurs de la liberté. M. le Grix, M. Laudet aura peut-être du mal à se les représenter. Nous n'avons ici aucun mal à les exercer. Autant je revendique intégralement ma liberté à mon tour et en mon lieu comme collaborateur des cahiers, pour mes œuvres, pour des articles, — cette liberté que j'assure temporellement à tous nos collaborateurs, — autant par un scrupule de rectitude que M. Laudet ne comprendra peut-être pas je ne veux point engager les cahiers officiellement, en leur office, ex officio, et venant de leur office dans un communiqué qui n'engageait que moi personnellement mais qui personnellement m'engageait tout entier. Un article au sur ou contre M. Laudet pouvait et devait paraître dans les cahiers. Un communiqué ne pouvait et ne devait pas paraître dans les cahiers.
 
 Précisément parce qu'un communiqué est beaucoup plus qu'un article ; engage infiniment plus ; est beaucoup plus un acte.
 
 Je voulais que ce communiqué ne fût qu'ensuite porté
-
-UN NOUVEAU THÉOLOGIEN
 
 à la connaissance des abonnés des cahiers ; qu'il n'entrât qu'ensuite, au deuxième degré, au deuxième stade, dans les cahiers ; que j'en fisse pour ainsi dire alors un compte rendu dans les cahiers ; qu'il y parût comme un procès-verbal, comme un compte rendu que je faisais dans les cahiers à mes abonnés d'un acte, d'un communiqué que j'avais fait en dehors des cahiers. Et en somme c'est ce que j'ai obtenu. Dans un Bulletin où j'étais entièrement libre j'ai fait un communiqué ; et le communiqué que je voulais. Dans les cahiers, où je ne suis pas libre, j'ai publié le procès-verbal, le compte rendu de ce communiqué, tout le dossier enfin avec cet article-ci qui en a résulté.
 
@@ -1454,17 +1291,11 @@ Ma situation envers les cahiers est une situation d'une entière rectitude, et d
 
 Ayant donc à faire ce communiqué, voulant faire ce communiqué, ne voulant pas le faire passer dans les cahiers, où devais-je le faire passer. C'est entendu, je le faisais passer où je voulais. Mais enfin je le faisais
 
-M. FERNAND LAUDET
-
 passer où je pouvais. Quelle revue, quel journal, quel périodique autant que le Bulletin pouvait comme le Bulletin me rappeler, me redonner cette antique pureté de mœurs, cette pauvreté, cette petitesse, cette humilité, cette exiguïté, ces abonnés fermes et ces abonnés mal fermes, ces cent cinquante ou deux cent abonnés, toute cette pureté première de la fondation des cahiers. Quel journal et quelle revue, quel périodique, quelle revue était autant que le Bulletin notre filiale en esprit et en mœurs, notre secrète filiale spirituelle. Notre fille et notre filleule. Un nouveau bourgeonnement, une nouvelle source, un rejaillissement de notre jeunesse.
 
 Je nous revois encore, mon cher Lotte, je revois notre jeunesse commune, je revois nos communes études. Tu avais quelques années de moins que moi, une ou deux peut-être seulement, mais c'est énorme quand l'un entre seulement en Rhétorique Supérieure et que l'autre, — (citer, l'autre des deux), — y avait déjà fait une année l'année précédente, et y rentre au contraire pour sa deuxième année comme vétéran, veteranus, vieux soldat, ancien soldat. Nous affrontions alors la même grande guerre, qui était la guerre de l'entrée à l'ancienne École Normale Supérieure. Nous sommes deus vieux Louis-le-Grand, toi et moi, et deux vieux Barbistes, d'incorrigibles vieux Louis le Grand et Barbistes. Nous sommes de cette petite compagnie de Barbistes qui pendant quelques années préparant l'École Normale Supérieure suivirent les cours de la Rhétorique Supérieure de Louis-le-Grand. Allons, nous allions en cagne, disons le mot de l'argot de notre jeunesse et que nous
 
-UN NOUVEAU THÉOLOGIEN
-
 jeunes héritiers n'aient point peur du vieux mot : nous étions deux cagneux. Marcel Baudouin, Tharaud, Deshairs, Péguy, Roy, Pesloüan, — (celui-ci seul non cagneux, il était en élémentaires ou en spéciales et préparait l'École Polytechnique), — pour la première couche, et pour la deuxième couche plus ou moins cagneux Baillet, Lotte, Riby, Poisson, l'autre Tharaud, alter, l'autre des deux, toi Lotte ; singulière compagnie non point d'amitié seulement, singulière compagnie de fidélité où la mort seule a pu frapper un manque, où vingt années de l'usure de la vie n'ont pu introduire une fissure. Quand viendra l'âge des Confessions, — (il approche, Dieu merci, mon vieux Lotte, il approche, il approche, il ne tardera plus guère), — nous essaierons de représenter ces deux ou trois merveilleuses années de notre jeunesse, les ardentes années. Tout était pur alors. Tout était jeune. Et tu entends bien que par là je ne veux pas dire en ceci seulement que nous étions jeunes et que nous voyions le monde jeune. Historiquement tout fut jeune alors pendant trois ou quatre merveilleuses années. Un socialisme jeune, un socialisme nouveau, un socialisme grave, un peu enfant, — (mais c'est ce qu'il faut pour être jeune), — un socialisme jeune homme venait de naître. Un christianisme ardent, il faut le dire, profondément chrétien, profond, ardent, jeune, grave venait de renaître. On le nommait lui aussi assez généralement catholicisme social. Dans le socialisme, dans la vie lui-même par un échange était une sorte de christianisme du dehors, dans Jaurès même les contaminations jaurésiennes n'étaient point nées et n'avaient point encore pénétré. L'affaire Dreyfus ne se préparait encore
-
-M. FERNAND LAUDET
 
 que dans le plus profond de l'ombre ses inconcevables destinées. La France elle-même paraissait se préparer joyeusement et pleinement, sainement et presque heureusement et presque avantageusement. A quoi hélas elle se préparait, nous l'avons connu, nous l'avons éprouvé depuis.
 
@@ -1476,23 +1307,17 @@ C'est une grande joie, mon cher Lotte, que de n'avoir pas eu une seule fissure d
 
 Je dois dire la vérité, puisqu'on m'en presse. Il ne faut pas que je présente l'opération à l'envers. Ce n'est
 
-UN NOUVEAU THÉOLOGIEN
-
 pas moi qui me suis demandé, ce n'est pas que je me suis demandé d'abord, ayant à faire passer un manifeste, où je le ferais passer. Enfin je veux dire un communiqué. L'opération a été beaucoup moins artificielle, beaucoup moins systématique. Les bergsoniens me comprendront, si j'ai encore le droit, si nous avons encore le droit de nous servir de ce nom, de ce mot de bergsoniens. L'opération a été beaucoup plus spontanée, beaucoup plus organique, et ainsi en outre elle a été contraire. C'est au contraire la présence de Lotte et du Bulletin qui a fait germer en moi instantanément l'idée, la forme, déjà la teneur d'un communiqué. C'est cette obscure, cette secrète présence de fidélité qui a tout suscité instantanément.
 
 Assailli d'un assaut aussi inattendu, atteint aussi profondément que je l'ai dit et qu'on peut le penser, évidemment je jetai un seul regard autour de moi, et dans ce seul regard instantanément le Bulletin était à sa place.
 
 Je vais plus loin et en réalité j'ai fait en somme l'opération suivante. Tout homme sur le tranchant du sort a fait cette opération. Atteint, assailli aussi profondément, instantanément je repassai ma vie. Dans un éclair d'un seul regard je vis cet embarras de vingt ans. Et suivant l'autre ligne, celle qui n'a pas été inscrite historiquement, dans ce regard je me suis représenté l'autre Péguy, le Péguy allégé de tant de charges publiques, le Péguy que je devenais si je n'avais point assumé à vingt ans tant de charges et de responsabilités publiques. Or il est certain, et il était pour moi d'une évidence éclatante, que la ligne que j'aurais
 
-M. FERNAND LAUDET
-
 suivie est précisément celle qu'a suivie Lotte. J'enseignerais aujourd'hui la philosophie dans quelque lycée du province. Comme il enseigne la grammaire. Dans quelque Coutances. J'exercerais ce métier d'enseigner, un des plus beaux, le plus beau peut-être qu'il y ait, que j'aime passionnément. Je serais passionnément attaché à mon métier, à ma classe, comme je me suis attaché passionnément à ces cahiers. J'aimerais passionnément mon métier, ma classe, comme j'aime passionnément la typographie, les cahiers. J'aurais quelques mécomptes, comme j'en ai beaucoup dans les cahiers. Enfin si j'étais devenu ce Péguy d'enseignement secondaire, le premier en date et en existence, celui que j'étais fait pour faire, il est certain que ma situation aujourd'hui serait exactement la suivante : je serais un fidèle abonné au journal de Lotte.
 
 § 287. — On voit mal que M. Laudet me reproche précisément mes scrupules, ma fidélité à respecter le statut des cahiers. D'abord il n'est point chargé de gouverner ma relation aux Cahiers.
 
 § 288. — Pour qui sait lire, la typographie, quoi de plus imposant que cette absence de signature au bas du communiqué. Comme cette absence emplit le texte même, le corps du texte. Comme elle fait refluer la signature dans tout le texte. Le texte n'est pas signé, alors. Tout le texte est signé. Ni titre ni signature. Ni exorde ni péroraison. Nul plan incliné. Nulle montée, nulle descente. Nul accès. Nulle porte de sortie. Nul vestibule. Un beau plateau coupé en falaise.
-
-UN NOUVEAU THÉOLOGIEN
 
 C'est vraiment le souverain qui n'a pas besoin d'élever la voix pour être entendu.
 
@@ -1504,13 +1329,9 @@ Quand un débat en est arrivé à ce point il n'y a plus rien à dire. M. le Gri
 
 Si l'on veut dire que M. le Grix n'avait peut-être pas vu tout ce qu'il écrivait quand il écrivait ce qu'il écrivait dans la Revue hebdomadaire, et que c'est moi qui le lui ai fait voir, et que le lui ai fait voir publiquement, et qu'alors, à ce moment-là, à ce deuxième moment il aurait certainement mieux aimé ne pas le voir, et surtout, si je puis dire, qu'il aurait mieux aimé ne pas le
 
-M. FERNAND LAUDET
-
 voir de ma main, que je ne le lui fisse pas voir, que ce ne fût pas moi qui le lui fisse voir, et surtout que je ne le lui fisse pas voir publiquement, cela c'est une autre défense de M. le Grix, c'est un autre système de défense, auquel je ne serais pas éloigné de souscrire. Je suis assez porté à croire qu'en effet M. le Grix n'avait pas vu du tout tout ce qu'il écrivait. Peut-être, sans doute était-il poussé par d'autres, par d'autres plus malins, qui ne se sont pas découverts. Peut-être n'a-t-il goûté seulement qu'une certaine méchanceté, un certain goût de me jouer un mauvais bon tour. Emporté par cette passion de méchanceté, par ce goût de une brimer, de un bercer, par son orgueil et par cette infatuation de faire rire de moi, peut-être en effet n'a-t-il pas fait attention du tout à ce qu'il écrivait, ou pas assez. Peut-être n'a-t-il pas regardé du tout ce qu'il écrivait. Une autre version, une autre leçon serait que même s'il le voulait, même quand il y regarde, même quand il y fait attention il est bien incapable de savoir ce qu'il écrit. Je dois avouer que cette seconde version aurait plutôt plus de partisans. On me le représente généralement comme un fort sot. D'ailleurs les deux versions ne sont pas contradictoires. Il peut fort bien être ensemble sot et fat. Ne pas faire attention et ne pas en voir plus s'il faisait attention. Seulement, quand on est là, ou n'exerce pas, régulièrement, le magistère de la critique littéraire dans une de nos plus importantes revues.
 
 Si M. Laudet a choisi M. le Grix, il doit tout de même savoir un peu qui il a choisi. Si M. le Grix lui a été imposé par quelqu'un, il doit savoir un peu qui ou lui a imposé.
-
-UN NOUVEAU THÉOLOGIEN
 
 Si M. le Grix a vu ce qu'il faisait, il a été fourbe. S'il n'a pas vu ce qu'il faisait, généralement s'il ne voit pas ce qu'il fait, il a été sot. Maintenant il peut avoir été fourbe et sot à la fois. Quand nous étions au lycée, je crois que c'étaient les propositions contraires en logique formelle qui étaient telles que ou bien l'une était vraie et l'autre fausse ; ou bien l'une était fausse et l'autre vraie ; ou bien elles étaient fausses toutes les deux. Mais elles ne pouvaient occuper que ces trois positions. Elles ne pouvaient pas occuper la quarte position. Elles ne pouvaient pas être vraies toutes les deux.
 
@@ -1520,27 +1341,17 @@ J'avais fait cette grâce à M. le Grix de le supprimer de l'être. Je crois que
 
 § 291. — Nous n'avons plus qu'à nous arrêter à quelques mots. Avant de le faire, — préalablement, — (s'il est encore permis de parler de préalable au bout de
 
-M. FERNAND LAUDET
-
 deux cents et quelques pages), — il faut que je rende une certaine justice à M. Laudet, — et non point certes à mon sens, — et dans mon système de mesure, — une petite justice. M. Laudet dans son article s'est fort bien conduit envers M. le Grix. Je le dis sans aucune espèce d'ironie. On sait assez combien j'ai horreur de l'ironie, de tout ce qui cherche le ridicule, de tout ce qui flatte le goût du ridicule à trouver, à flatter et à cultiver, de tout ce qui flatte cette démagogie régnante du ridicule. On sait assez, on sait de reste combien l'ironie est contraire à mon tempérament même. Je n'ai jamais caché le goût profond que j'ai pour le comique. Rien n'est aussi sérieux que le comique. Rien n'est aussi profondément apparenté au tragique que le comique. On pourrait presque dire que l'un est une autre face de l'autre. C'est pour cela que chez tous les peuples intelligents le comique et le tragique, la comédie et la tragédie vont ensemble, comme deux beaux bœufs, obéissent exactement au même joug, pointés du même aiguillon obéissent exactement aux mêmes règles. Aux mêmes règles d'art. Aux mêmes règles externes de représentation. Aux mêmes règles internes d'une représentation intérieure. Aux mêmes régulations internes. Aux mêmes règles organiques. Les cinq actes de Molière sont la réplique exacte des cinq actes de Racine et de Corneille. Le comique du tragique, la comédie, la comédie et la tragédie sont étroitement liées dans le sérieux. L'ironie au contraire est le plus bel ornement du frivole.
 
 Je le dis donc sans aucune ironie, je suis heureux
-
-UN NOUVEAU THÉOLOGIEN
 
 que M. Laudet dans son article se soit à ce point montré si bon camarade et si bon patron pour M. le Grix. Je le dis sans ironie aucune, cela l'honore grandement. Le danger, pour son caractère, pour l'estime que nous devons garder de son caractère, le danger était que voyant M. le Grix embarqué dans une aussi mauvaise affaire il n'eut quelque velléité de l'y abandonner. De le laisser s'en sortir tout seul. Non seulement il ne l'a point fait. Mais il vient très activement au secours de son jeune collaborateur. Il s'occupe, il s'emploie. Il n'y chôme point. Tout son article est visiblement inspiré du très grand désir de dégager honnêtement M. le Grix, de se porter avec M. le Grix, d'y venir avec M. le Grix, lui M. Laudet. C'est bien. C'est même beau. J'ai dit assez souvent, dans ces cahiers mêmes, l'estime singulière que je faisais de la morale de bande, pour avoir le droit de déclarer hautement que c'est ici un trait de caractère qui honore grandement M. Laudet. Tout ce que l'on pouvait craindre, c'était justement que M. Laudet, à qui j'étais légitimement remonté, que M. Laudet, à qui j'avais saisi légitimement, ne lâchât, alors, son jeune collaborateur mal embarqué.
 
 § 292. — Pourquoi fallait-il malheureusement que M. le Grix fût indéfendable. Pourquoi fallait-il que M. le Grix, et l'article de M. le Grix, et en tête de l'un et de l'autre M. Laudet lui-même fussent indégageables. Une attitude que j'aime moins déjà, qui est déjà beaucoup moins nette et à mon sens moins droite, c'est que M. Laudet fasse état, dans son article, des compliments que M. le Grix m'avait censément distribués dans son
 
-M. FERNAND LAUDET
-
 article, aux Cahiers et à moi. J'avoue que ces compliments que M. le Grix m'avait censément distribués dans son article m'avaient paru extrêmement suspects et l'usage qu'en fait aujourd'hui M. Laudet pour me mettre préliminairement dans mon tort en me donnant un aspect d'ingratitude envers M. Laudet et d'abord envers M. le Grix ne me les rend pas plus sympathiques, ne me les rendant pas plus innocents, ne fait que me confirmer dans l'opinion que j'en eus premièrement. « François le Grix, écrit M. Laudet, connaissait Péguy et son œuvre, aussi bien que Péguy, qui ne lui a pas ménagé les dédicaces de ses livres, le connaissait ; à dire vrai il n'était pas sans éprouver quelques sympathies pour Péguy, — (très honoré, mon cher confrère), — et il ne se fait pas faute de les lui témoigner dans son article. Il loue « l'inspiration » — (mes enfants, mes enfants, monsieur Laudet ne nous laites pas plus innocent que nous ne sommes), — (tout le monde sait bien que lorsque l'on commence par louer « l'inspiration » d'un écrivain, c'est le plus grand mauvais signe, c'est que l'on veut, c'est que l'on va procéder à un écrêtement en règle de son œuvre. — (Et par conséquent, on ne saurait trop poser ce principe, au plus grand écrêtement, au seul écrêtement peut-être, au seul écrêtement certainement auquel on puisse procéder de lui). — (Tout ce que vous pourrez démontrer, monsieur Laudet, c'est que M. le Grix n'a point manqué à cette règle du genre. (Du reste, de son point de vue, il aurait eu tort d'y manquer). — (Elle est trop bonne ; elle est trop commode ; elle est trop attendue ; ce qui est une des règles essentielles du théâtre). — « Il loue « l'inspira-
 
-UN NOUVEAU THÉOLOGIEN
-
 tion » de l'écrivain autant que « sa vie de probité laborieuse » ; — (à moins de parler enfin de ma vie d'improbité paresseuse, on ne voit pas, je ne vois pas bien comment il est fait autrement. Mais quand on commence à présent, quand on se met à louer ma vie et ma probité et mon labeur, cela est triste à dire, je commence aussi à présent malheureusement à me méfier. C'est généralement que l'on veut, que l'on va commencer à écrêter méthodiquement mon œuvre majeure, mon œuvre première, mon œuvre enfin, qui est naturellement mon œuvre d'écrivain). — (Pareillement hélas et comme parallèlement, pareillement hélas, encore plus hélas quand on commence à dire du bien des cahiers, il faut hélas, encore plus hélas, il faut encore plus malheureusement que je me méfie ; c'est que l'on veut, c'est que l'on va commencer à écrêter mon œuvre, enfin mon œuvre propre, je veux naturellement dire mon œuvre d'écrivain. C'est devenu la règle du genre. Vous allez voir qu'il n'y manquera pas. On voit dans quel ordre de sentiments bas, et je puis dire à quel degré de tristesse ces messieurs me forcent à me mouvoir). — « Il rappelle comment les Cahiers ont, depuis tantôt douze années, donné l'exemple le plus méthodique et le plus persévérant du désintéressement dans l'accueil fait aux écrivains, de la recherche du vrai dans le procédé d'art ; ... » — Je voudrais bien savoir comment il est fait pour dire le contraire. Cette façon de dire que le bien mérité, historique que l'on dit de vous est une grâce que l'on vous fait. Est une créance que l'on prend sur vous. Aussitôt après vient la pointe, comme il y en a plusieurs, qui sont dans l'article de
-
-M. FERNAND LAUDET
 
 M. Laudet la trace, l'héritage, la continuation, l'endossement de l'article de M. le Grix. — « il reconnaît aussi — (et aussi est assez bon et vous a un petit air innocent, il a d'abord l'air de vouloir dire en plus, et on s'aperçoit après qu'il veut dire d'autre part, aussi bien ; au contraire ; par contre, par équivalence, pour faire (juste) compensation ; pour lui faire justice ; stricte ; contre lui ; parce que n'est-ce pas il faut aussi être juste ; c'est un petit assez de polémique) — il reconnaît aussi comment l'auteur, après avoir été dreyfusard et socialiste, en était arrivé à reconnaître la nécessité d'une renaissance du spiritualisme et à se soumettre à une discipline mystique restaurée. »
 
@@ -1550,13 +1361,9 @@ Ce que je reproche à M. le Grix ce n'est pas seulement, ce n'est pas tant de n'
 
 Au deuxième degré ce que je lui reproche ce n'est pas seulement non plus, ce n'est pas tant non plus qu'il n'ait absolument rien compris à ce que je fais et qu'il se soit mis aussitôt à en écrire. Il paraît, on dit que cela se fait. Ce que je lui reproche comme un
 
-UN NOUVEAU THÉOLOGIEN
-
 mauvais procédé, comme un procédé évident de mauvaise foi, et même assez enfantin, quelque assez habile, mais l'un n'exclut pas l'autre, c'est de m'avoir attribué, c'est d'avoir présenté comme étant de moi, comme venant de moi, comme venant de mon opinion tout le mal qu'il avait envie de dire de moi, qu'il se préparait à dire de moi. Cette tactique est représentée dans la phrase écho de M. Laudet par ces quelques mots : « ... en était arrivé à reconnaître la nécessité d'une renaissance du spiritualisme et à se soumettre à une discipline mystique restaurée. »
 
 Or si j'ai précisément dit quelque chose depuis ces dernières années porté sur l'histoire de ces vingt dernières années et en elles sur l'histoire de toute une génération, portant témoignage pour toute une génération ce que j'ai précisément dit c'est le contraire, — (et cela prouve qu'on a bien du mal à se faire entendre), — c'est que nous avons toujours continué dans le même sens, c'est qu'il n'y a dans notre carrière, dans notre vie aucun point de rebroussement, — (je ne le dis pas parce que c'est bien, je le dis parce que c'est vrai ; je ne dis aucunement que cela vaut mieux, je dis que cela est ainsi ; je ne dis aucunement que nous valions mieux que ceux qui ont eu un point de rebroussement, un point de conversion, une conversion ; ce serait aussi fort loin de ma pensée ; et même peut-être exactement le contraire de ma pensée ; je dis seulement que nous sommes ainsi, que nous fûmes tels, que nous avons été ainsi, que notre histoire fut telle, en tous sens heroi). Dieu nous garde de cette pensée que nous vaudrions mieux que les autres. Mieux que personne. C'est peut-
-
-M. FERNAND LAUDET
 
 être la pensée dont j'ai le plus horreur. Le cœur humain a ses secrets. Il a ses détours. Autant je tiens à être d'une race éminente, d'un peuple éminent, parce que c'est vrai, autant je tiens à ce que cette race, à ce que ce peuple soit rare, unique, éminent, parce que c'est vrai, autant au contraire, on peut-être plutôt par le même mouvement, autant je tiens aussi à ce que dans cette race, dans ce peuple, une fois dans cette race, une fois dans ce peuple, nous n'y soyons pas plus malins que les autres.
 
@@ -1566,19 +1373,13 @@ Et qui ainsi nous a fait battre en 70.
 
 C'est donc sans une ombre d'orgueil, ce n'est donc pas pour me vanter que je le dis. Je ne le dis que parce que c'est vrai. Parce que c'est un fait. En fait nous n'avons point eu, notre génération n'a point eu dans notre carrière un point de rebroussement. Ni un point de rétorsion ni un point de révulsion. Nous avons constamment suivi, nous avons constamment tenu la même
 
-UN NOUVEAU THÉOLOGIEN
-
 voie droite et c'est cette même voie droite qui nous a conduits où nous sommes. Ce n'est point une évolution, comme on dit un peu sottement, employant inconsidérément, par un abus lui-même incessant, un des mots du langage moderne qui est devenu lui-même le plus lâche, c'est un approfondissement. Il est évident que je ne puis parler ici que pour moi-même. Et pour cette race d'esprits qui effectue avec moi le même approfondissement. Nous tenons depuis vingt ans, depuis notre jeunesse la même voie droite, la même voie d'approfondissement. Elle nous a menés loin. Grâces en soient rendues. Je ne puis parler naturellement que pour moi et pour ceux de ma race spirituelle parmi ceux de ma race charnelle. C'est par un approfondissement constant de notre cœur dans la même voie, ce n'est nullement par une évolution, ce n'est nullement par un rebroussement que nous avons trouvé la voie de chrétienté. Nous ne l'avons pas trouvée en revenant. Nous l'avons trouvée au bout. C'est pour cela, il faut qu'on le sache bien de part et d'autre, chez les uns et chez les autres, c'est pour cela que nous ne renierons jamais un atome de notre passé. Nous avons pu être pécheurs. Nous l'avons été certainement beaucoup. Pro nobis peccatoribus. Mais nous n'avons jamais cessé d'être dans la bonne voie. Notre préfidélité invincible, notre jeune préfidélité aux mœurs chrétiennes, à la pauvreté chrétienne, aux plus profonds enseignements des Évangiles, notre obstinée, notre toute naturelle, cette allante préfidélité secrète nous constituait déjà une paroisse invisible.
 
 Nous avons pu être avant la lettre. Nous n'avons jamais été contre l'esprit.
 
-M. FERNAND LAUDET
-
 C'est donc par une inintelligence profonde, par un grossier contresens, justement celui qu'il ne fallait pas faire, comme toujours, que M. Laudet, adoptant, résumant un contresens beaucoup plus étendu de M. le Grix, écrit : « il reconnaît aussi comment l'auteur, après avoir été dreyfusard et socialiste, en était arrivé à reconnaître la nécessité d'une renaissance du spiritualisme et à se soumettre à une discipline mystique restaurée. » Si j'ai dit quelque chose au contraire, depuis deux et trois ans, et qui exprimait, qui représentait, qui traduisait ce qui s'est passé depuis vingt ans, c'est que notre dreyfusisme et notre socialisme était profondément spiritualiste, — (bien que je n'aie nulle grâce à employer ce mot, déconsidéré par Cousin et par l'école cousinienne, qui fut une ancienne école intellectualiste), — et qu'il était profondément mystique et profondément une discipline mystique. Quant à restaurer une discipline mystique, Dieu merci on n'a pas besoin de nous. Il ne s'agit point de restaurer un règne aboli. Il s'agit si je puis dire de continuer tout tranquillement dans le temps à notre tour un règne spirituel qui ne sera jamais aboli.
 
 § 293. — En résumé, en allant du préalable vers le couronné, et en restant dans la géographie, — (si j'ai encore le droit de me servir de ce mot), — il y a les chrétiens qui s'ignorent, — (c'est un peuple très nombreux) ; — il y a les qui ne s'ignorent pas, mais qui ne sont malheureusement pas chrétiens, — (c'est un peuple malheureusement très nombreux) ; — et il y a les chrétiens qui se connaissent, — (c'est un peuple assez nombreux).
-
-UN NOUVEAU THÉOLOGIEN
 
 § 294. — Je veux le dire en quelques mots. M. Laudet a beau invoquer contre moi, pour me taxer d'ingratitude, les compliments que M. le Grix veut bien m'adresser en tête et en queue de son article, et quelquefois en cours de route, car il en a saupoudré de loin en loin tout son article, comme d'une poudre légère. Il m'a poudré à frimas.
 
@@ -1586,13 +1387,9 @@ Premièrement quand même ces compliments ne me seraient pas très suspects, —
 
 D'autre part, deuxièmement les compliments de M. le Grix me sont suspects de toutes parts. Ils me sont notamment suspects parce que et en ce que ils ne
 
-M. FERNAND LAUDET
-
 tiennent aucunement au reste. Ils ne sont point complémentaires du reste. Ils sont là, ils viennent là on ne sait pas pourquoi. Ils sont généralement purement contradictoires avec tout le reste. Sans même aucun souci de liaison même formelle. Faut-il que ce soit moi qui accuse, qui argue M. le Grix d'incohérence et même d'incohésion.
 
 Il faudra pour le moins que je l'accuse de mauvaise foi. Ces compliments inadhérents, ces compliments mal attachés ne servent qu'à masquer l'opération. Ils ne servent qu'à donner le change. Ce sont eux précisément, et ils ne servent qu'à cela, ils ne sont mis là que pour cela, ils ne servent qu'à couvrir M. Laudet, M. le Grix, ce sont eux précisément qui rendent nocives toutes les imputations, tout le reste. Ce que je reprocherai à M. le Grix, puisqu'on veut qu'il existe, c'est cette mauvaise foi d'ailleurs assez connue et assez grossière qui consiste à éreinter quelqu'un en affectant de prendre ses défenses. De prendre sa défense. Tout l'article de M. le Grix se résume en cela, se peut rassembler sur le schéma suivant. Il joue la comédie suivante, bien connue : Je suis, dit-il, l'avocat de ce malheureux Péguy, — (c'est à peine s'il ne dit pas, il dit même presque que c'est moi qui l'ai chargé de ma défense) ; — je l'aime bien ; tout le monde l'aime bien ; il est si méritant ; — (padiéros, nos agenoux, de celui qui vous dit méritant) ; — quel dommage qu'avec la meilleure volonté du monde, avec tout le dévouement qu'on a pour lui on ne puisse pas trouver un seul argument à donner en sa faveur. Comme c'est malheureux qu'il soit aussi impos-
-
-UN NOUVEAU THÉOLOGIEN
 
 sible à défendre. Que sa cause soit aussi abandonnée. Comme il est à plaindre. Comme je sais à plaindre. Comme tu es à plaindre. Plaignons-le. Plaignez-moi. En vérité tout ce jeu n'est pas bien nouveau.
 
@@ -1602,15 +1399,11 @@ C'est une scène de Courteline. Mais c'est beaucoup moins bien que dans Courteli
 
 « C'est done, écrit M. Laudet, l'organisation d'une publicité donnée à mon nom et je n'aurais pas lieu de m'en plaindre, étant gratuitement nommé dans le Bulletin 161 fois. — (Oui, monsieur Laudet, nous saisissons le fin de la plaisanterie). — Mais grief que soit le relief que puisse donner la critique du Bulletin des Professeurs catholiques de l'Université, il est de mon devoir de considérer et de signaler comme un faux l'usage que l'on fait de mon nom pour un article que
 
-M. FERNAND LAUDET
-
 l'on sait que je n'ai pas écrit, et la fraude est d'autant plus grave que l'on fait dire à M. le Grix dans l'article que l'on a intérêt à m'attribuer des choses qu'il n'a jamais dites et dont il se défendra du reste lui-même. »
 
 § 296. — Je ne saurais trop conseiller à M. Laudet d'user sagement de tous ces grands mots. Si c'est pour m'épouvanter, je n'ai pas l'habitude. S'il veut m'appeler, je sais me rendre. Il n'a pas besoin de faire tant de bruit. Qu'il accuse moins, qu'il argue moins. J'entends. Il n'a pas besoin de crier si fort. Qu'il argue d'autant moins que moi aussi, si je réponds à M. le Grix, puisque M. le Grix existe, puisqu'on veut que M. le Grix existe, moi aussi j'aurai à faire usage de ces mots. Non point pour faire une violence. Non point pour faire une injure. Non point même pour faire une offense. Mais pour qualifier historiquement un acte. Pour énoncer même historiquement un fait. Un des arguments que j'aurai en effet à produire contre M. le Grix, — (et ne sera-ce point faux, et ne sera-ce point fraude), — l'un de mes principaux arguments peut-être, peut-être le capital sera non pas qu'il a dit beaucoup de mal de moi dans son article, mais que tout le mal qu'il en a dit il me l'a attribué, je veux dire il l'a présenté au public comme étant de moi, comme venant de moi. Comme ayant été dit par moi. C'est un des cas de reportage les plus curieux que j'aie jamais rencontré.
 
 § 297. — M. Laudet sait très bien à présent que je n'ai point commis un faux et que je n'ai point commis une fraude en saisissant M. Laudet et en refusant de
-
-UN NOUVEAU THÉOLOGIEN
 
 saisir M. le Grix. Ne le faisons pas sot. Il le savait très bien avant que je le lui eusse expliqué aussi expressément. Tant qu'on n'aura pas supprimé le décret-loi de 1848 sur le tâcheronnage, je refuse d'avoir affaire à des sous-entrepreneurs.
 
@@ -1620,19 +1413,11 @@ saisir M. le Grix. Ne le faisons pas sot. Il le savait très bien avant que je l
 
 § 300. — Ce souci fort louable de dégager M. le Grix, — (Laudatus laudabilis), — entraîne quelquefois M. Laudet un peu loin. M. Laudet outrepasse quelquefois quelque peu. — « Devant de telles incohérences — (c'est moi, monsieur, sans nulle vanité) — on hésite — (dit M. Laudet) — on hésite à s'adresser aux tribunaux qui font justice des diffamations ; je préfère me tourner d'abord vers Charles Péguy que je ne connais pas — (comme c'est vrai) — (ça) — et contre lequel je n'entretiens aucune animosité personnelle, et je lui dis : « Cher Maître, — (je vous en prie, je vous en prie, monsieur Laudet) — vous êtes trop averti — (hélas oui je suis trop averti) — pour insinuer sérieusement — (il nomme cela insinuer) — que la Revue hebdomadaire est bour-
 
-M. FERNAND LAUDET
-
 rée d'hérésies... » — Monsieur Laudet ne parlons point de vous adresser aux tribunaux qui font justice des diffamations. Si vous voulez faire une belle carrière dans le monde des lettres, je vous conseille vivement d'inaugurer cette carrière en m'attribuant devant les tribunaux qui font justice des diffamations. Eh quoi, tout de suite le bras séculier. Je conseille vivement à M. Laudet de soumettre aux tribunaux de l'État, de faire trancher par les tribunaux de l'État le procès demi spirituel demi temporel que je lui fais. J'ai contre M. Laudet, je fais à M. Laudet deux griefs, je lui oppose deux chefs d'accusation. Mettons que je les ai insultés un peu rudement. Premièrement, et c'est à mon sens un grief infiniment grave, je l'ai accusé d'essayer d'opérer un détournement des consciences fidèles. Deuxièmement et dans l'ordre de la culture je l'ai accusé d'essayer d'opérer un détournement des consciences classiques. Vive la nation, qu'il soumette ces deux grands procès aux tribunaux de la République. Ce sera assez curieux. D'abord ce sera nouveau. Croit-il que je vais me laisser dévorer tout cru. Ignore-t-il qu'il y a une certaine nommée Reconvention. Ce qui ne veut pas dire hélas une deuxième Convention. Ne croit-il pas, ne sait-il pas qu'il y a dans l'article de M. le Grix et dans son propre article de M. Laudet une riche matière pour asseoir la plus opulente des reconventions. Une somptueuse demande et poursuite reconventionnelle. Ne sait-il pas que moi aussi j'ai un avocat ; ne sait-il pas qui occupe pour moi ; et que heureusement mon défenseur n'est pas toujours ministre. — (Heureusement pour moi, malheureusement pour le pays).
-
-UN NOUVEAU THÉOLOGIEN
 
 § 301. — Ce qui me ferait croire que M. Laudet est infiniment plus engagé avec M. le Grix qu'il ne le croit peut-être lui-même dans ce que je me suis permis de nommer le détournement des consciences fidèles, c'est un certain ton de bassesses et de trivialité et de mauvaise familiarité avec le sacré, un ton d'une bassesse, d'une trivialité, d'une mauvaise familiarité de fond qui reparaît régulièrement à la surface, et presque constamment, dans l'article de M. Laudet. Je n'ai horreur de rien autant que de cela. Rien ne m'est aussi odieux, rien n'est aussi déclaré à mon sens que cette sorte basse de mauvaise familiarité de sacrilège. Cette sorte de grosse et de grossière plaisanterie, trivialité, cette vulgarité, ce sans-gêne dans le propos même afférant au sacré. Pour moi ces mœurs grossières du langage et de la tenue, du propos, de l'attitude, tout ce qui trahit l'être même, c'est une opinion personnelle, où je ne veux rien engager, mais personnellement pour moi ces mains grossières me sont plus odieuses, je dois le dire, que des propositions fausses mais respectueuses, fausses mais déférentes. Cette sorte de basse trivialité qui fait oh ! oh ! Elle est constante dans l'article de M. Laudet. Pour moi, c'est évidemment une faiblesse, mais je ne juge pour ainsi dire jamais un homme sur ce qu'il dit, mais sur le ton dont il le dit. Ce que nous disons est souvent grave, sérieux. Le ton dont nous le disons l'est toujours. Ce que nous disons n'est pas toujours décélateur. Le ton dont nous le disons l'est toujours. Il y a dans cet article de M. Laudet une constante vulgarité de fond de cette sorte qui reparaît constamment à la surface par plaques et qui me donne la plus
 
-M. FERNAND LAUDET
-
 mauvaise opinion, et de sa pureté d'intention, — (je n'ai tout de même pas le droit de parler de sa pureté de cœur), — et même de moins que de cela, d'une certaine finesse élémentaire, d'une certaine bonne tenue élémentaire moyenne de cœur et d'esprit, le moins que l'on puisse demander. Le mécanisme de cette grossièreté, de cette vulgarité est, lui, aisément saisissable. Il consiste à rapporter directement comme une pièce mal ajustée je ne dis pas le sacré au profane, ce qui ici n'aurait aucun sens, mais une certaine grandeur de sainteté, un certain ton de sacré, à une tout autre petitesse de médiocrité chrétienne comme peut être la nôtre. Au lieu de référer nos médiocrités chrétiennes aux grandeurs des saintetés chrétiennes pour cette opération de report dans la communion que nous devons faire et qui peut nous sauver, M. Laudet les rapproche, les rapporte instantanément l'une à l'autre, l'une sur l'autre, comme deux pièces mal jointes, mal faites, mal ajustées, non faites l'une pour l'autre, brutalement, il en fait un raccord mal fait. Je ne sais pas si je me fais bien comprendre. Ou plutôt je sais que je ne me fais pas bien comprendre. Je sens très vivement, — (mais c'est difficile à exprimer), — je sens très vivement que c'est très grave, je sens très vivement cette espèce d'impiété qui consiste à tout mêler ensemble, à rapporter brutalement par un raccord mal fait ces grandeurs sur nos médiocrités. Il y a là une sorte d'inconvenance propre qui me blesse beaucoup. Qui me frappe très vivement. M. Laudet croirait en vain que j'en ai fait autant, que c'est ce que j'ai fait dans le communiqué, car dans le communiqué j'ai fait très précisément le
-
-UN NOUVEAU THÉOLOGIEN
 
 contraire. Loin de rabattre ces grandeurs et de les rapporter sur nos médiocrités par un raccord mal ajusté, j'ai au contraire, partant de nos médiocrités, fait l'ascension que je devais vers la considération de ces grandeurs. Ce qui me blesse, dans cette sorte de médiocrité que je veux dire, c'est un constant rabaissement, c'est un constant rabattement, c'est un constant avilissement. Une réduction constante des grandeurs aux médiocrités. Cela aussi est intellectualiste, est apparenté à la manie intellectualiste et intellectuelle, au goût secret profond de l'intellectuel pour la bassesse, pour la médiocrité. Un apparentement sournois, louche, beaucoup plus qu'une assimilation, des grandeurs aux médiocrités. C'est exactement le contraire que j'ai fait dans le communiqué. J'ai haussé d'un seul coup et me suis maintenu dans la haute région. M. Laudet dira ce qu'il voudra du communiqué. C'est son droit, c'est de bonne guerre. Je n'y dis rien. Il y a une règle et une permission et des licences de la guerre. Il dira tout ce qu'il voudra, mais il ne pourra pas dire que j'ai abaissé le débat.
 
@@ -1640,33 +1425,21 @@ Ce qui me blesse, c'est de voir appliquer directement ces grandeurs, — toutes 
 
 « Mais, pour être complet, écrit M. Laudet, il faut ajouter que les éloges de Le Grix comportaient aussi
 
-M. FERNAND LAUDET
-
 des réserves et c'est alors que tout s'est gâté. Le culte de Le Grix pour Péguy n'était ni de latrie ni même de dulie ; ... » On sent ce que je veux dire, cette sorte d'impiété propre, de mauvais ton. Ailleurs :
 
 « Non, il ne savait pas qu'il y avait un cinquième évangile, — (on ne saurait croire combien cette sorte de plaisanteries me font mal, profondément, me blessent. Elles me font tellement mal que rien que de les copier pour les faire imprimer et les publier à mon tour, — et pourtant c'est pour ma défense. Et il le faut bien. Mais c'est un sale métier. Que de se défendre. Ainsi. — Rien que de les copier de sa main, pour me défendre, avec mon encre et ma plume sur mon papier à copie, j'éprouve le sentiment d'un abaissement moi-même, sentiment parfaitement fondé, j'éprouve une sorte d'abaissement indéniable, je sens bien, indéniablement, que je me rends complice, d'une basse complicité, que je lui donne la main, que j'entre dans le jeu, que je me fais comme lui. J'ai le sentiment de commettre ici je ne dis pas la seule faute, je ne dis pas peut-être le seul péché, mais je dis certainement la seule bassesse que j'ai commise dans tout ce débat. De copier. De reproduire, de le republier ici. Sentiment non trompeur. Je vois bien que je fais un mauvais métier. C'est la seule partie de ce gros cahier qui me grave un regret. On me dit bien que c'est forcé, qu'il faut que je me défende, qu'il faut bien que je montre à quelle sorte de gens j'ai affaire. Nous savons de reste que des bassesses inévitables et que nous voyons seulement commettre peuvent nous laisser
-
-UN NOUVEAU THÉOLOGIEN
 
 des regrets et j'irai jusqu'à dire une contrition éternelle.
 
 « Non, — écrit-il, et je suis forcé de copier, — Non, il ne savait pas qu'il y avait un cinquième évangile, que dis-je ! presque un nouveau Messie — (il a écrit cette affreuse bassesse) — qui avait « son mystère » — (il a écrit cette affreuse bassesse) — et que si l'on s'avisait d'une timide critique ou d'une excusable incompréhension, on serait retranché du monde catholique, — (si à mon tour je voulais employer les grands mots, monsieur Laudet, où ai-je dit qu'on serait retranché du monde catholique, et de quel droit l'aurais-je dit, ou est mon magistère. Et puis ça me ressemble bien, de l'avoir dit. Aussitôt après ce Mystère de la Charité que M. Laudet n'a certainement point lu, où le retranchement d'un seul membre est constamment considéré comme une calamité infinie, au seuil de ce Porche ouvert sur l'espérance où la seule espérance considérée, où la seule espérance de cette ainsi dire espèce est naturellement l'espérance du salut. Et puis ça me ressemble bien, ce retranchement, et ce monde catholique. Ça me ressemble comme cet essai de stylisation du parler populaire que M. le Grix non seulement m'attribue, mais, si je puis dire, qu'il m'attribue que je m'attribue. Je ne crois pas que j'aie jamais parlé du monde catholique. J'ai parlé souvent de l'Église, de la communion. Je ne me sens pleinement à moi, je ne touche vraiment le fond de ma pensée que quand j'écris la chrétienté. Alors je vois à plein ce que je dis. Je n'ai jamais voulu retrancher M. Laudet du monde
 
-M. FERNAND LAUDET
-
 catholique. Je l'ai, comme simple fidèle, argué de vouloir opérer un détournement des consciences fidèles).
 
 ... « on serait retranché du monde catholique, mis à l'index par le récent pontife, — (on sent le jeu, l'affreux jeu, cette affreuse bassesse), — par celui qui n'emploie pas une expression qui ne soit « techniquement théologique » et qui « surveillera désormais les consciences fidèles ».
 
-Ailleurs :
-
 « L'école Péguy a décidé, après examen, qu'il n'existe plus et même qu'il n'a jamais existé. Tout devient aisé quand on est l'auteur d'un mystère, et comme l'Académie de Coutances ne connaissait pas François le Grix, il a été décidé qu'il était un mythe ou plutôt que son nom — (je passe sur Tout devient aisé quand on est l'auteur d'un mystère, mais on sent cette contamination, ce mélange voulu, cette volonté de parler faussairement, cette confusion des registres, de sorte qu'on ne sait jamais sur quel plan on est, sur quel plan on parle, cette mixture, ce mythe mis avec ce mystère) — n'était que le pseudonyme de Fernand Laudet, directeur de la Revue hebdomadaire. »
 
-Ailleurs :
-
 « Il n'est pas sans intérêt du reste de donner quelques autres extraits de ce nouvel apocalypse qui
-
-UN NOUVEAU THÉOLOGIEN
 
 nous vient de Coutances ; les textes, mis en versets, comme ceux des écritures, éclaireront mieux les lecteurs que tout commentaire, et nous les signalons au bon sens français ;... » — (Il se sauve en ne mettant pas de grande capitale à apocalypse et à écritures. Mais apocalypse ne serait-il pas du féminin, monsieur Laudet).
 
@@ -1674,49 +1447,29 @@ Ailleurs encore :
 
 ... « mais il connaissait et aimait le christianisme, plus simplement et moins déclamatoirement, avant d'avoir découvert la Somme de Péguy. »
 
-Ailleurs enfin :
-
 « S'il avait dit cela, on pourrait songer à canoniser l'auteur du pamphlet. » — Je ne sais pas si on sent comme moi le jeu affreux qu'il y a là dedans, le jeu bourgeois, la basse plaisanterie grossière avec le sacré, ce geste du café du Commerce de taper sur le ventre.
 
 § 302. — Toutes ces bassesses, toutes ces familiarités sont affreuses. Les plus pénibles peut-être, enfin celles qui nous blessent peut-être le plus, moi personnellement, et cela se comprend, sont naturellement celles qui se réfèrent directement à Jeanne d'Arc : « Comme toujours, les disciples exagèrent la doctrine du maître ; calmes celui de Coutances, conseillez-lui de revenir à une plus juste appréciation des choses et reprenez-le de ce qu'il ni a ni retenu de la vie de Jeanne d'Arc que la manière de ses juges. » Je ne sais pas si
 
-M. FERNAND LAUDET
-
 l'on sent l'inconvenance, la bassesse de plaquer ainsi directement, de rapporter ainsi directement le Procès de Jeanne d'Arc sur nos misérables querelles. C'est le procédé que je trouve le plus bas qu'il y ait au monde. Il tombe cette fois-ci particulièrement mal. Car généralement les « juges » ne sont point de notre côté. Et particulièrement ses juges et la manière de ses juges sont d'un côté que M. Laudet connaît bien. Il faudrait avoir bien peu d'histoire pour ne pas saluer dans les Docteurs les représentants du perpétuel Parti Intellectuel, dans les Docteurs de Rouen les successeurs des Docteurs juifs, les légitimes ancêtres de notre Parti Intellectuel. Faut-il ajouter que ceux de Rouen et d'ailleurs avaient reçu en appoint un fort contingent de la Sorbonne.
-
-Ailleurs enfin :
 
 « Non, certes, ce n'est pas lui. D'abord l'article n'est pas signé et jamais Péguy, qui s'inspire de la chevaleresque Jeanne d'Arc, ne consentirait à écrire un pamphlet qu'il ne signerait pas, et surtout un pamphlet aussi haineux, lui qui ne cesse de prêcher à bon droit « la loi d'amour » ; d'autre part Péguy n'en est pas réduit à ne trouver d'hospitalité pour sa prose qu'à Coutances dans le Bulletin des Professeurs catholiques de l'Université qui a 190 abonnées, parmi lesquels 33 abonnés fermes n'ont pas encore acquitté leur abonnement. »
 
 La chevaleresque Jeanne d'Arc. — C'est vouloir
 
-UN NOUVEAU THÉOLOGIEN
-
 parler un langage mou, c'est se condamner à parler et niaisement et faussairement, — et faussement, — puisque c'est se condamner à parler un langage impropre, — que d'écrire la chevaleresque Jeanne d'Arc. C'est vraiment faire exprès la confusion préalable des plans de langage. Ou bien on veut dire confusément, on veut dire mollement la chevaleresque Jeanne d'Arc en im sens vague, en un sens lui-même confus et mou de généreuse. Et alors c'est une expression pour comice agricole. Et encore on ne l'aurait pas soufferte à la distribution des prix à Trie. Et c'est certainement en ce sens que l'entend et que le dit M. Laudet. Et alors il ne peut rien dire. Et il ne veut rien dire. Et il ferait mieux de se taire. Et de ne pas intercaler Jeanne d'Arc dans ce débat. Ou bien on veut parler précisément. Et alors on doit faire peut-être encore plus attention. Si on veut parler précisément chevaleresque veut dire entendue, éminente aux lois et faits de chevalerie. Or nous savons que cette grande sainte, sans manquer proprement, sans manquer formellement aux règles de chevalerie, aux lois et faits de chevalerie, d'ailleurs fort déclinantes en ce commencement du quinzième siècle, sans se mettre en dehors de cette chevalerie déclinante n'y était non plus jamais réellement entrée. Elle était peuple et chrétienne et sainte. Elle fut très certainement en un sens une femme d'armes; on pourrait presque dire une guerrière. Elle fut incontestablement un très grand chef militaire. On ne peut pas dire, à moins d'y tenir, à moins de vouloir parler exprès un langage bien impropre, qu'elle ait été proprement un chevalier. Le dirai-je, elle était trop profondément peuple et encore
-
-M. FERNAND LAUDET
 
 plus trop profondément chrétienne et trop profondément sainte. Ce qu'il y a d'honneur humain et on pourrait presque dire de stoïcien on pourrait presque dire dans celte religion de l'honneur qu'était la chevalerie, les lois et faits, la loi et le geste et l'attitude de chevalerie ne s'accordait pas toujours avec une religion qui a mis l'Orgueil en tête des Capitaux, qui a fait de l'humilité plus peut-être qu'une vertu, son mode même et son rythme, son goût secret, son attitude extérieure et profonde, charnelle et spirituelle, sa posture, ses mœurs, son expérience perpétuelle, presque son être. Il y eut il ne faut sans doute peut-être pas dire pendant tout le Moyen-Age, mais pendant tout le règne de la Féodalité il y eut si je puis dire et plus que quelque contrariété et comme une certaine concurrence profonde entre la religion de l'honneur et la religion de Dieu. Soyons assurés que Jeanne d'Arc le sentait très profondément. Elle était trop profondément peuple et trop profondément chrétienne et trop grande et trop profondément sainte pour ne pas le sentir et l'avoir senti très profondément. Elle fut une fleur de vaillance française, de charité française, de sainteté française. Elle fut une fleur de la race chrétienne et de la race française, une fleur de chrétienté, une fleur de toutes les vertus héroïques. On ne peut pas dire, à moins de forcer beaucoup le sens des mots, ou au contraire à moins de se remettre à parler mou, qu'elle fut une fleur de chevalerie. Une vocation trop profonde l'avait marquée. Croyons qu'une sainte marquée à ce point pour tant de grandeur et pour une vie si profonde, marquée à ce
 
-UN NOUVEAU THÉOLOGIEN
-
 point pour toutes les vertus, marquée, appelée à ce point pour le ciel avait mesuré d'avance tout ce qu'il y a de précaire dans un honneur qui n'est que de ce monde. Elle faillit entrer plusieurs fois en conflit avec les lois de la guerre, qui étaient un cas particulier, mais la partie la plus considérable de la loi de chevalerie. Elle faillit entrer plusieurs fois formellement en conflit avec les lois de chevalerie. Elle y entra formellement au moins cette fois, ce jour où ayant ville prise elle ne voulut point laisser aller un paquet de prisonniers français que les Anglais avaient avec eux dans la ville, et qu'ils voulaient et devaient emmener, car ils étaient à eux, autant qu'on peut être à quelqu'un, de par toutes les lois de la guerre, puisqu'on ne les leur avait pas rachetés, puisqu'on ne les leur avait pas repayés. Mais les marchands du Temple aussi avaient payé la patente, les marchands du Temple aussi étaient en règle. Elle ne s'embarrassait point de tout ça. L'idée de laisser partir tous ces pauvres gens, d'une ville qu'elle avait prise, lui était monstrueuse. Elle ne s'embarrassa pas de tout son règlement. Tout ce règlement, qu'elle savait très bien, qu'elle connaissait parfaitement, mais qu'elle connaissait comme appris, après, qu'elle ne connaissait point d'enfance, de Domremy, tout d'un coup ne lui pesa plus rien dans les mains dans un de ces accès de grande charité comme il n'en a été donné qu'aux plus grands saints. Elle entra dans une de ces grandes colères blanches, de ces grandes colères pures qui faisaient trembler une armée. On céda vite, on céda, on céda, aussitôt on céda. On arrangea tout ça. On se dépêcha. On les paya aux Anglais. On paya. On ne paya pas. Tout le monde
-
-M. FERNAND LAUDET
 
 avait parfaitement compris que ces gens-là ne s'en iraient pas de là. Les Anglais avaient pourtant capitulé à cette condition qu'ils s'en iraient saufs avec leurs biens. Mais les Anglais aimaient mieux s'en aller. Quand elle était là, ils aimaient généralement mieux s'en aller. C'était une habitude qu'elle leur avait fait prendre. Il y avait en ce temps-là au royaume de France de certaines heures qui sonnaient où les Anglais avaient envie de s'en aller. Quand elle entrait dans ces saintes colères, il ne faisait pas bon. Les Anglais n'en menaient pas large. Les Français non plus d'ailleurs. Elle avait de ces grandes colères qui ne sont été données qu'aux très grandes saintes, qui par la grande colère de Jésus, articulées par la grande colère de Jésus chassant les marchands du Temple rejoignent dans le temps les plus grandes colères des plus grands prophètes du plus grand peuple d'Israël.
 
 Ces lois de chevalerie d'ailleurs dès lors déclinante devaient bien d'ailleurs le lui revaloir, comme il arrive toujours quand un être en son âme profonde manque intérieurement de respect à une loi. Les lois savent toujours quand on leur manque, fût-ce dans le plus profond du cœur. Et c'est ce qu'elles pardonnent forcément le moins. C'est ce qu'elles pardonnent certainement le moins. Cette blessure profonde, cette blessure secrète, ignorée de tous, qu'elles ont vue. Jamais elle ne fut couverte, — et l'on peut dire que c'est une des conditions, que c'est peut-être la condition temporelle, je veux dire la condition de temps et de monde, comme nous disons de milieu où sa mission était
 
-UN NOUVEAU THÉOLOGIEN
-
 appelée à se produire, qui lui retirant toutes les garanties de la guerre ordinaire, la laissant, la faisant exposée aux risques de guerre extrêmes, et surtout aux risques de guerre en outre, extraordinaires, donna à sa mission, à l'accomplissement de sa mission, cette grandeur unique de risque, d'exposition au danger, — jamais elle ne fut réellement couverte par les lois de chevalerie. C'est ce qui donna un prix unique à ses Vertus héroïques. Voici ce que je veux dire. Il faut bien voir, il faut mesurer cette héroïque ascension de sainteté, il faut bien mesurer au juste à quel degré de sainteté, à quel degré d'héroïsme elle était parvenue et constamment se tint. Quelles que soient les forces des sources vives, quelles que soient les inventions et les perpétuels rejaillissements et jaillissements, quelles que soient les inépuisables nouveautés de la grâce il y a ensemble indéniablement une certaine technique, une certaine saison hiérarchie comme professionnelle, une armature et une ossature presque de métier, une certaine sainte hiérarchie processionnelle de la Vertu héroïque et de la sainteté. Il y a des degrés qui sont les degrés mêmes du Trône. Au premier degré Jeanne d'Arc eut dans leur plein les vertus de la guerre, qui ne sont pas petites. Je veux dire très expressément par là et très proprement qu'elle entra dans le jeu de la guerre et dans le risque de guerre à plein, sans aucune restriction, sans aucune intervention, sans aucune intercalation de protection divine propre. Elle obéissait, elle accomplissait une mission divine propre dans un monde humain sans avoir touché une protection divine propre correspondante. Elle avait reçu l'ordre ; elle
 
-M. FERNAND LAUDET
-
 avait reçu la vocation ; elle avait reçu la mission. Elle obéissait, elle exécutait l'ordre ; elle répondait à la vocation ; elle accomplissait sa mission. Elle procédait à l'exécution, à l'accomplissement de sa mission dans une humanité dure (et tendre), dans un monde, dans une chrétienté dure et tendre, elle-même douce et ferme, forte, douce, quelquefois apparemment dure. Apparemment rude. Pendant toute sa mission elle reçut assistance de conseil, nous le savons, par l'assistance et le conseil constamment renouvelé, constamment présent de ses voix. Par cette sorte d'assistance de conseil, presque féodale, perpétuellement renouvelée, perpétuellement présente. Pendant toute sa mission, et j'y compte sa captivité, quelques absences qu'elle ait eu à y souffrir, et sa mort. Pendant toute sa mission et dedans pendant sa captivité elle reçut constante assistance de conseil de ses voix et une abondance de grâces dont nous ne pouvons avoir aucune idée. Le jour de sa mort elle reçut une grâce qui ne fut jamais donnée peut-être, ainsi et à ce point, à aucune autre sainte, de sorte que le jour de sa mort ne fut déjà plus pour elle le dernier jour de la vie de cette terre mais littéralement réellement déjà le premier jour de sa vie éternelle. Mais enfin avec cette mission, avec cette vocation, avec toutes ces grâces, avec tous ces dons, avec cette présence constante de conseil elle ne reçut jamais ni la grâce, ni le don, ni le conseil, ni aucune faveur d'être invulnérable. Elle fit la guerre exposée à tous les accidents de la guerre. Elle fit comme tout le monde une guerre comme tout le monde. Moins heureuse que tant de saintes, moins heureuse que tant de prophètes mêmes et que tant de
-
-UN NOUVEAU THÉOLOGIEN
 
 chefs du peuple d'Israël les anges qui l'assistaient de leurs conseils, ou les saints, ne combattaient point à ses côtés. Jamais la parole de Jésus : Penses-tu que je ne puisse pas maintenant prier mon Père, qui me donnerait aussitôt plus de douze légions d'anges? Comment donc s'accompliraient les Écritures qu'il faut que cela arrive ainsi? n'a s'accompli aussi pleinement dans une sainte et nous rejoignons ici cette vocation, cette élection unique, cette imitation unique par laquelle on peut dire que de toutes les saintes elle fut celle à qui certainement il fut donné que sa vie et sa Passion et sa mort fut imitée au plus près de la vie et de la Passion et de la mort de Jésus.
 
@@ -1724,15 +1477,11 @@ Je sais bien que je ne pourrai jamais mettre dans les Mystères tant de grandeur
 
 Douze légions d'anges. Elle ne les demanda pas non plus. Elle ne les demanda jamais. Ce conseil, qu'elle avait, ce conseil qu'elle avait, était comme la conséquence, comme la suite naturelle de l'ordre, de la vocation, comme la suite
 
-M. FERNAND LAUDET
-
 naturelle, surnaturelle naturelle, venant des mêmes voix, porté par le même ministère, ce conseil qu'elle eut, qu'elle avait, presque familièrement pour ainsi dire, à son usage comme la prière quotidienne, ce conseil usage comme la prière du matin et du soir elle le (re)demanda souvent. Des secours surnaturels de guerre directs, physiques, une assistance de guerre, des troupes surnaturelles de guerre qu'elle n'avait pas, elle ne les demanda jamais.
 
 On voit même très bien par les textes que l'idée ne lui serait pas venue un seul instant de les demander. Une noble discrétion de sainte, une noble discrétion de Française l'en empêchaient presque également. Autant elle insistait pour le conseil, qu'elle revendiquait on peut presque dire comme un droit, puisque Dieu l'avait envoyée dans cette extraordinaire mission, autant on voit bien qu'elle n'a pas l'idée qu'elle ait à demander un secours directement militaire, un secours militaire proprement, directement physique. Elle savait parfaitement dans quelles conditions de sainteté elle opérait. Et qu'elle avait reçu non seulement l'épreuve la plus dure, la mission la plus dure, mais aussi l'épreuve, la mission la plus rigoureusement, la plus exactement humaine.
 
 On ne saurait trop le redire et il faudrait pouvoir le marquer. Appelée par une vocation divine en terre humaine, envoyée en mission divine en terre humaine non seulement elle n'opéra jamais, mais elle ne demanda jamais d'opérer, elle ne pria jamais d'opérer que par des moyens humains. Vivant dans ce miracle perpétuel d'être assistée par des voix propres, de recevoir
-
-UN NOUVEAU THÉOLOGIEN
 
 constamment une assistance propre de conseil de voix qui lui étaient pour ainsi dire particulièrement et proprement attachées, personnellement affectées, elle ne demanda jamais un secours si l'on peut dire surnaturel physique, surnaturel direct, surnaturel directement militaire. Elle ne demanda jamais que les murailles s'écroulassent au son des trompettes. Et pourtant elle savait son histoire sainte. C'est un point que l'on ne saurait trop considérer, qui sera notre point cardinal, avec une histoire de Joinville, quand nous essaierons de déterminer, de dresser une carte géographique et géologique de la théorie du miracle.
 
@@ -1740,41 +1489,29 @@ Un roi de son temps, — n'était-ce point un roi d'Angleterre, — ne voulut po
 
 Elle le savait. Non seulement elle n'était point garantie, elle n'était point assurée contre la maladie et contre la blessure et contre la défaite militaire mais elle savait qu'elle n'était point assurée contre la maladie et contre la blessure et contre la défaite militaire. Elle se battait donc exactement dans les conditions ordinaires et pour ainsi dire dans le statut ordinaire. On vit bien à Orléans et à Paris qu'elle n'était point assurée contre la blessure. On vit bien à Compiègne qu'elle
 
-M. FERNAND LAUDET
-
 n'était point assurée contre la capture. On vit bien à Rouen qu'elle n'était point assurée contre la mort.
 
 Quand les gens lui demandaient des miracles si je puis dire ordinaires, des miracles de maladie, qui sont les plus ordinaires, elle se récusait immédiatement, avec une confusion d'humilité, ou en même temps avec bonne humeur, elle se récusait vite, arguant de son incompétence, se retranchant dans sa mission propre, dans sa vocation, leur indiquant, recommandant seulement de prier. Elle n'était venue que pour délivrer le royaume de France. Elle ne savait pas guérir cet enfant, ce petit garçon et cette petite fille. Cette sainte qui avait reçu le plus grand commandement qui ait jamais été donné à une sainte, qui avait été appelée pour la plus grande vocation, qui avait été envoyée dans la plus grande mission non seulement ne demanda jamais pour elle un miracle physique ordinaire mais quand on lui en demandait, c'est-à-dire exactement quand on lui demandait d'en demander, comme on avait coutume de le demander aux saints, vite elle se récusait, se dérobant presque derrière son incompétence. Elle ne savait pas. Elle n'avait point été envoyée pour cela.
 
 Elle accomplit une tâche divine par des moyens simplement humains. Elle exécuta un ordre divin par des moyens strictement humains. Elle répondit à une vocation divine par des moyens rigoureusement humains, par un travail, par une guerre militaire, par des opérations, par des efforts exactement humains. Elle accomplit une mission divine par des moyens simplement humains. C'est ce qui lui donne une place à part, une place toute éminente dans la hiérarchie des saintetés.
 
-UN NOUVEAU THÉOLOGIEN
-
 Notons encore, notons en outre que la matière où devait s'exercer cette sainteté était la plus extraordinaire, la plus hors de l'ordre, habituel, on pourrait presque dire la plus étrangère aux matières habituelles de la sainteté. Et même la plus contraire et ennemie aux matières habituelles de la sainteté. Entre toutes elle fut véritablement envoyée en mission extraordinaire. Par ces deux commandements elle a une place unique dans la hiérarchie des saintetés, elle est sainte et bénie entre toutes les saintes et ensemble par le premier elle est femme entre toutes les saintes.
 
 Que si d'autre part on veut la considérer non plus à son rang de sainteté mais à son rang d'humanité, qui ne voit aussitôt qu'elle est dans cet ordre une femme unique. Un être unique. Car si l'on veut elle est de la race des saints, et si l'on veut elle est de la race des héros. Venant de Dieu et retournant à Dieu et recevant constamment assistance de conseil de ses voix par tout son être elle est une sainte. Elle est de la race des saints. Mais dans cette dure humanité du quinzième siècle et de tous les siècles accomplissant par des moyens purement humains un tel ramassement d'exploits purement humains d'une guerre purement humaine, de toute une action purement humaine par toute son action comme extérieure, par tout son engagement corps et âme dans l'action militaire, dans toute une action de guerre, par toute sa condition, par tout son être d'action elle est un héros, elle est de la race des héros.
-
-M. FERNAND LAUDET
 
 Or non seulement la race des héros et la race des saints n'est pas la même. Mais ce sont deux races peu ou mal apparentées. On pourrait presque dire qui ne s'aiment pas, qui n'aiment pas frayer ensemble, qui sont gênées d'être ensemble. Il y a on ne sait quoi de profond et qu'il faudrait approfondir par quoi la race des héros et la race des saints ont on ne sait quelle contrariété profonde. Il n'y a peut-être point deux races d'hommes qui soient profondément aussi étrangères l'une à l'autre, aussi éloignées l'une de l'autre, aussi contraires l'une à l'autre que la race des héros et la race des saints. On découvrirait sans doute que cette contrariété profonde ne fait que traduire, mais sous une forme, sous sa forme peut-être la plus aiguë, sous sa forme éminente, cette profonde, cette éternelle contrariété du temporel et de l'éternel.
 
 Or Jeanne d'Arc, précisément parce qu'elle exerçait sa sainteté dans des épreuves purement humaines par des moyens purement humains, précisément parce qu'elle était demeurée entièrement vulnérable militairement, vulnérable à la maladie, vulnérable à la blessure, vulnérable à la capture, vulnérable à la mort, vulnérable à la défaite et à toute défaite, exposée en son plein comme un héros antique à toute aventure de guerre elle est de la race des héros comme elle est de la race des saints. Et comme dans la race des saints elle est et une sainte entre toutes les saintes et une femme entre toutes les saintes, ainsi, parallèlement ainsi dans la race des héros elle est un héros entre tous et une femme. Elle n'est pas moins éminente dans la hiérarchie héroïque que dans la hiérarchie sacrée. Et ainsi elle est à un point d'intersection unique dans
 
-UN NOUVEAU THÉOLOGIEN
-
 l'histoire de l'humanité. En elle se joignent deux races qui ne se joignent nulle part ailleurs. Par un recoupement unique de ces deux races, par une élection, par une vocation unique dans l'histoire du monde elle est à la fois sainte entre tous les héros, héroïque entre toutes les saintes.
 
 Or au deuxième degré dans cette guerre même que nous disons ordinaire et que nous disons qu'elle faisait ordinaire, elle-même ordinaire, en réalité nous savons bien que c'était une guerre extraordinaire, mais extraordinaire au contraire, dans l'autre sens, en sens contraire, dans le sens du risque et d'une aventure et d'un danger extraordinaire. Car elle n'était point « chevaleresque » et nous devons remercier M. Laudet de nous avoir acheminé à ces quelques précisions. A opérer ces quelques précisions. Elle ne fut jamais réellement couverte par la loi de chevalerie. Enfin par ce qui restait de son temps de la loi de chevalerie. Non seulement, pour une sainte, elle faisait la guerre. Non seulement elle faisait une guerre ordinaire. Mais cette guerre ordinaire elle la faisait non couverte par les protections ordinaires de la guerre. Enfin par le peu de loi de la guerre qu'il y avait encore. Ou qu'il y avait déjà. Elle était donc découverte au deuxième degré. Pour se défendre contre l'usage de la guerre elle n'avait que l'usage de la guerre. Pour se défendre contre l'abus de la guerre elle n'avait rien, puisque sainte elle n'avait naturellement pas, elle ne devait, elle ne pouvait pas avoir l'abus de la guerre. Contre l'usage de la guerre elle
-
-M. FERNAND LAUDET
 
 n'avait qu'une cuirasse ordinaire, une cuirasse comme tout le monde. Une cuirasse du commencement du quinzième siècle, monsieur le Grix. Toute flèche temporelle pouvait la blesser. On le vit bien à Orléans. On le vit bien à Paris. Toute main temporelle pouvait la saisir à l'épaule et la faire tomber de cheval. On le vit bien à Compiègne. Toute main temporelle pouvait lui bâtir l'appareil de sa mort. On le vit bien à Rouen. Mais ceci encore n'était qu'au premier degré. Dans l'usage de la guerre elle n'était point couverte. Dans l'abus de la guerre au deuxième degré elle n'était point couverte. Les Anglais ne cessèrent jamais de l'assaillir des plus basses injures. Enfin on le vit bien à Compiègne et à Arras et au donjon de Crotoy et à Rouen. Car faite prisonnière de guerre elle fut jugée comme prisonnière d'Église ou enfin, de quelque manière que l'on retourne la difficulté, faite prisonnière de guerre elle fut gardée prisonnière de guerre et en prison de guerre et en même temps jugée comme accusée d'Église. C'est-à-dire que de quelque manière que l'on tourne la difficulté elle fut détournée, on commit en elle, envers elle et en sa personne, un détournement de captivité.
 
 Ainsi elle ne fut couverte par aucune immunité ; ni dans une action humaine par une immunité divine, par une immunité de sainte ; ni dans la guerre par une immunité de sainte ni par une immunité de chevalier. Ni par une immunité juridique.
 
 § 303. — « et surtout un pamphlet aussi haineux, lui
-
-UN NOUVEAU THÉOLOGIEN
 
 qui ne cesse de prêcher à bon droit « la loi d'amour » ; — Monsieur Laudet vous savez très bien que je ne prêche pas. Où serait mon magistère. J'écris. C'est déjà beaucoup. Tout le monde ne pourrait pas en dire autant.
 
@@ -1783,8 +1520,6 @@ Un pamphlet aussi haineux. — Je vous assure, monsieur Laudet, que le communiqu
 Au demeurant si M. Laudet veut annoncer que je suis un pécheur, il ne m'apprend malheureusement rien (de nouveau) et n'apprend rien (de nouveau) à personne. Mais malheureusement nous en sommes tous là. Tous, enfin on sait ce que je veux dire. Tous même les saints. Seulement que M. Laudet ne se mêle point d'écrire mes Confessions. Elles seraient peut-être moins bien faites que quand je les écrirai moi-même.
 
 Mais si de ce que je suis un pécheur M. Laudet veut (en) conclure que je suis incompétent en matière de chrétienté, nego consequentiam, je nie la consé-
-
-M. FERNAND LAUDET
 
 quence. Et même en matière de sainteté. Car c'est tout un. Et il faut que M. Laudet soit lui-même bien incompétent en matière de chrétienté et en dedans en matière de sainteté pour ne pas voir et sa propre incompétence et ma compétence.
 
@@ -1809,13 +1544,9 @@ Le pécheur, ensemble avec le saint, entre dans le système, est du système de 
 
 Celui qui n'entre pas dans le système, celui qui ne donne pas la main, c'est celui-là qui n'est pas chrétien, c'est celui-là qui n'a aucune compétence en matière de chrétienté. C'est celui-là qui est un étranger. Le pécheur tend la main au saint, donne la main au saint, puisque le saint donne la main au pécheur. Et tous ensemble, l'un par l'autre, l'un tirant l'autre, ils remontent jusqu'à Jésus, ils font une chaîne qui remonte jusqu'à Jésus, une chaîne aux doigts indéliables. Celui qui n'est pas chrétien, celui qui n'a aucune compétence en christianisme, en chrétienté, en matière de chrétienté c'est celui qui ne donne pas la main. Peu importe ce qu'il fasse ensuite de cette main. Quand un homme peut accomplir la plus haute action du monde sans avoir été trempé de la grâce, cet homme est un stoïque, il n'est pas un chrétien. Quand un homme peut commettre la plus basse action du monde précisément sans commettre un péché, cet homme n'est pas un chrétien. Le chrétien ne se définit point par l'étiage, mais par la communion. On n'est point chrétien parce qu'on est à un certain niveau, moral, intellectuel, spirituel même. On est chrétien parce qu'on est d'une certaine race remontante, d'une certaine race mystique, d'une certaine race spirituelle et charnelle, temporelle et éternelle, d'un certain sang. Ce classement cardinal ne se fait point horizontalement mais verticalement.
 
-M. FERNAND LAUDET
-
 et ensemble si je puis dire sa fidélité de fidèle est des limites. Des limites temporelles provenant elles-mêmes certainement de limites spirituelles. A la fin de sa vie ne fuge mie ; — il pouvait y être. Il n'avait tenu qu'à lui d'y être. Sa fidélité de féal et sa fidélité de vassal s'était limitée à une seule, à la première des deux croisades. A celle qui ne comporta point ce que lui-même veut avoir été un martyre. CXLIV, 734. «... Je fu mout presses dou roy de France et dou roy de Navarre de moy croisier. » Et nous nous avons des raisons de croire, monsieur Laudet, que si nous avions été créés dans la première et même dans la deuxième moitié du treizième siècle, monsieur le Grix, et si nous en avions été mout pressés par le roi de France et par le roi de Navarre nous eussions été de ceux qui partirent pour la deuxième fois, nous aurions été de ceux qui pour la deuxième fois quittèrent Lozère et même Palaiseau. Ce que-là il m'en répondi tout long au roi de France et au roi de Navarre, 735. A ce respondi-je que, tandis comme je avoie esté en servise Dieu et le roy outre-mer, et puis que je en revins, lisserjant au roy de France et le roy de Navarre m'avoient destruite ma gent et apovoiés ; si que il ne seroit jamais heure que je et il n'en vausissent pis. Et loar disoie ainsis, que se je en vouloie ouvrer au gret Dieu, que je demourroie ci pour mon peuple aidier et deffandre ; car se je metoie mon cors en l'aventure dou pelerinage de la croiz, là où je veoie tout cler que ce seroit au mal et au doumage de ma gent, j'en courouçeroie Dieu, qui mist son cors pour son peuple sauver.
 
 736. Je entendi que tuit cil firent pechié mortel qui li
-
-UN NOUVEAU THÉOLOGIEN
 
 loerent l'alée, pour ce que on point que il estoit en France, touz li royaumes estoit en bone pais et en li mesmes et à touz ses voisins ; ne onques puis que il en parti, il estaz dou royaume ne fist que empirier.
 
@@ -1823,15 +1554,11 @@ loerent l'alée, pour ce que on point que il estoit en France, touz li royaumes 
 
 Fébles comme il estoit il laissa partir son roi et demoura en sa sénéchaussée de Champagne. Qu'importe, ce n'est pas ce que nous lui demandons. Ce que nous lui demandons, ce n'est pas tant cette fidélité-là, la fidélité du féal et la fidélité du fidèle. Il eût mieux valu qu'il l'eût, mais enfin il ne l'avait pas. Ou enfin il ne l'eut pas au delà d'une certaine limite. Ce que nous lui demandons, ce dont on parle, uniquement, c'est la fidélité du chroniqueur, c'est qu'il ait gardé souverainement, uniquement, cette fidélité unique du chroniqueur et du témoin. Cette fidélité unique du portrait. C'est qu'il nous ait laissé ce portrait unique que nul ne dérobera. Pour cela nous passerions tout. D'autres, — (assez d'autres ?) — enfin d'autres étaient là pour accompagner, d'autres accompagnaient le roi dans cette croisade de misère et de martyre. Lui seul, ayant
 
-M. FERNAND LAUDET
-
 accompagné le roi devant l'enquête d'Église dix, douze et vingt et vingt-cinq ans après sa mort, lui seul ayant accompagné avec d'autres le roi, la mémoire du roi, la cause du roi devant une enquête d'Église lui seul presque sans aucun autre lui seul et son portrait, lui seul et sa chronique, lui seul et son témoignage historique l'accompagnera, que dis-je l'accompagnera, le portera dans tous les siècles temporels jusqu'au jugement. Et c'est pour cela que nous lui pardonnerons tout.
 
 Faible comme il était il laissa partir son roi, lui Joinville qui en 1315, à quatre-vingt-onze ans, quarante-cinq ans après la mort du saint roi écrivait à son troisième successeur Louis X le Hutin, — (et après les horreurs juristes du règne de Philippe le Bel), — une lettre portant promesse qu'il le rejoindrait bientôt avec ses gens, marchant contre les Flamands. A la fin de sa vie ne fuge mie. Qu'importe. Que nous importe. Il nous a laissé un saint Louis.
 
 Il avait le cœur charnel. Ce est à dire qu'il aimait trop le castel de Joinville. Il aimait trop le château de ses pères. 122... Et endementières que je aloie à Bléhecourt et à Saint-Urbain, je ne vos onques retourner mes yex vers Joinville, pour ce que li cuers ne me attendrisist dou bien chastel que je lessoie et de mes dous enfans. Qu'importe. Que nous importe. Il nous a laissé un saint Louis. D'autres sont partis avec le roi. D'autres ont accompagné le roi. D'autres ont vu mourir le roi. Que nous importe. C'est lui pourtant, c'est lui seul, c'est tout de même lui qui nous a laissé le roi
-
-UN NOUVEAU THÉOLOGIEN
 
 mourant. — et puis est avenu que la croiserie fu de petit esploit.
 
@@ -1839,15 +1566,11 @@ mourant. — et puis est avenu que la croiserie fu de petit esploit.
 
 Il n'y fut pas, la merci Dieu. C'est pourtant lui qui nous en a laissé le portrait, le témoignage éternel. C'est lui, nul autre, non un de ceux qui y étaient, non un de ceux qui y furent, qui nous a fait, qui nous a légué ce saint Louis mourant, qui pour l'éternité temporelle de l'histoire nous a représenté la mort de saint Louis. C'est par lui, par nul autre, non par un de ceux qui y furent que saint Louis mourant, que la mort de saint Louis vivra dans les temps. Il y a une grâce spéciale pour le chroniqueur. Qu'il paya seulement cette grâce, qu'il revale cette grâce en s'attachant à son modèle, en s'attachant à sa chronique, en demeurant fidèle à son modèle, en demeurant fidèle à sa chronique d'un attachement entier, d'une fidélité entière, d'un attachement absolument pur, propre, d'une fidélité absolument pure de chroniqueur. Il y a une destination propre. J'oserais dire qu'il y a une vocation propre. Il est assez récompensé dans le temps et il est comblé de récompense et à l'infini de plus qu'il n'en vaut si son nom demeure accolé comme une signature au nom de son modèle, si cette chronique demeure accolée dans le temps à cet être, si dans l'ombre de son modèle il
 
-M. FERNAND LAUDET
-
 demeure lui aussi comme un donateur. Dans un coin du tableau à la fois donateur et peintre un donateur agenouillé. Ainsi dans ce portrait de saint, dans cette chronique, dans cette vie de saint unique Joinville sénéchal de Champagne, chrétien de l'espèce ordinaire, est constamment présent, donateur et peintre, dans l'ombre et dans l'éclat de ce grand saint, dans l'ombre de saint Louis. A la fin de sa vie ne fuge mie. Voici comme il n'y était pas. ... Si parlerons ne nostre saint roy sanz plus, et dirons ainxi, que après ce que il fu arives à Thunes devant le chastel de Carthage, une maladie le prist dou flox dou ventre (et Philippes, ses fils aisnez, fu malades de fievre carte, avec le flux dou ventre que li roys avoit), dont il acoucha au lit, et senti bien que il devoit par tens trespasser de cest siecle à l'autre.
 
 et senti bien que il devoit par tens trespasser de cest siecle à l'autre. Voila comme il n'y était pas. 739. Lors apela mon signour Phelippe son fil, et li commanda à garder, aussi comme par testamant, tous les enseignemens que il li lessa, qui sont esciprz escrit en françois, lesquiex enseignemens li roys escrist de sa sainte main, si comme l'on dist.
 
 Suivent les enseignements, qui sont un monument admirable, le seul monument peut-être qui s'égale à certaines paroles de Jeanne d'Arc : (c'est comme un Décalogue de roi) : Ne couvoite pas sus ton peuple, ne ne le charge pas de toute ne de taille, se ce n'est pour la grant nécessité.
-
-UN NOUVEAU THÉOLOGIEN
 
 Ne couvoite pas sus ton peuple : voilà comme il n'y était pas. 755. Quant li bons roys ot enseigné son fil mon signor Phelippe, l'enfermetez que il avoit commença à croistre forment, et demanda les sacremens de sainte Eglise, et les ot en saine pensée et en droit entendement, ainsi comme il aparut : car quant l'on l'enhuilioit et on disooit les sept pseaumes, il disoit les vers d'une part.
 
@@ -1857,19 +1580,13 @@ Ne couvoite pas sus ton peuple : voilà comme il n'y était pas. 755. Quant li b
 
 758. Piteuse chose et digne est de plorer le trespassement de ce saint prince, qui si saintement et loialment garda son royaume, et qui tant de beles aumosnes
 
-M. FERNAND LAUDET
-
 fist, et qui tant de biaus establissemens y mist. Et ainsi comme li escrivains qui a fait son livre, qui l'enlumine d'or et d'azur, enlumina li dis roys son royaume de beles abbaies que il y fist, et de la grant quantitei de maisons Dieu et de maisons des Preeschours, des Cordeliers et des autres religions qui sont ci-devant nommées.
 
 759. L'endemain de feste saint Berthemi l'apostre, trespassa de cest siecle li bons roys Loys, en l'an de l'incarnacion Nostre Signour, l'an de grace mil CC.LXX, et furent sui os gardei en un escrin et aportei et enfoui à Saint-Denis en France, là où il avoit eslue sa sepulture, ouquel lieu il fu enterrez, là où Diex a puis fait maint biau miracle pour li, par ses desertes.
 
 Voilà comme il n'y était pas. Aussi que nous importe. Ce n'est pas cela que nous lui demandons. Que nous importe. Ce que nous lui demandons, c'est ce témoignage, c'est cette présence singulière du chroniqueur qui plusieurs fois passa en présence la présence temporelle même. Lui il ne veut pas nous prendre en traître. Qu'l'est vrai. Joinville est porté les méthodes historiques. Cela prouve qu'il ne fait dissipateur de rien. Il a vu ce qu'il a vu. Mais il n'a pas vu ce qu'il n'a pas vu. Il ne nous le cache point dans sa conclusion. 768. Je fais savoir à touz que j'ai ceans mis grant partie des faiz nostre saint roy devant dit, que je ai veu et oy, et grant partie de ses faiz que j'ai trovez, qui sont en un romant, lesquiex j'ai fait escrire en cest livre. Et ces choses vous ramantof je, pour ce que cil qui orront ce livre
 
-UN NOUVEAU THÉOLOGIEN
-
 croient fermement en ce que li livres dit que j'ai oralement veu et oy ; et les autres choses qui y sont escriptes, ne vous tesmoig que soient vrayes, parce que je ne les ay veues ne oyes.
-
-769. Ce fu escrit en l'an de grace mil CCC et IX, ou moys d'octovbre.
 
 C'était donc trente-neuf ans et des mois après la mort et le dernier événement de la matière de sa chronique. Mais nous nous ne voulons retenir que son propos, que la proposition de son entreprise. 1. A son bon signour Looys, fil dou roy de France, par la grace de Dieu roy de Navarre, de Champaigne et de Bris conte palazin, Jehans, sires de Joinville, ses seneschaux de Champaigne, salut et amour et honneur, et son servise appareillié.
 
@@ -1877,15 +1594,11 @@ C'était donc trente-neuf ans et des mois après la mort et le dernier événeme
 
 19. Au commencement du premier livre. En nom de Dieu le tout puissant, je Jehans sires de Joinville, seneschaux de Champaigne, faiz escrire la vie nostre saint roy Looyz, ce que je vi et oy par l'espace de sis ans, que je fui en sa compaignie ou pelerinatge d'outre mer, et puis que nous revenîmes.
 
-M. FERNAND LAUDET
-
 760. Après ce, par le pourchas dou roy de France et par le commandement l'apostole, vint li arcevesques de Roan et freres Jehans de Samoys, qui puis fu evesques ; vindrent à Saint-Denis en France, et là demourèrent lonc-temps pour enquerre de la vie, des oevres et des miracles dou saint roy ; et on me manda que je alasse à aus, et me tindrent dous jours. Et après ce que ils orent enquis à moy et à autrui ; ce que ils orent trouvé fu portei à la court de Rome ; et diligenment virent li apostoles et li cardinal ce que on lour porta ; et selonc ce que il virent, il li firent droit et le mistrent ou nombre des confessours.
 
 § 305. — Pour moi je ne mets rien au-dessus de chroniqueur, — dans l'ordre de la relation s'entend. — C'est un office propre. C'est un ordre de fidélité propre. C'est peut-être l'ordre de fidélité où je sens bien que je ne serai jamais infidèle. Je suis incapable de mentir par écrit. Mes amis le savent bien. Mes ennemis s'en doutent un peu. C'est une véritable infirmité que j'ai. Oralement je suis encore à peu près capable de mentir comme tout le monde. Mais il faut qu'il y ait dans la plume de chez Blanzy et dans l'encre de Chiné ou chez Bourgeois une vertu singulière. Dès que je mets la main à la plume, comme disait ce jouvenceau, je ne dis pas que je ne veux plus, je dis que je ne peux plus mentir. C'est un phénomène très connu. Et c'est une vertu de toutes infiniment la mieux gardée.
 
 Pour moi je me sens capable de bien des faiblesses, et peut-être de toutes les faiblesses dans certains ordres, dans plusieurs ordres, dans beaucoup d'ordres. Il n'y a
-
-UN NOUVEAU THÉOLOGIEN
 
 qu'une faiblesse dont je me sente absolument garanti. Je suis à un âge où un homme sérieusement éprouvé se sent capable de tant de faiblesses. Ce n'est point impunément qu'on traverse la vie. Et une telle vie. C'est dans les livres que les épreuves durcissent un homme, le raffermissent. Mais il n'y a qu'une faiblesse dont je me sente absolument garanti. C'est de faiblir dans un trait quelconque d'un portrait quelconque que j'aie entrepris d'un bandit ou d'un saint, — ou d'un événement, — ou d'un peuple. C'est un vice que j'ai. C'est plus solide qu'une vertu. C'est ce qui m'a conduit dans cette sorte de vie, d'où je ne sortirai pas. Il faudra que l'on s'y habitue. Moi-même je m'y suis bien habitué.
 
@@ -1895,8 +1608,6 @@ S'inspirer de. Ne confondons point les ordres de grandeur. Ces grands saints son
 
 Si nous pouvions être seulement un bon serviteur, serviens, un sergent, quelque servant d'armes, un fidèle
 
-M. FERNAND LAUDET
-
 suivant. Pour moi je serais assez payé si l'on disait, les mystères de Jeanne d'Arc, par le loyal serviteur.
 
 § 306. — Après cela, vais-je revenir sur un débat désormais épuisé, ennuyer M. le Grix. Je ne puis pourtant quitter Joinville sans recenser à sur la division du public et du privé la division que Joinville fait lui-même de toute sa chronique. « ... et à l'aide de Dieu li livres est assoreis en deux parties. La première partie si devise comment il se gouverna tout son tens selonc Dieu et selonc l'Eglise, et au profit de son regne. La seconde parte dou livre si parle de ses grans chevaleries et de ses grans faiz d'armes.
@@ -1904,8 +1615,6 @@ suivant. Pour moi je serais assez payé si l'on disait, les mystères de Jeanne 
 3. Sire, — (il continue de s'adresser au même prince, fils du roi), — pour ce qu'il est escrit : « Fai premier ce qui affiert à Dieu, et il te adrescera toutes tes autres besoignes, » ai-je tout premier fait escrire ce qui affiert aus trois choses dessus dites, c'est à savoir ce qui affiert au profit des ames et des cors, et ce qui affiert au gouvernement dou peuple.
 
 4. Et ces autres choses aige fait escrire aussi à l'onour du vrai cors saint, pour ce que par ces choses dessus dites on pourra veoir tout cler que onques hom lays de nostre temps ne vesqui si saintement de tout son temps, dès le commencement de son regne jusques à la fin de sa vie. A la fin de sa vie ne fuge mie ; mais li cuers Pierres d'Alençon, ses fis, y fu (qui mout m'ama), qui me recorda la belle fin que il fist, que vous trouverez escripte en la fin de cest livre.
-
-UN NOUVEAU THÉOLOGIEN
 
 6. Li secons livres vous parlera de ses grans chevaleries et de ses grans hardemens, liquel sont tel que je li vi quatre fois mettre son cors en avanture de mort, aussi comme vous orrez ci-après, pour espargnler le doumaige de son peuple.
 
@@ -1917,33 +1626,21 @@ et au commencement du second livre. 68. En non de Dieu le tout-puissant, avons c
 
 § 307. — Et encore, et enfin, — s'il peut y avoir de fin, — M. le Grix, — puisqu'on veut qu'il soit, —
 
-M. FERNAND LAUDET
-
 M. le Grix sait-il encore assez du plus beau latin qu'il y ait pour entendre les différents degrés de cette invocation remontante et à chaque fois descendante d'un degré :
 
 Per mysterium sanctae Incarnationis tuae, libera nos, Jesu ;
 
 Non. Je suis si honteux. J'ai un tel sentiment de ma bassesse de citer, de copier ces textes rituels, ces textes liturgiques pour achever de triompher dans ces misérables querelles que je n'ai pas le cœur de les invoquer ici intégralement, dans leur plein, dans cette sorte de perpétuelle ascension graduellement retombante, graduellement descendante. Je n'en citerai, je n'en produirai que les frontons. Je n'y mettrai point les colonnes montantes. Les cinq frontons parallèles en hauteur successivement descendants. J'ai dit le premier. Je laisse le premier. Puis :
 
-Per nativitatem tuam ;
-
-Per infantiam tuam ;
-
 Per divinissimam vitam tuam ;
 
-Per labores tuos.
-
 Il est même remarquable, — s'il est permis de parler ici ainsi, — combien le mot labores, au moins dans le latin, dans son plein sens latin jointe bien, — je ne
-
-UN NOUVEAU THÉOLOGIEN
 
 m'engage pas dans le grec ; — comment, combien il recouvre juste ; comment il ramasse bien à ce moment, à ce point tout l'antérieur et tout l'ultérieur, comment il joint bien tout l'antérieur et tout l'ultérieur, tout l'antérieur à tout l'ultérieur. Placé à l'accomplissement, au ramassement de toute la vie. Placé au couronnement des travaux privés. Placé au commencement des travaux publics :
 
 Per agoniam et passionem tuam ;
 
 Per crucem et derelictionem tuam ;
-
-Per languores tuos ;
 
 Per mortem et sepulturam tuam.
 
@@ -1953,37 +1650,21 @@ Puis vient la résurrection et l'ascension et les joies et la gloire.
 
 § 309. — Per labores tuos, — c'est un nouvel exemple, — après tant d'autres que j'aime à donner dans la conversation, — de cette sorte de singulière accointance qu'il y a entre le latin et la pensée rituelle, entre le latin et la résonance propre de la parole sacrée même. Ce n'est pas la première fois qu'un texte latin, qu'un mot donne soudain l'impression, donne le saisissement qu'il fleurit soudain, qu'il emplit brusquement
 
-M. FERNAND LAUDET
-
 le rite, qu'il est la seule voix qui pût ainsi garder pour tous les temps la parole éternelle. Qu'il est une voix singulière, une voix (singulièrement) prédestinée, une voix elle-même appelée, vox vocata. Une voix élue. Une voix où la parole de Dieu s'accomplit, atteint son expression éternelle, on pourrait presque dire son juste ton, son expression propre. Sa première expression. Le ton, l'expression qu'elle attendait. Je ne l'entends malheureusement point en juif. Mais j'ai des amis qui l'y entendent. Et je les entends l'entendre. Elle y a une gravité comme d'un juge et de celui qui éprouve. La parole de Dieu est plus intelligente en grec. Plus platonicienne. Et plus philosophe. Il fallait peut-être s'y attendre. Mais en latin elle est éternelle.
 
 Per gaudia tua, — il y a une deuxième langue sacrée, il y a une deuxième accointance et peut-être une première. Il y aurait une deuxième et peut-être une première langue, et même une langue première qui garderait intacte, qui revêtirait juste la parole de Dieu.
 
 N'en doutons point. Il y a aussi une élection du français. Qui en doute lisant une page des Procès de Jeanne d'Arc. Et qui en doute lisant une page de Joinville. Il fallait seulement garder la force du latin. On souffre quand on lit une traduction quelconque des Évangiles en français. Et en général de tous les textes sacrés latins et de tous les textes rituels, de tous les textes liturgiques dans les catéchismes et dans les livres de messe à deux colonnes. C'est un faiblissement perpétuel. Ça ressemble aux deux colonnes que je ferai
 
-UN NOUVEAU THÉOLOGIEN
-
 pour finir à M. Laudet. Les pauvres gens, on sent qu'ils ont perpétuellement peur de leur texte. Et de l'autre main ils ont peur de cet admirable français dont ils font, on se demande comment, par exemple, il faut le voir pour le croire, et pour s'en rendre compte, dont ils font un instrument de fléchissement, de faiblissement. Aussi ils font un texte dont il n'y a pas besoin d'avoir peur. Il faudrait qu'un grand écrivain, c'est-à-dire qui écrit simplement, nous donnât un jour une version française de Matthieu et de Marc et de Luc et de Jean, en se proposant uniquement de garder la vigueur et le plein de la Vulgate, cette sorte de plein plan ; cette autorité grave ; cette vigueur justesse ; cette plénitude juste ; ce froment et cette grappe ; cette originaire, cette dure et tendre Vulgate. Il faudrait un écrivain, il faudrait un Français qui ne rougirait pas des nobles hardiesses latines.
 
 Sunt verba et voces. Neque ideo neglegenda. Qu'y a-t-il de plus important que le verbe. Singulière destination. Préparation de huit et dix siècles. Mais qu'est-ce que c'est. Le dur laboureur sabin, albin, — (Rome est sujette d'Albe), — le brigand et le pasteur qui forgeaient cette langue ne savaient point pour quel Dieu ils travaillaient. Quand ils disaient via, celle qui porte, la voie, pour les voitures. Quand ils disaient veritas, la vérité. Quand ils disaient vita, la vie. Quand ils disaient crux, le gibet de torture. Ils ne savaient point. Ils croyaient servir Vertumne et Pomone, et ces dieux latins plus laboureurs et plus familiers, plus paysans, plus sombres et plus jardiniers, plus petits, plus méchants aussi, plus sournois que les beaux jeunes hommes dieux grecs. Ils ne savaient point qu'ils ser-
-
-M. FERNAND LAUDET
 
 vaient le Dieu qui venait, et que Rome un jour deviendrait romaine.
 
 J'y pensais en lisant la version française de ces litanies. Je ne sais pas si elle fait foi. Voici quel était le point de départ latin. Jamais progression, jamais ascension ne fut aussi marquée. Celle-ci est en quatre termes. Dans le latin :
 
-Per Resurrectionem tuam ;
-
-Per Ascensionem tuam ;
-
-Per gaudia tua ;
-
-Per gloriam tuam.
-
 On avait le bonheur, pour traduire, que les quatre mots latins avaient précisément quatre fils directs, qui n'étaient pas les quatre fils Aymon, mais quatre forts fils français bien provenant de leur père. En réalité on avait les mêmes quatre mots dans le français que l'on avait dans le latin. On avait même cette chance inespérée, — et qui se présente heureusement beaucoup plus souvent qu'on ne croit, — que deux au moins des mots français sonnaient plus pleins, plus crus, plus larges, étaient plus courts que noscenos les mots latins leurs pères. Le mot joies surtout l'emportait sur le mot gaudia. Savez-vous ce qu'ils ont fait. Ils n'ont pas mieux traité ces litanies qu'ils n'ont traité cette histoire que nous connaissons selon quatre versions, puisque
-
-UN NOUVEAU THÉOLOGIEN
 
 précisément nous la connaissons selon Matthieu, et selon Marc, et selon Luc, et selon Jean. Ils ont mis :
 
@@ -1996,8 +1677,6 @@ Par vos saintes joies ;
 Par votre gloire.
 
 Eh bien oui, vous avez compris. Tout se fiche par terre. Le ton n'y est plus. Des saintes joies ne sont pas des joies. Tout est désaccordé. Tout est déconcerté. Cette haute architecture montante de l'Ascension c'est plus. Un mot a tout rompu ; placé ainsi. Et un mot qu'il était si facile de ne pas mettre, puisque là il n'y avait rien dans le latin. Mais voilà. Ils vivent dans l'épouvante de leur texte. Ce gaudia surtout leur a fait peur. Pensez donc. Si l'on allait comprendre, si l'on allait croire que les joies de Jésus dans le ciel sont des joies tout tranquillement, bien, des joies purement et simplement, des joies enfin. Alors vite pour étouffer les éclats de cette voix ils fourrent leur épithète de sacristie. Le fond de leur crainte, c'est qu'on ne prenne au mot la parole de Dieu. Le fond de leur pensée, c'est qu'ils veulent croire que le ciel c'est des offices où ils s'ennuieraient, je veux dire où on s'embête par vertu, comme ils s'y embêtent déjà, quand ils y vont, pas à ciel, aux offices. Gaudia. Des joies. Qu'est-ce à dire. C'est un mot trop court. C'est un mot suspect. Alors ils affaiblissent, ils attiédissent, ils amollissent. Ils émoussent ces rudes angles.
-
-M. FERNAND LAUDET
 
 Les durs angles latins.
 
@@ -2013,15 +1692,11 @@ Par votre gloire.
 
 Je ne parle pas des litanies de la Vierge. Que devient dans le français de nos atténuateurs ce beau latin si profondément Virgilien et par un miracle si profondément biblique. Il faudra faire toute une étude là-dessus. On la dédierait aux élèves de sixième, mon cher Lotte, et on pourrait l'intituler : un modèle de mauvaises version latine, ou comment on fait une mauvaise version latine. Il est triste de penser que l'on donne à des fidèles français une traduction où je vois que Turris eburnea devient Modèle de pureté, — (on ne le croirait pas, il faut vraiment le voir), — et Domus aurea Sanctuaire de la charité. C'est d'autant plus inimaginable que ces Litanies de la Vierge sont précisément un des textes,
 
-UN NOUVEAU THÉOLOGIEN
-
 peut-être le texte où le français bat le plus pleinement son plein, triomphe le plus à plein du latin même.
 
 Et quelle élection singulière, dans le verbe et peut-être plus, que celle de Virgile. Il croyait servir sa vieille terre latine, les vieux dieux latins, et les beaux dieux grecs latinisés. Il les servait en effet. Il servait le Dieu qui venait. Il préparait au Dieu qui venait, à la Vierge qui venait, Deo nascenti Virginique matri un certain latin, presque un certain idiome propre. La grande chrétienté italienne l'avait profondément senti et marqué. La grande chrétienté française l'avait profondément senti et marqué. Hugo même, le jeune Hugo le marqua profondément.
 
 § 310. — Il n'est si bonne compaignie, disaient ces vieilles gens, qui ne se quitte. Je vois malheureusement qu'il est l'heure que nous quittions la compagnie de M. Laudet. Il nous assure que M. le Grix nous répondre. Si nous tirons autant de profit de la compagnie de M. le Grix que nous en avons tiré de celle de M. Laudet, nous devons les en remercier l'un et l'autre. Il nous l'affirme à une ou deux reprises. « Et voilà pourquoi c'est moi qui prends la plume, — (copier du Laudet, quand on vient de copier du Joinville), — aujourd'hui, non pas pour défendre un article que j'ai approuvé sans cependant en avoir écrit ni inspiré un traître mot, mais pour signaler les procédés et la méthode scientifique de l'école Péguy, en attendant que François le Grix réponde sur le fond de la question — (je vous assure, monsieur Laudet, il vaudrait mieux écrire le fond de la
-
-M. FERNAND LAUDET
 
 question. On n'écrit pas le fond de la question comme un fonds de commerce) — à Péguy dans une de ses chroniques. »
 
@@ -2031,21 +1706,15 @@ Je suis plus curieux de voir comment M. Laudet, je veux dire comment M. le Grix 
 
 Une autre défense de M. le Grix se comprendrait mieux et elle serait en un certain sens légitime et nous la verrons peut-être. Il est fort possible que M. le Grix
 
-UN NOUVEAU THÉOLOGIEN
-
 n'ait pas compris ce qu'il disait, au moins tout ce qu'il disait, et qu'il n'ait pas vu ou mesuré jusqu'où il disait. Et qu'il n'ait pas vu tout ce qu'il y avait dans ce qu'il disait. Et qu'il aimerait mieux ne pas l'avoir dit. Mais s'il sait ce qu'il dit, il a dit ce que j'ai dit qu'il avait dit. Et s'il ne sait pas ce qu'il dit, il est un imbécile et qu'il ne se mêle point de se faire, sur ce ton, dans une grande revue, lui qui n'a jamais rien produit, le censeur de ceux qui produisent.
 
 Il se défendra, il me répondra sur le fond. Ou sur le fonds. Il prendra malheureusement un moyen terme. Il habillera autrement. Il niera les citations les plus évidentes. Il retirera, il reprendra sa parole. Il reniera ce qu'il a dit. M. Laudet lui en montre déjà les voies. Toutes les fois que dans sa réponse M. Laudet ne cite pas directement mon texte en plus petits caractères, toutes les fois qu'il ramasse ma « pensée » pour la réfuter, non seulement il la fausse, ce ne serait rien, c'est l'habitude dans les polémiques, mais alors, et faussée, il la met entre guillemets. C'était déjà une maladie de M. Guy-Grand. Quand M. Guy-Grand faisait du Péguy, — beaucoup mieux que moi naturellement, — quand il avait fortement constitué ma pensée pour la fiche par terre, ou plutôt, car il faut être juste, pour la passer au crible, — de la critique scientifique, — il la mettait entre guillemets. C'est une maladie qui règne. Si je prends jamais M. le Grix lui-même comme on veut que je le prenne, un de mes plus gros arguments, un de mes plus gros griefs sera précisément que tout au long de son article non seulement il disait du mal de moi, ce
-
-M. FERNAND LAUDET
 
 qui est permis, mais tout le mal qu'il disait de moi il disait que c'était moi qui le lui avais dit et il mettait tout ça entre guillemets. On devrait bien dans les écoles apprendre aux jeunes gens l'usage des guillemets. Faut-il que ce soit moi petit qui sois forcé d'apprendre à un aussi grand seigneur l'usage des guillemets. Et à un aussi grand valet (d'armes).
 
 Cette fois-ci c'est M. Laudet qui met entre guillemets tout ce que je n'ai pas dit. Il suffit d'y aller voir. Il met entre guillemets comme étant de moi que je suis un récent pontife qui « surveillera désormais les consciences fidèles ». Or je n'ai dit et je ne pouvais dire que précisément le contraire. Les consciences fidèles n'ont pas besoin qu'on les surveille. Surtout les consciences fidèles n'ont pas besoin que je les surveille. Où serait mon magistère. Les consciences fidèles valent mieux que moi. J'ai dit au contraire que je surveillerais les tentatives de détournement des consciences fidèles. Surveiller les voleurs, c'est le contraire de surveiller les volés. Le désir fort louable et assez haut de couvrir M. le Grix a entraîné ici M. Laudet un peu loin.
 
 Il devait l'entraîner plus loin encore. M. Laudet renvoie ses lecteurs à l'article de M. le Grix. — « Mais c'est de l'aberration, écrit, de conclure de ces pages attaquables je renvois nos lecteurs — que Le Grix attaque les vérités essentielles de notre foi. » — M. Laudet compte beaucoup sur la paresse de ses lecteurs. Et il les invite d'autant plus à y aller voir que certainement il espère qu'ils n'y iront point. Car s'ils y allaient ses lecteurs verraient que M. le Grix a dit ce que j'avais dit
-
-UN NOUVEAU THÉOLOGIEN
 
 qu'il a dit et non pas ce que M. Laudet dit qu'il a dit ou pas dit. Ce souci de couvrir M. le Grix entraîne M. Laudet quelquefois un peu loin. M. le Grix avait écrit page 417, ligne 20, dans le numéro 24 du 17 juin 1911 : « Je l'imaginais plus naïve. Comment, sans cela, en eût-elle cru ses voix? » Voici ce que cette phrase de M. le Grix devenait rapportée par M. Laudet dans l'article, dans la réponse de M. Laudet : « Oui, M. Le Grix, dans l'article du 17 juin, a dit que la Jeanne d'Arc imaginée par Péguy était trop raisonneuse pour pouvoir croire à des Voix ; » — Il y aurait à faire de curieuses recherches et une histoire des variations des textes de M. le Grix dans les textes de M. Laudet. Ces variations auraient toujours lieu dans le même sens, qui est le sens des atténuations. Ce serait proprement une histoire des faiblissements. Si je voulais moi aussi faire jouer les grands mots, invoquer le faux et la fraude, qu'est-ce que je n'aurais pas à dire ici.
 
@@ -2059,11 +1728,7 @@ M. LE GRIX lui-même                    M. Le Grix dans M. Laudet
 
 « Oui, M. Le Grix, dans l'article du 17 juin, a dit que la Jeanne d'Arc imaginée par Péguy était trop raisonneuse pour pouvoir croire à des Voix ; »
 
-M. FERNAND LAUDET
-
 Un censeur verrait ici quelque altération d'un texte. Je dirai seulement que ceci est un tableau synoptique et nous nous quitterons sur cette bonne parole.
-
-Péguy
 
 Je ne me retiens pourtant pas de copier encore cette lettre de Joinville vieux dont je parlais plus haut. Un ami que j'ai l'a copiée pour nous dans la traduction Natalis de Wailly. Il y a tout dans cette lettre :
 

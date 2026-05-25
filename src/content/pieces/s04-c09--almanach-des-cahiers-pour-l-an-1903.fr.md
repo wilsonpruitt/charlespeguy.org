@@ -11,7 +11,6 @@ des Cahiers
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ÿ : Ü RULES d TL le EC A fes, 14
 } : Pour savoir ce que sont les Cahiers de la Quinzaine,
 4 il suffit d'envoyer un mandat de trois francs cinquante
 11000 à M. André Bourgeois, administrateur des cahiers, À
@@ -19,34 +18,6 @@ paraissant vingt fois par an
 : six cahiers de la deuxième et de la troisième série. sa
 Nous mettons ce cahier dans le commerce; nous le :
 ( ê vendons un franc M
-il (ER OCPR
-
-: ne Re El FRS Era 14 :7 VAE
-Ai HA UPET rs Lure AAA LE ke 4 CE
-RASE ee LU © HAL TA SPAS VAR N + OHPÈTS ei
-# +1 (CEE À ' CA MEPREE LES ï te CE F2
-GREC UNE 2 SL A EUR Î ; dt nn Ee
-ése TU ver HOT OUR OMG à 2 ENTER 1 (20
-ur 3 + me Ex + 1 RER WAR te L - y CRE n"
-EU PANNE AMONT ER g nr PEN « FRS EE Me TA M PS de Lis : AT 28 y.
-nee Pb DOET dit. Sat A0 : + APE
-Ne re DAV Re r ce.
- ERRTEN Era DE A à 1
-% 1 x FAUNE FES à F Ex je Chr
-4 TS AT Men RL. ur on \ PA ME
-CET LR RE " HS du “ee
-a MR EUA à LEE ci et fe LL et
-4 rfi RE je £ p Ya ee
-les SPaRS qui Le ANA RH
-\ ee gs LA RE ve AU rAl
-
-are # A RU EU EAN MMS HUE TON ANNEE
-
-FL ct a Cr Ve nt NO UT a ASSET on Der Le eV DOME RE 2 ur
-xt DEC AAA } Cet APP ATEN ro NW A ET TT PAL A nf
-« RUN = v TA ANT ae FC LS Pet ere RE
-Ne MAOMONEr Ha { : Van tuer TF5 tu Fa nee PATTES
-5 (Ne ANR jé, LT VOD TONNES KUANE LAGRE
 
 almanach des cahiers
 
@@ -60,7 +31,6 @@ l'automne commence le jeudi 2% septembre, à
 
 l'hiver commence le mercredi 23 décembre, à minuit
 
-du 10 NÉS an J AN VI E R ou Monte Pluviôse |
 Les jours croissent de 23 minutes SOLEIL | LUNE |
 
 15 heures 23 minutes de nuit. lever |coucher| lever | coucher |
@@ -70,9 +40,6 @@ se Pleine lune le 13, à 2 heures 26 minutes du soir. |
 
 l Nouvelle lune le 28,:à 4 heures 48 minutes du soir.
 
-ou 11 Pluviôse, an 111 F EVR | E R ou ue Ventôse
-
-Le-45) 40 heures S minutes de jour, TT CE TE
 Érrae 55 minutes de nuit | lever |coucher| lever |coucher
 
 / Premier quartier le 5, à 10 heures 22 minutes du matin.
@@ -85,41 +52,31 @@ Nouvelle lune Je 27, à 10 heures 29 minutes du matin.
 
 6 3
 
-ou 9 Ventôse, an 111 M A RS ou premier Germinal
-Les jours croissent de 1 heure 3 mi- SOLEIL LUNE
 12 heures 16 minutes de nuit. lever |coucher| lever | coucher
 { Premier quartier le 6, à 7 heures 23 minutes du soir. |
 È \ Pleine lune le 13, à 0 heure 22 minutes du soir.
 Li ms Dernier quartier le 21, à 2 heures 17 minutes du matin.
 | | Nouvelle lune le 29, à 1 heure 35 minutes du matin.
 
-v ou à a 111 AV R | [Ds , ou ne Floréal
-Je mate et de AA mins leon. | 0 POIL NN EEE ONU
 Le 15, 13 heures 35 minutes de
 jour, 10 heures 25 minutes de nuit. lever |coucher | lever coucher |
-2)1|NSamedeE et en MEET GARE) 3 54 4 48
 / Premier quartier le 5, à 2 heures 1 minute du matin.
 Le \ Pleine lune le 12, à 0 heure 27 minutes du matin.
 LUXE / Dernier quartier le 19, à 9 heures 40 minutes du soir.
 \ Nouvelle lune le 27, à 1 heure 41 minutes du soir.
 
-ou 10 Florent an ll M AI ou premier Prairial |
-Le 15, 5 MAR SE ul do jours note eue
 8 heures 54 minutes de nuit. lever |coucher| lever coucher!
 Premier quartier le 4, à 7 heures 35 minutes du matin.
 + 4 Pleine lune le 11, à 1 heure 27 minutes du soir.
 LUNE Dernier quartier le 19, à 3 heures 27 minutes du soir. |
 { Nouvelle lune le 26, à 10 heures 59 minutes du soir.
 
-ou 11 Prairial, an 111 J (ë | N ou Mur Messidor
 Then etes de O7 || Meyerit cote helene een
-9 Mardi: 0 NS ON ATOS NIMES TS
 / Premier quartier le 2, à 1 heure 33 minutes du soir.
 à \ Pleine lune le 10, à 3 heures 17 minutes du matin.
 UNE | Dernier quartier le 18, à 6 heures 53 minutes du matin.
 Nouvelle lune le %5, à 6 heures 20 minutes du matin.
 
-‘ ou PTS . 111 dl, (8 ILLET ou aie Thetldor |
 Le 15,45 heures 5 minutes de jour,
 8 heures 55 minutes de nuit. lever |coucher| lever | coucher
 Premier quartier le premier, à 9 heures 11 minutes du soir.
@@ -128,18 +85,12 @@ Luxe < Dernier quartier le 17, à 7 heures 33 minutes du soir.
 | Nouvelle lune le 24, à 0 heure 55 minutes du soir. |
 Premier quartier le 31, à 7 heures 24 minutes du matin. |
 
-ou 12 Thermidor, an 111 AO U an ou premier Fructidor
-Je mn Et de DS toutes Je soie à | NS ONE CN RE
-Le 15, 14 heures 24 minutes de Er DER
 jour, 9 heures 36 minutes de nuit, lever |coucher | lever |coucher
-19 Samedi ess 7 38 DE OU AllEnt
-25 Mardi eee AS NE) GY57NMS PANNES 12
 / Pleine lune le 8, à 9 heures 3 minutes du matin.
 \ Dernier quartier le 16, à 5 heures 32 minutes du matin.
 LUXE | Nouvelle lune le 22, à 8 heures 0 minute du soir.
 . Premier quartier le 29, à 8 heures 43 minutes du soir.
 
-fé, 13 ne 1 S EË PTE M B R E 1er Ce rage |
 . Le 15,12 heures 38 minutes de ((
 jour, 41 heures 22 minutes de nuit. | lever |coucher| lever coucher |
 / Pleine lune le 7, à 0 heure 29 minutes du matin.
@@ -148,7 +99,6 @@ our Nouvelle lune le 21, à 4 heures 40 minutes du matin.
 Premier quartier le 28, à 1 heure 18 minutes du soir. |
 
 Premier octobre ou 24 octobre
-8 Vendémiaire, an 112 OCTOBRE ou Med y AU
 De 4 CR ent ji lever |coucher| lever |coucher
 
 / Pleine lune le 6, à 3 heures 33 minutes du soir,
@@ -156,8 +106,6 @@ x \ Dernier quartier le 13, à 8 heures 6 minutes du soir.
 LUXE ! Nouvelle lune le 20, à 3 heures 39 minutes du soir,
 \ Premier quartier le 28, à 8 heures 42 minutes du matin.
 
-coamaeare NOVEMBRE opus Par |
-Le 15, 9 heures 40 minutes de jour, Éd re nr ec da |
 14 heures 50 minutes de nuit. lever |coucher| lever | coucher |
 / Pleine lune le 5, à 5 heures 37 minutes du matin. |
 k \ Dernier quartier le 12, à 2 heures 55 minutes du matin.
@@ -166,7 +114,6 @@ Luxe Nouvelle lune le 19, à 5 heures 19 minutes du matin.
 
 Le 45, Sheures 13 minutes de jour,
 45 heures 47 minutes de nuit. lever |coucher | lever |coucher
-Te Neue NN O7 ON AA AIG ID EEE 0
 / Pleine lune le 4, à 6 heures 22 minutes du soir.
 | Re \ Dernier quartier le 11, à 11 heures 2 minutes du matin.
 QÈE / Nouvelle lune le 18, à 9 heures 35 minutes du soir.
@@ -366,8 +313,6 @@ que je nourrissais encore contre l'École des Hautes
 l'écho dans une lettre que vous lirez tout à l'heure, pré-
 ventions qui, je suis heureux de le dire, se sont entière-
 
-on
-
 ment dissipées lorsque j'ai eu l'occasion de prendre des
 informations plus complètes et de connaître les raisons
 très sérieuses qui avaient rendu obligatoire le départ
@@ -391,8 +336,6 @@ des Hautes Études Sociales.
 Je reçus de M. Boivin, secrétaire de l'œuvre, la lettre
 suivante que je vous livre sans commentaires :
 
-Mon cher Colomb,
-
 Je ne puis convoquer nos amis — selon l'ordre que
 vous avez reçu de Mascart (1) — sans savoir exactement
 le motif de cette réunion. Ils ont tous, vous le savez, un
@@ -412,7 +355,6 @@ ordre du jour pour l'expédier aux membres du Comité
 et leur demander de venir bien exactement à la réunion
 
 Je reçus cette réponse :
-Mon cher ami, ;
 Je vous serais reconnaissant de me signer un chèque
 de trois cents francs (ci-joint le carnet) et, au paragraphe deux, je vous prie de recevoir l'annonce oflicielle
 de mon mariage, qui aura lieu samedi prochain. Je
@@ -428,8 +370,6 @@ vendredi suivant, 16 mai, je me rendis à l'École des
 
 Hautes Études Sociales. où je me promenai solitairement une heure durant, attendant mon Comité qui ne
 vintpas, n'ayant pas été avisé le moins du monde.
-
-Fatigué d'attendre, je me rendis au 8 de la rue de la
 
 Sorbonne, où, à ma grande stupéfaction, j'appris que
 
@@ -496,8 +436,6 @@ Sur la demande de l'un des témoins de l'algarade et
 aussi parce que je suis pour les moyens doux, j'écrivis
 quelques jours après à M. Péguy la lettre suivante :
 
-Mon cher Péguy,
-
 En ma qualité de président des Journaux pour Tous, je
 vous rappelle que le Comité, trouvant très défectueuse
 notre installation dans la boutique que vous avez louée et
@@ -535,14 +473,11 @@ celte lettre : de relations personnelles entre nous il ne
 peut être question et les relations administratives que
 Vous pouvez avoir avec les Cahiers ne se traitent pas
 avec moi; je ne suis pas locataire de la boutique située
-au 8 de la rue de la Sorbonne.
 
 M. Charles Péguy persistait à être furieux sans raison.
 
 M. Boivin était rentré après un mois de vacances et
 avait été mis aussitôt au courant de la situation. IL
-
-Mon cher président,
 
 Pour ma part je serai prêt, à partir de demain, à
 disposer d'un peu de temps pour ce qu'on voudra.
@@ -558,8 +493,6 @@ après avoir naturellement payé le terme jusqu'en
 octobre, entre les mains de M. Bourgeois, administra-
 
 teur des Cahiers.
-
-Mon cher président,
 
 Je viens de recevoir votre lettre et me suis mis immé-
 diatement en devoir de transporter fiches et meubles.
@@ -598,8 +531,6 @@ tâcher d'obtenir de lui cette réponse qu'il paraît vouloir
 ne pas me donner.
 
 Réponse de M. Boivin :
-
-Mon cher président,
 
 Je n'ai rien à vous répondre; vous savez que je nai
 pas discuté (et pas songé un instant à le faire) la décision relative au déménagement : je me suis mis aussi
@@ -683,8 +614,6 @@ de formule de politesse à la fin de cette lettre, la première que monsieur Bou
 Et il y avait un grand mois que les négociations
 
 étaient entamées.
-
-Je répondis :
 
 Monsieur l'Administrateur
 
@@ -773,7 +702,6 @@ la lettre suivante :
 
 Dimanche — je ne sais pas combien — août, 1901,
 je crois.
-Mon cher Boivin,
 
 Je reçois une lettre de M. Pérez, je crois. C'est l'ère
 des expulsions qui s'ouvre. Nous voilà comme de pauv's
@@ -783,7 +711,6 @@ le moindre petit million dans notre caisse. Pauvres de
 nous !
 
 Vous comprenez bien qu'il n'y a pas à discuter. La
-S. N. D. L. E. D. E. nous a donné l'hospitalité ! Elle
 nous la retire, que son saint nom soit béni! Il me
 semble que nous n'avons pas à juger les motifs qui font
 prendre cette décision à la Société. Elle a besoin de
@@ -871,7 +798,6 @@ Je suis bien heureux de connaitre enfin, la raison de
 votre résistance jusqu'ici incompréhensible pour mon
 âme simple. Je sais maintenant que si vous vous opposez
 à notre déménagement c'est que vous étiez müû par la
-« soif de l'or ».
 
 Mais alors pourquoi ne point être venu tout bonnement
 à moi, sans phrasés, sans gestes de défi qui n'effrayaient
@@ -997,8 +923,6 @@ c'est-à-dire plus de deux mois après le moment où
 M. Charles Péguy affirmait qu'il avait commencé contre
 nous une « lutte pied à pied » :
 
-Mon cher Président,
-
 Je viens d'apprendre que Bourgeois qui est absent ne
 rentrera pas de l'après-midi, mais qu'il sera là de
 onze heures à midi. Vous m'avez si souvent dit que
@@ -1010,8 +934,6 @@ que je dois faire.
 Bien à vous,
 
 Et le lendemain :
-
-Mon cher Président,
 
 Bourgeois m'a répondu à peu près textuellement que
 
@@ -1111,8 +1033,6 @@ Lui déclarant que faute de satisfaire à la présente
 sommation, le requérant se pourvoira ainsi que de
 droit pour l'y contraindre. Sous toutes réserves ;
 
-A ce qu'il n'en ignore
-
 Et je lui ai étant et parlant comme dessus, laissé cette
 copie sous enveloppe fermée ne portant d'autre indication, d'un côté, que les nom et demeure de la partie et
 de l'autre, que le cachet de mon Étude apposé sur la
@@ -1131,18 +1051,6 @@ Colomb, président des nouveaux Journaux pour tous,
 Cujas, Paris, proposé de constituer des arbitres ; — et
 que j'ai demandé à être entendu en témoignage par
 ces arbitres sur toutes les parties du débat.
-
-15 INT RNPN IRÈNE SONO RE EAN AO ARS CE BEA eme n re Ne L'ANNRE
-A SA PAU La A DA EN E AEN QE (rs N'ES eu ATARI LINE ESA
-SUN ii GNU ONE APE IE Ÿ ROUE OST KO UN jen
-| CN Ua
-Mie OU EN 3 j RAI TRTAUX FA PPT EN RUES
-| RAN SANS AE f Gr AR PGA CARTE PAIE ( ANARUSE LE RARE RE
-LR AE CM Et A re CORRE ol
-DAS LA UE AE ANS A ee
-HA ut AR AIAENRS LEE PEN OR VAE ANS LAURE ke d AC LE À (CAE
-
-Mon cher Péguy
 
 Le Bulletin de l'Office du travail de novembre 1902 contient un compte rendu de la grève générale des mineurs. Je
 vous l'envoie par ce courrier. C'est du fait tout nu et moins
@@ -1297,7 +1205,6 @@ préfets acceptèrent la mission et écrivirent le 13 et le
 -
 Bulletin de l'Ofice du travail
 pagnies minières du Pas-de-Calais et du Nord. Ceux-ci
-répondirent le 17 et le 18 octobre, en demandant un
 délai pour consulter leurs conseils d'administration.
 
 Le 19 octobre, la grève atteignit son maximum d'intensité. Elle était générale dans 11 départements; on
@@ -1398,11 +1305,9 @@ publiait la suite et fin de cet article :
 ge année. — No 12 Prix du numéro : 20 centimes Décembre 1902
 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
 Revue du travail en novembre. . 41853
-Grèves'en novembre "NV NE EN PEENERER AG x
 Conciliation et arbitrage en novembre . . . . . . . 864
 La grève générale des mineurs. (Suite et fin.) . . . . . 865
 Expériences comparatives de peintures au blanc de
-céruse et au blanc de zinc. MN VEN EE NN 567
 Le congrès à Cologne de l'Association internationale |
 pour la protection légale des travailleurs . . . . . . 87
 Cinquième congrès de l'Alliance coopérative internationale 10e EURE ENTREE 0
@@ -1422,7 +1327,6 @@ congrès des Trades-Unions. — Réparation des acci-
 | de consommation et de production. . , . . . . . . . 895
 Nouvelle-Zélande : L'inspection des fabriques (r901Suisse : Application de la loi fédérale sur les fabriques.
 — Loi du 26 juin 1902 sur le paiement des salaires et
-DRAP I CDS AM ea de à à, ain otie 4e RE
 Actes et documents officiels
 Décret du 21 novembre 1902 interdisant le « pompage »
 dans la poterie d'étain. — Arrêté du ministre du
@@ -1431,21 +1335,16 @@ conditions des avances aux banques coopératives
 ouvrières. — Lettre du Sous-Secrétaire d'État des
 1 Postes et Télégraphes, en date du 11 août 1902, sur
 Etat des travaux législatifs (novembre-décembre 1902). gog
-PIQUE IORTAIAETVE. ne TL 4 2 ECO
 Analyse, par département, des renseignements fournis :
 1° par les associations patronales, etc. ; 2' par les
-CORPS ROMAN une Ch NN
 Analyse, par département, des renseignements fournis
 Prix au détail de certaines denrées (4° trimestre 1901) . 934
 faillites ; autorisations de bâtir ; adjudications. . , . 935
-BERGER-LEVRAULT et Ci, éditeurs LIBRAIRIE ARMAND COLIN
 5, rue des Beaux-Arts (6° arr') 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
 dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas requs au Ministère du Commerce
-PRIX DE {POUR LA FRANCE . . . 2fr. 50 par an
-# :
 
 À la date du 15 novembre, la grève persiste dans les
 départements de la Loire, de la Haute-Loire, du Puyde-Dôme et du Tarn. |
@@ -1548,10 +1447,7 @@ accepta l'arbitrage et choisit maître Ménard, avocat à la
 Cour d'appel de Paris; M. Viviani fut désigné par les
 ouvriers. La sentence fut rendue le 3 décembre, elle
 
-ARTICLE PREMIER. — a) Les ouvriers renoncent, en l'état,
 aux revendications présentées dans leurs lettres des 6 et
-
-| GRÈVE GÉNÉRALE DES MINEURS
 
 b) La Compagnie renonce à se prévaloir du cas de rupture
 
@@ -1581,26 +1477,6 @@ La grève est terminée.
 
 Je-prie notre correspondant de vouloir bien continuer
 à dépouiller pour nous le Bulletin de l'Oflice du travail.
-
-ne A CE EP ANNEE EEE EU
-PNA DE PO AE EM MNT RU RQ Dee Lt
-‘ FA ES A He NE e FIV A | js pe JR “POS Mit)
-De | RE LORS MERE EE É FE HO HÉPACS RTE0 seu ARS MAUR nur ae
-rtf 1 THNON ; \ nl GAY ji PA D CE Br ei
-qe RUN Rn l , : UFCE CR A Lo A RAT pe pa
-0 HAE tee À AAC LE ER EEE NA AE EUR Nat
-
-A LA Ar RAS Graine HO AA ANUS TN EM
-LU NANOENSS NE NL PA NAIL A TRS FE jt
-{ie OH AT ARE A PAR EEMS
-1 TENTE Par ' f x NE AE le
-LA Re k A) LD À ae RO je
-} MR A RLEN late RS DU A LATTES
-| NAN Re En A
-OUR ÿ it vi La À a UE
-LE REPARER fr ER £ (EN ERA SE ot
-A LA tee Ne NA RU ei ne
-OT NT Een ATE Mn TN (1 AE De PATES
 
 Aux Français de bonne volonté il faut rappeler de
 temps à autre les souffrances lointaines de nos sujets
@@ -1671,7 +1547,6 @@ entre bouddhistes et catholiques. Il semble que l'on soit
 heureux du sans-gêne, de l'indiscipline des chrétiens indi-
 
 é gènes, et on fait tout pour les amener à commettre de
-| nouveaux crimes!
 
 Je vous avais signalé, il y a quelque temps, les actes de
 brutalité commis par quelques catholiques sur la personne
@@ -1691,8 +1566,6 @@ rendu contre les délinquants.
 
 La leçon eùt porté et ces incidents ne se seraient pas
 reproduits, au moins pendant quelque temps.
-
-Or, voilà qu'on les met en liberté, et qu'il n'y a plus de
 
 Je ne sais pas qui a pu donner de pareils ordres; mais
 

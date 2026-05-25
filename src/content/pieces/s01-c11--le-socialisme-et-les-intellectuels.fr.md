@@ -7,7 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 10477
 ---
-LE SOCIALISME ET LES INT it
 Le Socialiste du 10 juin publiait la note sur ;
 Les intellectuels ne sont pas satisfaits de ma conférence,
 c'est leur droit; elle n'était pas faite pour leur plaire, raie Ë f
@@ -27,7 +26,6 @@ lectuels qui déblatèrent sur les mœurs grossières des sv
 ouvriers, ont d'étranges belles manières. 11 est d'usage par Es, ge
 tout pays de faire reviser la sténographie par l'orateur. ec) a
 Mais avec un socialiste ces messieurs se croient dispensés [à a Dpe,
-Les intellectuels, tout ce qu'il y a de plus comme il faut, Ed
 ns Mouvement socialiste sont coutumiers du fait, Les œuvres
 ne ont dernièrement acquis une valeur commerciale, Ne. -
 dont exploiter : ils ont traduit et publié deux
@@ -47,7 +45,6 @@ les rédacteurs du Mouvement Socialiste des accusations + Ph
 inexactes, que je vous prie de rectifier. L gui
 il Votre collaborateur P. L., parlant des « instincts praL tiques » que tout « intellectuel tient de la classe bourgeoise, +
 d'où il sort », ajoute, sans préciser davantage : fra!
-( Les intellectuels, tout ce qu'il y a de plus comme il faut, du
 Te Mouvement Socialiste sont coutumiers du fait. Les œuvres de Marx 4 1
 ont dernièrement acquis une valeur commerciale qu'ils entendent L Je
 à 5 exploiter : ils ont traduit ef publié deux volumes de Marx, sans en k d'u
@@ -62,7 +59,6 @@ be salé js qui veulent Soci
 ‘5 œuvres de Marx à ceux des socialistes français qu de 1 rad
 se ranger parmi ses héritiers intellectuels, et à qui dr
 Ge avait cachées jusqu 1cl. ë atteinte à la : la « : À IL est faux que, de ce fait, nous ayons porté attell
-éoricien LE: LE
 propriété privée des héritiers juridiques du théori
 même du communisme révolutionnaire. 2e È F: 1!
 Je n'invoque pas un droit de réponse d'origine bourgeoise
@@ -80,16 +76,13 @@ Jelis dans le Socialiste du 10 jui ge
 merciale qu'ils Fa Pate nat acquis une valeur com- MR À
 volumes de Marx, sans en dem der ils ont traduit et publié deux Us" .
 Lafargue, et sans même dai ae l'autorisation à sa fille, Laura JS Lo
-doit s'attendre à tout de la Es ui remettre un exemplaire, On * a
 lectuels-là, se et de la piraterie de ces intel- Lo -
 Je n'ai jamais publié ee.
 poste, la librairie qui lé ce dans le Mouvement ol
 aduction d'une seule ligne de Ma: Jmais fait paraitre Ja 2h
 Mais j'ai publié chez Schleiche ri sous mon nom. ÿ i}
 Monsieur l'administrateur délégué, ‘ EE 16 26
-so itre : « Les
 Je lis dans Le Socialiste du 10 juin, sous ce titre (ES
-ectuel de la bande, pour achalander Sa FERIE N E (RE
 ed: de publier ma conférence sur « le Socialisme et les Intellec- Î
 tuels », sans m'en demander l'autorisation et sans me communiquer Hp: F
 l'épreuve eténographique. Les intellectuels qui déblatérent sur les Ë 14:
@@ -113,7 +106,6 @@ rectification avait été insérée au Socialiste, car a 5 Ne
 numéro du Sociali i ; pin (100
 a talisie ne lui est plus parvenu. Mais un A ù
 Onné payant et régulier di j Fr
-e ce journal, dont n i Qoa
 Que le nom, de peur qu'on ne lui coupe , EN
 (1) Rectifions nous-mé
 même i
@@ -125,7 +117,6 @@ nous ass È Æ
 &s assure qu'à l'heure où nous mettons sou: '
 bliée par l'Organe central du Parti Ouvrier Pr té pu- À fe
 Notre amil abonné, cherchant la rectification. es Ré ë 4 Te
-ul On, esttombé
 f seulement — numéro du 24 juin — sur le compte rendu
 officiel du guet-apens Zévaës : : .
 D . Vendredi dernier a été portée devant la Chambre la tue. . ‘+
@@ -151,7 +142,6 @@ ci des blessés sur le pavé ensanglanté de Chalon. ue D È
 prêt à recommencer, c'est-à-dire à maintenir OPEN ME
 N Fe ouvrier, fût-il seul, à travailler », contre }'ensem
 nt 5 chait tout à l'heure — a dit en ter ,
-ie SORA ARE un acte de tyrannie d'avol
 le Waldeck-Rousseau _ comme endarmes deux ouvriers
 ct mis sous la protection de ne que nous n'avons
 qui voulaient rentrer à l'usine; J'a -
@@ -171,8 +161,6 @@ passe à l'ordre du jour. 1e) 1!
 Et parmi ces 292 membres se trouvent 22 membres du +
 Jourde, Krauss, Labussière, Lassalle, Narbonne, Palix, Ë l Et
 Ce n'est pas tout, hélas! un sieur Massabuau s'étant avisé
-de faire « RÉPROUVER par la Chambre LES DOCTRINES COLLEC-
-TIVISTES DONT ON ÂBUSE LES TRAVAILLEURS », Cette répudia- ?
 tion de tout le socialisme moderne transformé en piège à
 ouvriers, acceptée par Waldeck-Rousseau et par Millerand Nr
 et incorporée à l'ordre du jour précédent a, dans le scrutin
@@ -180,7 +168,6 @@ sur l'ensemble, réuni 285 voix, parmi lesquelles celles des
 saing, Colliard, Devèze, Ferrero, Ferroul, Fournière, Pas- 4 Fe
 Palix, Rouanet, Viviani. — Albert Poulain, Cadenat, Car- LR
 naud, Pastre n'ont pas pris part au vote. "Pre
-#HTSà ai
 
 qu'il s'est imaginé quen puni
 ë Tete de perdus mon temps et d.
@@ -238,7 +225,6 @@ ceux déjà créés. Nous mnélant en que oPPement de
 s. Nous mélant aux divers mouve en
 Ouvriers, nous nous efforcerons de les fair ments
 conseils amicaux, vers un b 8 faire évoluer, par hi .
-onzième cahi De D E
 plus tôt se consti a
 défier tont Sreue des forces aésez Püissantes pour
 à La Science étant la résultante de sacrifices sans ‘1 é
@@ -292,7 +278,6 @@ premier pas vers le Socialisme qui, seul, peut accom- Di
 plir la complète et définitive délivrance de l'humanité nn.
 en “nur la propriété commune et désormais impos- LP
 sible l'exploitation de l'homme par l'homme.
-celui de Lalaegué Bai Ts MU DE l'article d'Allemane à + À F
 ticulier, nous croyons devoir faire allemaniste. Ici, en par- ÿ
 intellectuels, des universitaires qui nr que beaucoup des !
 laires avec les socialistes étaient valllent aux Universités popu- Ni "à
@@ -325,14 +310,12 @@ L.. La saleté est de la matière hors de sa place.
 parti politique qui possèdent un bon spectre rouge et qui
 savent en jouer sont certains de battre leurs adversaires,
 Guizot et le prince Napoléon avaient fait du communisme
-ni À fr un excellent spectre rouge, l'un pour se maintenir au UE L
 tire, l'autre pour préparer l'empire, mais ila perdu de sa
 7e M vertu terrifiante. M. Méline et ses agrariens épuisent ms
 à . Ni forces à en tirer les ficelles sans grand ce ù 1e el Es
 même plus les moineaux, depuis que M. Mi Gas Fan
 if baptisent collectiviste, démontre que pour ne
 
-COMPARAISON , L il
 ce eur et sa vigueur, rien tu
 l'exploitation capitaliste 8a EE sauce de Saint-Mandé.
 e vaut un ministre socialiste à la k ilié avec le L'ee
@@ -384,7 +367,6 @@ fl milieu, c'est pourquoi ils sont nee ils sont restés juste au
 Hi bien que les hommes d'idées et es (2). Îls savaient trop
 \à sont les seuls qui ont chance de parvog, que "es
 cratie bourgeoise, € parvenir dans la médios ue
-{ Moi, j'ai été dre
 blique, je le proclame bien ant Fm use Petite Répn-
 les illégalités, les immondices, et. Ce tue
 mes fureurs dès que Galliffet nous en a donné l'ordre
@@ -427,7 +409,6 @@ it bien raison quand il disait
 la saleté est de la matière hors de sa place; l'en
 sur les caractères d'imprimerie et en lettres moulé de : À
 papier est ce qu'il y a de plus propre ; mais sur les doi ° ; on
-c'est de la saleté. La Justice et la Vérité PS à
 des temps de l'Affaire, ne sont plus . ces vierges pures “ 41
 Ça leur arrive à ces drôlesses ds les impures.
 d'être hors de place. Il a ouvent qu'à leurtour % 6]
@@ -438,7 +419,6 @@ chose, dit le proverbe : + Le malheur est bon à quel
 erbe ; la Turquie le sai quelque _
 ne d'être devenue la terre mers t: elle avait eu le Ds
 nancière, c'est ce qui l'a sauvée de l'é ise de l'exploitation HS à:
-Rae imédetibles justiciards of eo et que de- ÿ tr
 é. sud de l'Afrique, un be De es doux chrétiens. M « poing, se dresse contre l''Angl ple de paysans, le fusil : L'TNSS
 gi Pour mieux voler ses its Fe le colosse du monde & : cr?
 joug de Cecil Rhodes, de Beit : +. Li le courber idée , Pl,
@@ -476,7 +456,6 @@ La Petite République du dimanche 10 publiait cet
 x a jaliste révoluici en quels termes le citoyen Paul Lafargue, s0C d
 “y hé papier à la Petite Moucharde : ublique,
 A É: « — Moi, j'ai été dreyfusarde, mugit la tapageuse Petite Républiqi
-HAE 4 k inis à M. Lafargue de maltr
 Fe olémique récente a per n du citoyen
 E. " ae Voir dans la Revue Socialiste les bonnes réponses
 ï rai cri 0) l'inno- (RER
@@ -530,7 +509,6 @@ r L cher côte à côte avec le prolétariat russe, et Re rte € Lu
 ‘1 ndance de la Pologne — en tant qu'elle peut dépendre de l'inibi sn
 è étariat — à la conquête préalable des
 tive ou de l'action du prolétaria Rue « 4,
-la: vrière organisée en parti de Fe. l
 pouvoirs publics par la classe ou' parti, Elle fut
 Fe. Rosa Luxemburg fut un des fondateurs de ce dernler part. osé
 DES 1 placée pendant quelque temps à la tête de ps e
@@ -548,7 +526,6 @@ la bourgeoisie. Tout déplacement dans les rapports des
 puissances sociales de la société bourgeoise, tout change- E à
 ment dans les rapports politiques du pays influe aussi en
 première ligne sur la situation de la classe ouvrière. Nous
-ne pourrions assister à ce qui se passe à l'intérieur de la Ë .
 bourgeoisie, comme des témoins indifférents, qu'au cas où
 le socialisme pourrait être réalisé à l'extérieur de la société
 bourgeoise, par exemple par la fondation dans chaque : Ë
@@ -562,7 +539,6 @@ avant vers la victoire, d'influencer tous les événements ; A
 
 ri une puissance qui, dans tous les événements
 politiques de la société bourgeoise, pèse d'un poids de plus en
-pluslourddanslabalance.Le princi
 Lan lance, e principe de la lutte de classe non
 eulement ne peut l'interdire, mais au contraire il im
 l'intervention active d étari pose
@@ -587,7 +563,6 @@ ri ations toujours dans l'agitati | socialiste, AS
 parole et la Plume en vertu et de gi tion générale par pe
 f nos principes et de nos He
 
-k4 onzième cahier Ses le ‘à
 (f] donc de ne pas entrer en latte one nPréHensible sérait-il
 Hi gissait de les démasquer, non Pas en tant que abs si s'a: 1
 sx “A se servant des Vivants événements du jour! : ê
@@ -613,11 +588,9 @@ appui du monde revisionniste bourgeois de la part.des ST ts
 socialistes, ces derniers ayant trouvé “occasion de mener
 une lutte tout à fait indépendante, c'està-dire une lutte de
 a. classe nettement caractérisée qui les différenciait des autres
-ne. fractions du mouvement. LOUE é
 5e Dans quelle mesure ce mouvement a eu en fait ce caraë -
 ion. Il semble que parci
 %- Lite à 1 t une autre question. Il nous
-ea par-là le point de vue de la justice abstraite et de é
 x à de la personne de Dreyfus a été peut-être mis trop en
 td arades et que l'on a un peu négligé
 avant par nos Cam 4 one G j'a eu
@@ -634,8 +607,6 @@ lutte de classe, les enseignements de aura saisi la fr: à
 lorsque l'ensemble des ne our la cause du prolétariat.
 portée de cet événement Socla P nt dite de l'affaire Dreyfus
 L'importance politique propreme À nous ex 08: dE i se
-pour le pe Ps Dar grand mouvement ! i
-Rae se 'objet de la luîte de classe et Ed
 pendant de longues années par la propagande a ste La i
 ee cela que ce mouvement a entraîné dans son
 courant irrésistible les socialistes de plusieurs organisations.
@@ -657,14 +628,10 @@ délivrée des clichés abstraits. La conception matérialiste à 2 À
 de l'histoire ne nous Permet pas ici non plus de croire au
 Et AE d'un mouvement populaire vivant, engendré TES : > 7
 embrassant tout le re sp . ins dde
-claire de la théorie et des de Dre “
-
-ds se Pt ie Rue à Savoir la ParticipaFnement bourgeois, dépend de “0 à
 
 den Den nonnale de non deiiton — Soit comme
 Î Participation aux assemblées légi Pl telle que la
 É une mesure exceptionnelle pe slatives — soit commè
-pe de la vie de TÉtat. I] nous he Hart
 {: Jaurès dans son article Orion de que le citoyen
 it: blique 17 juillet — s'est placé à ce pute : “ue
 Il y pose la question clairement et nes Fe ee
@@ -676,7 +643,6 @@ paru dans la Leipsiger Volksseitung — 6 juillet — dans
 lequel nous aussi nous ne reconnaissions comme admis-
 sible l'entrée d'un socialiste dans le gouvernement que
 i dans les cas absolument exceptionnels, mais doutions ‘4
-qu'un cas de ce genre se présentât en ce moment en
 France : « C'est là une question de fait » (et non de prin- 1P
 cipe). Si on pose la question de cette façon, si on n'en-
 visage qu'une œuvre déterminée, alors ce serait vrai-
@@ -696,9 +662,7 @@ RO (#H  reuse expérience fait apparaitre cette expérience gr
 poser la question un peu différemment, Dans
 @) Nous avons reproduit cet article dans la préparation du Congrès
 
-LUXEMBURG tu
 Li … République 3 août — il parait
-mettre l'activité des L CUIR l t, au
 por a a nl La vrai, dit-il, c'est qu'au !
 jourd'hai le socialisme est assez fort pour pénétrer toutes 14 !
 les institutions et “apte les pouvoirs sans 56 HE
@@ -818,12 +782,10 @@ moins avec une indifférence hostile. Ils craignaient € ini
 v d ES mentaire n'affaiblissent l'énergie révolutionnaire du quand
 prolétariat. — Peu à peu, cependant, le ne 4 ess
 7. # saient d'abord de l'action électorale et par” se er à Fra
-Res donnèrent comme nee : Fe es pe ! Nes
 quête des mandats législatifs e pot de
 j pr que par là le socialisme à subi une déchéance Ah
 
 clamé à la tribune du Parlement ie nue Fe
-cipes révolutionnaires ? Est-ce qu'il Es RE cu
 toute bataille, le droit souverain du Pr0 À ï
 Pie ue bien que quelques-uns, sefrayant Mae 4 f
 cet agrandissement de l'action socialiste, parlaient o à ff
@@ -873,11 +835,9 @@ mées de socialistes révolutionnaires et de de { » te Er bourgeois, la porte a
 4 : Mais je ne veux pas m'arrêter davantage Re Me
 de serrurerie. Et je dis qu'à mon sens n08 MÉMT
 
-GxEt jau il La
 Fe de posent mal la ques- il
 cateurs et amis Vaillant et Guesde p il !
 Fi A n'est pas d'interdire au socialisme Se \ E j
-d'action. L'essen
 tionnaire tel ou tel ra à i caractère de
 que partout où il pénètre, il gare sn é exerce un Er
 classe. L'essentiel, c'est que le parti 0rganis fe de ses'
@@ -893,7 +853,6 @@ l'action parlementaire. Ce n'est pas une raison pour
 interdire aux socialistes le Parlement, — mais il faut Dh
 soumettre tous les ans au contrôle du Parti unifié et :.HÈ
 organisé l'action parlementaire des élus.
-Oui, il y a péril de déviation et de compromission
 dans la participation directe d'un socialiste à un minis-
 tère bourgeois. Le péril est même là bien plus grand, È
 précisément parce que là est la force centrale de la  , r
@@ -934,9 +893,7 @@ Le Mais je demande ceci à nos anés Ge dre
 Ji qui ne sont pas essentiellement socialistes, 2e 9 oi
 k et peuvent être réalisés en régime bourgeois, qe
 done les appliqueront-ils a See RE ge L :il
-Rue il ut la révolution sociale par l'ex- Île ia
 propriation de la bourgeoisie au profit de la commu- on
-sé le programme de Guesde et de Vaillantne peut à fl
 être appliqué que tant que les socialistes seront en Ji
 norité. Dès lors ou bien ces programmes ne sont qu'une “14l
 illusion ou Guesde et Vaillant comptent, pour les réa- 78 4 !
@@ -1043,7 +1000,6 @@ N mois des cahiers qui paraissaient de: Ps Le rés
 ou le 38. Nous expliquerons en détai dune Re
 s cahier les intentions que nous avons 4 C4 re
 j Il serait personnellement monts à récRMEl
-qu'un de nos amis er DA rh à donner à Pari
 ingénieur de l'École Ceni , DÜL GONNA RES
 sorti ingénieur de l'Et iences = RAÏ
 pendant les vacances des tete de ei

@@ -15,129 +15,16 @@ et de Jeanne d'Arc
 È 8, rue de la Sorbonne, au rez-de-chaussée
 
 | sera
->. RASE L'ÉPRER
-FN 3 1 sé tea . LL" ATAS a es LE
->. À es > ge F) "SA '
 
-PRE PR EE de ÉD a Tao NÉE AS Ne SCT rs MR
-NPD AN Dee Pre CE NES SR NE MTS RE LAN
-A TE » A Le Faire F LATINA CPP
-_ TPS ENRRRREE 2 rene SE SON
-> OS SO ES Er NP NES Mmes L oi KO
-DEC LA 9 118 TRE RQ URSS NP te LAN? ee Nae tetes RP =, :
-225 VEN CORRE" A Re dirt DAME et L'OPTERNN
-ne Et, Dr ENS Éer DIR sc, RAR D Es
-
-LE 30 PONS PR CT A OR CA EN nn 7 Rte) je M rte ARS Lea
 Brass de k ‘7: LITRES
-
-RE ee Ne JUS Lee OPA RER
-LÉO SE ASS TE ; ru hEtE TES Le et ARS U
-
-NT PM RE NÉ 00e este ie To ON OP ONRS
-M TS NE NOR Kant NS STONES CRE
-lt TELE x la + : < he 0) fi Ps
 
 Cinq poèmes, l'épave, l'urne, l'aveugle I, l'aveug'le IT,
 les sept contre Thèbes, dans le Correspondant,
 numéro 1203, du 10 novembre 1912, en vente à la
-MPG IE GES: Caen TX Ne on ee dos TARA
-
-* nt PA ne « 2 E ERTRE
-#b ee SP HE 1 RME 2
-NE LS MST de TEE “AS
-# l'A À EURE 5 aù DEEE
-
-L'AIR sn” Eire = : 4 AO SE RE QE PEACE,
-2: CAE 1 + HU à SR EPST CPAPAERE ne ire
-| 'RTANRRRRRE ; Et 00e INSEE ER
-> TRE NS | « A À D. 2) S 0 DEA PET EVE
-At en te ape H GEO Re NE AT ETES LPS ONE ETES
-
-ee ne TER ME a CEA ARS ETES AU ;
-SÉARCOUNE NES a tas LE SSP RP IEEE
-Nas SE PR SRI CES PAT PROC
-bar, “ - x 6 Fe Lis PAR
-
-LAN ne HN nee Serie RS ee ne
-A A tree e AN LE 4 Fete ere
-
-M ii ce 4 6 ) : LUE pe He Use
-fie MNT ES ART PRES “ £ 4 ne ARTS AREAS Fee
-
-‘ 1. SET ENRE es Eur $ ne n/ LUNA ANNEES D pre AE
-
-TER A rl ne da * x TPE : Lost Es A2
-
-FLRRE SU ÉCRAN ES SA à dt CE eut: RTE RTS
-ge SES Re FE 5 pe Re
-st ee L RE ,
-
-ÉRETRT U Nlen DE, JR MED LT PR Tune SE AN RE ES
-PR D TT eme RC GR ee PI PRIS DT Sa
-ASTM DOS) PAUT SRE PE Er 2 RS ne ee
-à DES EM a a RER PE TE M a, se RS PER Pt NE de te An LR EE %
-L'ALRKAETESS ce à : L : BAT A, Fr LP TOR
-L ner HN TRES LE
-(ER PRES Er ne” EST Nr ETES sec
-EN ER re Dent & L # LISTEN HE RENE Ê
-Des “ Ê è z FN La TE ARS HÉSNENEERES Ë
-Ré at he GTR es € Pas RE QC: SAC UT e
-
-LA pi MA NAT ER FRA AUTRE LA CET ES Eure SRE NT TER EE el 4
-D  L) dt D A Se TP NE Luis
-
-ss PS A de LR EME
-
-#55 204, A NTI CONTRER AURET UEs  : 5 ‘1
-
-PR ARR LE nul O Ter M ARNO AS
-En t ne TS MAP UREE pe
-Ne RASE y { rs ue PAS Ne $ TÉUEE ART À:
-AR SA NUE ARS NéRA AS perte
-
-RSR PP UNE en NT rés AE ML PE TE EURE
-
-LE ANNEE LEE £ $ TS YA ÿ LE FAUNE ide
-+1; INA es ce FER De
-OA AA La à SET OR A ie
-
-Een PS te PR SR A PA Le NET
 
 Mes Tire inte Genepiège
 D “pour le repaire dé sainte Genavite © SRE
 _ de la quatorzième série; A
-
-ME F L +s o NÉ me RTS rs SET TEE
-
-|. RRTEES RASE A
-
-[1 2 MERE Eee RATS RSS Le RIRE ne
-
-De. MD PK 4 Yi te He RER TÉAAN COUSAE
-
-RD Tee Dre EN NO RE NE CRUE EIRE
-DAT OT TT RS HA ERA Le EE st . PÉTER
-AU AS DA et j LINGERIE RE ;
-re SEAT pr RES Le TR
-The Er ne : * FES
-
-“hat A8 EDR CPTERAES DR ER OARR te nn TE TA NE PS UPS RATES US
-LE ORNE : È nt Favre: "Ut Mer
-Men patron in fF46ne 44 An ess
-
-+ ee CARE RNA ES a Re É me ES LE nd Ve
-
-A ot RS er LA AUS ARR te Fe
-
-SUR ee PRES D TUE ee LEA RES CR lee Sn:
-
-2: TRI ee SAM EAN SN ME FRE De FAST
-
-sé 5 DNS MERE PRE AE NOT PUR NL PRES AU RARES Vers 1e Sa QU CRUE Lt
-
-LH SONT SERRES Re Pas RS Fa PEN TVR SEE » « Men he PAP ONE EE AR D EU MERE RE a ee AT 4 CCR
-DAT CE INT CRE Ze el 6:
 
 C oMME elle avait gardé les moutons à Nanterre,
 On la mit à garder un bien autre troupeau, *
@@ -155,41 +42,6 @@ Qui ramassant Paris et tout son alentour
 Conduira d'un pas ferme et d'une main légère
 : Pour la dernière fois dans la dernière cour
 Le troupeau le plus vaste à la droite du père.
-|
-
-rer et FACE ST ER TE MN CU A IUT ae or
-RAT se } e è "1 LE AIS es A
-| M © L , En: CRE, PRES
-| - TERRE D ME Q ee û L LES AR ERNST SREES
-| … FAR : # $ x ARE NU RREEERS D'EUX
-L M ET AE Are Ac LENS PRO EEU
-| M rar Me RAM RON OR EEE CAD PES FH RER ARE
-Re no EU en, Et, A A NE TORRES set
-
-fi PE CARTON NES AY de Lg , MARTIN RE PAS eat
-Ress ne du ent { KE me : FTP F
-MRDDR NAS TER : ï ME, on
-cr LÉ ur Ce AR & : LUTTE
-8 VF ME EN | 3 Hire ne
-Ro de CN D yet REV es NE A RE
-
-| ECO AIN Ye Û FORTE SES PER RO
-
-Rey ç à 97 Ke LUE RTE dei Î L NOR RER ONE)
-
-de ee St PRE nt D ee “PAT 0 08
-ne a mp ie ua Le RUE
-ELISA EE LEE DE A RU Lt Per net PAL RTE RÉ ER MAR LE
-D Re mn un 0 Re |
-ALU HS ei LS NE ES As DS pi RARES se UE
-AA RCE d PAR ces SH Fe
-L'ANPE ONCE 00 res Phares LAS PAU HALO fi ie OU €) re
-
-TU ro pe a LT Tone ou SET En an
-Are ie : LE a. 2
-Ce ne
-| 23 RE Tel Le CR
-LICE an 4 LE Pl
 
 D elle avait gardé les moutons à Nanterre
 Et qu'on était content de son exactitude,
@@ -206,36 +58,6 @@ Qui ramassant Paris dans sa sollicitude Does
 He __ Conduira d'un pas ferme et d'une main légère NE
 LEE Dans la cour de justice et de béatitude /5 PSS
 5 Le troupeau le plus sage à la droite du père.
-ne : FEES
-
-| ; rx " CRE SEE PME
-
-nn ee EL RP RRRET RER TEE LA CX e " +
-
-RAR CE re UT à PP ÉRE ER RE ETES OS ES
-
-RE de SR RAS PER RM MAT MR ON EN
-> AN Slt D AN CRU PRE ARE A En ve RAA EN L'ETAT PNC ENT
-
-ss DEN ee À A ne .
-
-DE 0 2 IT ie des He) SO
-
-Tale LORS RUE Venir PTE ON EE AL Fos Le TA TT ee ab REC M
-
-ES 4 Nre À RER EN Er Ne
-
-RE L] $ cr. Pen cui
-
-# Æ LE TA À. x PR ETA CENT
-
-ME 2. f” tu k Es er * An Pre
-
-Me Po xl pr à vi a à Av DR Pan Le Pt
-
-Un CN”. ÉODAL SX 2 » M re ART EE ee » 9
-
-PR re À Les
 
 ] Vo avait jusqu'au fond du plus secret hameau
 La réputation dans toute Seine et Oise
@@ -255,26 +77,7 @@ Dans la dernière cour par le dernier portail CR
 Ramener par la voûte et le double vantail
 Le troupeau tout entier à la droite du père.
 
-RS NS UE is OU SO
-D D er ne NÉE Ge NN ONE
-I LTATERRRTS ÿ, 5 p L Re er ni Le Mr ie 4
-L LE per, % ee CE LT MA VERSER SR
-re pa RS Ne EN EE MT UEYA Le —
-LP Li RE LAN ERREUR ni VERRE ee
-MAR QUE RE ES TN PRO AE REX. STE es
-FR os Pere DRE eo NE FRE EST Ps ; AREAS 4
-
-DES RE D eus RU BE Var PAT USSR A 2e .
-& ARS 1 ET a EE Sr VOS mc SERRE PERS Chen ane PT 2. é PT :
-DR MR dr re RTE MONTE RE MES MMS
 2 Lee TENTE pal 2 * ere + ta
-ps -Dr L ù j = 5 Fac
-
-| JOUR DES ROIS
-
-To RE he Ne SRE CAT ATEN er dr
-QUES 28e HAS Ÿ AE EC RUE vs de : 2m 4 + PO CRE
-re af 1 — Le
 
 C OMME la vieille aïeule au plus fort de son âge
 Se réjouit de voir le tendre nourrisson,
@@ -296,21 +99,6 @@ Et qu'elle vit monter de dessus l'horizon, 3
 Souple sur le cheval et le caparaçon,
 La plus grande beauté de tout son parentage. 3
 
-s HS fi EE CPS nes LC TC RE D de due
-D 7 D A de ie do
-A na # ; LE va ROUES ONNETE SRRR IE
-RSR: eve à PAR PT LENS SAN
-| LRO ET STE AE TR en TR LT 27
-MR RE UT CE EU A SE ORNE ve 3 RCE
-Re nn ne, ren af td 40e VE EE =
-
-Tue Ne À ol CET TE IUT EME
-
-M es L'EAU
-178 CS fe FA Ar tic au « ACER 3 - de LT RSR
-
-ES ACTE de ; Ê FE PONS
-
 : C OMME la vieille aïeule au fin fond de son âge
 
 Se plaît à regarder sa plus arrière fille,
@@ -330,49 +118,9 @@ Dans un encadrement de cierge et de flamberge,
 Et le casque remis aux mains du petit page,
 La fille la plus sainte après la sainte Vierge. |
 
-à DRE CON PSS LMP LPO Ur ne PR NE AIS
-
-LT ke : si, OR il
-
-: : FT = lé pi ÿ « - À Fe Len PRETEA QAR re L
-
-+ PAST AUS L \ Li &: sl RO PAU LU AT » 1 ESRI LCR : D ON 2 A Sa ENTRER ss re
-TAN AT RETX es CRD TRE PACA T4 NE CR NS RS ae te ;
-Ar NUE RTS at En TAN le 162 RL I ERSRRESSES +
-
-D, DA RANNE Re md SORT TRE Tee RIRE TES Vas D".
-ei eN ER EVE CNP RD SAS a rCa Se LES de EN PA
-
-DU (TEE TS RS NT A amer ess Pen PP NC AGAIN 2 DEA 4e EM
-A PT me er Sa ï = A
-PRET CRUE CE s, pe À : rs LCR ET ot M =
-> BASES ee % Ge 3 MR
-LE FDA Roi see 5 - D > Te
-# RÉ = F 2
-
-14 Et Enr ” LH DSC MECS ne
-if ner sr re AUS. 14 £ ML ET k EPS
-
-> NE Me ME RTE Te > A
-
-#4 ù LORS” Ne Liu 2: < LA ie
-
-ECS it ES 5 "or EURE CASE 2: NP È SL L GR HU RES Æ 2 aRE V7 OPRRER
-
-# 4 CRÉAS Ÿ 3 É 3 Fa - M
-
-Den L SEE SP
-DNS 2. À je] ÿ L re ORNE
-
 .
 
-|
-
-|
-
 C oMmE Dieu ne fait rien que par miséricordes, |
-
-|
 
 Il fallut qu'elle vît le royaume en lambeaux,
 
@@ -391,7 +139,6 @@ la tapisserie
 
 Pour qu'elle vit fleurir la plus grande merveille
 Que jamais Dieu le père en sa simplicité
-Aux jardins de sa grâce et de sa volonté
 Ait fait jaillir par force et par nécessité;
 Après neuf cent vingt ans de prière et de veille
 Quand elle vit venir vers l'antique cité,
@@ -403,33 +150,6 @@ Mourant en plein martyre avec vivacité,
 
 La fille de Lorraine à nulle autre pareille.
 
-LEA METRE < l Re ar nn T's RP
-DRE LE — re Es 3! er RO ee À
-DD EE sa HT ISERE
-( Eretel SCT RER) : ë VERS TRE TIR Se
-ne Fe: PA e ES À Te Fée RER LS
-es LS 1 te 2 #7 pbar "2 * PAPER CE UT ce, A
-RE re, ya NT : LR NE TANERRREERE RES
-
-ARRET A ere Up ae Pi VE DNA OU UT PS
-Dee Tir ie RS MN ER D OU Te NO EE TOR
-LRQ ES OU EEE ne TE ASS 2 LE RSR
-LAVE et TPE Er (CEE ï sex. ARS et
-Fo le REP Er Lei TS AN ù < à TE
-SUN MR Un ne à Fe « ESRI
-LAN Te er } 7 4 80 NE 4 LEE Se NPD QE: PT ae Le Cu LU NE
-MES 2 ut RE RUr ARE 4 de. Voars ONEN RSI
-
-TA A AU ne A AE me RM EN A ES DE Ie © HEC
-MR EME I) Rae NE EE ARE TE
-
-PTS COR RENE ? + 5 Fr Rte di A ta: On en :
-ie ARR ETC De mu RNA Ce HU AK. LATE ER SR SSSR "
-ie 7 TRS ER ; Re LES ; Xra LA Des RÉÉRPETEEE 2
-
-|
-|
-|
 ee Dieu ne fait rien que par simple bergère, |
 Il fallut qu'elle vit la discorde civile
 Secouer son flambeau sur les toits de la ville” |
@@ -447,43 +167,6 @@ Gouvernant sa bataille en bonne ménagère,
 Traînant les trois Vertus dans quelque fourragère,
 Vers l'antique vaisseau la jeune passagère.
 
-RER EE PR Re A un PUITS 2 ŒUUIDÉ ) étre RAS Er
-
-LORS ONE EAESS DR sc DR AR NA er DU:
-
-Er A: Dre " #4 + E , AR AE CAE Les
-
-2 LEA F LEE Le PURES Lars a F
-
-4 SE RS Ai She + 17% fre À RO SE SUR TS SE SE ER
-
-A AC > en ee ut Le ST De Re Ne RTE
-
-OR RES à ze 5668 Eee + f s ETC L HR © Dee ? Le
-Ses es ne À NES 2 PES EIRE
-
-PL Et ur RASE PRE ERUENS Or CN ES
-
-Rene PROPRES = Rss RE e AU TA RENE FES
-
-TE se PE ÿ Fra AE RE NE
-
-: + EME Le x L OLA L'EST NSTTNE fe tre F
-
-ji e PE 5 S LATE FE PAR PUS AE
-| FAO a » » û $ CARS SES hs A
-
-à RES voi (Re Le l DE RASE SI NS
-
-Re co } S Le TESTS
-
-A Un è LE PS EN de LAN
-
-RSR ni re He Es LHETÈIESSS
-
-LHPAEN CE, Na. ET \ È rh + AA où RON Une.
-(ONE. SPA CH NRA NE SANS De SE ER! a+. nie nets : MES
-
 C OoMME Dieu ne fait rien que par pauvre misère,
 
 Il fallut qu'elle vît sa ville endolorie,
@@ -494,19 +177,13 @@ Les cadavres crevés que la Seine charrie, x
 Et la source de grâce apparemment tarie,
 Et l'enfant et la femme aux mains du garnisaire :
 
-a ee 15 ire de TR AE SE PEU M AE
-LES On PME DEN CR PO ST Ne ne nu
-M nn cn à et OURS
 te Poor 'elle vit venir sur un vi FN : he ; ne LA
-Prés LES ë j êl FAT TER
 APR Conduisant tout un peuple au nom du Notre Père, Den :
-| ne ss _ Seule devant sa garde et sa gendarmerie ; FFE a ”.
 Re. _ Engagée en journée ainsi qu'une ouvrière, LTÉE
 
 Ci _ Sous la vieille oriflamme et la jeune bannière
 _ Jetant toute une armée aux pieds de la prière; nu
 . __  Arborant l'étendard semé de broderie Ms
-re SR CRE _ Où le nom de Jésus vient en argenterie, FFAE ES
 Te Et les armes du même en même orfèvrerie; AREAS
 __  Filant pour ses drapeaux comme une filandière,
 a. Les faisant essanger par quelque buandière, ee 4
@@ -559,7 +236,6 @@ Et le licteur antique et l'antique faisceau ;
 Les armes de Jésus c'est cette raillerie
 Jusqu'au pied de la croix, c'est cette moquerie
 Jusqu'au pied de la mort et c'est la brusquerie
-Du bourreau, de la troupe et du gouvernement,
 C'est le froid du sépulcre et c'est l'enterrement,
 Les armes de Jésus c'est le désarmement ;
 L'avanié et l'affront voilà son industrie,
@@ -608,7 +284,6 @@ Ce serpent à sonnette avec sa sonnerie 2
 ; S'est vanté qu'il ferait (voyez sa hâblerie) |
 i Jeter par ses suppôts les saints à la voirie; ES
 Les armes de Jésus c'est la paille et l'étable 3
-Et le pain et le vin et la nappe et la table,
 Et le plus malheureux, voilà son connétable; $
 Les armes de Satan c'est la supercherie, 4
 Un aplomb infernal, une aïigre drôlerie,
@@ -617,14 +292,8 @@ Les armes de Jésus c'est la poignante épine,
 C'est la fleur de son sang sur la blanche aubépine, 5
 * Et les fleurs de ses pleurs sur la rouge églantine;
 
-e> RE ER Ve te a ee LÉO CREUS EL LE DER ERRLE eat ent
-A DU Rd Un se nes
-SR dd Mn ne
-= RER AR ee ERA Ce VAE Te AN
 D de eunte cenevnve  — À.
-Re un PR ESSS = RÉENE et
 … La perle qui descend sur sa joue attendrie, nt
-s Et la perle 'il boit sur sa lèvre appauvrie, RON AN ES
 _ Voilà ses beaux cristaux et sa joaillerie; d æ
 - Les armes de Jésus c'est la verte couronne, nr
 C'est ce front que l'amour et la grâce environne, FRE
@@ -636,15 +305,12 @@ a Les armes de Jésus c'est notre forfaiture, ESS
 7: Les clous et le marteau, la robe sans couture, RE
 L'homme, l'ange et la bête et la double nature;
 _ Les armes de Satan c'est la jobarderie, LE .
-CARE F Sets % 3 fe À kr LEE: ue LE
 ARE g'est le scientificisme et c'est l'artisterie, É See
-C'est le laboratoire et la flagornerie; Re Er
 etes Les armes de Satan c'est notre forfaiture, MA dE
 C'est d'avoir dispersé la robe sans couture, Se Ù
 _ C'est la bête sous l'ange et la double nature; Ne
 Fe Les armes de Satan c'est la bouffonnerie, ess
 . Et 'est le moralisie et son infirmerie, +R SN
-ë HR | haute éloquence et sa pâtisserie; AO
 
 la tapisserie FAIT
 Les armes de Jésus c'est la peine de l'homme, '
@@ -801,7 +467,6 @@ _ Le même désarroi, c'est qu'il nous déconforte … A: LÉO
 Sa “e _ En notre réconfort et c'est qu'il nous reporte 3 s JL,
 ÈS Au péché d'origine et c'est qu'il nous rapporte ee FF
 . M Le mépris du pardon et c'est qu'il nous remporte re
-a .__ A la science du mal et qu'il nous redéporte VIE RES
 
 Vers la terre du bagne et qu'il nous retransporte
 À Dés de u ténébreux royaume où lui-même supporte SLERS
@@ -815,7 +480,6 @@ _ Et c'est le grand partage au beau milieu du sort;  . 1
 __ Les armes de Jésus c'est la vie et la mort, +: 12 RES
 & -. C'est un heureux mouillage en plein milieu du port,
 de ! ns C'est le grand héritage en plein milieu du sort; NN
-De sa Les armes de Jésus c'est la vie et la mort, E Su E,
 : rai  - C'est le bon voisinage en plein milieu du port TS
 _ Etle pèlerinage en plein milieu du sort; CAFE
 
@@ -841,9 +505,6 @@ Embarqués quatre à quatre et mollement couchés
 be Qui toujours fluctuante et toujours batelière,
 Racle de ses filets le fond de la rivière ;
 
-i HU Vi po HE de SEEN y CHAT en
-M SE one À Yi la. tapisserie
-Re Ur Ho 1 TS ANR RON RSS AUS EL de ee RE PA red.
 M - rs armes de Jésus c'est la barque de Pierre, ns.
 RSS C'est le vieux pêcheur d'homme assis sur son derrière 5
 __ Dépeuplant l'Océan, le lac et la rivière; C7 FNME
@@ -860,7 +521,6 @@ _ Toujours en plein péril et toujours sans méchef;
 _ Les armes de Jésus c'est cet unique fief, _ SETÉATEER
 DS _  Tenu par un seul homme armé de quelque bref, STARS
 _ Toujours en plein péril et toujours sans grief; Le USE
-Lies = LES
 Les armes de Jésus c'est l'éternelle peine EX KES
 J'Y SES Assise au creux du lit de toute race humaine LE A
 + des Et la mort est aux mains de toute châtelaine ; tFSS
@@ -901,7 +561,6 @@ re _ C'est la procession assise au reposoir MUR
 F3 _ De feuilles et de fleurs, c'est le lourd ostensoir TO
 
 LÉ Æ _Levé dessus les fronts comme un soleil levant, TA
-__ Les armes de Jésus c'est la pluie et le vent RTS e ES
 PR. _ Qui souffle sur la nef et c'est le cœur fervent ; | TRÈS
 7 0 _ C'est le fruit qui mûrit aux planches du dressoir, _
 RE _ C'est l'enfant qui se couche et qui vous dit bonsoir “TEE
@@ -912,9 +571,7 @@ _ L'église dans la plaine et la prose et le chant; L'F
 DANS C'est la grappe giclant sous l'énorme pressoir, à +
 _ Cest l'étang répandu dessus le déversoir, : | 4
 CNT Cest l'encens balancé dans le lourd encensoir ; 5e
-Let LE TARN
 
-# Re ne DE SAINTE GENEVIÈVE
 <. Les armes de Satan c'est l'écu trébuchant,
 Le propos alléchant, le souffle desséchant,
 La plaine sans église et l'ortie et le champ;
@@ -936,12 +593,9 @@ Et l'esclave et l'enfant vendus sur les marchés;
 Les armes de Jésus c'est sa tête penchée,
 Son coude, son genou, son épaule écorchée, à
 Son estomac, ses reins, sa hanche démanchée;
-# 83
 
 Sa barbe, ses cheveux, ses habits arrachés, 4 LE ;
 ia Sa poitrine, ses bras, ses poignets attachés ÿ TFUE
-# & À is. &. VÉSRERE
-#1 LE &5 . A » *: À NP
 Les plus savants ressorts à l'instant décrochés; FX A TESTER
 PS . C'est dans le vieux Paris la foule endimanchée LTD
 ne. Le dimanche matin, c'est la soif étanchée nr.
@@ -960,10 +614,7 @@ __ Et l'amour est aux mains des suppôts de la haine, * À
 À _ Et la mort est aux mains de toute châtelaine; L+. RÈPERES
 __ Les armes de Jésus c'est la vie et la mort, : Vr2
 RAA _ C'est le fleuve fécond, c'est l'éternel apport j sx à
-De vase et de limon en plein milieu du port; RUES æ Ÿ
-en 84 re ne
 
-des Re DE SAINTE GENEVIÈVE L
 _ Les armes de Jésus c'est ce gamin qui dort, .
 __ C'est la honte et la peine et son frère le sort,
 . Et l'amour est aux mains des suppôts de la mort; à
@@ -1001,7 +652,6 @@ Les armes de Satan c'est une gagerie,
 | Et c'est le philologue et sa quincaillerie ; |
 Les armes de Satan c'est notre servitude,
 Cest notre hébétement, notre longue habitude
-Et la nuit et la veille et la lampe et l'étude;
 Les armes de Jésus c'est la béatitude
 | Et c'est la parabole et la mansuétude
 Et c'est quand il pleura sur cette multitude:
@@ -1012,7 +662,6 @@ Le pouvoir, le savoir et la décrépitude;
 _ Les armes de Jésus c'est le tranchant du sort, |
 …_ C'est ce point sur le glaive où la vie et la mort :
 _ _ Déjouent le corps et l'âme en plein milieu du port;
-| J P P P
 . Les armes de Jésus c'est notre inquiétude,
 s L'axiome, la règle et notre incertitude, es
 Le devoir, le pouvoir et la vicissitude;
@@ -1035,14 +684,11 @@ _ Cest le meurtre d'Abel, c'est le sang répandu,
 
 - C'est Judas dépendu, c'est Judas rependu; |
 
-LA y RC RS ANSE ne t
-
 RU Æ Les armes de Satan c'est le filet tendu, 4 FACE
 SEX “ * C'est le propos douteux et le sous-entendu, F4 200 £
 _ Et toute controverse et tout malentendu; 11 ES
 Les armes de Satan c'est Jésus-Christ vendu, |
 
-| SUPER : , , A TRS
 _ C'est les trente deniers, c'est Joseph descendu 2
 Au fond de la citerne et captif revendu; . rs nue
 Ë __ Les armes de Satan c'est la race perdue, : 1° PRE NCEES
@@ -1050,7 +696,6 @@ de ne _ C'est le lacet tressé, c'est la corde tordue, L'RÉFOEES
 a LS Toute chair assaillie et toute chair mordue; . # + P.
 Les armes de Satan c'est tout le résidu d ras &
 #4 Et la lie et l'écume et c'est l'individu As 72
-Et c'est le commentaire et le compte rendu; LES Re M:
 Les armes de Satan c'est toute dette due +5 ER
 + + __ Irrémissiblement, la honte suspendue, 1
 Et par son gouverneur toute ville rendue; RAS : SOS
@@ -1058,10 +703,8 @@ _ Les armes de Jésus c'est Satan confondu, Fa LS
 Tout fossé remparé, tout rempart défendu A ÉLIRE
 
 “E _ Tout terrain regagné sur le terrain perdu; Le
-ae Et la dette remise et la dette rendue z4 KES
 Li Par le frère à son frère et la brebis perdue TES
 ; Rte __ Et toute âme assaillie et toute âme mordue; : L'LNESS
-Re ae, LE
 
 ÈS Les armes de Jésus c'est la nuit répandue CR
 _ Pour le repos de l'homme et la ferme vendue Le
@@ -1076,7 +719,6 @@ ne _ Pour payer les impôts et la brebis tondue;
 De _ Et c'est le Créateur créant la créature,
 _ Et le sceau du Seigneur mettant la signature;
 LS Les armes de Satan c'est la caricature |
-a Et la contrefaçon de toute signature ÿ
 % LE Et l'homme jugeant l'homme et la magistrature “
 “ha Assise au tribunal, c'est la lettre surie,
 Es La littéralité morne et déjà pourrie,
@@ -1085,14 +727,9 @@ _ Les armes de Satan c'est la plaisanterie, :
 F.- Cette sauce tournée et c'est l'hôtellerie
 k Pour les mauvais passants et c'est l'ivrognerie
 
-la tapisserie Êes: VETS OT
 à Les coudes sur la table et la clabauderie 3
-Et la ribauderie et la maussaderie HS
-Et la badauderie et la nigauderie; à
->
 e Les armes de Jésus c'est la charpenterie, ï |
 L'établi, la varlope et la menuiserie, Ù
-La scie et le rabot et l'ébénisterie, fe
 Le denier de la veuve et le bon ouvrier; ;
 Les armes de Satan c'est le vil usurier,
 L'armurier, le guerrier, le manufacturier; .
@@ -1129,13 +766,9 @@ Du martyr dans l'arène et la douceur stoïque
 : Du saint et c'est aussi la vertu prosaïque;
 __ Les armes de Satan c'est la courbe saïque,
 Fr Souple vaisseau de charge et c'est l'art chaldaïque
-Et la vertu du riche et du pharisaïque;
 
-REA MAN : . TOR à je NENESTERR
 Et c'est l'aigre réplique et le somnambulique,
-ne RUE _ Et le cyrénaïque et l'aristotélique, Re.
 sh. UE le pire de tout c'est bien quand il explique; a A
-TEE us M Le
 Sr te _ Les armes de Jésus c'est l'ardente supplique Eire À < 00 ;
 do: _ Du pauvre au gouverneur, c'est le parabolique, ie ia
 _ Et c'est les huit bonheurs sous Rome apostolique, :
@@ -1155,7 +788,6 @@ LE _ Sur l'armure de guerre et le lourd troussequin RES
 “ag __ Les armes de Jésus c'est le Samaritain, TU
 ._ Le blessé recueilli, le pauvre franciscain, ASE 50
 _ Les armes de Jésus c'est le républicain; "L FRS
-| ds 92 18520
 
 —_ Les armes de Satan c'est le faux symbolique, pe
 a. Ta pierre en comprimé, le marbre en majolique, ARTS
@@ -1164,7 +796,6 @@ a. Ta pierre en comprimé, le marbre en majolique, ARTS
 - Le masque de Satan c'est toute bucolique ns FEES
 _  Modulant sous le hêtre une pure idyllique; ë
 F Les armes de tous deux c'est le mélancolique er
-De que,
 … Soit qu'il soit descendu du vieux cèdre biblique, #4
 - = Soit qu'il soit remonté de jeune république; Re,
 _ Les armes de Satan c'est toute idolâtrie, :
@@ -1173,13 +804,11 @@ Le _ Tout réassortiment, toute replâtrerie,
 _ Les armes de Jésus c'est culte de doulie ea
 - Ou d'asservissement, c'est culte de latrie | :
 ._ Ou d'adoration, c'est culte de patrie
-ba Ou de terre natale; et démonolâtrie i +
 ie Retourne vers Satan avec zoolâtrie, »_ Avec psychiätrie, avec chimiâtrie, à
 | Avec l'ergot du seigle et les autres caries, !
 . Etles phylloxéras et les vignes flétries, :
 . Et les puits desséchés et les races taries ;
 
-PNY L SATA 1 Cent d' WTA EL AERENIRN à
 pe la tapisserie PAT
 Les armes de Jésus c'est la pauvre monture, LE RES
 AIT L'ânon de cette ânesse et c'est la courbature #4 4
@@ -1190,7 +819,6 @@ FA C'est la barque de Pierre errante et sans mâture, ; “4
 : Et le préfet de Rome et cette humble toiture, +2
 ï Ce chaume au ras du sol et l'unique voiture Feà
 > Avec un seul cheval et la vieille clôture Le
-de En mauvais fil de fer et la progéniture r à
 2 Attendant sous la lampe une humble nourriture, É
 : _Espérant vaguement un pot de confiture ; 7
 - Les armes de Satan c'est cette dictature No.
@@ -1227,10 +855,6 @@ Dans son mauvais journal, et traître traducteur
 Dans son mauvais patois, et fourbe producteur
 | 95
 
-é à PNR LS Le te Un ie AS PE L+
-
-PRE L. RIT ve { DA ee Er de RE ST és 4 ne Ki: ra + di Fe
-
 pee de Rue 8 e produits frelatés, brillant introducteër
 
 “a el Au royaume d'enfer, décevant instructeur Fa CA Ce 0
@@ -1240,7 +864,6 @@ Sas 54 . D'art pour ses collections et savant armateur Er Re
 te Les armes de Satan c'est Satan séducteur; Rose. | Le à
 Les armes de Satan c'est la sévère cotte <: 020
 52 Le De maille et c'est aussi le regard qui clignotte LC
-te Se la lourde visière et sous la bourguignotte ; LÉ ie
 NA _ Les armes de Jésus c'est la race future, RE - e
 AE _ C'est le riche missel, c'est la miniature ; ETS C4
 MER "Etle ciel et l'enfer et la terre en peinture; SES
@@ -1249,7 +872,6 @@ Les armes de Satan c'est la mésaventure, SE
 ._  : Les armes de Satan c'est la littérature; = Fe
 * |_ Les armes de Jésus c'est noblesse et roture : HRXE :
 . Égales vers sa face et la belle sculpture FES
-Pie Au portail de l'église et la fine moulure; s Le F6 Fe
 de __ Les armes de Jésus c'est la riche tenture Fe
 Lu _ Devant le tabernacle et la rouge teinture k RE:
 De la robe du prêtre et des croix de torture; ‘ES
@@ -1282,7 +904,6 @@ Qui n'est pas pour le vin, c'est toute agriculture |
 3 Qui n'est pas pour le blé, c'est toute apiculture
 Qui n'est pas pour le miel, toute sylviculture
 f ui n'est pas pour le bois et c'est toute bouture —
-Pas P
 Qui n'a pas pris racine et c'est toute mouture
 Qui n'est pas du moulin et toute portraiture
 ui n'est pas le modèle et toute investiture
@@ -1299,7 +920,6 @@ Qui s'articule mal et c'est toute fracture
  . Qui ne se réduit pas, c'est toute contracture
 Qui ne se résoud pas et c'est toute structure
 
-A, Re ton ie
 Qui n'es t pas organique et c'est toute questure FLAT
 _ Où l'on est candidat et c'est toute texture FEES EE
 
@@ -1313,7 +933,6 @@ F se Qui requiert à faux poids, frappe à fausse mesure, a se
 | Les armes de Jésus c'est la législature ë SERGE
 He Des dix commandements et c'est la tablature RMC: Se
 es tables de la loi, c'est la nonciature LR :
-BU : âne | de,
 _ : Quand le nonce est du pape et la judicature 4 Es
 FR and le juge craint Dieu, c'est la magistrature M ;
 ss Quand elle est magistrale et la cléricature LS RER 3
@@ -1324,7 +943,6 @@ ge _ Quand c'est lui la victime et c'est toute vêture ps ee
 Re Qui vêt l'âme et le corps et c'est toute tonture sr Se
 Qui n'écorchera pas la faible créature ; VS
 
-A Fee je NES nt PEN TT ue i ie ais
 _ Les armes de Jésus c'est la belle paroisse t#4
 am _ Assise au cœur de France et c'est la noble angoisse 4 x
 __ Du curé soucieux que son troupeau recroisse; de: T4
@@ -1380,7 +998,6 @@ ee _ Les quatre fers en l'air et le mulet têtu; FER
 Les armes de Satan c'est la fausse tendresse LAS S
 __ …  Couchée au lit de l'homme et la molle paresse LS LEE
 … Qui dort le long du jour et se désintéresse TER
-Û Du pauvre et de l'enfant et c'est la charmeresse Las ss
 à Avec ses mots savants et la devineresse \ FES
 _ Et sa vieille grimace et c'est l'enchanteresse
 FES Avec ses vieux onguents et c'est la sécheresse 1 TC
@@ -1436,7 +1053,6 @@ Et c'est l'esprit qui sauve et prêche en plein désert; +
 _ C'est l'esprit qui gouverne et l'esprit qui conduit LR » L'homme vers un seul point et la lettre qui suit
 | Vers la lampe de l'ogre et c'est l'esprit qui cuit RS : :
 
-| RE EERS DE SAINTE GENEVIÈVE
 …_ Le pain quand il est chaud, c'est l'esprit qui déduit
 n_ Jésus du vieil Adam et derechef induit
 = Israël en Jésus que la lettre réduit;
@@ -1459,7 +1075,6 @@ Sur le livre éternel et c'est le cœur contrit
 Qui sera fomenté, c'est le billet souscrit
 Qui sera présenté, c'est le bonheur décrit
 
-ne Un jour sur la montagne et l'honnête Per Gr RL.
 nr De par le roi du ciel et le pardon prescrit D.
 1 Par la nouvelle loi, c'est Dieu même transcrit RO,
 “Re De Moïse en Jésus, c'est Satan circonscrit,. 1 S : ;
@@ -1471,7 +1086,6 @@ _ — Le premier sacrifice et qu'il rendit l'esprit; LR +8
 AS C'est tout ce qu'il fallait pour que Jésus couvrit ras
 _ Le pécheur devant Dieu, pour qu'il redécouvrit < “IV
 __ Le chemin du salut et pour qu'il entreprit 22 2
-| De remonter la pente et pour qu'il se reprît Les Nu
 ee Et qu'il reprît le monde et pour que l'homme apprit & Rec
 _- Le chemin difficile et pour qu'il désapprit a
 _ , La route sans cailloux et pour qu'un jour en Gaule,
@@ -1572,8 +1186,6 @@ Bien en selle en avant de sa cavalerie, Re
 Masquant ses bombardiers et sa bombarderie,
 Traînant comme un réseau sa lourde infanterie ; =
 
-ee DE SAINTE GENEVIÈVE 3
-
 _  Ameutant ses tambours qui battaient pour la messe,
 
 _ Gourmandant ces brigands qui couraient à confesse, :
@@ -1594,42 +1206,6 @@ ne Révérant les coffrets sertis de pierrerie
 -_ Grave et les yeux plus clairs que d'une chanoinesse,
 La sainte la plus grande après sainte Marie.
 
-LA A nes RO TARN ES
-Nez Dal bee NOR JEU LME A Qt ALAN fi dE LOUER k
-LINE INR RNEESS 3 Le re M Nm PER
-ds AS Dont : { CA Far SES PUS
-
-: NE ANR Na ee RE (RATES EU lhNGA TS
-
-PP) rent QUE Re PATES LR
-1 Ne CES A ee s É Er dy ALES PRE NANTES PANNES
-; pe t* À toi EE CE 4 d 1120 Rule CT! ps AO Dee de
-: Lio ei NE RRRERNR EtEE NU RE SRLTES LU ESPN Er PNR ù
-LR RE EN ET NT TER og Dar D
-
-PE NE PT DE nt NE F1 CPRAANQN RS
-
-Aer te Le US ANT ET A Ffouse ES ne 5
-
-ER ARR LY “ Re : a Le ” es rV tant he D
-
-| TRES MR eur Ë _. : TN
-
-En PEL RU 4 Te EAN PATES RASE TR LCA A EUR. » net EE HU MA Le DR RNA CR APP PER Pa Qi Nex ,
-
-ee Le NE rc A + COMTE SAVE NEA AIDE Cet UE
-
-RAR Ë ts LS NE ReERS CEA Fe FRA à :
-
-PRO TER LE NASA CAE de à AE
-
-ASS NON DL ET m0 pet à Et A PAUSE Er LES
-
-PA io NE NEVER $ HS TS IA CPAS La NON Se En Ne-vata SAUTER
-'ATRSES LEx LE Fri ; < TUVSARNESS
-
-on MIRE ts RNA Re 0
-
 | Draps Dieu ne fait rien que par compagnonnage, d
 Il fallut qu'elle vit ces mauvais compagnons,
 Les Anglais, (les Français), les traîtres Bourguignons
@@ -1639,15 +1215,10 @@ Et les gibets poussant comme des champignons,
 Et le mur et le toit et l'angle des pignons
 Tout dégouttants du meurtre et du sang du carnage;
 
-AR M A pm Le de a La . erie SAT
-
-re ONE ET SRE MRNNTE ALT REuEE ICE KP dit aps De Ne ai
-( fl ADR A st 27 £ ares F7 Lan SES +
 Il fallut qu elle vit tout ce maquignonnage, RE
 Les cadavres tout nus serrés en rangs d'oignons, ATP
 Les blessés mutilés traînés sur leurs moignons, LS
 Les morts et les mourants dérivant à la nage; FE :
-CLIS Se ne
 _ Il fallut qu'elle vit cet horrible engrenage DE
 = Happer tout le royaume et ces mauvais garçons . ;
 __ Rouer vif tout un peuple et rôtir les moissons 3 PR.
@@ -1655,7 +1226,6 @@ _  Sortis du menu peuple ou du haut baronnage; PR
 _ Les armes de Jésus c'est la belle marraine TEE 2 ne:
 _ Et c'est le beau baptème et les belles dragées HEURE
 Sn Mais plus que le cortège et que les apogées LES
-_ C'est le deuil et la ruine et la honte et la peine; nr. C2,
 _ I fallut qu'elle vit par ce libertinage FACE
 __ Dissiper ce trésor d'honneur que nous gagnons, Es
 4 _ Et déserter le Dieu que nous accompagnons, FE Rs.
@@ -1705,8 +1275,6 @@ Et les écus sonnants et que nous alignons
 S Fondre au creuset d'orgueil et de faux monnayage;
 3 119
 
-MR EME NE 7 Me apisserte * "Pl
-pi (ER SEE g E } _ à \: SET fe L'e A S
 RURI fallut qu'elle vit par tout ce forlignage FT SET
 _  Dégénérer la race où nous nous alignons LL TER
 VER Et les mots éternels et que nous soulignons RAR
@@ -1759,7 +1327,6 @@ S'avancer la galère où captifs nous geignons, k
 Et qu'elle vit la nef lourde où nous nous plaignons
 Gémir dans ses haubans et ses boïs d'assemblage;
 
-ÊRTS Re ram iii ALIPRFSAMIERENT Le js
 He fallut qu'elle vit par un commun partage
 nc” Arriver justement le sort que nous craignons,
 rue _ Et la loi qui nous sauve et que nous enfreignons M
@@ -1795,49 +1362,3 @@ Vers l'arène romaine et la roide montagne,
 Traînant les trois Vertus au train des équipages,
 Sa plus fine et plus ferme et plus douce compagne
 Et la plus belle enfant de ses longs patronages.
-
-ne DU SU EE Eee A en RS RS SERRES
-
-d'A ES Xe : Feu 4 S ne . Ÿ LEA Re for
-DR re FUI SEAT CRAN à SA ES
-LH PERS le AGIR ne A TR ce à
-eee Le ane: RU ru PAR 1 SEEN A PAR ETS, AUS
-
-a (ee ne Are Ton. PC BETTER HAUTES
-SA ets MAPS bre Re LS 14 A! FANS SEA
-pre rat PE Le PE Cr FN MU A Ve IE PRE SRE Det
-2 ES VÉSERReSERNS es FAT r LÉ TPE dE Ne
-LL CESR RES de
-À ni PERTE LT ENS AUS Le rh F k ue PQ NET: Émer En
-PO ac RUE 88 APE Ne APT CRE SE CASE er teur
-= Ne nor MORE RAR te PACA à' ; FANS ARRET
-
-Eee 27. AR OT S A à CE, le, pee ue PAUSE * ANR
-
-MAC PAR ARS Re EEE En SR AE DUR ne 2
-LS ET tue ART RENE AT 4 SAS: mes À
-4 ES QUE ARE Fe on F 4 MANIERE CA À SLR
-LA For AXE Te or A EU n fe v ÿ Rs 7 Ke
-À Poe PL BUT ES ES NO EE à u” pie où
-
-À SEE EE AE. ges ARE PRE ne ES HA nee Fa
-LH FSU à Rue LA er Re
-D En MENT De rt ES a A Car
-LE ME re FN MEN Le 2 D ETATS
-SET RARE QUE vT de * 1 2 ES eu URL ASE ARS TANT PA At EN
-LT ipRe RES SOEUR se 24 Ft A de
-MAN re HÉERS ae A" k CES NT Fest RAR REGIS
-ln à 125 Res LS TENTE LA D ee à a
-De 12:00 EE Se “RCA ER nt S MU AE AR AAA REA rie
-# ue SAS \ SANS TRE ES:
-FPÉNIERTEN APT. Un FA d vA ÿ CCR er UE VA INR Mrs
-NS SRE pape MORE MA) TR RATE NA ses? LAIT pr
-[PSS TETE LR RU à, {2h HET Se ÉCTETIREN 55 nt NE MEET ee) (AM Re
-Ces. QAR DE 7e ER AAA L'an PARA wENe CIRE EE ur Han s
-Cr tu C NL VAR As ES AAE US.
-
-D A LE A ra PARCS AE NE OR A Lu Ce EN er
-Line si FORT EE SR RENE MER yaS Te: RON En de
-pb 6e de PO Det A Aa PM HR 0 ce SAT Et RE"
-ET RE A EL GE) É se FT PE FES
-Les LUE SNS RES ; LERRARSRES

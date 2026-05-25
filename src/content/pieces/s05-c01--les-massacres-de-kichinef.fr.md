@@ -7,10 +7,8 @@ author: henri-dagan
 isAvertissement: false
 wordCount: 33799
 ---
-Pnemien CAHIER DE LA CINQUIÈME SÉRIE
 _ l'Oppression des juifs dans l'Europe orientale
 
-re CAHIERS DE LA QUINZAINE .
 F6 g paraissant vingt fois par an
 
 5; rue de la Sorbonne, au rez-de-chaussée
@@ -23,34 +21,8 @@ Ra sois vo mandat de t francs que
 _ 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 
 _ arrondissement. On recevra en spécimens six cahiers :
-de la deuxième, de la troisième et de la quatrième
 Nous mettons ce cahier dans le commerce; nous le » ;
 
-Âks br HPE SE He Pod APR DE SR Fier ie ENTRER
-RS eines Du" CHE SSP MANS RME
-T'ÉPÉCE "FÉES È Sa RTE eu Ce
-M ar. Le Ce Re LES, Le HS {ar tif OO SPA
-; PR ete a HR 2 KE TES RC PRET ri HE
-
-: PE TT EEE ANS A PEER ET RS re 2 MA es SHARE CIS
-
-| Es
-
-15 TERRE À rs SAR NN PAT MES LE à FER
-
-RAR ur ve _à la mémoire de Bernard-Lazare
-PE de C3 M see NNREUES té + { si N ] "4 7 PR:
-#0 ts +R NES & x Sql : + SR
-k De LR SEE) USE £ ia L re " È 2 ue
-L1} SÉEPEUERES Niue ? > PR
-LE SL Less, “es d 1 TH ÉMPENRNNERSE
-PNR ARR ET enr ae EME Le Ans M RSS ER »e I Nu
-SR er COLE SONT AE ESS FAN AR ER PAR
-= DER” PU ALAN PEN À RC PR MES an: SA EN
-j Fe AE dpt} és TR Ra REA RU 4 na ANS Je nu A 145% Fa
-te SPAS TE AE De Er Se % ee el RAT à
-
-Mn un
 Sur les courriers des cahiers, courriers de Chine,
 ec courriers d''Indo-Chine, courriers du Japon, courriers FRS
 de Finlande, courrier de Russie, cahier d'Arménie,
@@ -66,12 +38,6 @@ de la quatrième série. :LIFÉOURE
 l'oppression des juifs
 dans l'Europe orientale
 
-EE Ts Far RSC à NES LR À LRAET SR Fe de UE
-Le FRERES rot : > “ ‘ ÉGLISE ES ES rs
-#02 Er Fe L RE K IRC A $
-ae Deere 2. LE SLR PESSRUE SR :
-FIRE ; VERS RAS EE Res er
-
 | Pendant que les chrétiens orthodoxes célébraient
 leurs Pâques, au mois d'avril dernier, une émeute sanglante éclatait dans la ville de Kichinef, en Bessa- ;
 rabie. Des scènes sauvages qui égalent en horreur les
@@ -82,25 +48,6 @@ récents et antérieurs ; il éclaire la situation générale
 du prolétariat russe ; il expose les prétextes des conflits et leurs causes profondes; il suggère, ou peut
 suggérer, des idées, — plus précises que les idées courantes,,— sur la nature des déchirements sociaux,
 présents ou futurs.
-
-RSR ME dite TUE ET OR
-Agé, MARR EDEN EE dE SN RARE EPS SC A NE EX << NS ER ee à:
-
-PT SORT NS de ER Sn ee: RTS AE ER Eve
-DR Ne TT ET PE TOR ee PT CCE EN IST
-
-Se ARTE os Dire LINE 4 SA AE RES LE RERO UE
-D RER 2 F LS el PRIOR TS PTS BR UE et ci SRE
-MARS ae Re Un ANA HR PR.
-RU RE RTE Ne CRE ne RE N OER
-ANNE DATE LS Dre ya iR Mme CES in % PA Le iL De .
-| RE RUERE rs F > Los MO 05
-#90 : : - : MR
-# M Sie ES La SE LCTAONE
-| FA ï DR
-LE EN Cned b L nd Ur, 1110
-M Ro mn AIRE TE RE NE FEES
-REA HP a re” PRESS RTC Te LP RUES La:
 
 4 Les persécutions et massacres antérieurs
 1881-1882
@@ -179,15 +126,11 @@ no. - du mois de décembre 1881 au mois de juin 1882 :
 Le 10 janvier... Radomysl......... pillage;
 Dur 18 — ... Winnica.......... pillage d'un cabaret;
 É. 23 mars..... Saint-Pétersbourg. fermeture des pharmacies
-> M... Rif}... expulsions:
 4 4 2 et 3 avril.. Mordarovka. ...... désordres;
 Le — .. Walegozoulof ..... pillage, incendies;
 
 — .. Smolensk.......... troubles et pillage;
-ne nn HTatyStENCt:: — En
 < beaucoup de blessés ;
-#24.:.::"KOYnO.!.... 2... incendie considérable;
-ne - - Dielhorodok.... — |
 fin mai ..... Kaynary .......... massacre d'une famille;
 
 Chassés de leurs demeures incendiées, de leurs biens
@@ -251,8 +194,6 @@ député; Clovis Hugues, député; Henri de Lacretelle,
 député ; de Lanessan, député ; Ferdinand de Lesseps, …
 de l'Institut ; de Molinari; Alfred Naquet ; Gaston Paris; |
 
-sp BAPE a dns ne CRE T S RATE rare
-| PERSÉCUTIONS ET MASSACRES, 1881-1882 M
 _ En outre le cardinal archevêque de Paris écrivit une
 _ lettre à Victor Hugo, — 4 juin, — pour s'associer aux
 _ Ce mouvement général de sympathie ou d'indigna-
@@ -260,12 +201,6 @@ _ Ce mouvement général de sympathie ou d'indigna-
 _ résultat que d'attirer l'attention du public sur ces
 ke _  iniquités. Les mêmes faits devaient se reproduire
 | avec intensité dix ans plus tard, — et vingtans après.
-
-ait SR ER EEr FO Rite Fi, REIN ET AS Tarte EH EIRE SANS)
-MÉRITE PAS Los: RAS VS RGO PT ire SA MR
-RASE « À ge rs ES ET
-HER de à MERS
-Re se PANNES De PR RER FASSENT CNE RUE
 
 A la fin de l'année 1890 des projets de lois étaient en
 
@@ -303,8 +238,6 @@ jugera convenables pour expulser de Moscou tous mécani-
 
 ; ciens, distillateurs, brasseurs, comme tous patrons et
 
-|
-| PERSÉCUTIONS DE 1890, 1891, 1892 ET 1593
 | visites domiciliaires pour examiner les passeports; aux
 | uns, on accorda trois jours pour quitter la ville ; aux autres
 | nombre de cas, des enfants furent arrachés des bras
@@ -360,8 +293,6 @@ agir contre les juifs : c'est pour Pâques que l'expulsion
 devait avoir lieu. Le premier jour de la Pâque fut un jour de |
 deuil pour les juifs russes de Moscou. Au milieu de la nuit, |
 
-|
-
 L la police et les gendarmes avaient déjà commencé leurs
 visites domiciliaires pour examiner les passeports; aux
 uns, on accorda trois jours pour quitter la ville ; aux autres,
@@ -398,7 +329,6 @@ _ plus humiliants et les plus cruels pour leur qualité de
 | Les autorités de Moscou ne se laissèrent pas émouvoir par l'opinion : le ro mai le directeur de la police,
 
 M. Jurkovski, adressa à ses subordonnés la circulaire
-|
 Me référant aux ordres supérieurs du 28 mars-9 avril
 concernant les mécaniciens et ouvriers juifs, j'ordonne que
 tous les juifs des catégories susnommées venant du Territoire légal des juifs ou d'une autre partie de l'empire devront être expulsés de Moscou le jour même de leur arrivée
@@ -466,10 +396,6 @@ presque tous quitté Moscou avant l'expiration du délai
 
 | 23
 
-|
-
-|
-
 prescrit ou en avaient été expulsés par force; ceux de
 la dernière catégorie ont été expulsés le 14 janvier 1892. |
 Leur nombre se serait élevé à trois mille.
@@ -502,8 +428,6 @@ et ses aptitudes, et on laisse à penser combien d'artisans
 (1) La partie de la Russie où peuvent résider les juifs se compose
 des dix anciennes provinces de la Pologne et de quinze gouvernements (sur cinquante) de la Russie propre ; ces derniers constituent ce qu'on appelle le Territoire juif ; ils sont situés à l'ouest de
 l'empire, et faisaient partie de l'ancienne République de Pologne.
-
-| : 24
 
 furent déclarés par elle habiles dans leur métier! Tous k
 les ouvriers qui n'avaient pas obtenu le brevet d'habiles
@@ -620,8 +544,6 @@ _ le pillage. Après les boutiques, on passa aux maisons
 
 _ d'habitation. Il y eut trois israélites tués et un grand
 
-#
-
 A Charaïevo, bourgade située dans le gouvernement de Kherson, les israélites ont vécu de tout
 temps en bonnes relations avec les chrétiens. Sur les
 excitations d'agitateurs étrangers à la localité, des
@@ -701,7 +623,6 @@ _ pouvait être détruit dans les maisons juives fut anéanti.
 _ C'est en vain que deux prêtres chrétiens s'interposèrent
 ke pour calmer la fureur des émeutiers, ils ne purent se
 
-Henri Dagan L
 faire écouter. Vers sept heures du soir un incendie
 éclata à côté de la cathédrale. La foule ne se dérangea
 pas de son œuvre de destruction pour l'éteindre. « Ce
@@ -818,7 +739,6 @@ dans les gouvernements de Saratof et de Pensa. Voici
 Près de deux mille familles ont été réduites à la misère,
 quelques centaines de juifs gravement blessés et plus de
 
-|  PERSÉCUTIONS DE 1890, 1891, 1892 Er 1893
 AE _ quatre-vingt-dix maisons détruites en tout ou partie. Voici
 la quelques détails sur ces tristes événements :
 - Le gouvernement de Saratof, qui souffre le plus de la
@@ -893,7 +813,6 @@ militaires. Conduits par les inculpés dénommés ci-dessus,
 les émeutiers se jetèrent sur les boutiques et les maisons
 juives, et après avoir pillé meubles et marchandises
 
-| ÉRIC EC E ERS EST AT
 ils y mirent le feu. Ils parcoururent ensuite la bourgade en brandissant des torches enflammées et en cherchant des israélites pour les mettre à mort. Les cris: à
 . mort les juifs! retentissaient de tous côtés. La population
 affolée fut obligée de chercher le salut dans la fuite. Les
@@ -1002,12 +921,6 @@ dans les deux décades écoulées. Nous passons les
 petits faits intermédiaires qui ne nous apprendraient
 rien de plus, et nous abordons les événements récents.
 
-il
-
-ne Me EN re RATE LCR Dr ESA ROC
-# 2% E # Es + + nn re ÿ ; ?
-RETZ” £ E * APS Lies” Le + vi DES LS SE RAR ENERE SE El
-
 € : Les massacres de Kichineîf, avril 4903
 Notons d'abord que pendant l'année 1902 le gouvernement du tsar a continué d'appliquer rigoureusement les
 mesures d'exception et d'arbitraire à l'égard des juifs
@@ -1060,7 +973,6 @@ d'un adolescent de dix-sept ans, nommé Rybalenko.
 Aussitôt on accusa les juifs d'avoir commis ce crime
 pour des besoins rituels. Bessarabetz, journal antijuif très violent, fut le principal inspirateur de cette
 
-De me MAR, ne ST td PS Pre £
 à. Une instruction fut ouverte. Elle établit qu'il n'en était
 ve rien et que cet assassinat avait eu pour mobile des
 i ; querelles de famille à propos d'un héritage. Mais
@@ -1290,7 +1202,6 @@ on vit alors des files de voitures portant les malades, les 4
 blessés, les morts s'acheminer vers le centre. Dans d'autres à
 voitures on avait empilé toutes sortes d'objets qu'on avait
 
-| MASSACRES DE KICHINEF, AVRIL 1903
 pu sauver des mains des assaillants. Les voitures étaient
 suivies par de longues files de femmes et d'enfants. Tout
 cela fuyait les lieux où tant de sang avait été versé, où
@@ -1403,7 +1314,6 @@ cadavres mutilés pour en frémir d'épouvante.
 . Voici trois femmes : l'une a le ventre coupé en forme de
 croix ; l'autre a dans les narines des clous qui traversent
 le crâne ; la troisième a les seins coupés. Voilà un élève de
-septième du Gymnase qu'on a tué et à qui on a arraché la
 langue. Plus loin on voit un enfant étranglé. Il y a en tout
 au cimetière quarante-six cadavres. En outre, à l'hôpital, il
 y a beaucoup de personnes mortellement blessées. Les pillards ne se contentèrent pas de tuer les habitants de la
@@ -1598,8 +1508,6 @@ ici... allez plus loin ». Ne crois pas que j'exagère. Oh! non, |
 je ne puis te décrire la millième partie de tous les crimes
 commis sous nos yeux et qui continuent sans interruption.
 
-PES ET D) L Lu | Eye ais SU " « es: NN 7 Li. 27 NE
-
 Un petit groupe de juifs de notre rue se tient dans notre
 
 cour pour résister aux assassins. — Signé : S...
@@ -1638,7 +1546,6 @@ protesta. Alors ce fonctionnaire dit : « C'est égal, les jours
 des Pâques vous serez massacrés. » Dans la maison de
 M. Roudy, la foule était en train de casser un coffre-fort ;
 
-L - G Mis FER SCANS cie
 elle y mit deux heures : pendant ce temps le commissaire …
 de police assistait à ce travail, qu'il encourageait pour
 partager le butin avec les « travailleurs ». 4
@@ -1673,8 +1580,6 @@ des vélocipédistes qui conduisaient la foule. On distribuait
 à la foule de l'argent. Les organisateurs du massacre
 avaient leur quartier général à l'hôtel « Rossya »: ici fut
 
-Parent PRINT RER RE RETRO EN D OR s RS US ee NL ON PRE
-4 MASSACRES DE KICHINEF, AVRIL 1903 ste
 réparé le plan de la campagne, et ici se trouvait la caisse
 
 de l'entreprise ! :
@@ -1695,15 +1600,6 @@ M. Oustrougof : ilest le censeur de Kichine et un anti-
 
 Ne terminons pas le chapitre des massacres sans
 noter le corps médical, dont le dévouement, comme on
-
-he? ri » LATE Le
-Her $ À LE HS Ty tÉTE
-Les « TMC SR
-ar Mes °°} SEE
-
-ARS A M TA PR TT PL Eee AE
-
-L'opinion en Europe
 
 La plupart des grands écrivains et publicistes russes
 ont manifesté hautement leur réprobation devant les
@@ -1914,7 +1810,6 @@ Parlez, agissez par vous-mêmes ! que votre voix s'élève
 pour flétrir ces crimes de lèse-humanité! Que votre souvenir aille aux martyrs du peuple !
 Le Bureau socialiste international :
 France : Édouard Vaillant, Francis de Pressensé ;
-Le secrétaire : Victor SERWY
 
 Enfin nous ne pouvons passer sous silence le discours
 récent et très élevé du Président de la République des
@@ -2021,7 +1916,6 @@ serait la victime, de même me considérerais-je indigne de
 la situation que j'occupe si je ne ressentais pas la même
 douleur, la même indignation devant les violences dont les
 
-> - her. ESS
 juifs seraient victimes dans n'importe quelle partie du
 Je suis certain que les manifestations de sympathie qui 1
 se sont fait jour dans tout ce pays, sans distinction de ;
@@ -2164,7 +2058,6 @@ les roumains qui forment la majorité de la population et
 c'est à cette nationalité qu'appartiennent les nobles et les
 grands propriétaires fonciers de l'endroit. Bien qu'on ait
 eu à traverser de durs moments, à subir de mauvaises
-récoltes, il n'y a jamais eu de collision ou de tension de
 rapports entre les différentes couches de la population.
 Elles se sont toujours très bien accordées.
 
@@ -2449,8 +2342,6 @@ mais vous ne prenez pas le moindre souci de le prouver... »
 
 (2) Le païen Caecilius, chapitre IX, 30, 31.
 
-| | PRÉTEXTES DES TROUBLES
-
 Comme le remarque Strack, ces accusations étaient
 d'un usage fréquent entre partis religieux ennemis,
 même entre ennemis particuliers. L'historien anglais
@@ -2502,7 +2393,6 @@ qu'il se trouve encore dans la bouche, qu'il n'est pas sé-
 paré du corps). Mais celui qui mord dans un morceau
 de pain et qui y trouve du sang doit gratter le sang
 avant de manger ce pain, parce que le sang était séparé
-du corps. »
 
 Il ressort de tout ceci que rien n'autorise à croire à
 l'existence du meurtre rituel. Il est possible que quelques juifs, à l'exemple d'autres hommes appartenant à
@@ -2514,7 +2404,6 @@ juifs, aucun texte de la loi talmudique, ne le laisse
 
 Rappelons enfin le mémoire publié en 1759 par le cardinal Ganganelli pour la défense des juifs polonais ac-
 
-DO AA RS DUT PORTA ag MEME RUES Lt ni Gene dur ne il
 |  cusés d'un meurtre rituel et qui setermine ainsi : « Nous
 | chrétiens, nous ne devons pas oublier que dans les pre-
 ‘à miers siècles du catholicisme, ses adeptes furent accusés
@@ -2538,10 +2427,6 @@ prié mes amis de ne pas s'en servir. Je déclare hautement qu'il me
 
 | paraît incompréhensible qu'on soutienne que les rites juifs prescrivent des sacrifices humains ou que les juifs font usage du sang dans
 un but rituel. »
-
-MT ke Fa Ne A A AU RES N pl 111 LA il 7 RAT FLE TPE
-
-D TENTE A AUS L re à fil AN LES AV TA
 
 Les causes de l'antisémitisme en Russie. — La
 situation juridique des juifs
@@ -2929,7 +2814,6 @@ d'amende pour séjour illégal.
 A Jarochevko (gouvernement de Podolie) habitaient
 (1) Les Juifs russes, par Léo Errera, professeur à l'Université de
 
-| SITUATION JURIDIQUE DES JUIFS DE RUSSIE
 depuis de longues années quelques familles juives. Un
 jour, le commissaire de police, pris de zèle, les fit comparaître devant la juridiction criminelle pour cause de séjour
 illégal. Les soi-disant délinquants furent condamnés à être
@@ -3186,8 +3070,6 @@ d'exploiter ce genre de propriétés et d'en disposer.
 
 Les juifs pourvus d'un diplôme de docteur en méde-
 
-cine et en chirurgie, ou d'un diplôme de docteur ou de
-
 professeur, ou d'un diplôme ordinaire de première
 classe de l'une des Facultés de l'Université, ne peuvent
 transmettre à leur femme ou à leurs enfants le droit
@@ -3258,8 +3140,6 @@ juifs contre l'agriculture. Veut-on d'autres exemples ?
 (1) Leroy-Beaulieu. — L'Empire des Tsars, tome III, page 627.
 
 (2) Matériaux pour l'étude de la population rurale en Sibérie
-
-Henri Dagar dE
 
 En Bessarabie, on a eu besoin, pendant l'été de 1893,
 de travailleurs agricoles, peut-être aussi s'est-on ému L
@@ -3349,7 +3229,6 @@ affaires le dimanche et aux printipales fêtes chrétiennes.
 nale, $ 16, note) C'est une des fameuses Lois de mai
 1882. Elle crée de grandes difficultés dans les villes où |
 les juifs forment la majorité de la population. Dans beau108 à |
-|
 
 coup de villes, le dimanche est le jour de marché légal
 et habituel; les musulmans et autres non chrétiens
@@ -3451,8 +3330,6 @@ les catholiques romains, les raskolniks, les uniates; mais contre
 les juifs il a des griefs particuliers. Ils se convertissent plus difficilement que les autres à la religion dont Nicolas II est le Pape. Et
 Pobedonostzef considère cela comme une « dépravation ».…..
 
-| III
-
 Ces haines sont considérablement aggravées par les \
 lois restrictives et particulières appliquées à la population israëlite. D'abord, elles jettent un discrédit moral
 sur cette. population et, par làä-même, donnent une apparence de justice à l'animosité latente qui se manifeste contre elle et dont elle est victime. Ensuite, en ‘
@@ -3469,19 +3346,9 @@ l'application aux juifs de la législation commune. Ce |
 ne serait pas seulement une mesure d'équité, — ce langage n'est pas entendu des gouvernements, — mais une
 mesure de bonne politique. |
 
-UT MS a ne
-L'EST ds LES » ETES is el
-ere Re ET SO TRS À Le: 2 # sai
-
-EN er on LAN Eee ND 2 PURE Tr TETE Eu
-fe ce + TS RCE
-| F . ; a PERS ce b
-# ir LT prete
-
 L'oppression des juifs dans l'Europe orientale. . 5
 Les massacres de Kichinef et la situation
 des prolétaires juifs en Russie . . . . .. 9
-Les persécutions et massacres antérieurs, 1881in seu a eh Re nt PL naptl
 Lois de mai 1882, texte ; tableau des persécu-
 | tions qui eurent lieu du mois de décembre 1881
 au mois de juin 1882; mouvement de protestation en Europe ; grand meeting du premier février
@@ -3549,15 +3416,3 @@ villes, bourgades, villages; une circulaire du
 préfet de police de Kief; exécutions ; les écoles ;
 professions libérales; interdictions; les juifs et
 l'agriculture ; essais de colonisation ; une attestation officielle; commerce ; interdiction de circuler ; impôts spéciaux ; résumé ; conclusion.
-
-M og NE ES LR: ONE CARS Seb 2 à ee à
-
-DR SR EDR) Of AUDI DS yen MEME ET MMA PEZCIE Les pe
-
-LE OVER Yir # PS 4 4x | FF ÉTÉNRANEENES
-
-MAPS EE “4 ce LUEUR EIRE
-
-RL TP A ER LE EL TL te A pt: "4 ne, 4 rs ES au Art
-
-LIT PETER RE AIRE 2 tre Dr RE Et

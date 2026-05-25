@@ -49,7 +49,6 @@ ceux de qui on avait obtenu des mémoires, et (précaution presque indispensable
 fréquents entretiens avec les uns ce que d'autres avaient
 imparfaitement, obscurément et quelquefois infidèlement
 
-Et Diderot ajoute
 On enverra des dessinateurs dans les ateliers; on
 prendra l'esquisse des machines et des outils; on
 n'omettra rien de ce qui peut les montrer distinctement
@@ -147,13 +146,11 @@ main à l'œuvre; se rendre, pour ainsi dire, apprenti et
 faire soi-même de mauvais ouvrages pour apprendre
 aux autres comment on en fait de bons.
 
-Plus loin
 On a envoyé des dessinateurs dans les ateliers. On a
 pris l'esquisse des machines et des outils; on n'a rien
 omis de ce qui pouvait les montrer distinctement aux
 
 septième cahier de la deuxième série
-Plus loin : 7 À
 Mais ce travail, — celui de d'Alembert lui-même — 3
 tout considérable qu'il est, l'est beaucoup moins que
 celui de M. Diderot, mon collègue. Il est auteur de la
@@ -245,9 +242,7 @@ qui concernent la pêche et la chasse.
 Enfin, un grand nombre d'autres personnes bien in- ,
 tentionnées ont instruit M. Diderot sur la fabrication
 des ardoises, les forges, la fonderie, refenderie, tréfi-
-Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
-IMPRIMERIE DE SURESNES (G. RICHARD, administrateur), 9, rue du Pont.—4014 F
 
 + Nous prions ceux de nos abonnés qui nous envoient +: (10
 à des documents et des renseignements de vouloir bien

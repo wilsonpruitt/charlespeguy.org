@@ -8,35 +8,15 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 51409
 ---
-[leaf 0237] (blank, show-through marks)
-
-[leaf 0238] (half-title, library seal show-through, pencil stamp "139998 4/10/16", pencil "13" bottom)
-
-[leaf 0239] (blank verso, library seal embossed, show-through of MES CAHIERS ROUGES)
-
-[leaf 0240] (section subtitle, pencil "15" bottom)
-
-[leaf 0241] (blank verso, show-through)
-
-[leaf 0242] (section title, pencil "17" bottom)
-
-[leaf 0243] (blank verso, show-through of title)
-
-[leaf 0244] p.19
-
     Dimanche 21 mai. Les Versaillais sont, depuis quelques heures, dans Paris. Je dîne, avec Vermersch, chez Rachel, rue de Moscou. (1) Nous ignorons, lui et moi, la fatale nouvelle. Je reviens, seul, au *Père Duchêne.* Je mets en pages le journal. Le lendemain, c'est la bataille. Pour moi, le jeudi, la cour martiale du Luxembourg. L'évasion. Le départ. L'arrivée, en juillet, à Genève. Je n'ai plus revu Vermersch. Aucune nouvelle. Où est-il ? Où se cache-t-il ? J'apprends qu'il a franchi la frontière. Il a passé quelques jours à Bruxelles. Il est à Londres. Je charge un camarade de lui remettre une lettre. Pourquoi ne m'a-t-il donné signe de vie ? Enfin, il m'écrit. Désormais, nous ne cessons de correspondre. De Londres, de Liége, de Maestricht, jusqu'à ce qu'en décembre 1874, il vienne habiter près de moi, à Altorf. (2)
 
 (1) Pour ce dîner chez Rachel, voir Cahier III, page 351.
 (2) De ces lettres de Vermersch, toujours passionnées, quelques-unes forcenées, j'ai dû retrancher divers passages, qui mettaient en cause, de façon injuste, des camarades, des amis, que l'exil —
 
-[leaf 0245] p.20
-
     Mon cher ami, je suis arrivé à Londres il y a aujourd'hui huit jours, après un séjour de sept semaines en Belgique, où j'espérais faire quelque chose et où je n'ai réussi qu'à manger bien inutilement une grande partie des faibles ressources dont je disposais. C'est le plus grand pays de jésuites qu'il y ait sur la terre, où pourtant nous n'en manquons pas. Je suis ici en relations avec un éditeur à qui j'ai proposé une histoire de la Commune et qui a l'air de mordre à l'hameçon. Je lui ai aujourd'hui envoyé mon prix qui est assez élevé, il faut bien l'avouer, et j'attends sa réponse. La vie est ici fort cher et je crois fort difficile d'y trouver quelque chose, ce qu'il me faudrait pourtant, car j'ai eu la veine de perdre deux mille francs dans la bagarre, (1) de sorte que je suis resté pour tout
 
 le terrible exil — avait séparés, changeant les amitiés les plus éprouvées en haines féroces. On met le pied sur le sol étranger, la tête et le cœur encore brûlants, tout meurtris de la lutte ardente dont on est à peine sorti. Bientôt les discussions s'élèvent, la discorde s'installe au camp. Les attaques les plus violentes, les calomnies les plus abominables, surgissent. La proscription de Londres fut, aux premières années, un enfer. Les meilleurs se virent cloués au pilori. Voleur, mouchard : accusations de tous les jours. Trop souvent, les lettres que m'écrivait Vermersch m'apportaient, sans fard, les échos de ces choses misérables. Supprimer tout ce qui s'y rattachait, c'était renoncer à publier les lettres, qui valent d'être mises au jour. J'ai biffé les attaques personnelles, laissant subsister les appréciations d'ordre général, qui appartiennent, malgré tout, à l'histoire de la proscription communaliste de 1871.
 (1) Voir Cahier III, page 361. Les 2.000 francs qui restaient à Vermersch constituaient le reliquat de sa part des bénéfices du *Père Duchêne.*
-
-[leaf 0246] p.21
 
 potage avec sept cents ou huit cents francs. Heureusement que des gens chez lesquels j'ai été caché six semaines à Paris n'ont pas voulu recevoir un sou. (1)
     J'ai rencontré par hasard ton ami avant-hier près de chez moi, il était avec Ranvier et deux de nos amis. Il m'a bien remis ta lettre, que j'ai lue en sa présence, mais il ne m'a donné aucun des détails pour lesquels tu comptais probablement sur lui. Nous sommes ici toute une bande, mais la division est au camp ; il est question d'un manifeste aux travailleurs de France, manifeste dirigé contre l'Internationale, qu'on accuse de se transformer en aristocratie allemande. Quand je dis contre l'Internationale, c'est contre le Comité Central de Londres que je veux dire. J'ai Sornet (2) avec moi ; il te serre les mains. Je ne sais trop, si mon affaire rate, ce que nous allons devenir. Nous allons voir. C'est une singulière situation que de se trouver presque sans le sou dans une ville dont on ne sait ni la langue, ni les mœurs, ni même la topographie. Enfin nous verrons bien. Il paraît qu'Humbert s'est livré à Versailles. (3) Je n'attendais pas moins de son tempérament révolutionnaire. Sornet m'a raconté que tu avais été pris et que tu avais corrompu le sergent du détachement qui te conduisait au Luxembourg, au moyen de 25 louis. Est-ce vrai ? Dans tous
@@ -52,10 +32,7 @@ potage avec sept cents ou huit cents francs. Heureusement que des gens chez lesq
 (2) Sornet (Léon), notre gérant du *Père Duchêne.* Nous l'appelions entre nous « l'imprimeur », chaque numéro du P. D. portant, à la dernière page, la mention : « Imprimerie Sornet, 16, rue du Croissant ».
 (3) Vermersch était mal renseigné, Humbert avait été arrêté le 15 juin (Voir Cahier VI, page 301).
 
-[leaf 0247] p.22
-
 les cas, je te fais mon compliment d'avoir échappé aux roussins. (1)
-    A bientôt. Je te la serre.
     Voici mon adresse :
 
     Mon cher Vuillaume, j'ai reçu tes deux lettres, et je réponds aux deux en même temps ; je suis si occupé et, tu sais, je suis plus paresseux encore qu'occupé. J'ai reçu ta brochure, (2) et je l'ai publiée dans les numéros de jeudi et de vendredi. Bellenger, l'administrateur (tais-toi) ne m'a envoyé de douzaine d'aucune des trois brochures que j'ai annoncées plusieurs fois, mais que je n'eusse pu mettre en vente au *Qui vive!* (3) pour l'excellente raison que je n'en avais aucune. A propos, le *Qui vive!* est mort, mais rassure-toi, je reparais samedi. J'ai ici une bande d'ennemis qui me reprochent de ne m'être point battu — ce qu'ils ne savent que par moi. Il est en effet fort désagréable pour eux que
@@ -64,19 +41,9 @@ les cas, je te fais mon compliment d'avoir échappé aux roussins. (1)
 (2) *Hommes et Choses du temps de la Commune,* que je publiais alors, en petits fascicules in-32, à Genève, avec Massenet et Bellenger.
 (3) Vermersch rédigea trois journaux à Londres. Le *Qui vive!* le *Vermersch-Journal* et l'*Union Démocratique.* Ces trois feuilles se succédèrent à quelques jours de distance. Le *Qui vive!* eut une soixantaine de numéros, d'octobre à décembre 1871. La collection du *Qui vive!* est à la Bibliothèque Nationale, sous la cote Lc² 3509. Le *Vermersch-Journal* sous la cote Lc² 3530.
 
-[leaf 0248] p.23 (caption page facing a plate)
-
     I. — Fac-similé de la lettre de Vermersch publiée ci-dessus. Lettre numéro I, fin de la lettre et signature.
 
-[leaf 0249] (blank verso, show-through of caption, pencil "24" bottom)
-
-[leaf 0250] (manuscript facsimile plate — fin de la lettre I autographe de Vermersch, second page : « ...e France, manifeste dirigé contre l'Internationale qu'on accuse de se transformer en aristocratie allemande... » se terminant par la signature « Eug. Vermersch » et l'adresse encadrée :)
-
     Voici mon adresse :
-
-[leaf 0251] (blank verso, show-through of manuscript facsimile)
-
-[leaf 0252] p.25
 
 je ne sois pas tué ; cela les gêne fort et les gênera bien davantage encore dans quelque temps. Samedi, je fais paraître quotidiennement le *Vermersch-Journal :* ça fera du train ; je t'enverrai cela, et j'y publierai ta machine (quand je l'aurai reçue !) (1) Les journaux anglais, certains du moins, sont presque aussi aimables pour moi que les journaux français, et le *Daily Telegraph* vient de faire un premier-Londres d'une colonne et demie pour demander mon expulsion. Nous verrons bien. Avec cela qu'on veut m'enlever... vois-tu ça ?... Ces imbéciles !
     Je conçois que tu t'ennuies en Suisse. Mais ici on ne s'amuse guère, et il y a une difficulté terrible à se caser. Si tu veux venir, viens, mais je ne peux pas prendre sur moi de te donner un conseil à cet égard. Nous sommes ici trois ou quatre cents séparés en deux camps. Les membres de la Commune, sauf Oudet, Chalain et J.-B. Clément, vivent à l'écart, laissant là les pauvres diables qu'ils ont foutus dedans et les abandonnant à toutes les horreurs d'un troisième siège. (2)
@@ -87,13 +54,9 @@ je ne sois pas tué ; cela les gêne fort et les gênera bien davantage encore d
 (2) Oudet, Chalain, J.-B. Clément, membres de la Commune. Il m'est impossible de faire suivre d'une notice individuelle tous les noms propres cités dans les lettres de Vermersch ; ils appartiennent tous à des personnages ayant joué un rôle dans la Révolution du 18 mars. A peu d'exceptions près, ils ont déjà figuré dans les précédents Cahiers.
 (3) J'avais demandé à Vermersch des vers pour un petit journal, le *Caprice.* Voir Cahier IX, page 26. Depuis la publication de mon Cahier IX, Pilotell m'a écrit de Londres que ce fut lui, et non Slom, qui illustra le *Caprice.* Je crois cependant bien me souvenir que si le dessin principal était signé de Pilotell, Slom y fit le salon de peinture genevois. Qui découvrira un numéro du *Caprice* ?
 
-[leaf 0253] p.26
-
     Mon cher ami, comme tu as dû le voir, le *Qui vive!* a vécu, mais nous ne sommes pas morts pour cela et j'ai refait à huit jours de distance le *Vermersch-Journal,* dont le titre a fait tressauter beaucoup de gens, mais auquel on commence à se faire. J'y ai mis ton feuilleton, (1) que je corrige avec tout le soin possible. Je désire fort que tu m'en envoies la suite dans le plus bref délai. Je finis demain le septième feuilleton et je n'ai plus de copie, comme tu sais, pour le numéro suivant. Tâche que j'aie la suite pour mardi matin, c'est-à-dire mets la copie à la poste à la réception de ma lettre. Je marche ici au milieu d'une escorte de mouchards qui ne me perdent pas de vue, et il est fortement question de notre commune extradition : advienne que pourra, je m'en fous ! C'est égal, c'est fort désagréable. — Tu sais que nous entrons lundi dans la période de la Christmas, c'est-à-dire que pendant huit jours à peu près l'Angleterre va se livrer à l'ivresse la plus crapuleuse. Mardi, tout Londres sera étendu sur les trottoirs, à ce qu'on m'a dit, au milieu des vomissements du jour et de la veille, ce qui me paraît absolument distingué pour le pays qui a vu naître Brummel. B., qui est ici, me racontait que dans les work-houses, qui sont quelque chose comme nos dépôts de mendicité, les vieillards sont nourris toute l'année de haricots et de bouillie de maïs, de telle sorte qu'à la Noël, seul jour où on leur donne de la viande et de l'oie, ils s'en remplissent avec une telle férocité que tous les ans quinze ou vingt d'entre eux meurent *étouffés.* Ce fait te donne le *la* du caractère britannique. La vie matérielle prime tout
 
 (1) *Bataille de Mai,* inachevée. Seuls, les deux premiers chapitres ont paru dans le *Vermersch-Journal,* qui parut du 18 Décembre 1871 au 23 Mars 1872.
-
-[leaf 0254] p.27
 
 ici. Si tu peux venir, viens, mais je ne t'y engage pas trop. Si dans quelque temps nous sommes riches et que je puisse t'envoyer quelque argent pour faire le voyage, je le ferai, mais la vie est au moins aussi dure ici qu'en Suisse et je ne sais que te conseiller.
     Adieu. L'imprimeur (Sornet) te serre les pattes et moi aussi ainsi qu'à ta femme. Je t'envoie les autographes demandés. (1)
@@ -107,16 +70,12 @@ ici. Si tu peux venir, viens, mais je ne t'y engage pas trop. Si dans quelque te
 (2) Cette lettre, non datée, est de janvier 1872.
 (3) De cette réimpression, il ne parut que trois fascicules.
 
-[leaf 0255] p.28
-
 matériel d'imprimerie, mais tu penses que nous travaillons comme des nègres, et ce n'est qu'à force d'économie et de privation que nous pouvons arriver à nous maintenir, parce que notre outillage est loin d'être payé. Enfin, j'espère que nous arriverons tout de même à nous libérer. Le *Père* a l'air de prendre un peu ; nous avons tiré cela à 2.000. Il y a environ 300 de vendus jusqu'ici. Ce n'est pas trop mal pour le début, parce que cela se vend toujours et qu'une livraison fait vendre l'autre. Si cela donne des bénéfices, je t'enverrai une part naturellement. Si tu peux pousser cela chez toi, fais-le. On doit vendre 75 centimes. C'est expédié franco de port à 50 centimes. Ne t'occupe que des gens sûrs, parce que nous ne voulons pas risquer des dépôts et nous exposer à de doubles frais de transport. Il vaut mieux vendre *ferme* 10 exemplaires que 25 à crédit. Maintenant passons à autre chose.
     Je n'ai plus reçu de copie de la *Bataille de Mai* et tout ce que j'avais est passé. Je serais fort heureux que tu m'envoyasses la copie régulièrement, et cela paraîtrait sans aucune interruption. Quand l'ouvrage paraîtra, je pourrai certainement t'en vendre un certain nombre, car je n'ai pas besoin de te dire que le journal est à tes ordres pour telle espèce de réclame et d'annonce qu'il te plaira. Si tu veux que je te fasse une préface ou une introduction, je me mets à ta disposition : mon nom n'est pas mauvais en librairie pour le quart d'heure et tu pourrais en profiter ; enfin, tu verras ce que tu as à faire.
     Je ne t'ai pas encore expédié le volume de Lissagaray (1) parce qu'il est assez difficile à trouver, ayant été tiré à petit nombre et comme essai pour provoquer l'enquête, dit la préface. Je n'ai pu m'en procurer un ici que dimanche par Lonclas. (2) Je suis en train de le lire. Il y a des passages très
 
 (1) *Les Huit Journées de Mai derrière les Barricades,* par Lissagaray. Bruxelles, 1871. L'*Histoire de la Commune,* du même auteur, première édition in-8, ne parut qu'en 1876.
 (2) Lonclas (Alphonse), membre de la Commune, élu par le douzième arrondissement. (Voir plus loin le chapitre où il est parlé de lui).
-
-[leaf 0256] p.29
 
 réactionnaires : condamnation des exécutions des otages, insultes à plusieurs qui ne les méritent pas, panégyrique d'autres qui ne sont que grotesques, et dont il parle avec exaltation. En somme, œuvre peu sue, empreinte d'une éloquence de rhéteur, et d'une phraséologie formaliste. Une seconde édition revue et fort augmentée doit en paraître prochainement : peut-être ferais-tu mieux de l'attendre ; dis-moi et je dois t'envoyer celle-ci.
     Je t'ai fait expédier 100 exemplaires des *Incendiaires,* et je fais envoyer le journal à Macé. (1)
@@ -126,8 +85,6 @@ réactionnaires : condamnation des exécutions des otages, insultes à plusieurs
 (1) Macé, qui, avec Thirifocq, organisa la manifestation maçonnique aux remparts, le 29 avril 1871. Voir Cahier IV, pages 115 et 119.
 (2) Le *Coin du Voile, Trahison et Défection au sein de la Commune,* par Vergès d'Esbœufs, Genève, 1872 (fin 1871). Bibliothèque Nationale. Lb⁵⁷ 1695.
 (3) Jaclard (Victor), chef de la 17ᵉ légion, adjoint avec Dereure au maire de Montmartre, Clemenceau, pendant le Siège.
-
-[leaf 0257] p.30
 
 blanquistes sont tous ici. Mais grande division dans le camp depuis quelques jours. On accuse Eudes de viser à la dictature. Tout cela ne vaut pas les quatre fers d'un chien. J'ai l'horreur des imbéciles et je te déclare franchement que si à la prochaine je vois, à la tête, des niais comme cette fois-ci, je ne m'en mêlerai pas : je veux plus revenir en exil et je n'y retournerai pas : si je m'engage dans la mêlée encore une fois, je serai tué ou nous réussirons. Merci, j'ai de l'Angleterre par-dessus la tête et je n'y ferai pas un second voyage forcé.
     Tâche de réussir là-bas. Il faut sortir de cette moutarde : nous y sommes bougrement, et quand j'entends dire à ce tas de sots à cause desquels nous y sommes enfoncés : quand nous reviendrons..., ou la prochaine fois nous ferons, ou nous ne ferons pas ceci..., j'entre dans des accès de rage à en crever. Si le peuple est assez bête pour nommer encore ces gaillards-là, on le mitraillera jamais assez. Il y a des infamies intellectuelles pour lesquelles on n'est jamais trop châtié.
@@ -139,8 +96,6 @@ blanquistes sont tous ici. Mais grande division dans le camp depuis quelques jou
     Un autre est le citoyen X., un ex-chef de légion, qui me reproche fort de ne m'être pas battu. Ce héros s'était rendu le mercredi matin aux Prussiens, de sorte que lorsqu'on arriva dans son arrondissement, on ne trouva pas plus de chef de légion que sur ma main.
     Adieu, ma vieille. Serre la main à ton père et fais mes amitiés à la femme. Vite de la copie ! Et écris en même temps. A toi.
 
-[leaf 0258] p.31
-
                         Londres (sans date). (1)
 
     Mon cher Vuillaume, je vais t'envoyer sur l'autre page quelques vers pour ton journal ; tu signeras ça E. V. ; c'est inédit et ça fera partie d'un livre qui sera intitulé : *La Symphonie Pastorale.* Je n'ai jamais publié de vers sous des pseudonymes, mais si tu crois que mon nom effraie, publie ceux-là sous mes seules initiales : je ne veux plus m'appeler Almaviva ou le chevalier de La Morlière. (2) J'ai été bien longtemps à te répondre et j'ai été cependant bien des fois sur le point de t'écrire, mais il survenait toujours quelqu'un qui m'entraînait, et la lettre était toujours reculée de quelques jours, jusqu'à aujourd'hui ; je n'ai pas de journal demain et j'ai quelques minutes à moi. Je te remercie de ton volume des *Hommes et Choses.* Je ne puis prendre d'un coup un paquet de cette force, mais si tu m'en envoyais une trentaine, je suppose, il serait possible que je trouvasse à les placer ici à 1 sh. 6 ou à 2 shillings, et je t'en enverrai l'argent. Je crois qu'un envoi par chemin de fer te coûterait moins cher que par la poste : enfin, tu verras. J'ai reçu les cinq premiers fascicules de ton troisième chapitre (de la *Bataille de Mai*), mais je ne veux rien publier avant d'avoir la valeur de vingt feuilletons, de quinze au moins. Ces coupures et ces interruptions lassent l'attention du public qui ne veut pas se reporter à trois semaines en arrière pour relire ce qu'il a déjà lu et dont il ne se souvient plus que vaguement. J'ai quitté mon titre, je m'appelle l'*Union Démocratique* et je ne fais plus un mot de politique, à part le bulletin qui est un résumé où je ne me donne
@@ -148,37 +103,26 @@ blanquistes sont tous ici. Mais grande division dans le camp depuis quelques jou
 (1) Cette lettre, non datée, est de mars 1872.
 (2) Pseudonymes dont Vermersch avait signé certains de ses articles, de 1866 à 1870. Vermersch publia dans le *Figaro,* sous la signature La Palférine, une série de portraits, dont l'un, celui du duc de Brunswick, fut suivi de poursuites.
 
-[leaf 0259] p.32
-
 même pas la peine d'apprécier les questions. Je m'empêche de mourir de faim, et c'est tout ; il faut absolument que nous trouvions de l'argent, bien que le journal prenne du développement et que les Anglais commencent d'y mettre des annonces — mais je fais ici mon troisième siège. Ranvier est ici, mais j'ignore son adresse. Si tu veux m'adresser les lettres, je trouverai cependant un moyen de les lui faire parvenir. Il y a un siècle que je ne l'ai vu. C'est un homme fini pour la révolution, un séide de Karl Marx... Une grande nouvelle : Félix Pyat vient d'arriver, il y a aujourd'hui quinze jours. Il était jusque-là resté caché à Paris. Je vais le voir ces jours-ci. C'est le seul homme capable de présenter sous un jour qui nous soit favorable les faits accomplis. — Ici, calme plat. Inutile de te dire que je suis le confesseur de la proscription, et que tous les cancans m'arrivent par la porte la plus directe. — Rien à faire à Paris, du moins je ne le crois pas : (1) nous sommes condamnés à mort, par conséquent morts civilement, ce qui veut dire que nous ne pouvons ni nous marier, ni reconnaître nos bâtards, ni servir de tuteurs, ni ester en justice et autres privilèges du citoyen français. Si tu veux essayer cependant, je serais bien aise de connaître les résultats de la tentative, parce que j'agirais de mon côté s'ils étaient favorables. J'estime, je te l'ai dit, ce qu'on nous doit de 5.000 à 6.000 francs à l'association, 4.500 au moins ; soit pour chacun de nous environ 900 à 1.000 ou 1.200 francs, mais au moins 900 francs. Cette goutte d'eau ne serait point mal reçue dans notre enfer et nous l'avons bien méritée, n'ayant pas été mauvais riches, même pour ce Lazare qui était Simon. (2) — Je t'enverrai peut-être quelque chose sur Londres. Je te recommande de corriger les vers avec un grand soin, j'y tiens beaucoup. C'est une des meilleures choses que j'ai faites.
 
 (1) J'avais eu l'intention de faire poursuivre, en restitution de ce qui nous était dû, nos infidèles associés (les deux vendeurs) du *Père Duchêne.* Voir à ce sujet Cahier III, page 354.
 (2) L'un des deux vendeurs du *Père Duchêne,* nos associés. Voir Cahier III, page 270.
-
-[leaf 0260] p.33
 
 — Je ne t'ai pas dit : je suis amoureux comme un fou : je voudrais me marier ; si j'avais une position, ce serait fait à la fin du mois. Je n'ai pas besoin de te dire qu'elle est charmante, tu te doutes bien d'avance que c'est un ange, n'est-ce pas ? Enfin, elle m'a dit qu'elle m'aimait, et je ne pense plus qu'à cela toute la journée. Je crois décidément que je vais tomber dans le pot-au-feu après avoir sauté dans la poêle à frire.
     Adieu, je te serre la main ainsi qu'aux amis.
 
     *P.-S.* — Envoie-moi deux numéros de ton journal afin que je puisse *lui* en envoyer un.
 
-    Mon cher Vuillaume,
     Voilà des mois que de jour en jour je remets de t'écrire de sorte que je suis presque honteux de le faire aujourd'hui ; je ne sais pas si tu loges toujours à la même adresse, mais enfin je t'envoie ma lettre à tout hasard, pensant bien qu'elle finira par t'arriver. Sornet s'est placé comme professeur du côté de Windsor, dans une pension où il n'est pas trop mal sous le rapport du vivre et du couvert, mais où il n'a jusqu'à présent rien gagné. Il est ce qu'on appelle au pair, et les Anglais, dont l'hospitalité n'est nullement écossaise, en usent ainsi avec les Français le plus souvent qu'ils peuvent.
     Je ne sais si on t'envoie toujours le journal, que j'ai quitté il y a deux mois (1) et dans lequel je n'ai plus voulu rien être, parce que si j'avais écouté ces messieurs, j'aurais fini par faire une gazette aux fleurs de lys ou aux pattes de coq
 
 (1) L'*Union Démocratique,* qui avait succédé au *Vermersch-Journal.*
 
-[leaf 0261] p.34
-
 orléanistes, de sorte qu'un beau matin j'ai pris mes cliques et mes claques, et j'ai dit à ces bonshommes : Arrangez-vous comme vous voudrez, je m'en lave les mains et je vous donne six heures pour trouver un autre rédacteur. D'où colère, comme tu penses. Le journal est fait maintenant par deux jeunes gens qui savent lire et écrire et faire les quatre règles élémentaires de l'arithmétique. Voilà la situation de l'*Union Démocratique,* qui du reste vend à présent quelque chose comme trois cents numéros par jour. — Pour moi je me suis retiré dans mon fromage de Hollande, où je travaille à une *Histoire de la Commune* qui sera fort considérable : deux forts volumes de cinq cents pages in-octavo, sans pièces officielles. (1) Je vis cahin-caha grâce à un ami qui est ici et qui m'empêche de crever de faim. Mais je vendrai mon *Histoire,* et, comme dit Schaunard : des jours meilleurs luiront pour notre belle France et pour nous. Tu seras bien aimable de m'envoyer toutes les notes intimes que tu pourras trouver sur la Révolution : je compte avoir fini ce travail au mois de décembre. Dans ta prochaine lettre, envoie-moi aussi le titre de tous les ouvrages parus à Genève sur la Commune : je connais les livres de Lefrançais et de Malon, la brochure de Gambon : la *Dernière Révolution,* ton livre sur les *Hommes et Choses* (il est fort regrettable que la suite ne paraisse pas). Dis-moi s'il y a d'autres choses, parce que je lis tout ce qu'on a fait. Tu verras un ouvrage très curieux : je cogne dur et ferme, parce qu'il ne faut pas qu'un seul de ces hommes
 
 (1) Le 10 juillet 1872, Vermersch écrivait à Charles Gérardin : « Tâche de me préparer des notes sur la sortie avec Rossel le 1ᵉʳ avril. Je travaille à mort. Après-demain je vais en être aux élections de la Commune, 26 mars. C'est atroce de longueur, toute cette histoire de deux mois. » Vermersch ne termina jamais l'Histoire qu'il avait entreprise. J'ignore en quelles mains sont tombés les feuillets déjà rédigés. Pilotell, parents de la mort de Vermersch, acquit du beau-père de Vermersch, M. de Somer, divers manuscrits. Il n'y trouva que quelques notes sur le fort d'Issy et sur Raoul Rigault. Vermersch y malmenait fort l'ancien procureur de la Commune. « La mort, écrivait-il, n'est pas une excuse. » (Il sera question plus loin de Charles Gérardin).
 
-[leaf 0262] p.35
-
 revienne, et que le peuple qui, je crois, restera bête jusqu'à la fin des siècles, n'a que trop de tendance à leur pardonner, malgré le tort immense et irréparable qu'ils lui ont fait. Je vois ici fort peu de monde : Theisz, Camélinat, Brunel, Roullier, Hector France, Ch. Gérardin, Lonclas, et c'est à peu près tout. Si, Lemoussu encore et quelques blanquistes, Clavier et les Caria... Ah ! on en voit de drôles et on en apprend de belles ici ! Quand je réfléchis à tout cela, c'est toujours le mot de Pourceaugnac entre ses deux médecins qui me vient aux lèvres : Avec qui m'a-t-on mis ici ? — C'est vrai. On rougit de s'être compromis avec un tas de gens qui sont la honte de l'intelligence humaine, des imbéciles, des filous, des mouchards, et le reste ! — Et ce qu'il y a de plus fort, c'est que tous ils comptent revenir ! Tu verras si je fais bonne garde ! Je serai comme un chien en travers du chemin, et s'ils passent, je te réponds que ce ne sera pas faute que je n'aurai pas aboyé. A part ceux que je t'ai dit, je ne vois personne, et dans quelques semaines je vais quitter l'endroit où je suis et aller dans un autre bout de Londres pour voir moins de monde encore. On se perd, et on use sa personnalité au contact de tous ces hommes qui ne comprennent rien ni à la marche historique, ni au développement politique de la Révolution, et le meilleur moyen de se conserver intact dans l'exil, c'est de vivre dans la solitude, seul avec ses pensées et ses livres, de travailler, de méditer et d'apprendre ce que les événements nous ont fait voir que nous ne savions pas. J'ai la conviction que la proscription de Genève ne vaut pas mieux que celle de Londres — moins encore peut-être. Ce sont les doctrinaires, les modérés, la droite de la Commune. On doit en dire et en faire de jolies là-bas ! Arthur Arnould doit déteindre sur tout le monde, et chacun doit y parler en zézayant comme lui. Ici c'est un pêle-mêle, un tohu-bohu, une confusion, une cour du roi Pétaud à faire se tordre de rire un caricaturiste. Ils ont fondé des clubs, des réunions, des loges, des cercles — cercle des études sociales, cercle des prolétaires, Commune révolutionnaire (ça, c'est une société secrète : il n'y a que tout Londres qui le sache, juge un peu !), loge de la Fédération, loge de la Révolution, etc., etc. Naturellement
-
-[leaf 0263] p.36
 
 celui-ci exclut celui-là qui fulmine contre cet autre qui appelle ce quatrième mouchard qui traite le cinquième de traître qui demande des comptes à ce sixième qui ayant emporté la caisse boit, mange, rigole et se fout des cinq autres comme de l'an quarante. Te rappelles-tu que je te disais déjà sous la Commune : « Si jamais nous devenions réactionnaires, quel joli charivari nous ferions, rien qu'en disant la vérité ! » Mais nous ne savions rien alors, et ce n'est qu'aujourd'hui que nous pouvons juger des gens sans nous tromper sur leur valeur véritable. A présent, l'opinion a beaucoup changé à mon égard. Tu sais qu'il y a six mois je n'étais pas bon à pendre ; aujourd'hui, on revient ; de plusieurs côtés ils m'ont fait beaucoup d'avances pour me faire entrer dans leurs cercles, leurs loges, leurs tralala. Merci, grand merci ! Ma bonne étoile m'a permis de m'en retirer avant d'en avoir pris les ridicules, et je n'aurai garde d'y remettre jamais un pied. J'entends faire la révolution d'une tout autre façon que ces messieurs qui s'imaginent qu'en rentrant en France ils vont trouver sur les routes des monuments triomphaux au fronton desquels seront écrits ces mots :
 
@@ -189,8 +133,6 @@ celui-ci exclut celui-là qui fulmine contre cet autre qui appelle ce quatrième
     Adieu, mon vieux, écris-moi un de ces jours à l'adresse ci-dessous où je ne serai plus que trois semaines : M. William Green, 34, Howland Street, Fitzroy Square, London.
     Ne donne point cette adresse, à moins de m'en prévenir auparavant, parce que je ne veux être en rapport avec per-
 
-[leaf 0264] p.37
-
 sonne. Fais mes compliments aux amis, s'il en reste, et mes amitiés à ta femme.
     Je te serre bien cordialement les mains.
 
@@ -198,34 +140,22 @@ sonne. Fais mes compliments aux amis, s'il en reste, et mes amitiés à ta femme
 
 (1) Vermersch, comme il me l'écrit dans la lettre du 13 mai 1873, qui vient plus loin, rédigeait alors, pour l'éditeur Madre, le *Grelot,* hebdomadaire illustré.
 
-[leaf 0265] p.38
-
 qu'aucun journal français ne peut vivre à Londres, quelles que soient les conditions de bon marché dans lesquelles il est fait. La seule façon de gagner les Anglais serait peut-être d'être bonapartiste. France, je crois, n'avait pas plus que moi l'intention de se mettre cette corde au cou. Donc, insuccès certain. D'ailleurs son journal, en affectant le ton de la libre discussion, avait d'un côté bien des points qui s'écartaient de la voie révolutionnaire, — je veux dire des moyens actifs, et d'autre part se rapprochait des errements parlementaires avec lesquels nous n'avons rien à faire que je sache : de sorte que ni les farouches ni les modérés n'étaient satisfaits et que la vente n'allait pas. Le journal devait tomber : c'est ce qu'il a fait : il a bien fait.
 
     Tu vois, je t'écris à petites journées : aussi bien ce que tu m'as demandé, je ne puis te l'envoyer. Les gazettes trop soucieuses de ma gloire ont en effet annoncé que j'avais publié une histoire de la Commune, et j'ai reçu même, à ce sujet, il y a quinze jours, une lettre d'Italie qui me demande d'en faire la traduction. Mais le fait est que je n'ai publié jusqu'à présent aucune histoire de la Commune. J'en prépare une, mais elle est loin d'être finie, et depuis près de cinq mois, je n'y ai pas touché. J'avais même pris des engagements avec un libraire de Paris, mais l'état de siège, le gouvernement Vinoy, et la douceur de la police thiériste lui ont suscité des craintes qu'il m'a été d'autant plus impossible de lever que ma mort civile m'empêche d'ester en justice et de lui faire un procès dans les règles. J'en suis à la sortie du 3 avril. Si tu as des renseignements à m'envoyer, envoie hardiment. Cela sera fait en manière de mémoires familiers et je laisse à penser s'il y aura des éreintements, car, en somme, il faut bien que je te l'avoue, je ne vois que nous qui ayons toujours eu raison dans cette insurrection déplorable. Le peuple lui-même n'est pas exempt de reproches : pour la première fois en révolution il a manqué absolument de sens politique : il n'a eu aucun de ces grands mouvements dont je crois que c'est faire
 
-[leaf 0266] p.39
-
 trop d'honneur à Marat que de les lui rapporter entièrement. Il n'a même pas eu la présence d'esprit de faire un 6 octobre 89 ; non pas il est vrai cette fois pour ramener le Roi, qui était l'Assemblée de 71, mais pour étouffer à Versailles même toutes les possibilités de trahison. Quant aux journées de Mai, je crois qu'il faut beaucoup rabattre de l'enthousiasme qu'elles ont provoqué. Quand je leur compare les journées de Juin où le peuple lutta cinq grands jours sans un seul canon, avec des armes féodales, avec quelques cartouches, mangeant à peine et ne buvant que du vin très mouillé d'eau, je trouve que la gloire des fédérés est loin d'être comparable à celle de ces pauvres diables qui étaient bien l'armée de la misère, « attaquée, provoquée, et mise à l'état de légitime défense ». Non, je ne puis me rappeler ces forces énormes dont nous disposions, et penser que le peuple, par sa bêtise, c'est le vrai mot, les a laissées se perdre sans aucun profit : tant d'ineptie révolte celui qui médite un peu sur le passé et qui lui demande le mot de l'avenir. Au fond, il n'avait qu'une chose à faire, comme nous le lui avons conseillé dans le *Père Duchêne,* jeter bas la Commune et reprendre lui-même la direction de la Révolution qui n'était plus qu'un cheval de selle pour le grotesque bourgeoisisme des Arnould, des Lefrançais, des Malon et consorts. Il ne l'a pas fait, et c'est justice qu'il ait été vaincu. Plus je réfléchis à tout cela, et plus je me convaincs qu'il n'y a jamais de malheurs immérités. Le monde est aux idées : peu importe après cela le moyen qu'elles emploient pour triompher. Moi, tu sais, je suis pour la force. Je la trouve légitime, et je dis que Thiers est le seul bonhomme qui ait compris la situation : Thiers et le *Père Duchêne* avaient exactement au fond la même politique : la force. Le Président royal de la république impériale sentait, lui, bourgeois, que l'insurrection du 18 Mars, si elle triomphait, arriverait forcément à poser des questions d'où dépendrait la vie de la bourgeoisie. C'était véritablement la théorie de Darwin mise en pratique : la concurrence vitale et le combat pour l'existence. Ou la bourgeoisie devait faire place au prolétariat de plus en plus envahissant, ou le prolétariat devait
 
-[leaf 0267] p.40
-
 être émondé pour qu'il n'étouffât point la bourgeoisie : ça, ce n'est pas de la politique, c'est de l'histoire naturelle : ou l'ivraie tue la moisson, ou le laboureur arrache l'ivraie : le plus simple paysan sait cela, et Thiers fut ce paysan-là. C'est pour cela qu'il remporta la victoire, c'est pour cela qu'il eut le sens commun, et qu'à son point de vue je l'approuve, et dis qu'il était de son devoir, à lui bourgeois, d'agir ainsi. Le *Père Duchêne* avait bien compris cela aussi, et quand nous demandions des têtes, nous étions dans les simples indications du bon sens politique, car le dilemme était bien nettement posé : ou vous, — ou nous. Le peuple, aussi bien que la bourgeoisie, était dans le cas de légitime défense ; et dans ce cas la loi elle-même reconnaît le droit de tuer son adversaire. Je travaille en ce moment-ci à quelques petites brochures que je ferai paraître sans doute dans deux mois et que je t'enverrai : cela s'appellera : *la Dictature, la Force, le Droit au vol.* J'expliquerai un peu plus longuement ce que je ne fais que t'indiquer ici. Je déduirai toutes les conséquences du droit indiscutable de la force, et nous verrons bien. On me chassera peut-être d'Angleterre, mais alors j'irai ailleurs et nous aviserons à ce qu'il y a à faire. Tu sais que je n'ai pas beaucoup l'habitude de me laisser déconcerter, mais je suis curieux de voir ce que diront les aristos anglais qui sont bien les plus terribles des propriétaires et les plus attachés au mien, quand je proclamerai hardiment le droit du pauvre à s'emparer de tout ce qui lui est nécessaire pour vivre, fût-ce à main armée, fût-ce par l'assassinat. Je crois que nous rirons bien. Dans cette histoire de la Commune, je développerai également toutes ces idées. Je montrerai là, aussi bien que dans mes brochures, l'unanimité des auteurs à affirmer le droit à la force : c'est le grand cheval de bataille de tous les théoriciens de la politique transcendantale, et je montrerai un accord qu'on n'a pas encore soupçonné jusqu'ici entre Hobbes, J. de Maistre, Marat et Proudhon. Ce sera curieux. Et avec cela, oui, je t'en réponds qu'il y aura des jugements sévères : au fond, je te vois qui m'épargnent. Tous ont péché ou par lâcheté ou par imbécillité, et ça a la prétention de revenir, ça se met dans l'idée que ça remon-
-
-[leaf 0268] p.41
 
 tera au pouvoir. Tas de peigne-culs ! C'est bon à être gardeurs de dindons, et ça veut conduire le peuple. Je vais te faire des peintures de tous ces gaillards-là, au fur et à mesure que leurs noms se présenteront sous ma plume, je te le dis que ça. Car ce sont eux qui sont coupables de tout, et s'il n'avait pas eu l'exemple des grands, comme dit Massillon, si impudemment étalé sous les yeux, il est probable que le peuple eût pris lui-même une autre attitude. Mais il y avait une douce réciprocité de sentiments médiocres entre les gouvernants et les gouvernés, de sorte que la moindre volonté entière et certaine devait bientôt l'emporter sur les uns et les autres. Maintenant encore, je me demande ceci : s'il y avait eu pendant la révolution de 1871 un homme assez ferme et assez résolu pour s'emparer du pouvoir, mais dans le but seulement de servir la révolution, et qu'il eût fait dresser dans Paris quelques guillotines où il eût fait faucher par milliers les têtes de la bourgeoisie, est-ce que Versailles n'aurait pas tremblé et ne serait pas, pour tout de bon, entré dans les voies de conciliation ? Pour moi, je le crois, et je pense que lorsque nous étions perdus c'était le seul moyen d'éviter le grand massacre. Quelque égoïsme qu'eût d'ailleurs le gouvernement versaillais, il eût reculé, et nous fussions sortis de Paris par une capitulation avec les honneurs de la guerre, ou un armistice rendu certain par des garanties. Virgile a raison : le seul salut qui reste aux vaincus, c'est de n'en espérer aucun. Nous n'en serions pas où nous en sommes si nous avions su désespérer à temps.
     Le journal *La Fédération* (1) est mort de sa belle mort. C'était l'œuvre du beau Landeck, du gracieux Vésinier et du profond politique Oudet. Cela a duré six numéros, et tu as pu juger dans quelle langue et avec quelle adresse tout cela était écrit. Décidément pour faire un civet il faut un lièvre et pour faire un journal, un journaliste. Si tu me demandes ce que j'en pense, il ne me sera pas fort difficile
 
 (1) La collection de la *Fédération* est à la Bibliothèque Nationale, sous la cote Lc² 2558.
 
-[leaf 0269] p.42
-
 de te répondre : j'estime qu'il y a une campagne formidable à faire contre les hommes de la Commune, mais qu'il y a manière et manière de la faire : il faut que l'enquête, puisque c'était une manière d'enquête que voulait faire la *Fédération,* soit faite sérieusement et ne prenne pas le caractère d'une simple engueulade. Si ces messieurs avaient le bon sens de rester tranquilles et de tâcher de faire la seule chose qui soit désormais dans leur rôle : se taire, le mieux serait de les oublier et de les laisser oublier. Mais puisqu'ils ont la prétention d'occuper encore l'opinion de leurs intéressantes personnes, il faudrait que quelqu'un leur mît une bonne fois le nez dans leur imbécillité ou leur malhonnêteté, — car c'est triste à dire, il y a des voleurs, et pas mal, — afin qu'on ne se souvienne plus d'eux que pour les envoyer au bagne, ou au mur, à la prochaine. Certes, je n'ai aucun scrupule ; je n'eusse pas demandé mieux qu'on mît aux mains du peuple la banque et les études d'avoués et de notaires, car alors la liquidation sociale était inévitable ; mais de là à mettre des couverts et de la vaisselle plate dans son gilet, tandis que les bougres allaient se faire casser la gueule aux remparts, je trouve qu'il y a une rude distance. Aussi, quand on me demandait ce que je pensais de la *Fédération,* je disais : « Mais il faut voir, il faut attendre ; ça ne commence pas trop mal ! » et qu'on me disait comme à toi : « Ça retombe sur nous tous, ça fait les affaires de la réaction ! », je te déclare que j'ai répondu : « Permettez! Chacun comprend la révolution à sa façon et je crois l'entendre autant que qui que ce soit ; mais je le confesse hautement : j'accepte la solidarité des incendies de Paris, de l'exécution des otages, etc., mais je n'accepte aucune solidarité avec la bande des grinches qui occupaient les hautes dignités de la Commune. » Voilà ma pensée tout net.
 
     Voilà bien du temps que cette lettre est commencée : de temps en temps j'y ajoute un bout comme tu vois, et j'attends pour te l'envoyer que ces quatre pages soient pleines. Il faut du temps.
-
-[leaf 0270] p.43
 
     Sornet vient de revenir à Londres il y a un mois ou six semaines : il était parti depuis huit mois dans la province comme instituteur, mais tu sais, c'est le diable ici que d'être instituteur. On vous couche, on vous blanchit, on vous donne à boire et à manger ; mais pour de l'argent, inutile d'y penser. C'est à peu près l'habitude : on ne paie pas les maîtres de français, — et cependant on en trouve autant qu'on en veut ; ce n'est pas étonnant, il y a tous les dix ou quinze ans maintenant des émigrations qui donnent à l'Angleterre une quantité de Parisiens, et comme il n'est pas dans leurs mœurs de se rendre à l'étranger avec autant d'argent que les monarchiens, il faut bien qu'ils fassent quelque chose pour vivre. Beaucoup n'ont pas d'état manuel : ils donnent des leçons de leur langue, d'où abondance de professeurs, et, comme disent les économistes, encombrement du marché et baisse des salaires.
     C'est toi qui m'as appris que Vallès était à Genève. Je ne le voyais pas. Et il se tenait ici fort à l'écart. Il avait de l'argent, et n'aimait guère voir ceux qui n'en avaient pas. Tu sais mon opinion sur lui, et je crois t'avoir raconté qu'au temps du *Cri du Peuple* où j'écrivais tous les jours, j'étais payé cent sous par jour alors que chaque numéro rapportait sept ou huit cent francs de bénéfice. Ce sont là nos révolutionnaires ! — Du reste, il fait partie de la bande des Membres de la Commune qui ont fait des héritages depuis les journées de Mai : c'est singulier que tous ces bougres-là puissent hériter, alors que nous, ne pourrions pas toucher un centime si nos parents mouraient. On voit de drôles de choses en révolution, et après surtout. (1)
@@ -233,8 +163,6 @@ de te répondre : j'estime qu'il y a une campagne formidable à faire contre les
 
 (1) Ici, Vermersch est injuste, comme souvent. Vallès avait hérité d'un inconnu, admirateur de son œuvre, nommé Caillebotte.
 (2) Le *Grelot,* journal illustré. Voir Cahier IV, page 139.
-
-[leaf 0271] p.44
 
 suis-je bien heureux de l'avoir. Je vis très solitairement, dans mon coin. Je travaille un peu ; le British Museum est la grande ressource. Sans lui, l'Angleterre ne serait pas habitable. Je tripote beaucoup l'histoire de la Révolution ; j'ai fait ces derniers temps quelques conférences qui m'ont rapporté un peu d'argent, pas énormément, mais enfin vingt et quelques francs chacune, et j'en ai fait quatre : Th. Gautier, Blanqui, A. de Vigny et les journées de Juin 48. Actuellement, j'en prépare six autres que je commencerai vers le milieu ou la fin de janvier ou un peu plus tard. Je traiterai Danton, M. de Robespierre, Marat, Hébert, le général Hoche, le général Bonaparte ; et peut-être ce travail me conduira-t-il à une étude plus approfondie de la Révolution, dont l'histoire, je m'en convaincs de jour en jour, est encore loin d'avoir été écrite. J'aurai déjà quelques bases, car j'en parle pas mes conférences, je les lis.
     A l'heure où je t'écris, tout Londres est en révolution pour la Christmas, et moi-même je suis en train de surveiller la cuisson d'un plum-pudding que j'ai confectionné ce matin. Car il faut te dire que je suis devenu depuis mon séjour à Londres un cuisinier émérite. (1) Tu verras cela si tu passes un jour le détroit, — ou mieux qu'avant cela nous ne nous retrouvions à Paris, ce qui vaudrait mieux encore.
@@ -245,21 +173,15 @@ suis-je bien heureux de l'avoir. Je vis très solitairement, dans mon coin. Je t
 
 (1) Voir Cahier IV. Vermersch à Altorf, page 139.
 
-[leaf 0272] p.45
-
 t'avais déjà envoyé *la Force* à Lausanne à l'ancienne adresse, et je te priais dans la lettre qui l'accompagnait de me faire connaître à quel libraire de Genève je pourrais m'adresser pour faire un dépôt général en Suisse. Il est urgent de veiller un peu à la propagande, parce que les journaux français, habituellement si prompts à s'occuper de tout ce qui me concerne, ne donnent cette fois pas signe de vie, bien que les brochures leur aient été expédiées, et ils semblent avoir compris que le parti le plus avantageux pour eux est d'organiser la conspiration du silence. Vois si à Genève tu connais quelqu'un de sérieux avec lequel mon éditeur pourrait entrer en relations, — quelqu'un qui paie, bien entendu. Ça se vend un peu ici, et ça se vendra mieux par la suite quand un plus grand nombre aura paru : pour tout ce qui se publie en séries, il y a toujours des collectionneurs. La troisième paraîtra dans une quinzaine, et je te l'enverrai aussitôt.
     Je suis fort heureux que tu aies enfin réussi à te caser — loin du bruit surtout. (1) C'est ce qui vaut le mieux. Il faut absolument se mettre à l'écart des potins, des bavardages, des tripotages, — s'isoler. Il y a longtemps que j'ai pris ce parti, bien que la solitude soit difficile à accepter dans cet insupportable pays de fumée de charbon et de brouillard. Heureusement, il y a ici la meilleure bibliothèque du monde, et cela console. Je me suis convaincu en lisant récemment les différentes histoires de la Révolution que tous ceux, — sans exception — qui ont touché à cette période de notre histoire nationale, n'y ont absolument rien compris. Les uns sont fous de Danton, les autres de Robespierre, de Saint-Just, de Camille Desmoulins, et ils n'ont pas vu que la vraie Révolution n'a pas été le fait de quelques personnages plus ou moins célèbres, mais bien la manifestation du peuple insurgé, des soixante districts d'abord, des quarante-huit sections ensuite, de la Commune de Paris,
 
 (1) Depuis février, j'étais à Altorf, à la direction de l'Entreprise du percement du tunnel du Gothard. J'y restai jusqu'en juillet 1878, où je partis pour Gênes.
 
-[leaf 0273] p.46
-
 d'Hébert, de Cloots, de Chaumette, de Marat, du Club de l'Évêché, avec Dobsent, Varlet, Gusman et les autres qui émanaient directement des petites gens, du petit peuple, de la vile multitude, de la « canaille ». Tous ces historiens, bourgeois comme ils étaient tous, ne pouvaient s'éprendre que de bourgeois, et comme dit Mᵐᵉ de Staël : « Ils ont pris les acteurs pour la pièce. » C'est pourquoi je voudrais faire une histoire de la Révolution, moi aussi, une histoire considérable — une vingtaine de volumes — qui racontât le peuple révolutionnant. On y verrait les faits sous un jour complètement différent de celui sous lequel on les a vus jusqu'ici, et je crois que ce serait une œuvre fort utile. Je montrerais que la Révolution, dans ce qu'elle eut de meilleur, ne pouvait rien avoir à faire avec la tradition individualiste et autoritaire tout ensemble de Rousseau ; mais qu'elle fut l'expression de la philosophie humaine de Diderot et de d'Holbach. Nous remettrons l'Être suprême dans sa boite, et camperons la Raison à Notre-Dame. Quand je lis tous les documents de cette époque — il y en a ici par dizaines de mille au British Museum — je vois combien il était utile à la réaction de confier la rédaction de l'histoire à des faussaires, de façon à lui faire ignorer ou à lui faire maudire le nom de ceux qui étaient véritablement dans le mouvement. Si je puis mener à bien ce travail-là, j'ai idée que ce sera curieux.
     J'accepte de grand cœur ta proposition de venir passer quelque temps en Suisse, mais je ne le pourrai prendre en juin, attendu que je crois que ce sera à peu près à cette époque que ma femme accouchera ; mais vers le mois de septembre, si je parviens à faire une affaire avec un bonhomme de Paris à qui on va bientôt porter un volume de poésies. Je prends mes chemises et mes chaussettes et je prends le bateau avec enthousiasme, parce que voilà trop longtemps que nous ne nous sommes vus.
     Je ne vais plus rester deux semaines à peu près dans mon domicile actuel : en t'envoyant d'ici quinze jours ma troisième brochure, je te ferai savoir ma nouvelle adresse que j'ignore encore moi-même.
     Adieu, mon vieux. Je te serre bien cordialement la main
-
-[leaf 0274] p.47
 
 ainsi qu'à ta femme, et rappelle-moi au bon souvenir de ton père s'il a effectué son voyage au moment de la réception de cette lettre.
 
@@ -269,15 +191,11 @@ ainsi qu'à ta femme, et rappelle-moi au bon souvenir de ton père s'il a effect
 
 (1) Ici le titre d'un journal parisien
 
-[leaf 0275] p.48
-
     Comme toi, j'ai pensé à faire quelque chose en forme de « mémoires ». Je ne sais si cela aurait chance de succès ; enfin, nous verrons. Tu sais que j'avais traité, ou du moins je crois te l'avoir dit, avec un éditeur parisien pour une Histoire illustrée de la Commune, mais sans la signer bien entendu. Cette affaire est restée jusqu'à présent dans une époque indéterminée, car la censure refuse sous l'état de siège de laisser paraître quoi que ce soit — en fait de dessins — qui ait trait à la Révolution du 18 Mars, et d'autre part il est probable que l'amnistie suivra d'assez près la levée de l'état de siège, si elle ne coïncide pas avec elle, pour qu'il soit préférable d'attendre que je puisse publier avec mon nom. De toute façon, il n'y a rien à faire pour l'instant, et j'ai quitté la partie parce que si, comme disent les économistes, « la demande détermine la production », je ne sais rien d'aussi fastidieux que d'amasser des stocks de marchandises sans leur prévoir de débouchés.
     Les élections d'avant-hier ont un caractère très significatif — beaucoup plus significatif même, à mon sens, que celles de Paris du 27 mai. (1) Il n'y a au moins cette fois aucun rémusatiste. Sur les cinq, il y a un bonapartiste, mais j'aime mieux cela qu'un républicain couleur Grévy : ici, on sait tout de suite à qui on a à faire. Les prochaines élections prendront probablement la tournure de celles de dimanche, à moins que la droite ne remporte d'ici là une victoire parlementaire décisive qui aurait pour effet de tronquer le suffrage universel, ce qui serait à souhaiter. Car du jour où le peuple ne votera plus, comme il lui faut absolument un dérivatif, il s'insurgera : je préfère le voir voter avec des pavés qu'avec des bulletins.
     A part ce que j'ai fait, il n'y a à peu près rien de publié à Londres par des réfugiés. Ce qui a paru est surtout relatif au Conseil général de l'Internationale : la plus intéressante de ces brochurettes est le manifeste sur la Guerre civile (rédigé par Marx). Enfin je te ferai une
 
 (1) Vermersch commet ici un *lapsus.* Il faut lire : du 27 *avril,* date à laquelle Barodet fut élu à Paris contre Rémusat.
-
-[leaf 0276] p.49
 
 espèce de catalogue de ce que je trouverai dans ma prochaine, c'est-à-dire dimanche en huit probablement.
     Adieu, ma vieille, je te serre les mains bien cordialement.
@@ -285,8 +203,6 @@ espèce de catalogue de ce que je trouverai dans ma prochaine, c'est-à-dire dim
     Mon cher Vuillaume, je t'envoie ci-joint ma quatrième brochure, *La Grève,* où je soutiens une théorie dont on ne s'est guère avisé encore, et que cependant je crois la bonne : je n'aurai sans doute pas pour moi les grands bénéficiaires de l'Internationale ; mais pour moi les grands bénéficiaires de l'Internationale ne sont pas plus que comme les épinards, je ne les aime pas et j'en suis bien aise, car si je les aimais je les fréquenterais, et comme je ne puis pas les souffrir, etc.,...
     Je viens de changer de domicile : je reste actuellement Prince of Wales Road, 115, Kentish Town, London. J'ai pris une petite maison avec le père de ma femme, de sorte que je suis maintenant tout à fait chez moi. On nous a meublé un étage, et je ne paie pas plus cher : double avantage. Il fallait cela : je compte que ma femme accouchera dans un mois environ, et nous n'avions Belveder Crescent qu'une chambre où nous étions empaquetés comme des harengs dans la caque. Maintenant nous sommes dans les feuilles ; il y a un petit jardin derrière, et je me dispose à élever des poules et des lapins comme un bon petit bourgeois qui n'a rien à se reprocher.
     Tu as vu la façon absolument cocasse dont Thiers a été tiré par les jambes en bas de son fauteuil présidentiel : cela a causé, à ce qu'on m'a dit, quelque déception dans le camp de nos jolis révolutionnaires qui se sont mis tristement à déboucler leurs malles. Ces imbéciles croyaient que le moment approchait, avec une vitesse de trente lieues astronomiques à la seconde, de retenir leur place au steamer. Et voilà Mac-Mahon qui d'un coup de botte vient renverser brutalement tous ces châteaux de cartes ! C'est prodigieux le nombre de gens qui sont stupides ! Mais il
-
-[leaf 0277] p.50
 
 est vrai qu'à Paris on ne nous le cède pas. Si tu as vu les journaux républicains du peuple le plus spirituel de la terre, tu sais à quoi t'en tenir sur leur intelligence politique pendant ces derniers jours. « La République n'a pas souffert, au contraire, car le nouveau président ne changera rien... » — Ces c..., qui s'imaginent que nous sommes en République ! Il suffit qu'on leur serve un ragoût de vieilles bottes décoré du nom d'esturgeon à la casserole, pour qu'ils s'écrient que jamais ils n'ont mangé de meilleur esturgeon. — Nous en avons pour du temps encore avec des bélîtres de cette espèce !
     Adieu, ma vieille, je te serre bien cordialement les mains ainsi qu'à ta femme et aux amis. — Écris-moi le plus vite que tu pourras.
@@ -298,21 +214,13 @@ est vrai qu'à Paris on ne nous le cède pas. Si tu as vu les journaux républic
 
 (1) La *Liberté* de Bruxelles, où je publiais le récit de mon passage à la Cour martiale, sous le titre *Six heures à la Cour martiale du Luxembourg.* La collection de la *Liberté* de Bruxelles est à la bibliothèque du Musée social.
 
-[leaf 0278] p.51
-
 raisons, la première c'est qu'elle est en anglais, la seconde c'est que je ne l'ai pas, la troisième, c'est que ce n'est qu'une compilation des décrets de la Commune, commentés de quelques notes très écourtées, et que les journaux anglais, les rares qui en ont rendu compte, l'ont jugée en des termes tels qu'on peut résumer à peu près ainsi leur appréciation : « Faut-il être assez bossu de corps et d'âme pour oser passer sous le nez du public des productions littéraires de ce calibre. » Donc tu vois que ce serait une œuvre de misanthropie que de propager des ouvrages ainsi bâtis. — A propos, le jeune et gracieux Vésinier a complètement disparu de l'horizon. Ne sais quand reviendra. Comme Malborough. C'est dommage. L'hiver passé, les proscrits allaient beaucoup dans une société fondée par les réfugiés de 1851, où l'on donnait des conférences — moi-même j'en ai fait une sur la *Décadence de la Bourgeoisie.* On y fumait beaucoup de pipes, ou y buvait un peu moins qu'on y fumait, non que l'envie en manquât, mais y répondait au conférencier, quand le conférencier, d'humeur douce, et bonne âme, voulait bien s'y prêter. Vésinier y venait régulièrement — pour discuter. Vésinier a toujours aimé discuter. C'est son plus beau titre de gloire. Il venait donc au *Spread Eagle* (c'était la taverne où la Société siégeait), et il venait toujours escorté d'une femme pas trop laide, surtout pour la femme d'un bossu, et qui eût fait en 93 une jolie « furie de la guillotine », comme disaient les Thermidoriens. L'heure de fièvre venue, le gracieux Vésinier se levait — pour discuter. Malheureusement, il arrivait quelquefois que la discussion devenait violente, et qu'on se montrait les dents, et à presque aussi longues que les bras. On s'avançait sur l'ex-rédacteur de l'*Officiel* d'un air menaçant : alors commençait le rôle de la petite « furie ». Ses yeux étincelaient, et d'un geste énergique repoussant le malheureux Vésinier sur sa banquette, elle se jetait bravement en avant, comme pour le combat. On cédait poliment à l'héroïne, tandis que Vésinier, indigné, mais anéanti, reprenait haleine, — pour rediscuter encore. — Hélas ! que j'en ai vu tomber de conférences ! — Après quoi le président levait la séance.
-
-[leaf 0279] p.52
 
     Ce que tu me dis du complot génevois (1) ne m'étonne nullement. C'est prévu, et il faut être bête comme on ne devrait pas l'être pour donner encore dans des panneaux semblables. J'en dirai carrément mon avis dans ma brochure sur la *Société Secrète* qui sera la sixième. Je suis en train de travailler à la cinquième qui traite de la *Propagande Révolutionnaire.* C'est, comme tu le penses bien, une guerre à cette propagande qu'on a voulu nous faire faire jadis, et qu'on voudrait encore faire faire à d'autres : la Révolution par l'idée. Pour moi, il n'y a qu'une propagande raisonnable, celle que voulait Cloots : la propagande armée, c'est-à-dire : Vous allez penser comme moi, ou des coups. C'est celle-là qu'on nous a toujours faite, et je ne vois pas pourquoi nous ne nous en servirions pas à notre tour, puisqu'elle a toujours si bien profité à nos ennemis. Je dis donc que la propagande ne doit plus rouler sur les doctrines et que le peuple connaît maintenant suffisamment ses droits, qu'elle doit avoir pour but de lui apprendre la politique et la guerre, les moyens de combattre, de vaincre et de ne pas se laisser escamoter sa victoire. Le reste est de la fariboule. Tu verras, j'arriverai bien à formuler un corps de doctrine, qui se tiendra et qui en vaudra bien une autre, et je veux être le théoricien, et même le praticien, de la chose. Tu me parles de faire une brochure qui s'appellera *la Guerre.* Je croyais t'avoir expliqué la façon dont j'entendais établir la série de ces opuscules révolutionnaires. Je veux d'abord faire douze brochures qui seront plus tard réunies en un volume, cela s'appellera *les Principes.* Outre les brochures que tu connais, *la Propagande Révolutionnaire* et la *Société Secrète,* il y aura *l'Insurrection, la Politique, l'Homme, la Constitution, les Doctrines Moralistes* (deux brochures) : 1ʳᵉˢ *Doctrines politiques ;* 2ᵉ *Doctrines sociales.* Cela posé, et ayant comme on dit fixé le terrain, supposant la révolution faite, je passe à l'organisation de la Commune révolutionnaire et en même temps à la mise en activité des services
 
 (1) Il est question plus loin, au chapitre *Visite,* de ce complot ridicule et suspect.
 
-[leaf 0280] p.53
-
 publics au lendemain d'une insurrection triomphante, parce qu'il ne s'agit pas de chasser un gouvernement, il faut encore fournir à la population de l'eau, du gaz, un service de voirie, des vivres, une police, etc. Il faut en un mot que le peuple sache gouverner, et il ne saura gouverner que lorsqu'il aura étudié l'ancienne administration. Dis-moi donc de combien d'hommes tu aurais besoin pour organiser un service postal dans Paris. Tu n'as sans probablement rien... ni moi non plus. Combien en faudrait-il pour le service des emplettes, pour les télégraphes, pour les prisons ? Si on ne le demandait en ce moment, je serais fort embarrassé de le dire. Il faut cependant, si nous voulons des points de pouvoir, que nous le sachions. Le Comité central se vante d'avoir organisé les services publics le 18 Mars en quelques jours. Il ment effrontément. Il y avait unanimité dans la population. S'il avait rencontré le moindre obstacle dans l'opinion, il ne nous aurait fourni ni un litre d'eau, ni un mètre de gaz, tant était grande son ineptie. Il faut que cela cesse, et que nous sachions faire nos affaires nous-mêmes. Tous les révolutionnaires devraient apprendre *avant* l'insurrection à se rendre utiles *après* l'insurrection. — En troisième lieu viendrait *la Guerre.* Douze autres brochures. Vingt-quatre peut-être, je ne fais que commencer l'étude du sujet. Il est vaste. Je ne l'étudie qu'après l'organisation de la Commune et la victoire de l'insurrection, parce qu'il est démontré par l'histoire que les insurrections qui triomphent sont tellement l'expression de l'opinion générale, qu'elles sont victorieuses avant d'avoir combattu et n'ont avoir besoin de combattre. Mais, un peu après, la réaction se produit, et c'est alors qu'il est nécessaire de savoir distinguer une bombe d'une mitrailleuse, et que le Comité central d'artillerie de la Commune ne soupçonnait pas. — Tu vois ce que j'ai l'intention de faire et que je suis particulièrement de juin. Du reste, nous causerons de tout cela quand je viendrai en Suisse, — en septembre probablement — mais tu sais dès à présent que pour moi il n'y a pas d'autre guerre raisonnable que la guerre civile, parce que c'est le combat pour l'existence — *struggle for life,* comme dit Darwin.
-
-[leaf 0281] p.54
 
     Je ne sais guère ce que disent les réfugiés de mes brochures, car j'en vois peu. Je ne m'en inquiète guère : ce n'est pas pour eux que je les écris, et ce n'est pas pour beaucoup de monde. Je veux simplement poser une affirmation, asseoir quelques principes, puisque jusqu'ici tout le monde a semblé agir au hasard. Mais laissons cela pour le moment.
     Tu sais que j'ai bien l'intention de venir en Suisse, en septembre comme je viens de te le dire. Ma femme n'est pas encore accouchée, mais je m'attends à sa très prochaine délivrance. Une fois que ce sera fini, il faut que j'attende un peu, que je voie vivre cet enfant, s'il veut vivre, et que j'assure un peu mes derrières, comme on dit. Je suis en train de faire un grand roman, afin de payer un peu mes frais de voyage, et de laisser une provision ici : car il faut penser à tout. Je gagne ma vie, mais juste ; et il faut que je tâche d'avoir un supplément de ration comme les soldats en campagne. Tout cela viendra à son heure ; et, quoi qu'il arrive, je viendrai toujours d'ici à trois mois voir le pays où Razoua respire. (1)
@@ -322,8 +230,6 @@ publics au lendemain d'une insurrection triomphante, parce qu'il ne s'agit pas d
     Adieu, mon vieux, je te serre bien cordialement les mains ainsi qu'à ta femme du plaisir de revoir. Quant à ta fille, quoique je sois un peu son parrain, je ne la connais pas encore, mais je pense que bon sang ne peut mentir et que ce sera une gaillarde qui n'aura pas froid
 
 (1) Vermersch avait violemment — et injustement, comme pour beaucoup d'autres — attaqué Razoua dans le *Qui Vive!*
-
-[leaf 0282] p.55
 
 aux yeux, comme disait l'autre : nous ferons sauter plus
 tard tout cela sur nos genoux — si nous vivons!
@@ -341,7 +247,6 @@ avec lequel il serait peut-être bon d'entrer en relations,
 parce que c'est un homme intelligent avec qui on pourrait
 sans doute s'entendre — si l'opportunité d'une entente se
 faisait un jour sentir, ce qui peut arriver.
-    Que devient Protot?
     *Vale et me ama.*
 
     Mon cher Vuillaume, je ne t'écris pas, je t'envoie seule-
@@ -357,8 +262,6 @@ qui doit former mon roman sur lequel je travaille à force ;
 car, pas de roman, pas de voyage en Suisse.
     Ils vont bien, à Paris, avec le refus du *Roi s'amuse*
 d'Hugo ; il y a encore de beaux jours pour la haute comédie.
-
-[leaf 0283] p.56
 
     Sornet m'a dit que ta *Cour martiale* était finie dans le
 dernier numéro de la semaine passée. (1) J'attends toujours
@@ -391,8 +294,6 @@ je le pense, tu viens faire un tour par ici l'année prochaine.
 — Quant à moi, mon pauvre vieux, mon voyage est remis :
 
 (1) Le dernier numéro de la *Liberté* de Bruxelles.
-
-[leaf 0284] p.57
 
 la naissance de cet enfant a emporté le peu d'économies
 que j'avais faites, et je n'ai pas trouvé pour mon roman les
@@ -433,8 +334,6 @@ pour moi elles sont trop significatives pour qu'elles ne
 soient pas les pivots de son action politique : « La société
 est obligée historiquement de passer par la dictature
 
-[leaf 0285] p.58
-
 ouvrière », et « Les races latines sont appelées à dispa-
 raître. » — Je le répète, ces deux phrases, dites à un inter-
 valle d'une demi-heure l'une de l'autre, me frappèrent fort,
@@ -474,8 +373,6 @@ pour faire voir leurs muscles : ils vendent et ils travaillent
 (1) Bien entendu, je laisse à Vermersch toute la responsabilité
 de ses déductions.
 
-[leaf 0286] p.59
-
 à moitié prix, car ils ont moins de besoins que les Latins ;
 leur force de résistance leur permet de se priver de ce qui
 fait le génie particulier et le talent inventif de leurs adver-
@@ -514,8 +411,6 @@ ne devraient jamais paraître. On a fait sous l'Empire trois
 mois de prison, on a passé deux ans à Blidah, et parce
 qu'on s'est reposé à Sainte-Pélagie, et parce qu'on s'est
 
-[leaf 0287] p.60
-
 engraissé dans une des plus jolies villes de l'Afrique, on
 réclame une place de député, un siège à la Commune ; car
 figure-toi bien ceci que ces misérables qui ont été le
@@ -553,8 +448,6 @@ jamais le soldat d'une cause désespérée. Je serai bien de
 
 (1) Ce passage a été reproduit dans le Cahier III, page 355.
 
-[leaf 0288] p.61
-
 l'action le jour de l'insurrection, mais pas le jour de la
 déroute, — à l'heure du : « En avant! » mais non à celle
 du sauve-qui-peut!... Du reste, à quoi bon! Nous avons été
@@ -577,7 +470,6 @@ vraiment remarquable — et cela suffirait pour expliquer la
 défaite — que cette révolution soit la seule où le peuple se
 soit tu. Le gouvernement qui surgit après une insurrection
 ne tarde pas à en perdre la note ; il a beau sortir des
-entrailles mêmes de la foule, il en perd bientôt le *la,* si la
 masse n'intervient pas continuellement pour le rappeler au
 diapason. Si en 89 et dans les années suivantes, il s'est
 accompli un petit progrès, ce n'est ni au Jeu de Paume
@@ -594,8 +486,6 @@ tromper. » — Vois même en 48, si la Révolution dure, si
 un effort social se tente, avant le grand et sublime égorgement
 de Juin, c'est parce que le peuple, agissant en vertu
 de sa vertu insurrectionnelle, intervient dans les premiers
-
-[leaf 0289] p.62
 
 temps, au 17 Mars, au 16 Avril, au 15 Mai : que n'eût-il pas
 fait, s'il n'avait pas croupi dans la boue du règne de Louis-
@@ -637,8 +527,6 @@ lui, ne fit rien. Cette facile journée du 18 Mars terminée,
 il se contenta de subir la direction, et je me trompe, c'est
 la dictature que je veux dire, des deux gouvernements qui se
 
-[leaf 0290] p.63
-
 mirent à sa tête. Il avait tellement oublié ce qu'il était, il
 avait tellement perdu le souvenir de son essence : la force,
 de son infaillibilité comme masse, que le jour où il voulut
@@ -678,8 +566,6 @@ vable du règlement du dernier numéro ; du règlement de
 célèbre par les dessins d'André Gill. Simon et Aubouin étaient
 nos deux vendeurs et associés.
 
-[leaf 0291] p.64
-
 12.000 collections à 35 centimes l'une, de 400 francs en sous
 qui restaient au bureau et de 52 rames de papier à 29 francs
 qui se trouvaient en cave, et qu'il a vendues à l'*Avant-
@@ -715,8 +601,6 @@ crois, Polo était relâché... Un peu après, il quitta subrepti-
 cement Paris, confirmant ainsi les soupçons que la préfec-
 ture avait eus sur lui ; mais en somme sa fuite n'avait pas
 
-[leaf 0292] p.65
-
 besoin d'être expliquée par une trahison, il suffisait pour
 la comprendre de connaître son caractère... Maintenant,
 sais-tu comment Polo me récompensa de l'avoir fait mettre
@@ -739,8 +623,6 @@ grelot dans la tête, et c'est tout. Avis à ta personne.
 ainsi qu'à ta femme. La mienne me charge de vous exprimer
 à tous deux ses amitiés.
 
-    Mon cher Vuillaume,
-
     Je t'écris quelques mots à la hâte pour te donner ma nou-
 velle adresse que voici : M. Duchesne, Black Horse Hotel,
 
@@ -752,13 +634,9 @@ vement, de vol ou de complicité de vol. Nous allons voir si
 ces drôles répondront — car je me fous de faire un ou
 deux ou trois mois de travaux forcés pour diffamation,
 
-[leaf 0293] p.66
-
 mais je les traînerai en plein soleil, et je les démasquerai
 en public cette fois.
     Mes amitiés à ta femme, — à toi, poignée de main — et à
-
-    Mon cher Vuillaume,
 
     J'ai attendu de tes nouvelles ces jours-ci, mais n'en
 voyant pas venir, je me décide à écrire... Je suis absolu-
@@ -786,8 +664,6 @@ Depuis la Commune, je suis absolument sans nouvelles de
 ma famille ; je ne sais ni qui vit, ni qui meurt ; j'ai écrit
 deux fois à Lille, à l'honorable Mazure, ex-chef du cabinet
 de Gambetta, rédacteur en chef du *Progrès du Nord,* et
-
-[leaf 0294] p.67
 
 avec lequel j'étais en bons rapports avant la guerre ; je lui
 ai demandé de me fournir ces renseignements d'état-civil :
@@ -821,8 +697,6 @@ bon souvenir de ta femme.
 fait un grand plaisir parce qu'elle me donne l'espérance de
 pouvoir bientôt quitter ce pays. Il est possible que je dise
 adieu à l'Angleterre, samedi en huit. Quoi que tu en dises,
-
-[leaf 0295] p.68
 
 je crois le séjour de la Belgique possible, à la condition
 qu'on n'y fasse pas parler de soi, et qu'on n'ait pas l'im-
@@ -862,8 +736,6 @@ veut me retirer d'ici, — si on n'avait rien à me faire faire
 
 (1) Albert Regnard (Dr), secrétaire général de la Préfecture de
 
-[leaf 0296] p.69
-
 ou à tirer de moi, on me laisserait bien tranquille. Je n'ai
 plus beaucoup d'illusions, et j'apprends tous les jours à
 connaître le monde — ce qui n'est pas précisément amusant.
@@ -894,10 +766,6 @@ je m'en vais tourner prochainement le dos à l'Angleterre.
 Cela vaut mieux. Sauf choses très importantes, je ne t'écrirai
 sans doute plus avant d'être arrivé là-bas !
     Adieu, vieux, mes meilleures amitiés à ta femme et à toi.
-
-[leaf 0297] p.70
-
-    Mon cher Vuillaume,
 
     Comme tu vois, par cet en-tête, me voilà installé ici. Pour
 combien de temps? Cela dépendra de la police belge qui
@@ -930,8 +798,6 @@ Caria, Clavier et le beau-père. C'est tout. Tu vois que je
 pourrai être tranquille, si on ne vient pas me tracasser
 d'un autre côté. C'est le moment de pratiquer des coupes
 
-[leaf 0298] p.71
-
 sombres dans sa pensée, et d'en faire un joli feu de joie,
 histoire de se faire de la braise : je vais abattre des volumes
 de romans à tour de bras.
@@ -953,8 +819,6 @@ flâner, à boire des chopes de faro, à manger des plats de
 moules : passe-temps bruxellois !... O poésie !... Je l'ai mis
 en garde contre la clique.
 
-    Mon cher Vuillaume,
-
     J'ai reçu hier soir ta lettre, et je t'en remercie fort. Elle
 ne pouvait venir plus à propos, car ce matin nous aurions
 été obligés d'aller voir la femme vénérable que nous déco-
@@ -964,8 +828,6 @@ n'était guère lourd.
 demain, pour te donner des nouvelles, au sujet d'une visite
 que je viens de recevoir, il y a une heure. J'avais été faire
 ma déclaration le lendemain de mon arrivée ici, et j'avais
-
-[leaf 0299] p.72
 
 été fort bien reçu. Treize jours se sont passés très tranquille-
 ment. Aujourd'hui, comme je viens de te le dire, j'ai reçu
@@ -981,8 +843,6 @@ cela m'embêterait singulièrement de m'en aller d'ici. Je te
 tiendrai au courant de cela.
     Je te serre les mains cordialement et fais mes amitiés à
 ta femme et aux tiens.
-
-    Mon cher Vuillaume,
 
     Je ne t'ai point écrit avant-hier parce que le même soir
 du jour où je t'ai écrit ma dernière lettre, l'agent est revenu
@@ -1003,8 +863,6 @@ que pour en transmettre les réponses aux autorités fran-
 où j'écrivais. Les femmes sont toujours ainsi. Mais je ne
 m'inquiète pas pour si peu. Je retournai chez mon commis-
 saire, et je le sondai à cet égard : je lui dis même que si
-
-[leaf 0300] p.73
 
 cette note devait être transmise à la France, je préférais
 quitter la Belgique, et je vis à la note fût considérée comme
@@ -1046,8 +904,6 @@ affaire serait en pleine bonne voie. Je crois qu'il va se
 mettre éditeur, et s'il y réussit, j'attraperais bien quelque
 chose de ce côté. C'est charmant à faire le roman ;
 
-[leaf 0301] p.74
-
 ça ne donne guère de peine ; ça se fabrique partout, et ça
 se vend tout aussi cher qu'autre chose. De plus, comme ça
 va vite, on a du temps de reste pour faire autre chose, —
@@ -1087,15 +943,11 @@ reprises le duc d'Aumale « jeune soldat », qui m'ont fait un
 sensible plaisir. Qu'importe d'où vienne la flèche, pourvu
 qu'elle tue! As-tu lu cela?... Si non, dis-le-moi, je te l'en-
 
-[leaf 0302] p.75
-
     Rien de bien nouveau pour le moment. Tout le monde ici
 va à peu près bien. Je pense qu'il en est de même chez toi.
 Vous avez là-bas l'air des montagnes qui tue les faibles,
 mais qui rend centenaires les forts.
     Mes amitiés à ta femme, et à toi ma meilleure poignée de
-
-    Mon cher Vuillaume,
 
     J'ai été lent à te répondre, c'est vrai, mais il est survenu
 des événements qui m'ont suffisamment préoccupé. Il y a
@@ -1121,8 +973,6 @@ nerai complètement que dimanche en partant d'ici, si
 samedi je n'ai pas une réponse, ou du moins des prévisions
 favorables de mon échevin qui est un charmant homme,
 quoi qu'il n'eût point fait le *Père Duchêne* par ferveur
-
-[leaf 0303] p.76
 
 révolutionnaire. Bref, voilà la situation ; tu vois qu'elle n'est
 pas d'une gaîté folle, et que j'ai une dose d'ennuis suffisante
@@ -1164,8 +1014,6 @@ satisfaisantes des démarches de mes hommes, soit pour te
 communiquer ma nouvelle adresse.
     Je te serre les mains bien cordialement ainsi qu'à ta
 
-[leaf 0304] p.77
-
 femme, à qui ma femme me prie de faire ses meilleurs
 
     *P.-S.* — Inutile de parler de mon expulsion, tu sais.
@@ -1198,8 +1046,6 @@ une masse de travaux sérieux, importants, qui auront une
 réelle valeur littéraire, que je te montrerai, et qui, faute de
 calme, depuis des années restent en chantier. C'est la
 
-[leaf 0305] p.78
-
 charrue, laissée au milieu du sillon, des *Géorgiques.*
 L'époque du labour est bonne, pourtant !
     Adieu, vieux. Merci mille fois de ta bonne lettre. Nous
@@ -1219,12 +1065,6 @@ disputes firent rage autour de lui. Il repartit pour
 Londres. Le 9 octobre 1878, il était terrassé par la
 
 (1) Voir Cahier IV, page 135, et Cahier VII, page 131.
-
-[leaf 0306] (section title, p.79)
-
-[leaf 0307] (blank verso, show-through of MEMBRES DE LA COMMUNE)
-
-[leaf 0308] p.81
 
     Novembre 1913. Charles Gérardin. L'ami de Rossel.
 Avec Ranvier, Félix Pyat, Léo Melliet, Antoine Arnaud,
@@ -1248,8 +1088,6 @@ ment la vie du paysan d'Erckmann-Chatrian. »
     Quelques jours après, je grimpais, avec Gérardin, le
 rude chemin de la Butte Montpoix, qui domine le
 village de Bellot. Tout au sommet, à l'entrée du bois, un
-
-[leaf 0309] p.82
 
                 *membres de la Commune*
 
@@ -1287,8 +1125,6 @@ sainte et robuste haine du Germain féodal...
 (2) Nous étions au lendemain des incidents de Saverne, où le
 lieutenant von Forstner avait traité de *wackes* (vagabonds) les
 
-[leaf 0310] p.83
-
 on lui offre, après le 31 Octobre, le commandement
 du bataillon. Il refuse. Il s'engage dans les Éclaireurs
 de la Seine, dont le champ d'opérations est entre
@@ -1322,8 +1158,6 @@ né à quinze ans de prison. Élu membre de la Commune
 Sûreté générale. Réfugié à Londres, il commit l'imprudence de se
 rendre à Paris, où il fut arrêté. Condamné aux travaux forcés, il
 rentra à l'amnistie.
-
-[leaf 0311] p.84
 
                 *membres de la Commune*
 
@@ -1364,8 +1198,6 @@ V. d'Esbœufs (colonel Vergés) écrit (page 84) : « Le citoyen Rossel
 distingué, connu de la plupart des membres du conseil (de légion),
 et remarqué par ses nombreux discours dans les clubs politi-
 
-[leaf 0312] p.85
-
                 *Dombrovski et Wroblevski*
 
     Dès que je fus nommé membre de la Commune, —
@@ -1399,8 +1231,6 @@ venir voir.
     Wroblevski jouissait, parmi ses compatriotes, combat-
 tants de l'insurrection polonaise de 1863, d'un prestige
 militaire mérité. D'une bravoure à toute épreuve, on racon-
-
-[leaf 0313] p.86
 
                 *membres de la Commune*
 
@@ -1442,8 +1272,6 @@ Comité, élu le 1ᵉʳ mai.
 dans sa séance du 28 avril, nous eûmes, Rossel, Dombrovski,
 Wroblevski et moi, une réunion rue des Dames, aux Bati-
 
-[leaf 0314] p.87
-
 gnolles. Dombrovski y prit le premier la parole. Il repré-
 senta la situation militaire telle qu'elle était, c'est-à-dire
 très compromise. Avec la coexistence de la Commune et du
@@ -1467,7 +1295,6 @@ nous n'étions assurés que de 6.000 combattants, il fut
 convenu de renvoyer l'action après la nomination du Comité
 de Salut public.
 
-    Vous savez, —
                             que, sur cinq membres
 du Comité à élire, je fus le seul désigné de ceux sur lesquels
 nous pouvions compter. Je continuai donc à faire ce que
@@ -1483,8 +1310,6 @@ Deux jours avant l'arrestation de Rossel, le 8 mai, j'arrivai
 au Ministère de la Guerre juste au moment où Dombrovski
 venait s'enquérir par lui-même de la situation. L'entre-
 
-[leaf 0315] p.88
-
                 *membres de la Commune*
 
 tien entre Rossel et Dombrovski débuta assez froidement.
@@ -1493,8 +1318,6 @@ Bergeret et Eudes seraient chargés de l'organisation d'un
 certain nombre de régiments, qui seraient casernés et
 tenus à la disposition de Dombrovski. Mais les événements
 devaient bientôt se précipiter. Le lendemain 9, Rossel
-
-                            *L'évasion*
 
     Le 10 mai, la Commune, après avoir voté, la veille, l'arres-
 tation de Rossel, décide qu'il sera livré à la Cour martiale,
@@ -1524,8 +1347,6 @@ du boulevard Saint-Germain.
 que 23 mai, fut porté Dombrovski, mortellement blessé rue
 Myrrha. Voir Cahier IX, pages 115 et suivantes.
 
-[leaf 0316] p.89
-
     Nous eûmes bientôt des nouvelles l'un de l'autre. Deles-
 cluze, qui nous avait conservé à tous deux ses sympathies,
 nous envoyait fréquemment un jeune ingénieur, Charles
@@ -1543,10 +1364,6 @@ Versaillais étaient dans Paris. Dombrovski devait tomber,
 le 23 mai, à la barricade de la rue Myrrha. Le 28 novembre
 1871, Rossel était fusillé à Satory. Depuis notre évasion de
 l'Hôtel de Ville, je ne l'avais pas revu.
-
-[leaf 0317] (blank verso, show-through of preceding text)
-
-[leaf 0318] p.91
 
     Juin 1913. Une lettre de Lonclas. Je n'ai pas ren-
 contré Lonclas depuis des siècles. Depuis 1875, où il
@@ -1566,8 +1383,6 @@ moi, quand il me tend la main, la moustache blanchie,
 
 (1) Voir Cahier IV, page 140.
 
-[leaf 0319] p.92
-
                 *membres de la Commune*
 
 Furka, il y a juste trente-huit ans. De toute la bande
@@ -1578,12 +1393,10 @@ autres, morts aussi, disparus, vieux, terrés dans
     — Au fait, — dis-je au vieux camarade, — comment
 as-tu été nommé à la Commune ? Quel coup d'éclat t'a
 valu ce suprême honneur ?
-    — Je t'enverrai cela.
 
                 *Chef de la 12ᵉ légion*
 
     Quand éclata le 18 Mars, —
-taine de la 1ʳᵉ compagnie de marche du 73ᵉ bataillon de la
 garde nationale du douzième arrondissement, quartiers
 des Quinze-Vingts et de Bercy.
     Aussitôt que la nouvelle de la victoire de Montmartre
@@ -1600,13 +1413,10 @@ ancien capitaine, de le remplacer.
     J'accepte. Je fais battre l'assemblée. On fait l'appel. On
 forme le cercle. Je prononce une petite allocution.
 
-[leaf 0320] p.93
-
     Je venais à peine de remercier les officiers du 73ᵉ de leur
 marque de confiance, dont j'étais très fier, qu'un délégué
 du Comité Central, accompagné de Géresme, — qui devait
 être nommé à la Commune aux élections du 26 mars, — se
-    — Le capitaine Lonclas ?
     — C'est moi, citoyen.
     — Eh bien ! je vous annonce, au nom du Comité Central,
 que vous êtes nommé chef de la 12ᵉ légion. Je vous invite à
@@ -1634,8 +1444,6 @@ montrer le récit suivant.
 73ᵉ, employé au P.-L.-M., que de nombreux canons en
 bronze, ainsi que leurs affûts, avaient été soigneusement
 emballés dans des caisses, et qu'ils allaient être pro-
-
-[leaf 0321] p.94
 
                 *membres de la Commune*
 
@@ -1674,22 +1482,12 @@ taine, qui n'avez aucun mandat du gouvernement.
     — C'est bien, monsieur, répondis-je. Le mandat que vous
 désirez, je me le donne à moi-même, et voici ceux qui vont
 
-[leaf 0322] (photograph plate caption page)
-
 de la Commune (élu par le douzième
 
     Lonclas porte sur cette photographie,
 (inédite), le costume de colonel, chef
 de la 12ᵉ légion, nommé le 28 février
 1871, par le Comité Central.
-
-[leaf 0323] (blank verso, pencil "96" bottom)
-
-[leaf 0324] (photographic plate II — Alphonse Lonclas seated in colonel's uniform; pencil "96 a" upper right)
-
-[leaf 0325] (blank tissue/plate verso)
-
-[leaf 0326] p.97
 
 le mettre à exécution sur-le-champ, puisque vous refusez
 d'obtempérer à ma légitime demande.
@@ -1730,7 +1528,6 @@ du douzième arrondissement prennent les armes. Le 73ᵉ a formé
 les faisceaux avenue Daumesnil. Ces gardes nationaux prétendent
 avoir trouvé à la gare de Lyon trente et un canons cachés... »
 
-[leaf 0327] [p. 98]
 *membres de la Commune*
 
 Quelques jours après, sur son ordre, les canons étaient transportés au parc de la rue Basfroy, siège du Comité.
@@ -1742,13 +1539,10 @@ Au mois d'avril, ils furent descendus sur la place de l'Hôtel-de-Ville.
 C'est à eux que je dois d'avoir été, en une demi-heure, commandant, puis colonel chef de légion.
 C'est à eux aussi, — car ils m'avaient rendu populaire dans mon arrondissement, — que je dois d'avoir été, aux élections complémentaires du 16 avril, — élu à la Commune par les électeurs révolutionnaires et patriotes du douzième.
 
-[leaf 0328] [p. 99]
-
 L'un des membres les plus obscurs et les plus modérés de la Commune. (1) Élu par le quinzième arrondissement. Signataire du manifeste des Vingt-Deux de la minorité. Très brave homme, d'une honnêteté scrupuleuse, il confie à son patron — Clément était ouvrier teinturier — dès l'entrée des troupes, les 10.600 francs qui restent en caisse à la mairie. A la Commune, il parle peu. Dans son quartier, il est aimé de tous. C'est un conciliateur. Ce fort Jurassien, trapu, large d'épaules, de taille élevée, est un doux. Il fait payer le traitement des frères de la Doctrine chrétienne. Il protège les religieuses. Son défenseur, Mᵉ Gatineau, rappelle, dans sa plaidoirie devant le conseil de guerre, que son client a sauvé un prêtre, l'abbé Minot, au péril de sa vie.
 
 (1) Il y avait, à la Commune, trois élus du nom de Clément. — J.-B. Clément, élu par le dix-huitième arrondissement (Montmartre). — Émile Clément, élu par le dix-septième arrondissement (Batignolles). Cet Émile Clément fut arrêté par ses collègues, quelques jours avant l'entrée des troupes et incarcéré. On avait reconnu, à l'examen de son dossier, qu'il avait offert ses services à la Police de l'Empire. — Victor Clément, élu par le quinzième arrondissement (Grenelle), celui dont nous nous occupons ici.
 
-[leaf 0329] [p. 100]
 *membres de la Commune*
 
 Victor Clément déclare qu'il a combattu le décret des otages et la formation d'une cour martiale. La pièce suivante est toute entière de la main de Victor Clément. Elle doit avoir été rédigée par lui au cours de sa détention à Versailles, et remise à Mᵉ Gatineau, pour les besoins de sa défense.
@@ -1760,13 +1554,10 @@ Comme valeur intellectuelle, à part Delescluse, instruit, intelligent, mais sec
 
 (1) Nous avons scrupuleusement suivi, même dans ses erreurs orthographiques (Delescluse pour Delescluze, Grouchet pour Grousset), le manuscrit de Victor Clément.
 
-[leaf 0330] [p. 101]
-
 A part ces trois personnalités, les autres membres composant la majorité étaient de l'ignorance et de l'incapacité la plus absolue, mais en revanche d'une violence de tempérament sans bornes, nerveux jusqu'à l'épilepsie, rugissant au moindre mot de conciliation, de modération ou de transaction, qualifiant immédiatement de traître et de réactionnaire les membres de la minorité qui se permettaient de blâmer les actes de la préfecture de police, arrivés enfin à ne voir le salut que dans ces deux moyens : arrêter et emprisonner tout ce qui paraissait hostile, et contraindre à se battre la garde nationale, et fusiller tout garde récalcitrant, et d'une confiance absolue dans la valeur de ces moyens.
 Il est à remarquer que cette majorité si violente, n'a jamais eu le courage de se soustraire à l'influence occulte du Comité central et à ses prétentions parfaitement accusées de diriger malgré la Commune et selon ses vues le mouvement du 18 Mars. Les prétentions du Comité central se firent jour très peu de temps après la réunion de la Commune, cette tactique et ces empiétements n'échappèrent pas à la minorité, qui par l'organe de Lefrançais et de Jourde insistèrent énergiquement pour que cette influence occulte fût brisée. Mais alors le Comité central temporisait, il envoyait son délégué Arnold donner des explications, alors on exposait à la Commune qu'il y avait malentendu, que la Commune se méprenait sur le sens des démarches et prétentions du Comité central, qu'il était incapable de rien faire contre elle, bien au contraire il était prêt à s'incliner en toute occasion devant sa souveraineté. Déclarations hypocrites auxquelles l'un de ses membres, le cuisinier Lacord jetant le masque, donnait un formel démenti en déclarant quelques jours plus tard en pleine séance que le Comité central entendait traiter de puissance à puissance. La majorité laissa dire et Lacord ne fut pas arrêté.
 Le Comité central comme corps politique avait conservé l'habitude de se mettre en communication avec le public par la voie d'affiches sur papier blanc, ce qui donnait à ses communications un caractère officiel. Pour enlever ce caractère aux affiches du Comité central, la Commune
 
-[leaf 0331] [p. 102]
 *membres de la Commune*
 
 rendit un décret déclarant que les communications officielles seules seraient affichées sur papier blanc, le Comité n'en tint aucun compte et continua et la Commune ne fit jamais respecter son décret.
@@ -1776,15 +1567,12 @@ La minorité voulait sincèrement le triomphe de l'autonomie communale, mais ses
 
 (1) Les mots « suivre son exemple » sont rayés sur le manuscrit de Victor Clément.
 
-[leaf 0332] [p. 103]
-
 Une semblable agression ne reposait sur aucun motif légitime et compromettait avec la Commune le principe fédératif. Mais il a été démontré plus tard que la majorité jacobine n'entendait pas du tout restreindre son action à Paris, qu'elle voulait le pouvoir fort, très fort, imposant à la France son programme et le faisant prévaloir par tous les moyens que la centralisation mettait à sa disposition.
 La majorité a blâmé énergiquement la tentative sur Versailles, mais non point comme contraire à ses principes et à sa manière de voir, non pas comme illégale ou injuste, mais comme ayant été mal conçue, mal dirigée, en un mot à cause de sa non réussite. Dès ce jour, les tendances autoritaires et dictatoriales de la majorité ne se dissimulèrent plus. Vinrent immédiatement après, une recrudescence d'arrestations, la loi sur les otages, et enfin tous les actes arbitraires combattus par la minorité et qui devaient aboutir à la scission. Je dois dire à l'honneur de Lefrançais qu'il a combattu la loi sur les otages avec chaleur, éloquence, beaucoup de logique et de bon sens politique, mais la majorité incapable d'écouter dix minutes un orateur qui n'abondait pas dans son sens.
 Minorité 20 à 25 membres, presque tous socialistes, parmi lesquels une quinzaine communistes très modérés et très pacifiques, puis 4 à 5 socialistes mutualistes de l'école de Proudhon et 3 ou 4 néo-socialistes, parmi lesquels il faut compter Jourde. La minorité avait franchement arboré le drapeau communal et voulait faire triompher ce principe par des mesures de large tolérance politique et quelques réformes économiques que la lutte armée les a empêchés de produire, attendu que la production industrielle et les transactions commerciales en dehors des sommes faites par la Commune étaient complètement suspendues, et puis elles ne pouvaient être réalisables qu'après la victoire.
 En résumé, la Commune presque tout entière était essentiellement gouvernementaliste et très éloignée du programme anonyme sorti du sein des masses le 18 Mars (Paris libre).
 Cela ne surprend pas celui qui connaît la valeur politique du *suffrage universel*.
 
-[leaf 0333] [p. 104]
 *membres de la Commune*
 
 Le hasard qui a fait tomber cette pièce dans les mains de M. Henri Saffrey, qui a bien voulu me la communiquer, apportait en même temps à ce dernier un autre document, un certificat délivré à Victor Clément par le curé d'Arbois (Jura), dont le membre de la Commune du quinzième arrondissement était originaire.
@@ -1792,22 +1580,14 @@ Le hasard qui a fait tomber cette pièce dans les mains de M. Henri Saffrey, qui
 Je soussigné, prêtre, aumônier des Filles de Marie d'Arbois (Jura), certifie que pendant tout le temps qu'il a habité Arbois, c'est-à-dire pendant l'espace de près de trois ans, Monsieur Victor Clément a toujours eu la conduite d'un honnête homme et d'un bon père de famille, qu'il a même rempli ses devoirs de catholique, que pendant le même temps, aucune parole de blâme ne m'est revenue sur son compte, et que ses compatriotes ont toujours regretté, à cause de ses qualités personnelles, la part plus ou moins sérieuse qu'il a pu prendre à des principes peu conformes à ses habitudes plutôt généreuses que révolutionnaires. En foi de quoi je délivre la présente attestation pour lui servir dans les circonstances pénibles où il se trouve.
 
       Arbois, le 23 juillet 1871.
-                                                L'abbé FUANT,
                                 Aumônier des Filles de Marie d'Arbois.
 
 L'honnête ouvrier teinturier — que son tempérament modéré ne désignait guère, il faut le reconnaître, à la fonction révolutionnaire dont l'avaient investi les électeurs de Grenelle — ne fut condamné qu'à six mois de prison. Il ne fit plus parler de lui depuis.
-
-[leaf 0334] [p. 105]
-
-[leaf 0335] [blank verso]
-
-[leaf 0336] [p. 107]
 
 Dimanche 2 avril. Un ciel splendide. Toute la matinée, le rappel a battu. Depuis la veille, on sait que la marche sur Versailles est décidée. Duval s'est mis d'accord avec Bergeret et Eudes. La Commission exécutive a cédé aux objurgations des nouveaux généraux, qui ont plaidé vigoureusement devant elle l'attaque immédiate. D'abord fixée au 1ᵉʳ avril, la date a été reportée au lendemain 2. L'intendance a reçu l'ordre d'envoyer des vivres et des munitions. Elle s'acquittera du reste fort mal de cette mission.
 Duval dispose de toutes les forces des treizième, quatorzième et quinzième arrondissements. Depuis longtemps déjà, il a pris ses dispositions en conséquence. Dès le 16 mars, — deux jours avant la tentative de reprise des canons, — il a provoqué une réunion des délégués de bataillons du quatorzième, rue de la Maison-Dieu, salle Paysant. Il s'y est rendu, accompagné du citoyen Beaufils, son secrétaire. Il a pris la parole, expliqué comment il comprenait, le cas échéant, la résistance.
 Le 18 mars, le 136ᵉ bataillon, commandant Ledrux,
 
-[leaf 0337] [p. 108]
 *dans la bataille*
 
 descend, avec Duval et les bataillons du treizième, vers la Préfecture de police, qui est occupée. A six heures et demie du soir, toute la rive gauche, jusqu'à la Cour des Comptes, est au pouvoir de Duval. A peine installé comme délégué à l'ex-Préfecture de police, Duval songe à la marche sur Versailles.
@@ -1819,10 +1599,7 @@ Nous avons demandé au citoyen Louis Ledrux, qui fut membre du conseil de la 14�
             nous dit le citoyen Ledrux, —
                                               la plus rapprochée du plateau de Châtillon, où rendez-vous avait été pris, avait déjà rejoint son poste dans la soirée du dimanche 2 avril.
 
-[leaf 0338] [p. 109]
-
 Quand Duval y arriva, vers cinq heures, avec Chardon, (1) il y trouva les *Volontaires de Montrouge*, qui, sur l'initiative du citoyen Lachapelle, avaient pris la garde à l'arrière du plateau. Les 103ᵉ et 136ᵉ étaient également installés.
-Successivement, arrivent les 104ᵉ, 146ᵉ, 217ᵉ, du quatorzième arrondissement ; le 102ᵉ et le 133ᵉ, du treizième.
 Enfin, le quinzième fournit aussi son contingent. Le 131ᵉ arrive dans la soirée, suivi, au cours de la nuit et de la matinée du lundi 3, par les 137ᵉ et 165ᵉ.
 Vers neuf heures du matin, les membres de la 14ᵉ légion, Lucien Henry, (2) Sebourgue, Roquejoffre, rejoignent Duval. En même temps qu'eux, Schneider, des *Volontaires de Montrouge*, Henri Menet, officier de chasseurs à pied rallié à la Commune le 18 mars. Pendant toute la durée de l'action, Menet se tint près de Duval.
 Ni vivres, ni munitions. L'intendance n'avait rien envoyé. A la formation de la colonne d'attaque, vers midi, aucune disposition spéciale n'avait été prise. Toute la nuit s'était passée autour des feux de bivouac, les *Volontaires* faisant bonne garde sur les lisières du camp.
@@ -1833,7 +1610,6 @@ Dès l'aube, Duval se rend sur le front de bandière, accompagné de ses officie
 (1) J.-B. Chardon, membre de la Commune, nommé, comme Duval, par le treizième arrondissement. Colonel commandant la Préfecture de police. Voir Cahier IV, page 99 et suivantes.
 (2) Lucien Henry devait être fait prisonnier, en même temps que Duval.
 
-[leaf 0339] [p. 110]
 *dans la bataille*
 
 aux six galons et aux étoiles de général. Par-dessus son uniforme, il a revêtu une capote d'artilleur, sans galons.
@@ -1851,8 +1627,6 @@ La colonne arrive sans encombre à la redoute du Petit-Bicêtre, où quelques co
 D'accord avec le commandant du 136ᵉ, le commandant du 103ᵉ, Lecœur, détache deux compagnies et garde les deux autres en réserve.
 Entre la redoute du Petit-Bicêtre et les Quatre-Chemins, Duval, Lucien Henry, Schneider, Maugé, Henri Menet,
 
-[leaf 0340] [p. 111]
-
 rejoignent la colonne. Lucien Henry conduit une pièce de 7. Maugé, une mitrailleuse. Henri Menet est à cheval ; par trois fois, il galopera vers le plateau pour hâter l'envoi d'artillerie, de munitions et de vivres. Arrivent successivement Leprince, Badinier, de la 14ᵉ légion, avec un caisson de projectiles pour la pièce de 7.
 Il est environ midi et demie quand nous atteignons les Quatre-Chemins. C'est là que la route « impériale » n° 186, reliant Sceaux à Versailles, coupe la route n° 54 allant de Châtillon à Bièvres, en traversant le Plessis-Piquet et Petit-Bicêtre. Au même point, un chemin, situé à environ 150 mètres de Villacoublay, se dirige vers les bois de Meudon-Chaville, au lieu dit Porte de Verrières.
 Duval donne l'ordre de faire reposer la colonne.
@@ -1866,7 +1640,6 @@ A peine les troupes ont-elles remis sac au dos, qu'une vive fusillade éclate, d
 La pièce de 7 et la mitrailleuse sont rapidement mises en batterie, au coin de la ferme, sur la route, à droite.
 Le 136ᵉ traverse au pas gymnastique les baraquements et les maisons, et se met en contact avec l'ennemi, qui n'est pas à plus de 200 mètres.
 
-[leaf 0341] [p. 112]
 *dans la bataille*
 
 Le 131ᵉ rejoint rapidement la ligne de bataille, et se place devant les tirailleurs du 103ᵉ, qui, de ce fait, passent en deuxième ligne.
@@ -1880,8 +1653,6 @@ Tout à coup, la sonnerie : *En retraite !* se fit entendre.
 Le 136ᵉ et les *Volontaires*, qui étaient très menacés, maintinrent cependant l'ennemi assez longtemps pour permettre aux bataillons de regagner la redoute du Petit-Bicêtre, sans être poursuivis.
 J'ignorais par qui avait été donné l'ordre de sonner la retraite. Je rejoignis bientôt Duval, au passage d'un petit chemin creux. Triste et muet, il regardait s'éloigner devant
 
-[leaf 0342] [p. 113]
-
 lui, sur la pente qui mène au Petit-Bicêtre, les bataillons en désordre.
 La retraite s'effectua sans autre péril, couverte par les bataillons d'avant-garde et par la mitrailleuse de Maugé, qui épuisa toute sa provision de projectiles.
 Vers quatre heures, les troupes arrivaient au plateau. Une désagréable surprise les y attendait. La 14ᵉ légion, qui avait suppléé tant bien que mal à l'inertie de l'intendance, avait bien envoyé un convoi de vivres. Mais les bataillons restés à l'arrière s'étaient empressés, pendant que les autres se battaient, de les accaparer.
@@ -1894,18 +1665,14 @@ Maugé installe la mitrailleuse au milieu de la route, entre le plateau et le Pe
 A six heures et demie, le Petit-Bicêtre était de nouveau à nous. On se compta. Deux cents à peine. Pour les commander, le commandant du 136ᵉ, et un capitaine du 131ᵉ.
 Les gardes voulaient conserver la position et y passer la nuit, comptant, en faisant prévenir Duval, recevoir des renforts. Le commandant du 136ᵉ les en dissuada, redoutant avec raison une nouvelle déception. Accompagné de deux typographes de son bataillon, les citoyens Husson et Garnier, il regagna le plateau, pour rallier son bataillon.
 
-[leaf 0343] [p. 114]
 *dans la bataille*
 
 La nuit était venue. Le plateau était presque désert. Ceux qui restaient s'étaient groupés autour de la maison occupée par Duval et son état-major.
 Là étaient réunis : Chardon, Schneider, Henri Menet, Lucien Henry ; Lebourgue, Collier, de la 14ᵉ légion ; Lecœur, Mézirard, Ledrux, chefs des 103ᵉ, 104ᵉ et 136ᵉ. Pas un membre du Comité Central n'était là. Duval, assis près d'une table, semblait désemparé. A peine répondait-il aux quelques questions qui lui étaient posées, en vue des mesures à prendre pour la nuit. Il ne s'était pas reposé depuis quarante-huit heures. Il paraissait exténué. Il refusa de quitter le plateau pour se mettre à l'abri sous le feu des forts. Il avait certainement déjà pris la résolution de ne pas rentrer vivant à Paris.
 Duval ne pouvait plus avoir le moindre espoir de sortir vainqueur de la lutte qu'il avait entamée. Il ne pouvait même plus se défendre. Dès leur retour au plateau, les bataillons qui avaient tenu tête aux Versaillais à Villacoublay, exténués, n'ayant rien pris depuis la veille, s'étaient hâtés, pour se ravitailler, vers Paris. Cette rentrée en masse avait encore été précipitée par l'arrivée sur le plateau d'une longue troupe de femmes et d'enfants qui, aux premiers coups de canon, sentant que la bataille grondait pour de bon, étaient accourus aux nouvelles, franchissant, sans qu'il leur fût opposé d'obstacle, les portes de Montrouge, Vanves et Châtillon.
-Ainsi se termina, —
                   nous dit, en finissant son récit, l'ancien commandant du 136ᵉ, —
                                                                                 cette journée du 3 avril.
 Le lendemain, à l'aube, Duval était cerné, avec la poignée de défenseurs restés autour de lui, par les troupes du général Pellé. Le 136ᵉ, qui avait quitté le plateau pour se ravitailler, était, au même moment, réuni place de la Mairie du quatorzième, prêt à repartir. Muni d'un laissez-passer de Duval, j'avais rejoint dans la nuit mon bataillon, avec mission de le reconduire au plateau. La nouvelle de la défaite étant parvenue, je restai à la disposition de la
-
-[leaf 0344] [p. 115]
 
 14ᵉ légion, qui me chargea de conduire un convoi de munitions au fort de Vanves. Le lendemain, je prenais le commandement du fort, que je gardai jusqu'au 2 mai.
 
@@ -1918,7 +1685,6 @@ Vinoy fait un signe.
 Le général vaincu sort des rangs, enjambe un petit fossé, et va se placer, tout droit, face au peloton déjà formé. Il est fusillé, avec deux de ses officiers.
 — Les noms de ces deux braves, — me dit Ledrux, — n'ont jamais, que je sache, été publiés. Lecœur et Maugé. Lecœur, chef du 103ᵉ bataillon (quatorzième arrondissement). Maugé, de la 14ᵉ légion. Lecœur et Maugé n'avaient pas été désignés pour le peloton. C'est en voyant Duval sortir des rangs et aller résolument vers la mort, qu'ils prirent la résolution de le suivre et de mourir à ses côtés. Mézirard, qui était parmi les prisonniers, m'a, depuis, confirmé le fait. Il avait, près de lui, Lucien Henry, qui dut d'être sain et sauf à la précaution qu'il avait prise d'arracher ses galons. Duval, à son témoignage, tomba, sans proférer une parole. Celles que divers écrivains lui ont attribuées, en réponse aux apostrophes de Vinoy, Mézirard ne les a pas entendues. Il n'a vu que le geste de Vinoy. Le geste qui désignait à Duval la place où le peloton vint le rejoindre.
 
-[leaf 0345] [p. 116]
 *dans la bataille*
 
 *Conversation avec Rigault*
@@ -1941,8 +1707,6 @@ Trois heures après m'avoir fait ce poignant récit, Raoul Rigault tombait, le c
 
 (1) Sur la mort de Rigault, voir Cahier IV, pages 21 et suivantes.
 
-[leaf 0346] [p. 117]
-
 Aux Archives de la Seine. Il y a là de nombreux cartons, pleins de pièces de 1871, retrouvées dans les mairies. (1) Ordres, bons de réquisitions signés pendant la bataille, lettres, documents de tous ordres. Quelques-uns fort intéressants. Certains, maculés, piétinés, ramassés on ne sait où, sous les tables, derrière les pavés peut-être. Involontairement, en maniant ces vieux papiers, mes mains tremblent. Ce bon de réquisition, signé du chef de la barricade de la rue Saint-Maur, aux tout derniers jours de la lutte suprême, n'est-ce pas du sang qui a laissé sa tache noirâtre...
 
 *A la mairie du onzième*
@@ -1951,12 +1715,9 @@ Voici une curieuse communication datée du 23 mai, le mardi de la Semaine. La Co
 
 (1) Ces cartons m'ont été signalés par M. Lucien Lazard, l'aimable et érudit archiviste. Je l'en remercie ici bien cordialement.
 
-[leaf 0347] [p. 118]
 *dans la bataille*
 
 le gouverneur Pindy, l'assemblée se transportera à la mairie du onzième arrondissement. Et, pourtant, ce mardi déjà, il semble, à la lecture de cette pièce, que le projet de s'installer au onzième était dans la pensée de quelques-uns. La lettre est adressée, sur papier à l'en-tête du Ministère de la Guerre, par le colonel Henry, chef d'état-major au Ministère de la Guerre depuis le 16 mai, à Lefebvre, certainement Lefebvre-Roncier, sous-chef d'état-major, juge suppléant à la Cour martiale.
-
-Mon cher Lefebvre,
 
 Nous sommes à la mairie du 11ᵉ avec le délégué Viard, qui avait été également obligé de se retirer. Je vous en conjure, que le Délégué arrive immédiatement, car il y a urgence, un coup de main sur l'Hôtel de Ville, fort possible, compliquant tout à fait la situation.
                                                 Salut et Fraternité.
@@ -1966,8 +1727,6 @@ Aussitôt le délégué parti, dirigez-nous le personnel et le matériel. Nous a
 Le délégué Viard ne peut être que Viard, membre de la Commune, délégué au Commerce, que l'approche des troupes fait fuir de son Ministère. Le Délégué dont on réclame la présence au onzième, c'est Delescluze.
 
 Voici maintenant, sur des feuilles volantes, des reçus de munitions, des réquisitions, tous datés des derniers jours, timbrés de multiples cachets.
-
-[leaf 0348] [p. 119]
 
 Le reçu suivant est délivré à l'église Ambroise, qui servait d'arsenal. Non loin de là, le lendemain jeudi 25 mai, Delescluze ira chercher la mort.
 
@@ -1984,7 +1743,6 @@ Cette pièce est revêtue de quatre timbres. Un timbre noir : *Le général comm
 
 Un paquet de bons à demi déchirés, étoilés de taches de boue. Bons pour des dîners, à porter aux barricades de la rue du Chemin-Vert et autres, à l'État-Major (dîners à 1 fr. 50), tous datés du jeudi 4 prairial (25 mai).
 
-[leaf 0349] [p. 120]
 *dans la bataille*
 
 Quelques-uns de ces bons, sur papier à en-tête du Ministère de la Guerre, sont revêtus d'un timbre rouge : *La Commission de la Guerre, membres de la Commune*.
@@ -1992,7 +1750,6 @@ Quelques-uns de ces bons, sur papier à en-tête du Ministère de la Guerre, son
 Autre paquet de bons. L'un d'eux, émanant du 192ᵉ bataillon.
 
 Bon pour quarante rations pour la barricade de la rue Saint-Maur, au coin de la rue Saint-Ambroise.
-                                          *Le sergent-major*,
 
 Ce bon porte le timbre de la XIᵉ Légion. En travers, cette mention : *Vu et approuvé, le délégué à la Sûreté générale* : TH. FERRÉ.
 
@@ -2003,11 +1760,8 @@ Bon pour trente litres de vin.
 Un cachet : *Commission de la Guerre*.
 
 Bon pour 1/4 de litre de vin, pour quatre-vingts rations, soit vingt litres, pour le service de la barricade du boulevard Richard-Lenoir et Voltaire.
-                                          *Le capitaine*,
 
 Deux timbres rouges : *Comité de Salut Public* et *Commission des Subsistances*.
-
-[leaf 0350] [p. 121]
 
 Voici maintenant, dans la masse des autres pièces, un ordre, tout entier écrit de la main de Gustave Tridon, membre de la Commune, relatif aux obsèques des fédérés tombés dans les combats des premiers jours d'avril :
 
@@ -2024,7 +1778,6 @@ Mairie de l'Hôtel de Ville
 Le Curé de l'église Saint-Paul ou son remplaçant est prévenu qu'à partir de demain mercredi 17 mai courant, il devra mettre, *chaque soir*, à la disposition du Comité de Vigilance du 4ᵉ arrondissement, l'édifice communal où se fait le service religieux.
 Il pourra disposer de cet édifice, pendant la journée, pour son service religieux ordinaire.
 
-[leaf 0351] [p. 122]
 *dans la bataille*
 
 La pièce suivante ne porte pas de date. C'est un procès-verbal de saisie effectuée à cette même église Saint-Paul :
@@ -2044,12 +1797,9 @@ Le citoyen Oulier, Camille, demeurant avec la dame qui tient le café d'Apollon,
                               *Pour le Comité d'enquête militaire*,
 Cachet : *Fédération Républicaine de la Garde nationale. Conseil de Légion. 3ᵉ arrondissement*.
 
-[leaf 0352] [p. 123]
-
 Rien ne nous renseigne sur ce qui arriva, dans la suite, au citoyen Oulier. Mais la pièce suivante, qui se rapporte à une autre poursuite, nous dit assez le sort qui lui fut réservé :
 
 Ordre de conduire le citoyen Pigeon à la 4ᵉ Légion, pour l'incorporer dans le premier bataillon de marche à partir.
-                                          *Le commissaire civil*,
 Cachet rouge : *Commune de Paris. Hôtel de Ville. Commissaire civil*.
 
 Le citoyen réfractaire fut donc dirigé, avec le 33ᵉ, aux avant-postes.
@@ -2062,11 +1812,9 @@ En trois jours, la Morgue envoie, pendant la bataille des rues, 320 cadavres d'h
 
 L'autre pièce, — la dernière que nous publierons ici, — est l'ordre d'enlever les munitions abandonnées au Père-Lachaise par les artilleurs fédérés.
 
-[leaf 0353] [p. 124]
 *dans la bataille*
 
 Prière à M. le Conservateur du Cimetière de l'Est de remettre au porteur de cette note les 42 obus de 7 qui, d'après l'ordre ministériel du 4 juin 72, doivent être pris par le service de l'artillerie.
-                                Par ordre :
                           *Le capitaine de service*,
 
 Il y a certainement une erreur de date dans cette pièce. Il faut lire 1871. Les obus du Père-Lachaise n'auraient pas attendu une année à la Conservation.
@@ -2076,15 +1824,12 @@ Dans le carton réservé au onzième arrondissement, j'ai rencontré une lettre 
 
 (1) Voir Cahier II, pages 189 et suivantes.
 
-[leaf 0354] [p. 125]
-
 J'ai quitté Humbert, dans l'après-midi du lundi, au *Père Duchêne*, rue du Croissant. Le mercredi, quand le Panthéon allait être attaqué, je l'ai aperçu, sur le pont au Change. C'est à peine si nous avons pu échanger quelques paroles brèves. Je ne l'ai plus revu. Qu'a-t-il fait ? Vers le milieu de juin, encore caché place de l'École-de-Médecine, j'ai lu, dans un journal, qu'il venait d'être arrêté... Huit ans de bagne. Nous ne devions plus nous serrer les mains qu'au retour de Calédonie.
 
 Ce que j'ai fait, —
                                     J'ai suivi, jusqu'au dernier jour, la bataille. La plus terrible journée, celle dont le souvenir ne s'effacera jamais de ma mémoire, fut celle du jeudi, celle qui vit Delescluze marcher à la mort, — celle où je vis, blessé sur le boulevard Voltaire, à Saint-Ambroise, Lisbonne...
 La veille, le mercredi, tard dans la soirée, j'étais monté avec quelques amis, jusqu'au petit belvédère qui surmonte la mairie du onzième. Quel spectacle ! Paris en feu... Les flammes rouges, déchirant le terrifiant voile noir qui
 
-[leaf 0355] [p. 126]
 *dans la bataille*
 
 s'échappait des monuments incendiés... Les Tuileries, la Préfecture de police, l'Hôtel de Ville...
@@ -2099,8 +1844,6 @@ A l'angle gauche du boulevard et de la place, une maison, le long de laquelle co
 
 (1) Voir plus haut, page 82.
 
-[leaf 0356] [p. 127]
-
 éventrée. Au pied de la barricade, au-dessous de nous, dans le crépuscule qui tombe, trois taches noires... trois morts étendus.
 Nous tirons du balcon... Un tir bien inoffensif... Nous avons pris en bas, aux faisceaux, de vieux fusils à tabatière, qui crachent et s'encrassent à chaque coup... Johannard brise de rage son fusil sur le balcon...
 Un bruit de musique. Une valse. Cela vient du fond de l'appartement. C'est notre grand Alsacien. Il a rencontré, en parcourant les pièces, un piano, et le voilà qui martèle à grands coups l'instrument.
@@ -2111,7 +1854,6 @@ A Saint-Ambroise, on nous donne des nouvelles... La mort de Delescluze... Dès q
 C'est Lisbonne qui nous fait ce récit. Lisbonne blessé, couché sous sa grande capote grise, salie de terre et de sang.
 Je ne devais plus revoir Lisbonne qu'aux bagnes calédoniens, où, campé sur ses béquilles — un éclat d'obus lui avait ouvert la cuisse — il narguait la chiourme qui nous gardait...
 
-[leaf 0357] [p. 128]
 *dans la bataille*
 
 Le lendemain, vendredi, j'étais rue Haxo, (1) quand on fusilla les cinquante otages, avec Jourde, Avrial, Lissagaray, Larochette, — nous ne nous étions guère quittés. Mais tu as déjà raconté cela...
@@ -2120,19 +1862,15 @@ Voilà ce que me dit Humbert. Pendant qu'il se battait au boulevard Voltaire, j'
 
 (1) Voir Cahier II, page 205.
 
-[leaf 0358] [p. 129]
-
 Mon vieil ami A. Girault (1) qui fut, en Calédonie, le compagnon de bagne d'Humbert, de Da Costa, Lucipia, Fortin, Giffault, de tant d'autres, presque tous disparus, m'a fait le récit des poignantes péripéties qu'il traversa, après la bataille, jusqu'à son arrestation et à sa condamnation aux travaux forcés à perpétuité par le 3ᵉ conseil de guerre.
 
 *Au Père-Lachaise et à Belleville*
 
-Le samedi 27 mai, —
                   me dit Girault, —
                                     on ne rencontrait plus, dans Belleville, que de très rares officiers fédérés en uniforme. Les plus jaloux de leurs galons avaient endossé la jaquette ou un vêtement quelconque. Je descendis, la soirée déjà commencée, vers le Père-Lachaise, où j'entrai par la petite porte qui donnait sur les jardinets et les bosquets, du côté de la rue des Gâtines. Je me trouvai en
 
 (1) Voir plus loin, en tête des *Notes et Rectifications*, la lettre que m'adresse Girault, à propos des récits du Cahier II (Jecker et rue Haxo). Girault fut député de Paris en 1896.
 
-[leaf 0359] [p. 130]
 *dans la bataille*
 
 face des chasseurs qui avaient envahi le cimetière par la rue des Rondeaux. Quelques fédérés purent s'échapper par cette porte, peu après que je l'eus franchie. Quant à moi, je me vis forcé, pour échapper aux soldats qui tiraillaient, de me diriger vers le bas du cimetière. Je fus bientôt acculé, avec une poignée de combattants, à la terrasse qui surplombe le boulevard Ménilmontant, du côté de la rue des Amandiers. La perspective n'était pas sans péril. Heureusement j'étais jeune et agile. Je sautai sur le boulevard, et je m'enfuis par la rue des Amandiers, dont les barricades étaient absolument désertes. Les hommes à brassards tricolores commençaient à se montrer. J'avais, dans ma fuite, gardé mon fusil armé de sa baïonnette. J'eus la joie de piquer fortement les côtes d'un de ces messieurs qui faisait mine de me barrer la route. Il ne demanda pas son reste.
@@ -2141,11 +1879,7 @@ Il était tard. Tout semblait irrémédiablement perdu. Les Prussiens s'étaient
 
 (1) Clavier, commissaire de police de Picpus-Bel-Air. Liberton, commandant des francs-tireurs du douzième, Mercier, attaché au commissariat. (Voir Cahier II, récits Jecker et rue Haxo). Roussel, arrêté en mai 1870, pour l'affaire des bombes.
 
-[leaf 0360] [p. 131]
-
 ville, aux Buttes-Chaumont, au Père-Lachaise, à la porte de Romainville, où elles ramassaient les prisonniers par centaines. On leur amenait les fuyards arrêtés par les Prussiens.
-
-*L'asile*
 
 Nous songeâmes à chercher un abri. Terrible interrogation : où aller ? Tous quatre, nous étions loin de nos quartiers respectifs. Il fallait tout d'abord nous débarrasser de nos vêtements militaires et de nos insignes. Nous allâmes chez un frère de Liberton, où nous trouvâmes la sœur de ce dernier. Habile couturière, elle enleva rapidement la bande rouge de mon pantalon, qui était prise dans la couture, et se mit en devoir de la recoudre à la machine. Je jetai mon képi, que je remplaçai par une casquette. J'avais eu la bonne idée, après l'affaire du vendredi, rue Haxo, de ramasser, chez Debène, (1) un pardessus d'été qui ne semblait plus avoir de propriétaire. Il compléta mon costume.
 Pendant que nous procédions à ces transformations, les obus continuaient de se croiser au-dessus de la maison. A l'instant même où nous repassions le seuil, une haute cheminée de briques, frappée par un projectile, s'abattit sur le pavé.
@@ -2154,7 +1888,6 @@ Je me dirigeai, désormais en costume civil, vers la mairie de Belleville. Il é
 (1) Debène, le marchand de vins-restaurant de la rue Haxo qui faisait face au jardin où furent fusillés les otages. (Voir Cahier II, récit Haxo, page 203)
 (2) Trinquet, Ranvier, membres de la Commune. Laloge, qui mourut au bagne de la Calédonie ; son fils fut député de Neuilly.
 
-[leaf 0361] [p. 132]
 *dans la bataille*
 
 Nous nous étions donné rendez-vous chez le frère de Liberton. Le quartier fut occupé en même temps que nous y arrivions. Les perquisitions commençaient — et les fusillades. Il fallait nous cacher. Liberton frère nous conduisit au sous-sol de sa maison, jusqu'à un étroit caveau à moitié plein de copeaux, éclairé par un petit soupirail donnant sur la cour. Nous y passâmes la nuit, Clavier, Mercier et moi. Au petit jour, nous entendîmes résonner les coups de crosses de fusil sur le pavé. On fouillait la maison. Nous nous glissâmes sous les copeaux. Un revolver de chaque main — celui de Clavier et le mien — j'attendis, résolu à faire feu au premier danger et à vendre chèrement notre vie.
@@ -2167,8 +1900,6 @@ Le frère de Liberton vint, quelques minutes après, nous délivrer. Il nous exp
 Il fallait toutefois changer d'asile. Les dénonciations étaient à craindre, dans ce quartier où tout le monde sait ce qui se passe.
 Nous voici donc dehors. Nous descendîmes la rue des Couronnes, puis la rue des Trois-Couronnes, aujourd'hui rue d'Angoulême. Au coin du passage Vaucouleurs, il nous fallut enlever des pavés de la barricade, sur l'injonction des hommes à brassard tricolore mêlés aux soldats. Nous
 
-[leaf 0362] [p. 133]
-
 obéîmes de la meilleure grâce du monde. Même injonction rue d'Angoulême. Enfin, Clavier m'ayant quitté, je me réfugiai chez un ami où je passai la nuit, et où je restai plusieurs jours.
 De grand matin — pour éviter les perquisitions — je partais pour la ville, que je parcourais d'une extrémité à l'autre. On fusillait toujours. Les rues étaient semées de morts — et de mortes. De longs convois de prisonniers, dirigés sur Versailles — ou sur l'un des abattoirs, le Parc Monceau, le Luxembourg, où les morts s'entassaient. Rue de Verneuil, sur le trottoir d'une maison voisine de celle qu'habitait ma mère, — dans cette maison avait habité Urbain, le membre de la Commune, — un patron serrurier avait repris son travail, aidé de deux ouvriers, dont l'un avait fait partie d'un bataillon fédéré. Ce dernier ayant été dénoncé, on vint le prendre, et, non content de l'arrêter, on arrêta le patron et l'autre ouvrier. Tous trois furent fusillés à leur porte... Je poussai jusqu'au Panthéon, mais je m'éloignai vite. Le Luxembourg était trop près. Derrière les grilles se promenaient les soldats. C'était la cour martiale.
 Je ne rentrais que le soir. Quand j'étais trop fatigué de mes pérégrinations forcées, j'allais pêcher à la ligne sous le pont Royal. C'est la seule fois de ma vie que j'aie pêché à la ligne.
@@ -2177,7 +1908,6 @@ Je ne rentrais que le soir. Quand j'étais trop fatigué de mes pérégrinations
 
 Le 7 juin, je quittai Paris avec un ami. Mon objectif était Trappes, où je connaissais quelqu'un. Nous entrâmes, après une heure de marche, dans un bouchon où nous nous fîmes servir du pain et du fromage. Fort heureusement, nous eûmes affaire à une brave femme, qui, se doutant, on ne sait à quel indice, que nous étions en fuite, nous servit dans une petite salle isolée. « La sale commune, nous dit-elle, n'est pas sûre pour les Parisiens. » Nous dormîmes dans les foins, d'un œil seulement, car, à diverses reprises, des gendarmes à cheval passèrent sur la route. Nous étions
 
-[leaf 0363] [p. 134]
 *dans la bataille*
 
 près de Buc, quand nous entendîmes des tambours et des clairons. Nous rentrâmes sous bois. Enfin, nous arrivâmes à Trappes, où mon ami me quitta.
@@ -2192,8 +1922,6 @@ Et comme il voulait à toute fin me démontrer que j'étais bien capitaine de ce
 — Et moi je vous dis que non. C'est mon dernier mot.
 Ce ne devait pas être le dernier. Le capitaine s'entêtant, je finis par lui lancer le mot de Cambronne, et je lui tournai le dos.
 
-[leaf 0364] [p. 135]
-
 Je fus, en sortant de comparaître, conduit à la salle 3, où je rencontrai Fontaine, Mirault, que je revis au bagne, Raimbaud, un vieux camarade blanquiste, et Michot, le ténor de l'Opéra.
 Toute la journée, je me promenais avec l'un ou l'autre des amis que j'avais retrouvés là. On enfonçait dans la poussière jusqu'aux chevilles, entre les paillasses alignées — des paillasses dont la toile n'était pleine que de débris de paille et de vermine.
 Michot et quelques autres chanteurs amateurs avaient organisé des concerts — la soldatesque s'était déjà quelque peu humanisée. Officiers et sous-officiers qui nous gardaient venaient écouter sous les fenêtres, quand chantait Michot. Un soir qu'il faisait vilain temps, ils entrèrent dans la salle. Le chanteur se tut tout à coup. On souffla les chandelles. Le lendemain, les chants étaient interdits.
@@ -2201,10 +1929,6 @@ Michot et quelques autres chanteurs amateurs avaient organisé des concerts — 
 Enfin, le 13 novembre, je comparus devant le troisième conseil de guerre, présidé par le colonel De la Porte. Mᵉ Laviolette était mon défenseur. Laviolette ne cachait pas ses sympathies pour les prisonniers. C'est à lui que le capitaine Charrière, qui représentait le ministère public, dit que sa place était plutôt au banc des accusés qu'à celui de la défense.
 Je fus condamné aux travaux forcés à perpétuité, les circonstances atténuantes m'ayant été accordées, grâce à la voix du président. En entendant prononcer cette condamnation, à laquelle j'eusse préféré la mort, mes yeux s'emplirent de larmes. Le bagne ! à perpétuité ! C'était bien pis que la fusillade à Satory.
 Deux jours après j'étais transféré à la maison de correction de Versailles, où j'attendis mon départ pour la Nouvelle-Calédonie.
-
-[leaf 0365] [blank verso]
-
-[leaf 0366] [p. 137]
 
 On connaît l'admirable lettre que Delescluze, au moment de marcher à la mort, écrivit à sa sœur. (1)
 Mon ami Henri Saffrey veut bien me communiquer une autre lettre inédite de Delescluze, également adressée à celle qu'il chérissait d'une si tendre affection.
@@ -2222,7 +1946,6 @@ Ton frère qui t'aime jusqu'à son dernier moment.
 
 La « réaction victorieuse », dont la mort tragique du dernier Ministre de la Guerre de la Commune n'avait point assouvi les haines, ordonna l'arrestation de Mademoiselle Delescluze, qui fut conduite, prisonnière, à Versailles.
 
-[leaf 0367] [p. 138]
 *dans la bataille*
 
 Cette lettre n'est pas datée. Elle a certainement été écrite, la bataille des rues déjà commencée, le mardi ou le mercredi, avant que la Commune se transportât à la mairie du onzième.
@@ -2238,17 +1961,13 @@ Voici le texte de la lettre :
 *Excuse-moi si je ne cause pas plus longtemps avec toi, mais tant de détails m'accablent que je suis obligé de m'arrêter.*
 *Ton dévoué et affectionné frère*
 
-[leaf 0368] [p. 139]
-
 Le mercredi 24 mai, Édouard Roullier, qui avait dîné à la Roquette avec François, directeur de la prison, fut témoin de tous les incidents qui précédèrent l'exécution des six otages. Il accompagna jusqu'au mur, au pied duquel ils furent fusillés, le cortège des exécuteurs.
 Le soir, vers onze heures, Roullier vient, avec Theisz, retrouver son ami Ernest Moullé, réfugié rue des Trois-Couronnes. Il raconte à Moullé les péripéties de la soirée tragique.
 Sur ce témoignage, que j'ai enregistré à la page 114 du cahier IX — *Lettres et Témoignages* — Ernest Moullé m'écrivit récemment à deux reprises.
 
-Mon cher Vuillaume,
 Je reviens un peu sur le massacre du mercredi à la Roquette.
 Le récit que m'a fait Roullier, trois heures au plus après l'événement, scandé par intermittence du salut des quatre canons valides du Père-Lachaise — un — deux — trois —
 
-[leaf 0369] [p. 140]
 *dans la bataille*
 
 quatre — ils tiraient l'un après l'autre, puis se reposaient quelque temps, constitue un document impartial dont la véracité saute aux yeux.
@@ -2259,7 +1978,6 @@ Parmi les autres exécutés, c'est le président Bonjean qui le frappa le plus p
 
 Ernest Moullé, après avoir lu la « Note de Mégy » publiée dans le même cahier IX, m'écrit de nouveau :
 
-Mon cher Vuillaume,
 Le récit sauvage de Mégy confirme indirectement celui de Roullier. Oui, quelqu'un essaya de sauver les otages. Et c'était Roullier, aidé de François.
 L'idée de repousser le premier ordre, parlant de trente prêtres, en objectant qu'il y en avait beaucoup moins à la Roquette, fut de Roullier.
 Qu'espérait-il ? Qu'espérait François ?
@@ -2267,8 +1985,6 @@ Ils n'en savaient rien eux-mêmes. Ils cherchaient à gagner du temps. On ne sai
 Mais, quoi ! C'était écrit.
 Quant à l'attitude que Mégy prête à ces malheureux, je n'en crois rien. C'est une assertion de jacobin aveuglé par son sectarisme et qui, du reste, aime parader et phraser.
 La version de Roullier qui, malgré son révolutionnarisme,
-
-[leaf 0370] [p. 141]
 
 était généralement impartial, est la vraie. Elle me fut, du reste, servie, vous le savez, toute chaude.
 Il ne me souvient nullement que Roullier m'ait jamais parlé de Mégy à propos de la Roquette. Je crois que celui-ci était tout simplement confondu dans la masse des fusilleurs...
@@ -2281,29 +1997,16 @@ En août 71, il écrivait de Londres à Moullé :
 
 Dans une autre lettre, datée de janvier 1872, Roullier traite avec quelque dureté les fusilleurs de la Roquette et de la rue Haxo, « qui fusillèrent, — écrit-il à Moullé, — de leurs fusils vierges des barricades, ceux qu'offi-
 
-[leaf 0371] [p. 142]
 *dans la bataille*
 
 ciellement, on aurait dû juger avant ». Et, comme s'il était obsédé par le souvenir des choses terribles auxquelles il a été mêlé, il ajoute : « Ah ! mon cher, vous ne savez pas tout ce que j'ai vu, et tout ce que j'entends encore. Assez. » (1)
 
 (1) Je possède plusieurs lettres de Roullier, au style rude, mais pleines de réflexions parfois savoureuses, quand on se rappelle que leur auteur, « savetier » comme il signait avec orgueil, avait fondé, dès 1869, une *Ligue des antiproprios* (voir cahier V, page 259). En janvier 72, Roullier écrit : « Plus on sort de France, plus on devient chauvin. Il n'y a encore qu'une France, et surtout qu'un Paris. Ah ! c'est que tous nous les aimions, et plus encore depuis que nous en étions séparés, cette France, ce Paris ! »
 
-[leaf 0372] [p. 143]
-
 III. — Fac-similé de la lettre de Delescluze publiée ci-dessus.
-
-[leaf 0373] [p. 144]
-
-[leaf 0374] [p. 144a]
-
-[leaf 0375]
-
-[leaf 0376] [p. 145]
 
   Dimanche 21 décembre 1913. Mon vieil ami Ernest Moullé et moi, montons, à petits pas, la rue d'Angoulême. A l'angle de la rue Saint-Maur, c'est là que, le dimanche 28 mai, entre trois heures et demie et quatre heures, tonna, pour la dernière fois, le canon de la Commune.
   Plus haut. Une petite place, plantée d'une double rangée d'arbres. Sur le côté gauche, un pavillon à deux étages, aux fenêtres closes derrière des volets dont la peinture grise s'écaille de vétusté. La vieille maison est prête pour la démolition. En 1871, le pavillon portait le numéro 19 de la rue des Trois-Couronnes. Il était habité par le beau-frère d'Ernest Moullé, propriétaire de la fabrique d'appareils à gaz, — la maison A. Bengel, — voisine. Les bâtiments de la fabrique ont disparu. Le pavillon aux volets gris porte le numéro 81 de la rue d'Angoulême.
-
-[leaf 0377] [p. 146]
 
                     *dans la bataille*
 
@@ -2318,10 +2021,6 @@ dans le bureau de la fabrique. Theisz, (1) avec un de ses frères et Roullier, v
 
                   146
 
-[leaf 0378] [p. 147]
-
-                              *Les soldats !*
-
   Cinq minutes. Longues comme des siècles. La place est déserte. Les portes des maisons et les fenêtres fermées. Les volets ouverts. L'habituelle consigne.
   Un pompier. Un pompier de banlieue probablement, ou des départements. Long, maigre, tenue de feu, casque invraisemblable, la large ceinture de cuir serrant la blouse. Son regard scrute les toits. Pâle, résolu, il marche à grandes enjambées dans la direction du boulevard Ménilmontant.
   Un soldat. Le fusil en avant, le doigt sur la détente. Courbé légèrement, il regarde à droite, à gauche, en face. Il fait une dizaine de pas. Derrière lui, un deuxième éclaireur. Un troisième... Peu à peu, la place s'emplit de soldats... Les boutiques se sont ouvertes. Les habitants, rassurés, envahissent les trottoirs. Pas un cri. Pas une manifestation. Aucun enthousiasme, mais aucun sentiment d'hostilité. A dire vrai, ce qui domine, malgré les inquiétudes individuelles, c'est une impression de soulagement. Quatre jours d'une vie de taupes. Ah ! il a été long, le cauchemar...
@@ -2331,19 +2030,13 @@ dans le bureau de la fabrique. Theisz, (1) avec un de ses frères et Roullier, v
 
                   147
 
-[leaf 0379] [p. 148]
-
                     *dans la bataille*
 
 disséminée dans Paris, rue Vavin, rue Taitbout, ailleurs. Il repart pour donner des nôtres. Il nous dit l'atrocité des représailles.
   Faisons comme tout le monde. Sortons.
 
-                              *L'occupation*
-
   Nous descendons la rue des Trois-Couronnes. Ma sœur, sa fille, son beau-frère, moi, un neveu. Un franc-tireur de Tours qui m'a suivi à Paris et qui était avec moi au Panthéon, Victor Templé, (1) nous accompagne. Nous tournons à droite, dans la rue Saint-Maur. Même spectacle que rue d'Angoulême. Beaucoup de monde sur les trottoirs. Les soldats sont peu nombreux. Par groupes, accompagnés de sous-officiers, ils pénètrent dans les allées et les cours. Nous les voyons ressortir, sans prisonniers. Pas de délateurs dans ce quartier. Les troupes qui l'occupent sont certainement de formations postérieures à Sedan et à Metz. Il n'y a pas là de « retours d'Allemagne », chauffés à blanc par leurs officiers bonapartistes et abhorrant le Parisien républicain et « outrancier »...
   Une vieille femme nous dit qu'il y a des morts et des blessés dans l'église Saint-Joseph... De larges flaques de sang rougissent les pavés autour de la grande barricade de la rue Saint-Maur... Mais nous n'avons aucune envie d'aller vérifier ces dires, et nous retournons vers la maison.
-
-                              *Le Lieutenant*
 
   Nous sommes assis, au rez-de-chaussée, dans la salle à manger. On heurte fortement à la porte de la rue. Une crosse de fusil, sans aucun doute. La bonne sort et revient :
   — C'est un officier avec des soldats, qui veulent parler au maître de la maison.
@@ -2353,8 +2046,6 @@ disséminée dans Paris, rue Vavin, rue Taitbout, ailleurs. Il repart pour donne
 
                   148
 
-[leaf 0380] [p. 149]
-
 étudions à une attitude calme pour recevoir la visite des soldats... Dix minutes se passent. Mon beau-frère revient, seul, la figure rassérénée.
   — Ce lieutenant, nous dit-il, est très aimable. Il n'a pas voulu entrer dans le pavillon. Il a jeté un coup d'œil sur le jardin et m'a demandé si les bâtiments du fond étaient mes ateliers. Il est sorti en me disant : « Excusez-moi pour le dérangement. » Il dit ensuite à ses hommes : « En avant, il n'y a pas de canailles ici. »
   Et mon beau-frère, riant franchement, cette fois :
@@ -2363,25 +2054,13 @@ disséminée dans Paris, rue Vavin, rue Taitbout, ailleurs. Il repart pour donne
 
   Le quartier Saint-Maur, après cette accalmie — relative — d'un jour, fut décimé. Les cadavres s'entassèrent bientôt derrière l'abside de Saint-Joseph. C'était là l'abattoir.
 
-[leaf 0381] [p. 150]
-
-[leaf 0382] [p. 151]
-
-[leaf 0383] [p. 152]
-
-[leaf 0384] [p. 153]
-
   Pilotell. Le grand Pilotell. Nul ne sait ce qu'il est devenu. Les journaux ont raconté qu'il a été fusillé. (1) Je l'ai vu, pour la dernière fois, le mercredi 24 mai, un quart d'heure avant l'attaque du Panthéon, debout, sa carabine d'artilleur en bandoulière, sur le balcon de la maison qui fait l'angle de la rue Soufflot (aujourd'hui Taverne du Panthéon). Nous avons échangé, de loin, un salut... Depuis, plus de nouvelles... Le voilà arrivé... Un flot de souvenirs... Le *Père Duchêne* de Maroteau, où, en décembre 69, je rencontre, pour la première fois, Pilotell, Humbert, Vermersch, Passedouet... La maison de Victor Noir, où, le jour même du drame, je vois Pilotell, assis au pied du lit sur lequel repose le mort, achevant, les larmes aux yeux, le dessin que publiera le lendemain le *Rappel*. L'élection Rochefort au Quartier Latin... Le Quatre Septembre. Le 31 Octobre. Le 22 Janvier, où je rencontre Pilotell, avec cette même carabine qu'il portera, quand sonnera l'heure de la bataille... Et Sainte-Pélagie ! Les bonnes journées !... Sainte-Pélagie, où sont, avec Rochefort : Paschal Grousset, Charles Da Costa, J.-B. Clément, Vermorel,
 
   (1) Le *Siècle* du mercredi 31 mai 1871 a écrit, entre autres : « Nous avons cru reconnaître les cadavres de Brideau et de Pilotell au coin de la rue des Ecoles. »
 
-[leaf 0385] [p. 154]
-
                     *Genève et Altorf*
 
 Mourot. Dans la cellule, à laquelle on a donné le nom d' « Arche de Noé », Piconel, que vient visiter, le dimanche, toute une ribambelle d'enfants. Piconel, qui a été condamné à trois mois de prison comme gérant du *Misérable* de Passedouet, (1) sera, au 18 Mars, membre du Comité Central. A la division politique, — deux rangées de cellules ouvrant sur un long corridor, — Trinquet, François, Roullier, Lissagaray. Pas un n'a manqué à la Commune... François, directeur de la Roquette, livrera, à son corps défendant, les otages, et n'en sera pas moins fusillé à Satory. Passedouet mourra en Calédonie. Vermorel, blessé grièvement au Château-d'Eau, mourra en juin à l'hôpital de Versailles... Mais, trêve aux souvenirs... Voilà Pilotell. Poignées de mains. Embrassades. Effusions. Comment a-t-il échappé ?
-
-                              *L'évasion*
 
               me dit Pilotell, —
                           que, dès les premiers jours de la répression, les journaux racontèrent que j'avais été fusillé. A Poitiers, où mon père, Eugène Pilotelle, (2) archéologue éminent, jusqu'à sa mort, en 1862, fut conseiller à la Cour, on criait sous les fenêtres de l'appartement où habitait ma mère : « Le *Petit Journal !* demandez l'exécution de Pilotell ! » Un jour ma mère s'évanouit. Neuf mois, je restai caché, rue d'Hauteville. Ma retraite n'était connue que d'une seule personne, mon cousin Villiaumé, l'historien de la Révolution. Enfin, je pus quitter Paris. C'est au brave
@@ -2391,16 +2070,12 @@ Mourot. Dans la cellule, à laquelle on a donné le nom d' « Arche de Noé », 
 
                   154
 
-[leaf 0386] [p. 155]
-
 docteur Robinet (1) que je dois la liberté et la vie. C'est lui qui me fit remettre un mot d'introduction près d'un de ses amis, à la Ferté-sous-Jouarre. Dénoncé presque aussitôt mon arrivée, je dus fuir à la hâte et prendre le premier train pour Nancy, le pays de mon père, dans cette chère Lorraine qu'il aimait tant. Je fis le voyage en compagnie d'un soldat, qui raconta, tout le long du chemin, ses exploits de la Semaine de Mai. Mon sang bouillait. Enfin, nous arrivâmes.
   De Nancy, je devais partir pour Vic, aujourd'hui prussien, à midi. J'allai retenir ma place à la diligence. Après une petite promenade dans Nancy, où mon père avait eu de grandes propriétés, je revins à la diligence qui était attelée. Le commissaire de police était là avec un agent. — Monsieur, me dit le commissaire, je désirerais voir vos papiers. J'en avais plein mes poches, des papiers... des papiers de commerce que m'avait donnés l'ami du docteur Robinet. Ces papiers étaient au nom de M. G..., voyageur en meules de moulin. Le commissaire, après avoir feuilleté ces papiers, me dit : — Mais, vous n'avez pas de passeport. — A quoi bon, répondis-je, je vais à Vic désirerais pour la journée pour voir un client. — Non, Monsieur, répartit le commissaire, vous avez retenu votre place à la diligence depuis deux jours ! — Vous êtes complètement dans l'erreur, dis-je : voici le chef du bureau de départ ; interrogez-le. — Quand Monsieur a-t-il retenu sa place ? demanda le commissaire. — A huit heures et demie ce matin ; il a laissé sa valise pour aller se promener en attendant le départ. — C'est bien, conclut enfin le commissaire. Et il tournait toujours, méfiant, autour de la voiture. Je montai prendre ma place. — Que s'est-il donc passé ? me demanda un jeune homme qui s'était assis près de moi. — Oh ! rien ! Peut-être bien que le commissaire croyait avoir affaire à un communard ! Le commissaire dut entendre mes paroles, qui me sauvèrent. La voiture se mit en marche.
 
   (1) Le docteur Robinet, l'historien de Danton. Adjoint, sous le Siège, à la municipalité du sixième arrondissement (Saint-Sulpice).
 
                   155
-
-[leaf 0387] [p. 156]
 
                     *Genève et Altorf*
 
@@ -2411,8 +2086,6 @@ docteur Robinet (1) que je dois la liberté et la vie. C'est lui qui me fit reme
   (1) Jules Ducrocq, que nous appelions « le Général ». Voir Cahier V, page 223 et Cahier VII, page 35.
 
                   156
-
-[leaf 0388] [p. 157]
 
 était, par hasard, un mouchard !... Tristes jours. La misère aidant, l'exil, les premiers enthousiasmes éteints, devient un enfer... Je rencontre, par-ci, par-là, Pilotell, chez Nina, — la belle Nina de Callias — alors à Genève avec Edmond Bazire. Pilotell dessine. Je le vois encore, par une belle après-midi, face au lac tout miroitant, occupé à peindre, sur une assiette destinée au grand feu, une admirable Salammbô enlacée par le python... Je me vois aussi, dans ma chambre de la rue Guillaume-Tell, étendu tout de mon long sur le carreau, servant de modèle à Pilotell pour son eau-forte de Rigault mort. L'eau-forte a été publiée dans l'album *Croquis et Caricatures*. (1)
 
@@ -2427,8 +2100,6 @@ voici un fait fort peu connu. Connu seulement de moi et de Da Costa. L'incident 
   (1) *Avant, Pendant et Après la Commune.* CROQUIS ET CARICATURES à l'eau-forte, par Pilotell, ex-directeur des Beaux-Arts, ex-commissaire spécial de la Commune. Imprimerie Delatre (s. d.), Howland Street, 23. W. London. Tiré à 50 exemplaires. Dans la table qui figure en tête de l'album, Pilotell ajoute à son nom le calembour connu : *Pille-Hôtel*. Ou, comme il me le disait, *Pille-Autel*.
 
                   157
-
-[leaf 0389] [p. 158]
 
                     *Genève et Altorf*
 
@@ -2448,8 +2119,6 @@ voici un fait fort peu connu. Connu seulement de moi et de Da Costa. L'incident 
 
                   158
 
-[leaf 0390] [p. 159]
-
 France qu'en 1887. Je retrouve Pilotell à Paris, en 1910. Il loge rue Serpente, dans un vieil hôtel meublé du Quartier. (1) Le beau Pilotell d'autrefois a grisonné. La luxuriante chevelure s'est éclaircie. L'œil est toujours vif. La mémoire limpide. Nos causeries recommencent, au hasard des promenades dans ce vieux Quartier Latin que nous aimons tant tous les deux. C'était ici le café de la Renaissance, où furent arrêtés les accusés du procès de 1868, Protot, Sornet, Humbert, Levraud, d'autres. Là, le café de la Salamandre, où nous allions en 1869. La brasserie Saint-Séverin : chez Glaser, notre rendez-vous du Siège. C'est là, à la terrasse du Soufflet — un peu rajeunie — que nous avons vu, le soir du 13 août 1870, le soir de l'affaire de La Villette, Eudes et Bridault, cinq minutes avant qu'un mouchard volontaire, un étudiant nommé L., les dénonçât...
 
   — Quand tu m'as vu, pour la première fois, chez la mère Gaittet, (2) —
@@ -2461,8 +2130,6 @@ France qu'en 1887. Je retrouve Pilotell à Paris, en 1910. Il loge rue Serpente,
 
                   159
 
-[leaf 0391] [p. 160]
-
                     *Genève et Altorf*
 
 la *Caricature* — la première — qui me vaut, le 8 décembre 1869, deux mois de prison, pour un dessin, montrant la République endormie, avec cette légende : « A quand le Réveil ? » Autre condamnation, le 8 avril 1870, à un mois de prison, pour un dessin sur feuille volante : une tête de guillotiné, avec cette légende : « La Peine de Mort est un crime. » J'avais déjà été condamné, en 1868, à quinze jours de prison, pour cris séditieux : « Vive la République ! » Avec une condamnation à mort du 9 janvier 1874, par le 3e conseil de guerre, cela fait quatre condamnations. J'avais, en 1866, fait un frontispice pour *Notre-Dame de Paris*, qui me valut une lettre de Victor Hugo. Quand je fis, en 1866, mon *Panthéon des Grands Hommes*, la grande lithographie qui est dans l'escalier du Musée Victor-Hugo de la place des Vosges, Victor Hugo m'écrivit encore. Je possédais une dizaine de lettres de lui, qui m'ont été dérobées dans les perquisitions que l'on fit, après la défaite, dans mon logis de la rue Saint-André-des-Arts, 47. Victor Hugo m'envoya, en même temps qu'à Maroteau, dès leur apparition, ses *Travailleurs de la Mer*. Un jour de dèche, nous vendîmes les six volumes sous l'Odéon. Tu connais ma deuxième *Caricature* de 1871, puisque tu y fis l'article du numéro 3. Vallès avait fait celui du premier numéro, et J.-B. Clément celui du numéro 2. Tout cela est à Carnavalet.
@@ -2472,20 +2139,14 @@ la *Caricature* — la première — qui me vaut, le 8 décembre 1869, deux mois
 
                   160
 
-[leaf 0392] [p. 161]
-
 je m'embarquai pour l'Angleterre. (1) Je débarquai à la Tour de Londres, à six heures du matin, par un épais brouillard, avec 3 shellings en poche. Je n'ai jamais eu le cœur si serré de ma vie. La peur d'une misère profonde m'envahit. Fort heureusement, mes pressentiments me trompaient. C'était le succès qui m'attendait.
   En 1876, j'expose au « Royal Academy » trois pointes sèches, les portraits de Beaconsfield, de Plimsoll et de la comtesse Dudley. Le théâtre m'attire, et je dessine un grand nombre de costumes pour les principales scènes de Londres et de New-York. Je collabore au « Lady's Pictorial », où j'inaugure les interviews illustrées. J'ai fait les portraits de toutes les grandes dames de l'Angleterre, sans en excepter la Reine... Pendant vingt ans, j'ai exercé, je puis le dire, une influence considérable sur la mode anglaise... Tout cela, c'est le passé. D'autres sont venus. Les nouveaux procédés ont tué le dessin... Aujourd'hui, je gagne péniblement ma vie à restaurer de vieilles gravures pour les marchands du quai Saint-Michel... Mais je puis dire, sans faux orgueil, je ne suis pas derrière moi un beau bagage artistique... Je ne regrette rien... Ah ! si. Je regrette la superbe collection maratiste que j'avais réunie, à grands frais, quand j'étais riche. J'ai dû la vendre, et ç'a été là mon plus grand crève-cœur...
-
-                              *De Marat à Jeanne d'Arc*
 
                           la plus belle, ou l'une des plus belles collections, — avec celle de F. Chèvremont, que je fis donner au British Museum par son possesseur, — des œuvres et des portraits de Marat. J'ai possédé le fameux numéro 681 de l'*Ami du Peuple*, teint du sang de Marat, et qui avait été donné par Albertine Marat au colonel Maurin ; il était entré ensuite dans la collection du comte de La Bédoyère. J'ai découvert et traduit les deux
 
   (1) Voir plus haut, page 71, la lettre de Vermersch.
 
                   161
-
-[leaf 0393] [p. 162]
 
                     *Genève et Altorf*
 
@@ -2496,15 +2157,11 @@ ouvrages médicaux de Marat, publiés en anglais à Londres en 1775 et 1776. J'a
 
   (1) Voir Cahier VIII, page 31, note en bas de page. Lire *père*, au lieu de frère de notre historien.
 
-[leaf 0394] [p. 163]
-
   Genève. Juillet 1872. — « Viens me prendre avant midi à l'Hôtel de la Poste, où je suis depuis hier soir. Déjeunerons. » C'est Gustave Puissant qui m'envoie ce mot amical. Puissant ici ! Joie ! Des nouvelles de Paris ! Je dégringole mon escalier de la rue Guillaume-Tell. Suis à l'hôtel de la Poste en cinq minutes. Voilà Puissant, debout sur le seuil. Une accolade au vieil ami.
   Nous aurons le temps de causer. A fond. Nous ne nous sommes pas vus depuis le Siège...
   J'ai rencontré pour la première fois Gustave Puissant au *Père Duchêne* de Maroteau. Décembre 1869. Tout de suite, bien qu'il y eût entre nous une dizaine d'années de différence, nous avons été amis. Le soir, nous allions causer, — Vallès, Humbert, Maroteau, Enne, d'autres, — dans le petit logis que Puissant occupait rue Grégoire-de-Tours, avec sa femme et sa fillette. Puissant, dès que nous frappions à l'huis, venait ouvrir... Debout sur la table, une dame-jeanne d'un
 
                   163
-
-[leaf 0395] [p. 164]
 
                     *Genève et Altorf*
 
@@ -2524,11 +2181,8 @@ marc exquis. Un marc de Bourgogne, qui lui était envoyé de son pays, d'Auxerre
 
                   164
 
-[leaf 0396] [p. 165]
-
 lui, afin que sa femme profite de l'aubaine. L'ouverture des mâchoires s'effectuera à dix heures et demie au plus tard. Viens nous rejoindre.
   N'oublie pas de m'excuser auprès de Lavalette, et s'il devait venir trop tard ce matin à la *Marmite*, laisse-lui un mot. Tantôt quand j'aurai passé à la poste, je verrai ce que nous pouvons faire demain.
-  A toi
 
   Puissant repart. Nous allons le conduire à la gare.
   — Veinard ! tu vas revoir Paris !
@@ -2538,20 +2192,16 @@ lui, afin que sa femme profite de l'aubaine. L'ouverture des mâchoires s'effect
 
   Fais-moi le plaisir de me renseigner sérieusement sur les histoires de conspiration, d'arrestations, de bombes, de complots, de je ne sais quoi encore, que tous les journaux colportent à l'envi et vous flanquent sur le dos.
   Prompte réponse, n'est-ce pas, et écris-moi de temps à autre. N'oublie pas de me donner ton adresse. Si vous devez avoir un Congrès international quelque part, avisez-moi un peu à l'avant : je me ferai envoyer par quelque journal et j'irai vous serrer la main.
-  A toi
                           77, rue de la Butte-Chaumont.
 
   Ai-je répondu à Puissant ? Que lui ai-je répondu ? Je n'en sais rien. J'ai dû me renseigner tout d'abord près des amis de Genève. Je retrouve une lettre, datée du 21 mai — quatre jours après la lettre de Puissant —
 
                   165
 
-[leaf 0397] [p. 166]
-
                     *Genève et Altorf*
 
 lettre à moi adressée de Genève par Fesneau, (1) à qui j'ai certainement écrit :
 
-  Mon cher Vuillaume,
   Des arrestations — m'écrit Fesneau — ont été faites ici, se rattachant à une conspiration policière, créée et poussée par de soi-disant proscrits, attachés à l'administration de la rue de Jérusalem. Des imbéciles se sont laissé prendre au piège de drôles que nous avons chassés comme malpropres. Bien entendu aucun de nos amis, aucun proscrit honnête et sérieux n'a pris part à cette canaillerie imbécile. Il s'en est suivi l'expulsion de quelques-uns et la mise en liberté des autres, tant était ridicule l'affaire, tant sur le rapport du personnel que sur l'objet de la conspiration même.
   Cœurderoy et Cyrille ont été aussi expulsés, mais ils n'ont en rien coopéré à l'œuvre des mouchards et des niais, comme bien vous pensez. Le gouvernement de Genève a appuyé leur expulsion sur des plaintes de citoyens genevois à la police.
   De Razoua et de moi la meilleure poignée de main fraternelle.
@@ -2562,21 +2212,11 @@ lettre à moi adressée de Genève par Fesneau, (1) à qui j'ai certainement éc
 
                   166
 
-[leaf 0398] [p. 167]
-
 IV. — Il est là !... Sous trois pas un enfant le mesure !
 
   (Dessin inédit de Georges Pilotell, pris le 16 mai 1871, à cinq heures et demie du soir, une heure après la chute de la colonne Vendôme)
 
-[leaf 0399] [p. 168]
-
-[leaf 0400] [p. 168a]
-
 [Pilotell drawing: pencil sketch — figure leaning against wall, inscribed "16 mai 1871 / 5h½ du soir / G. Pilotell" — not transcribed]
-
-[leaf 0401]
-
-[leaf 0402] [p. 169]
 
                           n'a pas voulu lâcher la collection du *Père Duchêne* pour toi. Tu sais quel grincheux est Polo, et tu ne t'étonneras pas de son refus...
 
@@ -2591,8 +2231,6 @@ IV. — Il est là !... Sous trois pas un enfant le mesure !
 
   (1) Maroteau mourut à l'hôpital de l'île Nou le 17 mars 1875. Voir la *Commune vécue* de Da Costa, III, pages 274 et suivantes.
 
-[leaf 0403] [p. 170]
-
                     *Genève et Altorf*
 
   Je n'ai conservé aucune autre lettre de Puissant.
@@ -2605,8 +2243,6 @@ IV. — Il est là !... Sous trois pas un enfant le mesure !
   (2) Puissant mourut dans cet asile, où il vivait sous un faux nom, en 1908. Voir la chronique de Jules Claretie, l'*Homme sans nom*, dans le *Temps* du 26 novembre 1908. Voir aussi ma chronique de l'*Aurore* du 30 novembre 1908.
 
                   170
-
-[leaf 0404] [p. 171]
 
   Et je songeais aux visites de Puissant à Genève, à ses lettres, à ses demandes de renseignements... Devant cette immense infortune, mon cœur se serrait malgré tout. Quelle expiation !
   — Quand vous lui écrirez, dis-je à Lacaze, dites-lui bonjour pour moi.
@@ -2622,8 +2258,6 @@ IV. — Il est là !... Sous trois pas un enfant le mesure !
 
                   171
 
-[leaf 0405] [p. 172]
-
                     *Genève et Altorf*
 
 moment. Voyez si vous avez à votre disposition une de ces places et soyez assez obligeant pour m'aviser en cas d'affirmative.
@@ -2636,14 +2270,10 @@ moment. Voyez si vous avez à votre disposition une de ces places et soyez assez
   — Une jatte de lait ! s'écria-t-il.
   L'auteur des *Écrevisses du Petit Auguste*, ce matin-là, fut un homme heureux.
 
-[leaf 0406] [p. 173]
-
   *Genève*. Février 1873. Je suis revenu à Genève, après mon expulsion de Lausanne. (1) La misère. Une quarantaine de francs par mois d'articles au supplément du dimanche de la *Gazette de Lausanne*. L'avenir n'est pas couleur de rose... Une lettre de l'entrepreneur du Gothard, Louis Favre, à qui j'ai été chaudement recommandé. Favre est à Genève, dans sa propriété du Plongeon, aux Eaux-Vives. Il m'invite à l'y aller voir. Accueil amical. Favre me raconte en riant, assis tous les deux devant une bouteille de vin blanc vaudois, qu'en 48 il a quelque peu pris part à la bataille de Juin. Ancien contremaître charpentier, il est arrivé à être le premier entrepreneur du monde. Il a assumé la lourde et glorieuse tâche de percer de part en part, sur une longueur de 14.920 mètres, le grand souterrain du Gothard. Va-t-il m'accepter dans son personnel ?
   — C'est entendu, — me dit-il en me serrant la main au départ. On vous écrira de mes bureaux d'Altorf, dès que j'y serai arrivé.
 
   (1) Voir Cahier IV, page 132.
-
-[leaf 0407] [p. 174]
 
                     *Genève et Altorf*
 
@@ -2656,8 +2286,6 @@ moment. Voyez si vous avez à votre disposition une de ces places et soyez assez
 
                   174
 
-[leaf 0408] [p. 175]
-
 Guillaume Tell. Le Grütli. Toute l'histoire du héros légendaire défile à mes yeux. Fluelen. Altorf. L'hôtel de la *Clef d'Or*. Des mains se tendent. D'avance, cet excellent Favre m'a annoncé. Je me sèche. Je quitte mon haut de forme glacé et je coiffe ma toque de fourrure... Ah ! le bon repos, après tant d'orages.
 
   *Altorf*. La vie tranquille. Cinq années durant, elle s'écoulera, heureuse. Tout entier au travail de tous les jours, je suis, pas à pas, les progrès de l'œuvre gigantesque. L'avancement quotidien de la galerie souterraine. La nature des roches traversées. Les mille incidents. Un jour, c'est une poche toute tapissée de cristaux — depuis combien de milliers et de milliers de siècles sont-ils là — qu'un coup de fleuret de la machine a ouverte. Un autre jour, un filon d'or collé, en feuilles
@@ -2665,8 +2293,6 @@ Guillaume Tell. Le Grütli. Toute l'histoire du héros légendaire défile à me
   petite salle étroite, ballottés par un tangage que l'état de la mer rendait douloureux. Par instant, le bateau faisait des culbutes inquiétantes ; mais nous étions résignés à notre sort. A un moment je n'y tins plus, la respiration me manquait dans cette atmosphère viciée, et, comme un individu qui cherche à se sauver, je visais la porte pour monter sur le pont, quand tout à coup je fus projeté avec une violence inouïe contre un meuble chargé de linge et d'ustensiles. Ceux qui ont vu des clowns traversant des cerceaux en papier se rendront compte de ma culbute improvisée : tout me dégringolait sur la tête ; je restai, pantelant, anéanti, sur le parquet. Enfin, je pris la porte et je tentai de l'ouvrir ; mais une vague me frappa au visage, m'inondant tout entier. Ce fut ainsi pendant de longues heures. Le destin, qui veillait probablement sur nos deux existences, nous permit enfin d'entrer dans le port d'Anvers, où nous échouâmes comme deux épaves, loques tremblantes et épuisées. » D'autres péripéties attendaient Barré à Bruxelles, puis à Cologne, à Nuremberg, jusqu'à ce qu'enfin il arrivât à Vienne, où d'importants travaux de ciselure, entre autres le grand bouclier, — le combat des Lapithes et des Centaures, — qui figura à l'Exposition universelle de 1878, et qui remporta le diplôme d'honneur, l'attendaient.
 
                   175
-
-[leaf 0409] [p. 176]
 
                     *Genève et Altorf*
 
@@ -2680,8 +2306,6 @@ légères, sur la blancheur du quartz... Élisée Reclus, qui rédige, à la Tou
 
                   176
 
-[leaf 0410] [p. 177]
-
 pas éloignée. C'est ce que je crois du moins. Le docteur Forel, (1) qui m'a invité au Congrès, me rassure.
   Le lendemain, déjeuner chez le docteur Forel, à Morges. L'éminent professeur me montre la belle collection d'armes de bronze qu'il a recueillies dans les deux stations lacustres voisines, en face de sa propriété.
 
@@ -2694,19 +2318,11 @@ pas éloignée. C'est ce que je crois du moins. Le docteur Forel, (1) qui m'a in
 
                   177
 
-[leaf 0411] [p. 178]
-
                     *Genève et Altorf*
 
 Corraterie. Perrier a toujours quelque trouvaille à vous montrer — une lettre, une gravure — une histoire à vous raconter. Quand Perrier — qui a été quelque chose à la mairie du onzième pendant la Commune — mourut, en 1910, il légua à sa ville natale, Ars-en-Ré, les collections et l'argent nécessaire, une quarantaine de mille francs, à la construction d'un musée, qui les abriterait. Ses exécuteurs testamentaires, Protot et un ami de Perrier nommé Ruel, firent construire le musée. J'ai devant les yeux le catalogue du « Musée communal d'Ars-en-Ré, offert par Jules Perrier à ses concitoyens ». 960 numéros : tableaux, gravures, lithographies, dessins, albums, etc. Les cendres de Perrier, incinéré à Genève, devaient, d'après les clauses testamentaires, être mises dans une urne qui serait elle-même scellée dans la muraille du musée. Protot et Ruel exécutèrent les volontés de Perrier. Au cours du voyage qui les conduisit à l'île de Ré — me racontait Protot — ils faillirent, à un croisement de voie, oublier l'urne dans le train. Le petit bateau sur lequel avaient été embarquées les énormes caisses renfermant les trésors artistiques de Perrier fut sur le point de faire naufrage. Enfin, on arriva à bon port...
 
   *1878-80.* — San Pier d'Arena (Italie), où j'apprends la mort de Vermersch. Gênes... Rentrée des proscrits.
-
-[leaf 0412] [p. 179]
-
-[leaf 0413] [p. 180]
-
-[leaf 0414] [p. 181]
 
   *Cahier II.* — *Un peu de vérité sur la mort des otages*
 
@@ -2714,12 +2330,9 @@ Corraterie. Perrier a toujours quelque trouvaille à vous montrer — une lettre
   Alexandre Girault est le G. de l'affaire Jecker et de la rue Haxo. Condamné aux travaux forcés à perpétuité, il fit ses neuf ans de bagne à l'île Nou, avec Humbert, Maroteau (qui y mourut), Lucipia, Fortin, Da Costa, Giffault, dont il a été parlé à maintes reprises dans ces Cahiers. Rentré en France après l'amnistie, Girault fut, en 1896, envoyé à la Chambre par les électeurs de Belleville. Après avoir siégé une législature, il ne se représenta pas.
   Girault, sous le Siège, avait fait partie du 25e bataillon du 29e régiment de marche (colonel de Fonvielle).
 
-[leaf 0415] [p. 182]
-
 Sous la Commune, il fut capitaine d'armement du 270e bataillon fédéré, et secrétaire du commissariat de police (Clavier, commissaire) du douzième arrondissement (Picpus-Bel-Air). Il prit une part active à l'affaire Jecker et à l'affaire de la rue Haxo.
   Voici la lettre que m'écrit Girault :
 
-  Mon cher Vuillaume,
   J'ai relu, comme vous me l'avez demandé, votre *Un peu de vérité sur la mort des otages*. Cela m'a ramené à une douzaine d'années en arrière, quand, à la Roquette, disparue, nous refaisions, pas à pas, Fortin, vous et moi, le chemin suivi par l'archevêque et ses cinq compagnons, des cellules où ils étaient enfermés, au mur de ronde au pied duquel ils tombèrent.
   A ce drame du mercredi 24 mai, je n'ai point assisté.
   Mais j'ai assisté, le vendredi, à la fusillade de Jecker, que nous étions allés chercher, avec Clavier, Liberton, Boufflers et Mercier, à la Roquette. Boufflers, ou de Boufflers, était bijoutier ; Mercier, mécanicien ; attachés, tous deux, comme moi, au commissariat de Picpus. Vous ne les aviez désignés que sous leurs initiales B. et M.
@@ -2729,8 +2342,6 @@ Sous la Commune, il fut capitaine d'armement du 270e bataillon fédéré, et sec
   Vous me demandez si vous avez quelque chose à rectifier. Je vous réponds, mon cher Vuillaume, tout simplement : Non. Votre récit de Jecker, celui de la rue Haxo, sont
 
                   182
-
-[leaf 0416] [p. 183]
 
 exacts en 1913, comme ils l'étaient en 1908, lors de la publication de votre Cahier II.
   Je puis le dire. J'étais là.
@@ -2750,8 +2361,6 @@ exacts en 1913, comme ils l'étaient en 1908, lors de la publication de votre Ca
 
                   183
 
-[leaf 0417] [p. 184]
-
 défaite : c'est alors que Delescluze prononça ces paroles que j'ai déjà citées : « Pindy a raison, c'est là que nous aurions dû tous mourir. »
 
 Où donc était Vaillant à ce moment ?
@@ -2768,8 +2377,6 @@ Où était donc Vaillant à ce moment encore ? Demandait-il un laissez-passer à
 
 Reste l'affirmation qu'il m'aurait vu pour la dernière fois le mercredi matin à l'Hôtel de Ville.
 
-[leaf 0418] [p. 185]
-
 Ici je me demande si c'est un manque de mémoire chez Vaillant, ou s'il existe une légende imaginée pour disculper le Comité de Salut public et la Commune d'avoir ordonné l'incendie. Dans ce dernier cas, que Vaillant se rassure : Depuis quarante-deux ans j'ai eu à parler ou à écrire bien des fois de ce fait, et jamais la pensée ne m'est venue de me soustraire à la responsabilité qui m'incombe : j'ajoute seulement que tous mes collègues, qu'ils le veuillent ou non, en sont solidaires avec moi, car, en somme, je n'ai fait qu'exécuter l'engagement que j'avais pris le 1ᵉʳ avril, et que l'assemblée accepta, puisqu'il n'y eut aucune protestation : « C'est que nous serions tous là au dernier moment quand je ferais sauter la maison. »
 
 La question de l'évacuation avait été effleurée devant moi, la veille ; j'avais énergiquement protesté contre cette idée, et c'est après mon départ que fut prise la résolution de se transporter au onzième.
@@ -2780,14 +2387,11 @@ Citoyen Vuillaume, j'arrête ici ces explications déjà bien longues, et qui so
 
 Je vous adresse mes anticipés remerciements pour la gracieuse hospitalité que vous voulez bien m'accorder et vous envoie mes cordiales salutations.
 
-L. PINDY, *essayeur-juré*,
 8, rue Léopold-Robert, La Chaux-de-Fonds (Suisse).
 
 J'ai communiqué cette lettre à Édouard Vaillant, qui maintient formellement ses déclarations.
 
 *Le 136ᵉ bataillon de Montrouge.* — M. Justin
-
-[leaf 0419] [p. 186]
 
 Bellanger, directeur de la bibliothèque et du musée de la ville de Provins, appartint, en qualité d'engagé volontaire, au 136ᵉ de marche, dont nous avons parlé aux pages 129 et suivantes du Cahier IX. Nous détachons de la très intéressante lettre que nous adresse M. Justin Bellanger, les passages suivants : le premier relatif à la mort du commandant Bonlaron (et non Boularon), l'autre à Eugène Despois :
 
@@ -2797,21 +2401,13 @@ Voici ce que dit M. Justin Bellanger d'Eugène Despois, dont nous avons déjà p
 
 J'ai très particulièrement connu, admiré et aimé cet écrivain de grand mérite doublé d'un citoyen de grand caractère. J'ai été son élève à *Louis-le-Grand* (rhétorique) et aussi à Sainte-Barbe où il conférenciait au temps de Labrouste et de Guérard. On sait quelle fut l'ardeur de ses convictions républicaines et surtout la noblesse avec laquelle il renonça courageusement pour elles à une situation exceptionnellement brillante que ses talents lui avaient faite dans l'Université. Quand le suffrage des citoyens fut appelé à élire un nouveau maire pour le quatorzième arron-
 
-[leaf 0420] [p. 187]
-
 dissement, je fus délégué, moi troisième, par nos camarades du bataillon pour aller offrir à Despois la promesse de nos suffrages en sa faveur, s'il y consentait. Il habitait rue Saint-Jacques. Nous le trouvâmes à son bureau, en face de son écritoire, grave et doux, comme il était toujours. Il nous écouta fort gracieusement et nous remercia de même, s'excusant sur son incapacité absolue pour le métier d'administrateur et son défaut complet d'aptitude aux affaires. « Prenez un épicier, il en saura plus long que moi ». Ce fut exactement ce qu'il nous dit en non sous congédiant. Je lui répondis par je ne sais plus quelle citation de Juvénal, son poète favori, et en entendant ce vers il me regarda plus fixement et me reconnut. On échangea quelques mots sur le passé, et ce fut ainsi que Despois en refusant la mairie du quatorzième donna un exemple de sagesse qui eût dû être suivi par beaucoup d'ambitieux de ces temps-là.
 
 C'est en toute sincérité que je vous écris ces lignes, et je serai heureux si vous les considérez comme un témoignage de l'exceptionnelle attention avec laquelle je lis vos précieux cahiers. Je vous présente mes bien cordiales salutations.
 
-## *Cahiers I à IX*
-
 I. 83, ligne 21, au lieu de débiteur, lire *créancier*. — II. 138. Pour Beaufort, voir les cahiers VIII et IX. — II. 171. Les noms désignés seulement par les initiales G. B. et M. (note) sont rétablis dans la lettre ci-dessus d'Alexandre Girault. — II. 179. Le mur de Jecker a disparu. — IV. 82 Dernière ligne. Au lieu de proscription : *prescription*. — IV. 135, ligne 1. Au lieu d'octobre, lire *décembre*. — VII. 101, ligne 4. Au lieu de neuf heures soir, lire *matin*. — VII. 127 (note). Au lieu de Alfort, lire *Altorf*. — VII. 31 (note). Au lieu de Villiaumé, frère, lire *père*. — VIII. 57 (note). Au lieu de Laverdays, *Leverdays*. — VIII. 197. Table alphabétique. Rectifier : Guillaume. 64. 66. 67 ; Guillaume (James) 69. — IX. 115, ligne 6 du renvoi (1), au lieu de comptoir de
 
-[leaf 0421] [p. 188]
-
 zinc, *comptoir*. — 131. 133 et table alphabétique, au lieu de Boularon : *Bonlaron*. — 134, ligne 7. Au lieu de député, *déporté*.
-
-## *Réponse*
 
 Le journal *la Petite Presse* du 3 mars 1872 publiait la note suivante :
 
@@ -2828,82 +2424,34 @@ Je n'ai qu'un mot à répondre. Je n'ai jamais mis les pieds dans la cathédrale
 ----
 (1) Le correspondant londonien en 1872 de la *Petite Presse*, voyant ma signature dans le *Vermersch-Journal*, qui publiait alors ma *Bataille de Mai*, en avait conclu que j'étais à Londres. Or, j'étais à Genève, d'où j'envoyais ma copie. (Voir les lettres de Vermersch). La *Petite Presse* m'avait, en juin 1871, poursuivi déjà de ses dénonciations. (Voir Cahier VI, page 296)
 
-[leaf 0422] [p. — Proscrits. — 11.]
-
 *Je relis, une dernière fois, avant de clore ces pages, les lettres de Vermersch publiées plus haut. Leur ton de violence, en certains passages, ne surprendra personne de ceux qui ont vécu, à Londres ou à Genève, les heures douloureuses, parfois terribles, de l'exil, avec ses colères, ses exaspérations, ses injustices. Aux autres lecteurs, je dois quelques explications. Pour lire les lettres de Vermersch, pour les comprendre et les juger avec impartialité, il faut les replacer dans le cadre où elles ont été écrites. La proscription communaliste est, à Londres, séparée en deux camps. Des deux côtés, des hommes qui ont, tous, fait leur devoir, des hommes d'une conviction et d'une honnêteté farouches. Et, pourtant, ces hommes s'accablent des pires invectives. Hier encore, soldats des mêmes batailles, ils étaient frères. Aujourd'hui, ennemis implacables, ils se menacent mutuellement des représailles les plus féroces, si jamais la victoire, encore une fois, les ramène au pouvoir. Pour se renseigner sur ces tristes jours, il suffit de consulter les journaux de l'exil : le Qui Vive ! la Fédération — surtout. C'est dans cette atmosphère de disputes et de suspicions que Vermersch vit, qu'il m'écrit. Lui-même est furieusement pris à partie. « Je suis — m'écrit-il, lettre IV, janvier 1872 — l'objet de la réprobation quasi-universelle. » Les haines se dressent contre lui avec une telle âpreté qu'on en vient aux voies de fait. Comment, écrivant dans cette fournaise, ne serait-il pas violent, injuste, forcené ! Il rend coups pour coups. Il ne retient plus sa plume. Croit-il tout ce*
-
-[leaf 0423] [p. — ]
 
 *qu'il écrit ! Ceux qu'il vilipende, ses amis de la veille, ont été la bravoure, le désintéressement, l'honnêteté scrupuleuse. Il les a vus à l'œuvre. Ils sont sortis, la tête haute, de l'Hôtel de Ville, pauvres comme lorsqu'ils y étaient entrés. Pauvres : leur pauvreté, leur misère même, visible à tous, est l'honneur de leur exil. Vermersch sait tout cela. Et il accuse toujours. Il crie son exaspération. Si, dans les lettres que, de Genève, j'échange avec lui, je tente de l'apaiser, ce sera en vain. Enfin, il quitte Londres, en apparence calmé. Il vient passer une année à Altorf, près de moi. Il s'en ira bientôt à Genève, où les disputes l'accapareront de nouveau. Il retourne à Londres, déjà frappé par le mal qui va l'emporter. Ces quelques explications, je les devais aux lecteurs des lettres de Vermersch, à ceux qui — fort heureusement pour eux — n'ont pas connu l'exil. Encore un mot. J'aurais pu ne pas publier ces lettres. Ce n'est pas sans réflexion que je me suis décidé à les mettre au jour. Elles constituent un document, précieux malgré tout. Quelques-unes, nul ne le niera, sont fort belles. Elles ne pouvaient rester dans l'oubli.* (1)
 
 ----
 (1) LETTRES DE VERMERSCH. Page 19, ligne 14, au lieu de Maëstricht : *Aix-la-Chapelle*. — Page 25, renvoi (3) et page 31, ligne 3 : Les vers de Vermersch, publiés dans le numéro 1 (9 mai 1872) du *Caprice* (qui m'est communiqué à la dernière heure) ont pour titre : *Après une audition de la Symphonie pastorale*. Les dessins du journal sont signés *Flou* (Pilotell) et *André* (Slom). — Page 61, ligne 18, au lieu de « en face », lire *en masse*.
 
-[leaf 0424] [blank]
-
-[leaf 0425] [blank]
-
-[leaf 0426]
-
-[leaf 0427] [blank]
-
-[leaf 0428] [p. 195]
-
 Les noms en *italiques* sont ceux des membres de la Commune.
 
 ----
 
-[leaf 0429] [blank]
-
-[leaf 0430] [p. 197]
-
 Les noms en *italiques* sont ceux des membres de la Commune.
 
 ----
-
-[leaf 0431] [p. 198]
 
 Brideau (et non Bridault). — 153. 159.
 
-De la Morlière. — 31.
-
-[leaf 0432] [p. 199]
-
 Galles (prince de). — 188.
 
-[leaf 0433] [p. 200]
-
 Grouchet (pour *Grousset*). — 100.
-
-La Chapelle (de). — 123.
-
-[leaf 0434] [p. 201]
 
 Lebourgue (pour Sebourgue). — 114.
 
 Maxime ou Max (fils de Vermersch). — 56. 76. 77.
 
-[leaf 0435] [p. 202]
-
-[leaf 0436] [p. 203]
-
-[leaf 0437] [p. — ]
-
-[leaf 0438] [Proscrits. — 12]
-
-[leaf 0439] [blank]
-
-[leaf 0440]
-
-[leaf 0441] [blank]
-
-[leaf 0442] [p. 209]
-
 DU MÊME AUTEUR en vente à la *librairie des cahiers* ....              9
     I. — Fac-simile de la lettre de Vermersch publiée ci-dessus.
     Lettre numéro I, fin de la lettre et signature ..................23
-
-[leaf 0443] [p. — ]
 
 *neuvième cahier*    *de la quinzième série*
 
@@ -2911,14 +2459,10 @@ DU MÊME AUTEUR en vente à la *librairie des cahiers* ....              9
 
     III. — Fac-simile de la lettre de Delescluze publiée ci-dessus ...143
 
-[leaf 0444] [p. 211]
-
     IV. — Il est là !... Sous trois pas un enfant le mesure !
     (Dessin inédit de Georges Pilotell, pris le 16 mai 1871, à cinq heures et demie du soir, une heure après la chute de la colonne Vendôme). 167
 
         Cahier II. — Un peu de vérité sur la mort des otages ...... 181
-
-[leaf 0445] [p. — colophon]
 
 *neuvième cahier*    *de la quinzième série*
 
@@ -2928,14 +2472,9 @@ INDEX *alphabétique général* des notices biographiques individuelles ........
 
 *Nous avons donné le bon à tirer après corrections pour seize cents exemplaires de ce neuvième cahier et pour trente exemplaires sur whatman le mardi 9 juin 1914.*
 
-                                Le gérant : CHARLES PÉGUY
 ----
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 J. CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 9006
-
-[leaf 0446] [blank — end-paper / binding]
-
-[leaf 0447] [back-cover commerce notice — catalogue of cahiers antérieurs]
 
 Dans les seize cahiers de leur huitième série, année 1906-1907, nos cahiers ont publié :
 

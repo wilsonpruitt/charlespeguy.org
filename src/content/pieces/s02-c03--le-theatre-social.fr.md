@@ -54,7 +54,6 @@ seulement l'idée nouvelle allant trouver l'individu
 
 dans le recueillement de la lecture solitaire; c'est le
 prolétaire, c'est l'exploité, c'est l'écrasé se dressant
-en quelque sorte en chair et en os et réclamant de
 tous son affranchissement. (Applaudissements)
 
 C'est cela qui de tout temps a effrayé les dirigeants, et voilà pourquoi les idées nouvelles, les
@@ -216,7 +215,6 @@ Bref, c'est une société de brigands bourgeois qui
 pratiquent des exécutions conire le vieux monde
 princier et féodal, au nom des principes d'une justice nouvelle. Ah ! certainement, Schiller se garde
 bien d'approuver jusqu'au bout cette tentative, et,
-à la fin, de désastre en désastre et de déception en
 déception, le jeune révolté va se livrer lui-même
 la justice; mais c'est tout de même un signe bien
 saisissant du mystérieux travail qui se faisait alors
@@ -570,9 +568,7 @@ mais celle-là, œuvre vivante, multiple, immense,
 qui se confondra avec l'humanité affranchie. (Longs
 et vifs applaudissements. Cris répétés de : Vive
 
-Le Gérant : CnArLEs PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
-IMPRIMERIE DE SuREsNes (G. RicHArRD, administrateur), 9, rue du Pont.—3603
 
 La rédaction et l'administration des cahiers sont
 installées 16, rue de la Sorbonne, au second.

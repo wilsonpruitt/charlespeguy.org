@@ -8,12 +8,7 @@ isAvertissement: false
 wordCount: 21455
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s11-c13-ocr.txt); ingested 2026-05-25"
 ---
-
-A LA MÉMOIRE DE MES PARENTS BIEN-AIMÉS
-
 « Toute histoire qui n'est pas contemporaine est suspecte. »
-
-Pascal
 
 La vieillesse est venue : la mémoire s'affaiblit chaque jour davantage; les images fraîches ou sombres, si vivement colorées naguère, et qui semblaient si fortement gravées dans mon cerveau, s'oblitèrent, comme l'empreinte d'un cachet usé, ou se décolorent, comme une aquarelle exposée trop longtemps au soleil; quelques-unes n'existent déjà plus.
 
@@ -61,12 +56,6 @@ Lisez et jugez.
 I. — jusqu'au seuil de l'exil
 
 1811-1852
-
-I
-
-UN MARIAGE D'AMOUR
-
-LA POÉSIE A L'ÉPOQUE DE LOUIS-PHILIPPE. — EN GARNISON : FÉLIX MILLIET. — PORTRAIT DE MADEMOISELLE LOUISE DE TUCÉ. — LE PRÉJUGÉ NOBILIAIRE. — DÉCOURAGEMENT PASSAGER. — DERNIÈRES ÉPREUVES.
 
 1
 
@@ -118,10 +107,8 @@ Félix Milliet a fidèlement retracé d'après nature le portrait de Louise de T
 
 J'aime la chevelure
 Dont la noire parure
-Se sépare en bandeaux,
 Puis doucement s'arrange
 Autour de ton front d'ange
-En gracieux anneaux.
 
 De tes seize ans parée
 Et de joie enivrée,
@@ -137,7 +124,6 @@ Le jeune officier raconte une joute sur l'eau à laquelle il avait pris part. Se
 Oh! c'est qu'elle était là, la jeune demoiselle,
 Assise au bord du Loir,
 Son album à la main, dessinant la tourelle
-Du gothique manoir.
 
 Madame de Marescot était une de ces aimables personnes qui, lorsqu'elles ont passé l'âge des plaisirs, aiment encore assister aux gais divertissements de la jeunesse.
 
@@ -173,8 +159,6 @@ Il faudrait raconter les prodiges de diplomatie, les visites, les flatteries, le
 Une page naïve du candide Bernardin de Saint-Pierre nous décrit des réunions de jeunes filles qui ne sont pas sans analogie avec celles auxquelles était invité notre jeune officier :
 
 «... il est d'usage que les demoiselles de la même société s'invitent tour à tour à des assemblées. Elles se rendaient avec leur mère chez celle qui les a invitées. Colacé leur sert du café à la crème, avec toutes sortes de pâtisseries et de confitures faites de sa main. Tantôt elle dévoile à leurs yeux, sur une grande pièce de tapisserie, à laquelle elle travaille jour et nuit, des forêts de saules toujours verts qu'elle a plantés elle-même, et des ruisseaux de moire qu'elle a fait couler avec son aiguille. Tantôt elle marie sa voix au son du clavecin, et semble réunir dans son appartement tous les oiseaux des bocages. Elle invite ses compagnes à chanter à leur tour. C'est alors que les doges redoublent : leurs mères, comblées de joie, s'applaudissent en secret, comme Niobé, des louanges données à leurs filles. Quelques officiers en uniforme et en bottes, échappés furtivement de leurs exercices, viennent jouir parmi elles d'un instant de calme délicieux; et pendant que chacune d'elles espère trouver dans l'un d'eux son protecteur et son ami, chacun d'eux soupire après la compagne qui doit adoucir un jour, par le charme des talents domestiques, la rigueur des travaux militaires. »
-
-APRÈS LE BAL
 
 Les flambeaux pâlissaient, et l'élégante foule,
 Désertant les salons comme une eau qui s'écoule,
@@ -212,8 +196,6 @@ Et qu'on voit s'envoler, hélas! tristes chimères,
 Sur l'aile froide des autans.
 
 3
-
-JOURNAL DE FÉLIX MILLIET
 
 Jeudi 12 juillet 1838. — Visite à madame de Marescot, confidence proposée et « reçûte ».
 
@@ -257,8 +239,6 @@ Bientôt le jeune officier dut quitter Montoire pour aller en garnison à Vendô
 
 quoi j'ai éprouvé une impression douloureuse. C'est le regret, hélas! Bientôt je ne pourrai plus la voir... Et personne à qui confier mes peines! Les cœurs amis en qui j'espérais de trouver ma douleur, m'ont paru tellement froids, que je l'ai renfermée en moi-même.
 
-ADIEU
-
 Plus je l'aime, ô mon Dieu! plus je suis misérable,
 Dans son brillant chemin je passe inaperçu;
 En vain je la supplie, elle est inexorable,
@@ -299,14 +279,9 @@ Dimanche. — Dansé la première contredanse avec mademoiselle Louise pour vis-
 
 La soirée terminée, madame de Tucé m'a prié d'aller chercher le manteau de sa fille. Dans la joie mêlée de surprise que ces mots m'ont causée, je suis parti comme un fou, sans prendre, je crois, le temps de répondre. Le domestique courait après le cheval qui s'était échappé à travers les arbres en abandonnant la voiture. Les manteaux n'y étaient pas. Heureux dire cela à madame de Tucé. Puis, je suis revenu en hâte auprès du domestique qui m'a montré le manteau et le châle assis sur un banc de pierre. Je les ai pris, on m'a remercié, et les voilà parties. Ma voiture de louage s'est trouvée derrière la leur pendant tout le trajet... Et c'a été la fin de mon bonheur.
 
-SON RETOUR
-
-Je souffrais en silence,
 Maudissant son absence
-Si tardive à finir;
 Je la voyais en rêve,
 Mais mon bonheur s'achève,
-Elle va revenir.
 
 Tout s'embellit, se dore,
 S'anime et se colore
@@ -330,8 +305,6 @@ Samedi 8. — Madame de Marescot m'envoie la réponse que lui a faite madame de 
 «... J'ai besoin, madame, de parler à cœur ouvert avec vous qui avez toujours témoigné tant d'intérêt à ma fille. Je n'ai parlé ni à Louise, ni à son tuteur de la proposition que vous m'aviez faite car elle, étant bien décidée à ne pas marier ma fille avant ses dix-huit ans accomplis. Car telle était l'intention de M. de Tucé... Vous savez aussi, madame, que ma fille appartient à une des plus anciennes familles du Maine, qui trouverait peu convenable que je fisse faire à Louise une alliance, où elle ne trouverait ni naissance ni titre. Je ne puis vous donner une réponse positive avant d'avoir eu de nouveaux renseignements. Mais je vous prie, madame, de dire à M. Milliet que je n'en demande ni n'en prends aucun, s'il ne consent premièrement à attendre jusqu'au mois de septembre ou octobre 1839, et s'il ne consent encore à prendre un titre en se mariant, car je crois qu'il n'est pas gentilhomme. Je crains bien qu'il n'y ait élève encore des difficultés relativement à l'éloignement des propriétés que peut avoir M. Milliet. J'ai entendu dire qu'il était de Valence. Je ne pourrais consentir à voir Louise s'éloigner à une aussi grande distance.
 
 Je vous renouvelle, madame, mes remerciements pour l'intérêt que vous témoignez à Louise, et vous prie d'agréer l'assurance de ma respectueuse attachement.
-
-De TUCÉ, née HUÉ DE MONTAIGU »
 
 Félix Milliet à son ami, M. de Montal :
 
@@ -363,7 +336,6 @@ Inquiète, attendait le moment désiré
 Peut-être hélas trop lent à venir à son gré.
 
 Tu ne comprendras pas l'ivresse, le délire,
-La volupté qu'on a de penser, de se dire
 Que votre ange adoré, en vous voyant ainsi,
 Vous plaindra, puis tout bas murmurera : merci.
 Car elle saura bien que c'est à cause d'elle
@@ -413,7 +385,6 @@ Le sylphe heureux qui te caresse.
 
 Mais hélas, je suis peu de chose,
 Ni grand peintre, ni sylphe rose,
-Ni poète à la lyre d'or;
 Qu'importe, si tu veux me prendre
 Tel que je suis, rêveur bien tendre,
 Avec mon cœur pour tout trésor.
@@ -451,17 +422,9 @@ Et les vœux insensés que j'adressais au ciel.
 Enfin tu m'entendras dire que je t'adore,
 Te le dire cent fois, puis te le dire encore.
 
-Avril 1839.
-
 Félix Milliet avait 27 ans au moment de son mariage, Louise de Tucé en avait 17.
 
-II
-
-VIE FAMILIALE
-
 1840-1851
-
-PORTRAITS DE MES PARENTS. — NAISSANCE DE FERNAND, D'ALIX ET DE PAUL. — M. MILLIET DONNE SA DÉMISSION D'OFFICIER. — MÉLOTTES. — FANTAISIE ET RÉALITÉ. — VISION MERVEILLEUSE. — ENFANTILLAGES. — UN MÉFAIT IMPUNI. — ÉDUCATION SELON MONTAIGNE. — DIATRIBE CONTRE LE TABAC. — UN CHIEN ENRAGÉ.
 
 1
 
@@ -479,8 +442,6 @@ M. et madame Milliet passèrent gaiement leurs premières années de mariage. Le
 Mon frère Fernand naquit le 6 août 1840.
 
 La vie militaire en province n'offrait pas grand attrait à des esprits avides de liberté et de vie intellectuelle. Aussitôt qu'un fils lui est né, Félix songe à quitter le service :
-
-PROJETS
 
 Veux-tu nous faire une existence
 Fraîche comme un beau jour d'avril,
@@ -528,8 +489,6 @@ Car l'amour sait tout embellir.
 
 Un peu plus tard Félix écrivit la jolie romance intitulée « Le Rêve » (musique de madame Magnin). Il ne faisait que traduire en vers une page de prose composée par Louise.
 
-LE RÊVE
-
 Mon bien-aimé, j'ai fait un rêve
 (Que je veux te conter tout bas;
 Viens sur le sable de la grève,
@@ -552,7 +511,6 @@ Baignant tes pieds endoloris.
 Puis, le ciel s'étant voilé d'ombre,
 Tu rencontrais, près du bois sombre,
 
-Un ennemi provocateur;
 J'étais alors la bonne épée,
 Prompte, fidèle et bien trempée,
 Ma pointe allait le mordre au cœur.
@@ -576,8 +534,6 @@ Alors d'un bonheur pur mon triste front s'éclaire,
 Comme un sombre horizon aux rayons du soleil;
 Et je baise mon fils et je bénis sa mère,
 Et j'adresse pour eux une prière au ciel.
-
-A LA MÈRE DE MON ENFANT
 
 Mère, petite mère!... oh, comme à ton oreille
 Ce mot harmonieux paraîtra bien plus doux,
@@ -609,8 +565,6 @@ Oh, dis-moi tout cela, je saurai te comprendre,
 Dis-moi tout ton bonheur, je t'en prie à genoux,
 Car je te porte envie et, si j'étais moins tendre,
 Et si je t'aimais moins, j'en deviendrais jaloux.
-
-Pontivy, octobre 1840.
 
 2
 
@@ -803,11 +757,7 @@ Nous étions si jeunes alors que l'action héroïque (1) de notre mère nous sem
 
 (1) Il faut songer qu'à cette époque le virus antirabique était encore inconnu.
 
-III
-
 1848-1851
-
-QUELQUES RÉPUBLICAINS DU MANS. — CHANSONS POLITIQUES : HAINE DE LA TYRANNIE. — PITIÉ. — RÊVES DE JUSTICE SOCIALE. — FOI DANS L'AVENIR. — UN DUEL.
 
 1
 
@@ -846,8 +796,6 @@ Les chansons que voici font l'œuvre d'un nouveau venu, après Désaugiers, apr�
 
 Cet encouragement du maître a porté ses fruits; Félix Milliet a oublié son refrain; il a chanté et voici ses œuvres. Populaires au fond de la province qu'il habite, elles le deviendront à Paris aussi, car un seul sentiment les a dictées : l'amour de la République, la foi dans notre immortelle devise : Liberté, Égalité, Fraternité.
 
-NAPOLÉON GALLOIS
-
 Ces chansons eurent au Mans un vrai succès. Un jeune ouvrier mécanicien, Charles Delaporte, qui avait une très belle voix, les chantait dans les réunions populaires, et la foule, charmée d'entendre exprimer ses propres pensées, reprenait en chœur les refrains. (1) Le
 
 (1) Ch. Delaporte devint ingénieur, construisit un chemin de fer en Roumanie, puis de retour au Mans, fut élu conseiller municipal.
@@ -877,8 +825,6 @@ Voyez, voyez nos frères s'insurger!
 Sonnez pour eux l'heure de délivrance,
 Chantez encore, ô Béranger.
 
-ENVOI
-
 Doux souvenir! votre bouche indulgente
 Daigna sourire à mes modestes vers,
 Et votre voix m'a dit : jeune homme, chante,
@@ -889,26 +835,16 @@ De devenir un jour l'écho léger,
 Vague et lointain de votre grande lyre.
 Chantez encore, ô Béranger.
 
-15 avril 1849.
-
-Le poète répondit :
-
 « Je vous remercie, monsieur, de la charmante chanson que vous m'adressez. Je vous ai dit chantes, et ce mot vous le répétez de la façon la plus flatteuse pour moi.
 
 « J'ai une réponse bien simple à faire à vos couplets, double inspiration du cœur et de l'esprit. J'ai soixante-neuf ans, monsieur, et quand vous serez arrivé à cet âge, la raison qu'on a alors de se taire ne vous apparaîtra que trop clairement.
 
 « Heureusement pour vous et pour vos amis, vous avez longtemps à chanter encore. Profitez-en, monsieur, et conservez bon souvenir au vieux chansonnier qui vous prie de croire à sa considération bien cordiale.
 
-« BÉRANGER
-
-« Passy, 15 avril 1849 »
-
 3
 
 Nous ne donnons ici que quelques spécimens des nombreuses chansons composées par Félix Milliet. D'un bout à l'autre de ce recueil, ce sont les mêmes sentiments qui animent le poète : la haine de la tyrannie, la pitié pour ceux qui souffrent, l'aspiration vers une orga-
 nisation plus équitable de la société, la foi dans un avenir de paix et d'harmonie mondiale.
-
-VIVRE LIBRE OU MOURIR
 
 Air du Dieu des bonnes gens
 
@@ -949,13 +885,9 @@ D'effroi bientôt il vous fera pâlir,
 En rugissant son antique devise :
 Vivre libre ou mourir!
 
-Avril 1849.
-
 La Commission exécutive était alors composée de Lamartine, Arago, Ledru-Rollin, Marie et Garnier-Pagès, « républicains timides, dont la politique ne répondait plus aux aspirations des démocrates et des socialistes. La misère était grande. On avait essayé d'y remédier par la création d'ateliers nationaux, où cent mille ouvriers presque inoccupés faisaient semblant de travailler. C'était une dangereuse armée de mécontents.
 
 Le 15 mai, une première émeute fut aisément réprimée; on emprisonna Blanqui, Barbès et Raspail. Mais lorsque le Gouvernement licencia brusquement les ateliers nationaux, les ouvriers abandonnés sans ressources, s'insurgèrent. Ce mouvement dura trois jours (du 23 au 26 juin). Les ouvriers ne furent vaincus qu'après une lutte sanglante. La dure répression qui suivit cette émeute arracha à Félix Milliet ce cri de pitié :
-
-COURAGE ET FOI
 
 Air nouveau de madame Laure Magnin
 
@@ -1003,10 +935,6 @@ Voilà le cri du peuple en France.
 Bien avant que Zola eût écrit son beau roman intitulé Travail, F. Milliet voulut attirer l'attention sur une des plus criantes injustices sociales. Un capitaliste, dont la fortune n'a pas toujours une source très pure, achète, par exemple, quelques actions de charbon-
 nages. De ce fait, ses descendants seront à jamais exemptés de tout travail, tandis qu'une famille d'honnêtes ouvriers n'aura aucune part dans la plus-value que son travail seul aura produite. Elle verra ses enfants, affaiblis par la misère, s'étioler par la prolongation de travaux excessifs et insalubres.
 
-LE MINEUR
-
-Complainte inédite
-
 Enfant conçu dans le délire
 D'un mutuel et saint amour,
 Pour lui commence le martyre
@@ -1029,7 +957,6 @@ A son premier cri dans ce monde,
 Il n'eut, pour apaiser sa faim,
 Rien qu'une mamelle inféconde
 Où sa bouche s'attache en vain.
-Travaille, etc...
 
 Le père, au retour de l'ouvrage,
 Prend l'enfant dans ses bras nerveux,
@@ -1040,7 +967,6 @@ La pauvre mère que déchire
 La maladie et les douleurs,
 A répondu par un sourire
 Encore plus triste que ses pleurs.
-Travaille, etc...
 
 O puissance de la nature!
 L'enfant croît dans ce triste lieu,
@@ -1050,7 +976,6 @@ Sa faible main soulève à peine
 La pioche et la pince de fer.
 Que le père avec lui l'emmène :
 Ils se plongent dans leur enfer.
-Travaille, etc...
 
 Dans les entrailles d'une mine,
 Séjour à la tombe pareil,
@@ -1060,7 +985,6 @@ Enseveli dans sa retraite,
 Il fouille du matin au soir
 Et, de temps à autre, l'on jette
 A sa faim un peu de pain noir.
-Travaille, etc...
 
 Il grandit, nouveau sacrifice!
 Il entend l'appel du tambour;
@@ -1070,7 +994,6 @@ Où ton corps chétif se déforme,
 Allons, conscrit, redresse-toi!
 Tu vas revêtir l'uniforme
 Et devenir soldat du Roi.
-Travaille, etc...
 
 Embrasse ton père et ta mère,
 Puis sous les drapeaux prends ton rang;
@@ -1081,7 +1004,6 @@ Car, vois-tu bien, l'or seul exempte
 D'avoir du courage et du cœur.
 Celui qui possède une rente
 N'a pas besoin d'autre valeur.
-Travaille, etc...
 
 Du riche ayant payé la dette,
 Tu reviens, las de guerroyer;
@@ -1091,7 +1013,6 @@ Ta mère n'est plus et ton père
 Gît sur une paille en fumier;
 Bientôt il meurt. Pour qu'on l'enterre,
 Tu donnes ton drap dernier.
-Travaille, etc...
 
 Doux miracle de la jeunesse!
 L'amour a fait battre ton cœur,
@@ -1107,14 +1028,10 @@ Loin du soleil qui luit si beau,
 Travaille, travaille, travaille!
 Dans la mine, sombre tombeau.
 
-Mars 1851.
-
 L'atténuation de la misère, tel est le grave et urgent problème auquel s'attachent avec passion tous les socialistes. Évidemment, l'inégalité actuelle dans la répartition des richesses et des joies de la vie est excessive et intolérable. Une société dans laquelle on voit, à côté de nombreux fainéants qui s'amusent, de
 courageux travailleurs réduits à mourir de faim, n'est pas une société bien organisée.
 
 Félix Milliet se fait l'écho des revendications ouvrières :
-
-LA FAIM
 
 Du pain, du pain!
 Voilà le refrain
@@ -1132,7 +1049,6 @@ Ce travers vous est commun
 De n'avoir que des paroles
 Pour les estomacs à jeun.
 
-La jalousie inféconde
 N'excite pas nos désirs,
 Gardez, ô puissants du monde,
 Votre luxe et vos plaisirs.
@@ -1143,7 +1059,6 @@ Sur l'aile de la tempête
 La faim entre en nos réduits.
 
 Quand vos filles et vos femmes
-S'épanouissent au bal,
 Les nôtres, les pauvres âmes,
 Tremblent d'un frisson fatal.
 
@@ -1158,7 +1073,6 @@ A planté son étendard;
 Riches, des biens de la terre,
 Chacun doit avoir sa part.
 
-Modernes Sardanapales,
 Que direz-vous, lorsqu'enfin
 Surgiront nos faces pâles,
 Au beau milieu du festin. (1)
@@ -1175,10 +1089,6 @@ Vive le pain!
 
 Cependant le jeune poète reste rempli d'espoir et prédit un avenir meilleur :
 
-CHANTONS
-
-Air : A l'automne de la vie
-
 Pour l'artisan, jeune fille,
 Vois comme le ciel est beau!
 Allons, quitte ton aiguille
@@ -1191,29 +1101,20 @@ Viens sur la pelouse verte
 Où tourbillonne le bal;
 De l'orchestre bruyant entends-tu le signal?
 C'est la danse
-Qui commence
-Ses joyeux festons;
 Pour mieux suivre la cadence,
-Chantons, chantons,
-Ma charmante, chantons.
 
 Que fais-tu là dans la rue,
 Jeune femme au teint fardé,
 Montrant ton épaule nue
 A ce passant attardé?
 Ah! c'est la faim qui te presse,
-Et tu mets de la jeunesse
 Tous les trésors à l'encan;
 La prostitution te rive à son carcan!
 
-Vierge folle,
-Dieu console,
 Il a des pardons.
 Souffrance est une auréole,
-Chantons, chantons,
 Pauvre femme, chantons. (1)
 
-Le parti démocratique
 Pleure de vaillants soldats;
 Héros qu'un destin inique
 Confondu avec des forçats;
@@ -1224,18 +1125,10 @@ L'espoir, baume souverain;
 (1) Le docteur Barbier critiquait, avec raison, ce refrain, qui paraît célébrer l'insouciance. Cependant les grands musiciens et les grands artistes ont aussi chanté leur douleur.
 
 Amis, chantons comme eux ce consolant refrain :
-Prolétaire,
-La misère
 Que nous combattons,
 Disparaîtra de la terre;
-Chantons, chantons,
-Prolétaires, chantons.
-
-Septembre 1849.
 
 Il n'eût pas fallu chanter, mais veiller, et frapper vigoureusement les conspirateurs et les traîtres.
-
-A NOS ENFANTS
 
 Air nouveau de madame Laure Magnin
 
@@ -1267,11 +1160,7 @@ Nous, vos aînés, nous succomberons tous;
 Nous remplissons le rôle de Moïse,
 Enfants chéris, nous travaillons pour vous.
 
-Novembre 1849.
-
 Socialiste convaincu, F. Milliet n'était pas partisan de la « guerre des classes ». Pour lui, le peuple est composé de tous les citoyens, riches et pauvres, Français et étrangers. Déjà les haines de races tendent à disparaître; l'internationalisme et l'antimilitarisme rendront de plus en plus rares les guerres de conquêtes, mais non la guerre sociale entre patrons et ouvriers. Une répartition plus équitable des richesses entre le capital, le travail et le talent peut seule arrêter cette lutte fratricide, aussi folle et aussi condamnable que le chauvinisme d'autrefois. (1)
-
-MARCHONS EN FRÈRES
 
 Air nouveau de P. Garraud
 
@@ -1286,7 +1175,6 @@ N'aura plus d'échos désormais.
 
 Bourgeois, soldats et prolétaires
 Se sont enfin serré la main;
-Marchons en frères
 Sous l'étendard républicain.
 
 Nous sommes faits pour vivre ensemble,
@@ -1360,8 +1248,6 @@ Le ciel en souriant se plut à modeler,
 Si parfois des chagrins viennent courber ta tête,
 N'as-tu pas ton poète et nos cœurs pour t'aimer?
 
-Juillet 1851.
-
 (1) On m'assure que M. Vallée était un parfait honnête homme et je veux le croire; mais il avait garde de son éducation catholique un certain masque de scrupules dans la polémique, et une prédilection bien spéciale aux dévots pour l'arme de Basile.
 
 Félix Milliet répondit :
@@ -1372,7 +1258,6 @@ A ma muse gisante
 Au revers du chemin;
 Vous dont la voix est pleine
 De charme et de douceur,
-Bonne Samaritaine,
 Merci du fond du cœur.
 
 Qu'il inonde notre âme,
@@ -1380,36 +1265,25 @@ Nos sens et notre cœur,
 C'est toujours d'une femme
 Que nous vient le bonheur.
 
-ANNEXE AU CHAPITRE III
-
 Pour ceux qu'intéresse l'histoire du parti républicain socialiste en 1848, nous donnerons encore, à titre de documents, quelques vers de F. Milliet, qui nous semblent être un écho fidèle de cette opinion, en province, à cette époque.
-
-LES ÉLECTIONS DE 1848
 
 Démasquons bien le Jésuite,
 Car il se glisse partout,
 Ce gueux à face maudite
 Chez nous est encor debout;
 Pour en purger à jamais
-Le territoire français,
-Citoyens, citoyens,
 Nommons des Républicains,
-Citoyens, citoyens,
 Mais de vrais Républicains.
 
-Le Jésuite se transforme
 Comme un vrai caméléon,
 Il endosse l'uniforme
 Quand cela lui semble bon,
 Mais, soldat ou général,
 Pour qu'il ne fasse aucun mal
-Citoyens, etc...
 
 Ami des joies de la famille, F. Milliet n'avait pas la moindre ambition personnelle. Porté comme candidat à la députation, il avait des chances d'être élu, mais il se retira très correctement devant la candidature du grand orateur, Ledru-Rollin. (1)
 
 (1) Ledru-Rollin (1807-1874), avocat à la Cour de Cassation, défendit un grand nombre de journalistes et de républicains, poursuivis par le Gouvernement de Louis-Philippe, ce se fit une popularité, en revendiquant la souveraineté nationale basée sur le suffrage universel. Malheureusement l'éducation politique du peuple était encore bien insuffisante « faire voter des ignorants, lui disait-on, c'est mettre un rasoir entre les mains d'un singe ». Élu député du Mans en 1841, il devint, par son éloquence vaste, l'orateur le plus entraînant de l'extrême gauche on la compare à Danton. Il vieille voleur l'usage immoral des fonds secrets, souleva l'indignation contre les mauvais traitements infligés aux prisonniers politiques, et combattit le projet des fortifications de Paris présenté par Thiers. Un mariage romanesque lui avait apporté une grande fortune; il la mit au service de l'opposition. Il fonda et puis fonda le journal La Réforme, où il formula avec énergie et clarté les justes revendications des démocrates. Le 24 février 1848, il est nommé membre du Gouvernement provisoire et chargé du ministère de l'Intérieur. Il s'efforça vainement d'amener une entente entre une bourgeoisie égoïstement rivengée et des prolétaires ingouvernables. Il fit envoyer devant le jury les insurgés des journées de juin et prit courageusement la défense de Louis Blanc et de Caussidière menacés de complicité avec eux. A la Chambre, l'éloquent tribun défendit la liberté de la presse, s'opposa au rétablissement du cautionnement des journaux, et essaya d'empêcher l'intervention française à Rome. Promoteur de la campagne des banquets, il fut candidat à la Présidence de la République, obtint 370 mille voix et, en 1849, fut élu député dans cinq départements. Les calomnies odieuses répandues
-
-AUX REPRÉSENTANTS DE LA MONTAGNE
 
 Chanson dédiée au citoyen Ledru-Rollin, et chantée au banquet qui lui fut offert le 10 avril 1849
 
@@ -1428,8 +1302,6 @@ A déployé ses étendards;
 Au secours de la République
 Accourez, vaillants montagnards...
 
-ENVOI
-
 O vous! sur qui la calomnie
 Longtemps distilla son poison,
 Courage! la ligue ennemie
@@ -1444,42 +1316,32 @@ De tous nos droits soyez le défenseur.
 
 Le Prince Président avait promis de ramener en France le crédit et la richesse. C'est sur l'air de Cadet-Roussel que l'on chantait cette chanson :
 
-MONSIEUR CRÉDIT
-
 Monsieur Crédit, dans son exil,
 Longtemps a dit : Ainsi-soit-il!
 Pour qu'on le tire enfin de peine,
 Il a fait dire à un écrivain.
-Ah! ah! ah! oui vraiment
 Monsieur Crédit est bon enfant.
 
 Monsieur Crédit serait content
 D'être choisi pour Président.
 Mais hélas! qu'on le lui pardonne,
 C'est en attendant la couronne. (1)
-Ah! ah! ah! oui vraiment
 Monsieur Crédit est bon enfant.
 
 Monsieur Crédit nous a promis
 Que l'on serait de ses amis,
 Pourvu que l'on aille à la messe,
 Et que surtout l'on se confesse.
-Ah! ah! ah! oui vraiment,
 Monsieur Crédit est bon enfant.
 
 On dit que de ces lieux divins
 Les nobles seront chérubins,
 
-(1) Poète, prophète.
-
 Les jésuites seront archanges,
 Et tous les Blancs de petits anges.
-Ah! ah! ah! oui vraiment;
 Monsieur Crédit est bon enfant.
 
 Il y a seize couplets, je ne puis tout citer.
-
-N'ES-TU QU'UN RÊVE?
 
 Ignorance, fléau du monde,
 A ton joug on veut nous plier;
@@ -1493,13 +1355,11 @@ N'es-tu qu'un rêve, ô liberté!
 De tout républicain sincère
 Faisant un vil conspirateur,
 Chaque journal du ministère
-Se transforme en accusateur.
 Déjà commencent les poursuites...
 Puis, on met l'Université
 Sous l'éteignoir des bons Jésuites,
 N'es-tu qu'un rêve, ô liberté!
 
-Au travailleur, au prolétaire,
 On remet le bât sur le dos,
 Loin de soulager la misère,
 On forge de nouveaux impôts.
@@ -1509,8 +1369,6 @@ Redit, hélas! plein d'amertume :
 N'es-tu qu'un rêve, ô liberté!
 
 Qu'on me permette d'ajouter encore une très belle chanson qui fut souvent attribuée à mon père. Ce récit vivant et enthousiaste des « trois glorieuses » journées et de la chute de Louis-Philippe eut un succès retentissant qui durat encore sous le second Empire. A Genève, tout enfant, j'ai plus d'une fois crié à tue-tête ma partie dans le chœur des jeunes proscrits, lançant à plein gosier ces énergiques paroles que fait si bien valoir une musique entraînante. Grâce à la conviction profonde des chanteurs, l'effet était d'une puissance dont les chœurs guerriers de nos plus célèbres opéras n'approchent assurément pas. La police genevoise si débonnaire en était quelque peu effarouchée.
-
-LE GAMIN DE PARIS
 
 Air de Charlotte la Républicaine
 
@@ -1526,9 +1384,6 @@ On me vit le premier;
 Je n'avais à la main
 Sabre ni carabine,
 Et j'offrais ma poitrine
-Au soldat incertain.
-
-Je suis, etc...
 
 Criant : Ne tirez pas!
 Devant vous sont des frères,
@@ -1540,8 +1395,6 @@ L'uniforme et la blouse,
 Que la haine jalouse
 Fasse place à l'amour!
 
-Je suis, etc...
-
 On entendit ma voix,
 On releva les armes;
 Point de sang, ni de larmes
@@ -1551,59 +1404,41 @@ A mes cris de « Réforme! »
 Fondant en masse énorme
 Au galop des chevaux.
 
-Je suis, etc...
-
 Ces lâches, sans péril,
 Nous ont livré bataille!
 Ah, pour la représaille!
 Armons-nous du fusil.
 Et que, de toutes parts,
-Les grandes barricades
 Contre leurs cavalcades
 Nous servent de remparts!
-
-Je suis, etc...
 
 Alors l'arbre géant
 Succombe sous la hache,
 Ce pavé qu'on arrache
-Se dresse triomphant.
 Mais sur le boulevard
-La fusillade éclate;
 Nous accourons en hâte,
 Hélas, c'était trop tard!
 
-Je suis, etc...
-
 Aux marches du palais
-Où Guizot se prélasse,
 
-Des cadavres en masse
-Gisent amoncelés...
 Promenons aux flambeaux
 Cette horrible hécatombe;
 Que tout ce sang retombe
 Sur les lâches bourreaux!
-
-Je suis, etc...
 
 A tous les carrefours
 Où le convoi s'avance,
 L'écho redit : Vengeance!
 De la ville aux faubourgs.
 Du peuple et des bourgeois
-La formidable armée,
 En un clin d'œil formée,
 Marche au palais des rois.
-
-Je suis, etc...
 
 En vain le vieux renard
 Qui gouverne la France
 Proclame la régence,
 On répond : C'est trop tard!
 A bas les endormeurs
-Du parti monarchique,
 Vive la République!
 Fut le cri des vainqueurs.
 
@@ -1612,11 +1447,7 @@ Enfant de la sainte canaille;
 Bravant le fer et la mitraille,
 Des tyrans je me ris.
 
-IV
-
 1851 - 1852
-
-MONSIEUR RÉAC. — LE COUP D'ÉTAT. — LES COMMISSIONS MIXTES. — VISITE DOMICILIAIRE. — DÉPART POUR L'EXIL.
 
 1
 
@@ -1727,8 +1558,6 @@ Mon cher petit père,
 Nous serons bien heureux de te voir, cependant nous voudrions bien que tu ne sois obligé d'aller à l'étranger pour y aller aussi. Moi et Alix nous voudrions beaucoup aller à Genève, voir ce beau lac bleu, puis grimper sur les montagnes, sur le Mont Blanc; Fernand voudrait aller à Taïti pour manger des ananas; et toi petit père, où aimerais-tu mieux aller? Nous avons tous grande envie d'aller voir les chemins de fer, les montagnes, les bateaux à vapeur. — Fernand t'a marqué je pense que j'étais premier en calcul. J'ai composé cette semaine en histoire sainte et géographie.
 
 Adieu, cher petit père. Ton petit Paulo qui t'embrasse de tout son cœur.
-
-Janvier 1852.
 
 Un désir intense de revoir ses enfants fit oublier à mon père toute prudence. N'y tenant plus, il se rasa la
 moustache et, affublé d'une fausse barbe, se dirigea de grand matin vers son logis. Un excellent ami, M. Morancé, menuisier, fit preuve d'un rare dévouement dans ces circonstances critiques. Il avait apporté à mon père des vêtements d'ouvrier et les deux menuisiers cheminaient en portant sur leurs épaules une longue planche.

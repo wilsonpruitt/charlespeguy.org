@@ -8,28 +8,11 @@ isAvertissement: false
 wordCount: 20028
 ---
 Jeureux qui comme Ulysse...
-|
 
 à paraissant vingt fois par an
 
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-# DATANT Ni 1 1
-k VÉAT Yes be CE LATTES Er Hg PARTS ÿ a
-CN CPR AT PT Let as x das SA Me tt
-fi SORA 4 Prd EE PS SAR ET IL AORSRSES 4
-ay Ar » r. Rp er Le
-
-y fi) ZAR “fes Ne Det ABS
-RUE Aa Et ï TR SES er" RETRISE re
-
-fu à RRUS ET à À ne
-PRE ere 3 SES
-| AL FINE ATEN: 7
-ls EI NI
-l ‘SES à : Ê DC! UE À Us ou fs és Da
-
-| Lie GR
 # Nous avons publié dans nos éditions antérieures a. ce
 ue dans nos cinq premières séries, 1900-1904, un si. ï
 et grand nombre de documents, de textes formant dos- -
@@ -56,7 +39,6 @@ UE place, les références demandées. < À]
 MATE Ce catalogue, in-18 grand Jésus, forme un cahier
 fs très épais de XII+408 pages très denses, marqué cinq : 24
 
-| a A Fat OU | ri, ‘ QU . AU
 francs; ce cahier comptait comme premier cahier de la ‘4
 … sixième série et nos abonnés l'ont reçu à sa date, le #43
 … 2 octobre 190%, comme premier cahier de la sixième 10
@@ -85,41 +67,13 @@ Men L pis attendant que paraisse le catalogue analytique som- AU
 Ë _ maire de nos deuxièmes cinq séries, 1904-1909, on à À
 | peut consulter, — provisoirement, — la petite table v..
 analytique très sommaire que nous avons publiée en fin à né
-di) de ce cahier index. à
-
-| à % RUE ï MRC HR
-ne : {1 A TARES ts
-Ma: ne Le RER
 
 Heureux qui comme Ulysse...
-| (9 L |
-Le À ee
 
-|
-DU MÈME AUTEUR ne
 en vente à la librairie des cahiers
 Le Mur de Verre, roman;
 Poèmes des Temples et des Tombeaux.
 Idylles et Épigrammes romaines.
-
-F LUE We rs Une 04 L'ONE AA.
-
-| ] MARS 1 #13 10e
-| Tes AT 4
-
-| RARE T c Ska PU:
-| CT ANE : FAX TIRE È 1 Dont
-| 1 re } Ho at 1 MIRE Wu: pit ‘4
-
-| f Hs AE E\ N { À NU
-
-OS RE à tt ie Ain fr Re ATEN A de Dr
-ii Fu 7 Li DO M PR TRUST A RE ON UE ET & Trés
-) HF #4 LS MADAME Je APS EAANR ES AUE PARA Has) SN 3 rt
-LPRD ee DRAC a EN AA A ET HAAR UE LPO SRATANTAt PRE re
-#UY \ 4 u
-> 14 À 1E RP SR AL "
-AU! { f ÿ ; ait é Na As ni FANS FER (CAN NT
 
 P OURQUOI t'aurais-je fait des confidences ? dit
 Cyrille. Parce que, pendant quatre semaines À
@@ -144,17 +98,13 @@ Installé sur un banc, Renaud poursuivit :
 prétends avoir un garçon de quinze ans ? j
 — Dame, je me suis marié jeune! 4
 
-L'autre reprit : TN
 — En tant d'années, tu n'as su faire qu'un seul A
 Cyrille enleva sa casquette humide de matinale. LUE
 
 | buée ; il l'essuyait sans hâte, ce qui fit dire à Renaud
-complaisamment : ‘ET
-À — Moi, j'en ai trois! !
 | Puis, tirant un portrait de son, portefeuille : É
 — Tiens, si tu veux les voir ? À
 Cyrille tenta de ne point paraître indifférent. |
-L'autre ajouta : à
 — Montre quel air a ton gamin. (
 — Gelui qu'ils ont tous à son âge. ;
 — Tu veux te faire prier. Tu as bien quelque 4
@@ -172,29 +122,22 @@ un ton qu'il eût voulu calme: ;
 ports, j'en laisse rôder sur mon brick, même des :
 : petits. Ils viennent jouer jusque dans ma cabine. |
 
-\ fi | HEUREUX QUI COMME ULYSSE 14
 _  —Je me flatte d'être paternel, mais je n'irais pas 4
 4 jusqu'à m'amuser avec les enfants des autres. C'est | Hi.
 Ki du tien seul que j'entendais parler. 1
-LA — Les autres ou le mien... : 4
 fr — Quoi donc ? À
-Le — Non, rien. je
 — Puisque tu as commencé... 4
 Cyrille bourra sa pipe, puis voyant s'obstiner De
 Renaud, il dit, impatient: ‘à
 — Si je me soucie d'autres enfants. plus que de :
 mon fils, que Cimporte ? id
 ja Renaud murmura avec stupeur : 4
-— Tu te soucies moins... (1
 Mais Cyrille coupa court. 4
 — Laissons tout ça. 1
 Renaud, mortifié, voulut se taire, pourtant sa s É
 ÿ: curiosité l'emporta : l
-de : — Tes sentiments ne me concernent point, et je ne y
 ù ai pas questionné. C'est toi-même qui parles de ton ne
 … fils dans des termes... be
-._. — Mon Dieu, tantôt. |
-k __ — Tu m'as traité de mauvais père. | ‘a
  — Ce n'était qu'une plaisanterie. cl
 
 — Ne retire donc pas, à mesure, tout ce qu'il peut |
@@ -223,11 +166,8 @@ frappé; mais Cyrille éclata d'un rire ingénu :
 théories, mais Rémy m'appartient, — autant qu'on 4
 peut répondre de telles choses. |
 
-dr HEUREUX QUI COMME ULYSSE
 — Dans ce cas, tu l'aimes! |
 | Mais Cyrille passionnément dépouilla toute ré-
-| serve :
-| — Non, je ne l'aime pas, je le tolère.. quand il se
 ; montre intelligent ou affectueux... Mais sitôt qu'il
 _ est sale, qu'il est faux, qu'il crie.
 — Tu timpatientes, — comme chacun de nous!
@@ -237,7 +177,6 @@ Ses lèvres et ses mains tremblaient.. Effrayé |
 d'un pareil épanchement, Renaud tenta de l'ar- |
 — Je n'exagère pas, cria Cyrille. J'atténue au
 contraire. Je ne parle pas de dégoût, je ne parle ‘
-pas. Û
 | Renaud, s'indigna pour de bon:
 — Ce sont des mots qu'on ne prononce pas! ÿ
 — Et que gagne-t-on à les taire ?
@@ -246,7 +185,6 @@ L'autre répliqua vivement :
 assez souvent. Tu dis trois ans d'absence ? i
 — Et les fois précédentes ?
 
-; Jean Schlaumberger TRES EUN Que
 — Mais de là tout le mal! Vous n'avez pas le “4
 
 temps de vous connaître. 4
@@ -262,7 +200,6 @@ temps de vous connaître. 4
 Fa ce que je dis, vous levez les bras. — Au moins là-bas
 41 je suis forcé de me taire... J'écris souvent, autant à 4
 k Rémy qu'à ma femme. Je puis peser les mots mieux 4
-| qu'en parlant. ER È
 — Si tu te laissais bonnement aller au premier à
 mouvement de ton cœur... ï
 % — Mais ces mouvements, je ne les ai pas. C'est là Ë
@@ -296,19 +233,9 @@ Il s'arrêta, le souffle court, puis, lentement, parut on
 . revenir à lui, s''apercevoir combien cette scène était e ip
 .… indécente. Il semblait sur le point d'offrir des excuses. #21
 Ê a Renaud, décidément mal à l'aise, ne savait com- ) Te
-| . . CE 72 . . 4 CH h
 - — Je te disais bien l'inutilité des explications, 1
 _ — Nous aurons, pour les oublier, le reste de notre ira
-* ne SFY FAT Rs
 
-An NME. j EUR in A RAA M pale LES nu £
-D SO En VC an di A AE LA AROT CAN 2 st ah ia ATEN DEP RE An
-t CT L'AIANNT NEEER re $
-| 5 , 1 É A0 KI Le
-VERS Le ALES Ress :qe ER ni
-NA. Le POP TA à ent
-
-| me" bip ee di dti SM ne
 ANs le désordre de l'arrivée, Cyrille crut
 D éviter de se laisser rejoindre. Maïs, comme
 ‘ on contournait déjà le môle, il s'entendit interpeller. Renaud semblait avoir recouvré sa placide
@@ -322,7 +249,6 @@ _ fut toute apparue, il se retourna, puis brusquement :
 quai, qui t''attendent.
 — Non, dit Cyrille. Le voilà déjà qui se méfie! |
 
-| Jean Schlumberger HS 1 a
 C'est pourtant simple : on ne compte sur moi que F4
 dans huit jours. Je ne croyais pas attraper ce cour- E.
 rier. — Nous déjeunerons tête-à-tête, puis tu maccompagneras chez moi. É
@@ -345,7 +271,6 @@ _ plus tôt, je te connaissais ? 1
 — J'en douie. Avant cette année-là, j'étais un si L
 À Il prenait par des ruelles écartées. Ê
 
-L. j'e1e PNR « 4 opte 0 RS SET qu
 4 _ — Je te mène dans un bouge, dit-il. Nous y man- He
 *  gerons mal, mais en paix. 1
 | Et vis-à-vis d'un bâtiment vaste et revêche, il x
@@ -354,7 +279,6 @@ k tables sans nappe y offraient une apparence si mo- d
 _ deste, qu'il crut devoir expliquer :
 j _— La boutique a changé. L'ancienne était mieux, |
 _ de beaucoup.
-el Il ajouta vivement :
 — Tant pis ! tu verras que les huîtres sont bonnes. ,
 — Une table, là, sur le trottoir ! É
 | De l'instant qu'il fut assis, il changea de manières,
@@ -410,7 +334,6 @@ daient du côté de Cyrille. Il les pouvait dévisager
 
 l'un après l'autre, les deux mains nouées au dossier
 
-ne HEUREUX QUI COMME ULYSSE
 d'une chaise, immobile, sauf l'anxieux va et vient
 du regard.
 
@@ -438,8 +361,6 @@ les troncs.
 
 | Cyrille s'arrêta, montra un banc :
 
-— Là, si tu veux.
-
 Comme Renaud attendait autre chose :
 
 — Plus loin, si tu préfères. |
@@ -459,7 +380,6 @@ Renaud, du pied, dispersa le sable amassé par É
 quelques fourmis. Il dit enfin: . 4
 — Rien ne serait plus aisé que de sortir de doute. #
 Cyrille eut un mauvais sourire : k
-Il continua : 7
 — Renirer chez moi? Des choses de cette force, à
 je suis encore à même de les trouver tout seul. Et
 pourquoi donc sortir de doute? Laisse-moi, par : à
@@ -470,11 +390,9 @@ d'encre. Mes propres mains! Un duvet trop pré-
 coce, un dos voûté!.. Et ce regard, ce port de tête ! |
 $ Je te dis : tout l'enfantvicieux et menteur que j'étais |
 alors !... Dommage que tu ne m'aies pas connu! SE
-sh Le
 
 > Tu n'aurais pas oublié, certes! Pour un sou je à
 F faisais tout nu le pitre, — et tout ce qu'on pouvait 08
-_ vouloir. Et je trichais, je mouchardais..… Ah, la ; R.
 misère ! Et comme s'il ne suflisait pas d'avoir dû me :
 Le tirer moi-même hors de ce dégoûtant marmot, voilà
 ist que j'en refais un tout pareil !.. i
@@ -483,7 +401,6 @@ L'émotion de Cyrille était trop manifeste pour que
 ï chagrin pour des doigts tachés d'encre.
 Cyrille regardait obstinément le sol.
 — Mon Dieu, dit encore Renaud, si tu fus sale et
-paresseux, tu ne l'es plus. Tu t'es facilement tiré de là. “
 — Facilement, non. Il a fallu que quelqu'un m'en |
 — Eh bien, à ton tour, tu aideras ton fils.
 — Ma parole, tu es naïf pour ton âge! N'as-tu
@@ -499,7 +416,6 @@ croire inventée par moi-même. ne
 
 Tel vaurien s'est épris d'une fillette ou d'une
 s femme. À
-— Tu es stupide!
 — Pardon. Tu me racontes tes déboires. Je
 | ne m'en informais pas. Rends-toi du moins compré-
 — À quoi bon? Nous allons répéter la scène
@@ -515,20 +431,14 @@ voulais-tu venir ? |
 + C'est inutile... je t'assure que c'est inutile. ;
 Tu n'as pas assez bien connu celui que je veux dire, |
 et ton imagination ne suflirait pas. |
-| — Je l'ai connu ? |
 ‘ — Sans avoir soupçonné sa valeur.
 Renaud s'arrêta, doutant d'avoir compris. Puis il |
-|
 
-$ 7: pe HEUREUX QUI COMME ULYSSE
 Dans cette bouche, un nom si cher exaspéra
 2 Cyrille. Pour ne point répondre il doublait le
-pas.
 W À Mais Renaud de s'écrier :
-À — Je ne l'ai pas connu? Je l'ai vu journellement
 Æ l'année avant sa mort.
 Cyrille du coup se retourna :
-Ë — Tu l'as vu, toi? Où donc?
 — Nous étions ingénieurs dans la même affaire.
 \ A vrai dire, ce n'est pas moi dont il était l'intime. Il
 ‘ m'eût trouvé trop. ordinaire. Nous avions un ami
@@ -545,7 +455,6 @@ de Germain s'y trouvent.
 les noms, l'histoire ne me touchait guère. J'ai tout
 dans une caisse. |
 
-Jean Schlumberger LA
 — Une passion de Sylvestre ? 4
 — Non, de Germain. K
 — Je l'aurais su ! Vous êtes étonnants : toujours, Ë
@@ -557,7 +466,6 @@ Et sur le quai, jusqu'à l'ébranlement du train,
 Renaud fut pressé de questions impatientes et minutieuses.
 ,
 
-DATA Vi PRE e à: Apt a à VENTE TU)
 1 YRILLE s'avança jusqu'à la grille : ï
 fr Une cheminée fumait. Un chapeau traînait ‘
 LE sur un banc. Mais aucun bruit dans la maison ni
@@ -651,12 +559,10 @@ Claire se ramassant sur elle-même balbutia :
 changée. J'espérais que tu ne remarquerais pas. |
 Cyrille eut son mauvais sourire : |
 < — Je puis repartir pour une semaine.
-Mais se reprenant :
 — Ce n'est pas Claire qui estchangée, c'est Rémy. ),
 — Chaque jour, dit tanie Eucrèce, nous nous Fk
 étonnons. Claire veut qu'il te ressemble toujours
 
-116 ge HEUREUX QUI COMME ULYSSE Ë
 ni plus; moi, je prétends qu'il tient surtout de Claire. 4
 _ Sauf les yeux : moins les tiens que ceux de ton f
 — Ces yeux qui rient, ces yeux de chat? L'oncle
@@ -664,7 +570,6 @@ _ Sauf les yeux : moins les tiens que ceux de ton f
 — Quand je vous le disais ! Comment n'êtes-vous
 pas malades d'avoir à regarder ce museau de...
 — Cyrille! dit sévèrement la vieille dame. L
-Il riposta :
 \ — Je sais ce que je dis. Quand au Cap on connut
 mon nom...
 — N'oublie pas que Rémy t'écoute, supplia Claire. |
@@ -713,7 +618,6 @@ avec quoi c'est fait.
 Puis elle disparut, sous prétexte d'aider Rémy.
 — Mauvaise tête ! dit tante Lucrèce. Je suis sûre
 que tu l'as peinée.
-— Et comment?
 — Je n'en sais rien. Mais pourquoi serait-elle
 — Qu'ai-je dit d'extraordinaire ? Qu'il ne faut pas
 + examiner de quoi se compose un enfant ? Qu'il m'est
@@ -750,7 +654,6 @@ Et en t'apercevant, me remettre à trembler comme
 144 une petite fille ! — Et songer que toute ma vie tu me
 feras peur ainsi...
 
-| "
 E bon matin, Cyrille fut chez Rémy. |
 D IL le trouva dans le moite désordre du
 dernier sommeil, la figure au fond d'un oreiller, le ES
@@ -808,8 +711,6 @@ bouche, dit Rémy. Je me rappelle. Il y a longtemps, …
 k quand tu m'as envoyé ces images, maman l'a retiré
 
 Hi pour leur faire de la place.
-
-f — Je tenais beaucoup à ce dessin. Où l'a-t-on
 
 Ë — Au grenier, je crois, derrière l'armoire.
 
@@ -894,7 +795,6 @@ k leurs bras, leurs jambes, et déboulèrent, en une seule
 È attrape-la sans mordre.
 
 je Et dans ia saignée de son bras, elle fixa une AN
-| cerise. +: he
 . La rondeur lisse du fruit n'offrait point de prise. ps
 ji Rémy se fatiguait les lèvres et la langue. Alors il |
 if empoigna Brigitte. Elle se débattait, maintenue par
@@ -937,8 +837,6 @@ de ces potins. Pour la sœur, c'est une autre affaire.
 | l'air de croire.
 
 ï — Quoi donc?
-IL s''embarrassait :
-| — Des choses.
 — Il ne manquerait plus que cela. Tu oublies ton
 — Je ne l'oublie pas, dit avec dignité l'enfant.
 Et il continua sans regarder Cyrille :.
@@ -960,7 +858,6 @@ Rémy ne disait rien.
 veux-tu que je réponde?
 — Tu me donneras les torts. Voilà tout!
 — Tu n'as pourtant pas peur que j'imite ses
-| ;
 
 La rudesse du marin s'énervait: 2
 — Ta mère le craint certainement. 28
@@ -989,7 +886,6 @@ ment tout s'est découvert. La fille craignaiït d'être ;
 inquiétée; elle me fit mentir et m'empêtrer de plus
 | en plus. L'affaire est devenue grave. Sans Germain
 
-À k l'on me chassait.… Il a remboursé, quitte à paraître : )
 Re: complice. Et note-le bien : à peine si nous nous ï.
 connaissions.. C'est un de ces coups de générosité 1
 2 | dont il était, lui seul, capable. Cela t'explique qu'on Le
@@ -1062,8 +958,6 @@ plus qu'à toi. Nous étions amis.
 
 — Dame! C'est que pour obtenir tant soit peu
 
-Il marmonna :
-
 — Il faut renoncer à tout le reste!
 _— Je ne pouvais pourtant pas te laisser
 couper des trous dans tes vêtements ou tremper
@@ -1104,7 +998,6 @@ Mais Rémy fut tout autre à table. 4
 — Il a l'air fatigué, remarqua Claire.
 Tout de suite, il affecta de l'entrain : NS:
 — C'est que nous avons fait du chemin, papa et à
-moi. À
 « Est-ce pour me narguer ? » se demanda Cyrille. 4
 Mais à un inquiet regard de l'enfant, il reconnut 1
 vs que c'était parade, tremblante hardiesse pour ne pas 1
@@ -1120,8 +1013,6 @@ on prend un chat, entre les épaules. }
 — C'est donc un vrai chagrin! Je ne savais pas, à
 mon petit, je ne pouvais pas imaginer.
 
-| ME NE pat DU) d
-| Let LACET HE Lu à ALT Mu tp LA ALT Lit HAUTE AUS te TA
 à)" voul tl attirer. Son poing sentait un dos rétif, RL
 _towt d'une pièce. ‘10
 _  — J'ai peut-être été brusque ? Je nesuis pas venu qe
@@ -1135,13 +1026,6 @@ ci brave et nous trouverons, va, d'autres amusements. Le
 il . s'amollirent, les omoplates cédèrent, la tête se ren- 1108
 + versa. Et Cyrille sentit à sa joue le chuchotement 14
 d'une voix fraîche. ‘ 1100
-Qpe je Hi] y À f - ÿ LPL
-
-SES re NP re NPA
-
-ati Fat Var l À APCE" SAN é
-
-DA Le psy ji À LD RES ÿ
 
 — Donne-moi la clef de la mansarde, dit
 Cyrille. J'ai à fouiller dans de vieilles malles.
@@ -1159,7 +1043,6 @@ apparut. C'était bien le menton carré, encore imberbe, dont de plus récentes 
 verre, puis en un bond fut à la lucarne.
 Là encore, le jour n'était que douteux. La targette
 
-( Jean Schlumberger DES
 rouillée résistait. Il secoua si rudement la croisée de
 
 qu'un carreau fêlé sauta dans le vide. S
@@ -1172,7 +1055,6 @@ parole, quand pènché sur la rampe, il tentait à
 
 I1 découvrit l'enfant couché sur le perron, la tête À
 entre les poings. 4
-— Que lis-tu? _:
 Il s'assit sur une marche, l'haleine courte. 1
 — C'est donc bien passionnant. que tu ne puisses À
 plus... lever la tête 2... î À
@@ -1186,7 +1068,6 @@ Il ferma le livre et s'assit : 4
 — Mais tu nas rien; seulement, mon petit. À
 Mets-toi en plein soleil... 1... : À
 
-è — Tu n'as pas fini de te moquer ? bi
 | Le mouvement de Cyrille tomba court. Ses mains à
 restèrent à plat sur la pierre. Il murmura, dans une ‘
 | — Répète cette phrase que tu viens de dire? D.
@@ -1194,7 +1075,6 @@ restèrent à plat sur la pierre. Il murmura, dans une ‘
 — Tues sot. C'est pour l'accent. Redis seule- |
 L'enfant répéta. Cyrille l'écoutait, le regardait.
 Rémy finit par dire : 1
-— Est-ce que tu as peur, à cause de ce que tu J
 m'as promis ? Je crois que décidément c'est le fusil,
 mais. ñ
 L'enfant n'y comprenait plus rien :
@@ -1270,7 +1150,6 @@ oui, tu pleures!... Tu as du chagrin! |
 k — Je te jure que ce n'est pas du chagrin... Saït-on 4
 pourquoi ça vous prend tout à coup ?.. Et d'abord À
 c'est fini... Puisque je te dis que c'étaient des vieux À
-— Mais lesquels ?
 — De mon mariage, des deux premières W
 années... Est-ce que c'est triste ? Là, tu vois bien... L
 Ce n'est pas après quinze années qu'on se repent. ‘à
@@ -1289,13 +1168,11 @@ petit qu'elle m'a donné ! ÿ
 4 54 4
 
 +  — Ce n'est pourtant pas là ce qui t'a mis à l'en
-Re) vers 7. ! di
 ; — Mais, sil... d'y repenser, de m'en rendre 04
 compte... Tu crois que seules les choses tristes. 4 a
 
 — Tu es sûre ?... Ce n'est pas possible... Tu n'as L
 _ jamais pleuré pour... autre chose ? !
-Elle réfléchit: iÙ
 
 — Une fois... lors de l'abordage du Goëland, * d
 quand je tai su parti sur un autre paquebot. ï ‘3
@@ -1374,7 +1251,6 @@ retenait à lui dénouer et renouer la cravate. 1
 
 — Imagine-toi qu'il vient du lycée! à
 Distrait, Cyrille se mit à table et dit: :
-— Cest étonnant. L
 La vertu de Rémy s'indigna: si "A
 — Et pourquoi, étonnant? Tu sais très bien ce 4
 que nous disions hier, devant la poste. Quand
@@ -1387,7 +1263,6 @@ Rémy. Il y en a qui bisquent! On a voulu me faire
 asseoir sur un cornet d'encre... Si tu savais comme
 | 58
 
-Eros | HEUREUX QUI COMME ULYSSE ‘1
 tout est changé depuis que tu es là... Même le pro- 4
 Chacun levé, la vieille femme prit Cyrille à 14
 __ — Tu ne vois donc pas que la tête lui tournel | à
@@ -1400,7 +1275,6 @@ Il retrouva l'enfant. | “
  — Qu'est-ce que ta mère te demandaït, tout à 4
 l'heure, au jardin ? 4
 | — A qui tu as télégraphié hier. à
-— Et tu as dit ? |
 — Que c'était à un nommé... quelque chose \
 _ comme Renaud. ; à
 — Et elle t'a demandé... le texte ? “00
@@ -1487,7 +1361,6 @@ tu cesser de chiffonner ces timbres ! ï
 ‘as — Encore une malade que Claire a soignée ! ]
 — Parfaitement. Et qui lui doit la vie, fit tante
 Lucrèce avec humeur. Qu'est-ce que tu trouves à y l
-| redire ? 4
 — Je ne veux pas que par reconnaissance cette
 | femme lui montre à regarder dans les enveloppes...
 — comme font toutes ses pareilles. — ou à lire les
@@ -1495,8 +1368,6 @@ dépèches des particuliers. . 1
 La vieille femme se fächa :
 — Je ne comprends rien à tes radotages... Mais
 l jamais Claire n'est rentrée dans cet état ! ù À
-
-test | HEUREUX QUI COMME ULYSSE Ras
 
 “à — C'est qu'elle a marché au soleil. ‘#4
 fe Claire reparut, mais si défaite, que d'abord il dut ae
@@ -1514,7 +1385,6 @@ PE à quelques muettes attentions, puis à bout de res - 4
 ENUE — Nous avons bavardé Rémy et moi. El
 AS Et comme sa ferme voix lui rendait de l'audace, “À
 Je doucement il tenta de rassurer Claire : s.
-À — Jla de l'ambition, mais tu ne dois pas t'en ae
 effrayer. Tu n'auras guère à te séparer de lui. Qui 4
 4 sait si ses projets ne me ramèneront point? Nous Le
 le * Vaurions bien mérité, toi et moi ! +
@@ -1522,7 +1392,6 @@ le * Vaurions bien mérité, toi et moi ! +
 elle avait peine à tenir la tasse. —Il murmura timide 1
 he et pressant : $
 
-Jean Schlumberger L.
 — Demain tu seras bien... Si tu voulais... nous ;
 irions promener avec Rémy... À
 Elle se troublait davantage. Il essaya de dire avec
@@ -1563,7 +1432,6 @@ connaissait pas ? |
 — Mon pauvre enfant, qui est-ce qui t'a dit 2...
 — Alors ce n'était pas la peine... de me forcer à
 Cyrille l'avait rejoint : Ô
-— Tu l'as revue!
 — Il fallait bien lui dire que j'avais changé de 4
 projets. Elle s'est fâchée.…. J'ai dit : Si tu le prends
 si mal, bonsoir! d'ailleurs à l'avenir, je travaille. — ,
@@ -1593,15 +1461,12 @@ vieil avare a de commun avec ta santé, avec tes
 Je ne peux plus compter sur personne.
 | Cyrille se planta devant lui :
 
-— Sur moi!
-
 Et il reprit presque humblement :
 
 — D'autres ont plus de pouvoir, mais pas lamême
 obstination. Tu ne sais pas ce dont pour toi je suis
 capable... Tu étais petit, — on ne pouvait pas tout te
 
-# HEUREUX QUI COMME ULYSSE IN CEE
 Ode. ‘1 y a bien des choses que tu ne sais pas 40 ï
 _ encore. J'attends demain des lettres... très impor-
 ; hi tantes. Ta mère s'affole et toi aussi. juste au | ni
@@ -1616,14 +1481,11 @@ _ : Il était enjoué, pressant. Enfin Rémy eut un 0100
 F4 ne _ incertain mouvement de tête, d'épaules. Il sourit, {AS
 ‘È _ mais les cils baissés ne laissaient pas voir ses ÿ N
 
-PS Cd ps Ar A à IA D 'Éé Real SA HE M PARLE 48 TRACE
-
 " U'EST-CE qui ce matin vous prend tous ? dit
 A tante Lucrèce. Au lieu de déjeuner, tu te |
 4 ! promènes autour de la table et voilà Claire sortie
 #4 et sa tasse encore pleine !
 “  — Je n'avais pas remarqué. Son chapeau n'est 4
-#0 plus là?
 - Un regard dans l'antichambre, —etilétait dehors
 -  Jui-même. — « Pardi! les lettres. » Il traversa le
 . jardin, ouvrit la grille en maintenant la sonnette : es
@@ -1631,7 +1493,6 @@ _ Claire se tenait au coin de la rue, guettant plus loin. ;
 _ Caché derrière un char de foin, il put la dépasser,
 sh gagner le premier tournant. Déjà le facteur s'avan- ù
 ; çait de porte en porte.
-_ — Mon courrier! |
 _ Il saisit lui-même, dans la boîte, un paquet ficelé :
 % à — C'est ceci; gardez le reste.
 
@@ -1657,7 +1518,6 @@ paquet les lettres, puis, de nouveau, n'en pouvant \
 D'un coup ferme on frappa la porte. |
 — Ouvre, dit tante Lucrèce. ÿ
 — Qu'est-ce que tu veux ? 1
-— Je veux entrer. 4
 
 à — Je travaille. Laissez-moi tranquille; je des_ cends dans un moment. |
 |  — Je veux tout de suite.
@@ -1757,13 +1617,11 @@ pe M Je me donnerais, moi, des airs de passer sa 5
 28 — Tu parles comme une vieille fille. J'imagine *
 _ qu'en seize ans sa faute a eu le temps de sécher ! cu
 Il crut qu'elle allait étoufter. 3
-TRES Je m'en vais... je m'en vais... Ça finirait par ee
 une paire de calottes… ; L
 Se Il la retint :
 …._ — Tu vas la chercher ?
 ne. 79 Jean Schlumberger. — 5 |
 
-RE f Fr ni OUT Li a à a si: te Le RE te RAR
 : — Vas-y toi-même. Ah, tu crois m'enseigner la "24 L
 vie, l'abnégation !.…. = , Re.
 — J'agis comme mon cœur m'y pousse! S L:
@@ -1771,12 +1629,9 @@ vie, l'abnégation !.…. = , Re.
 voilà tout! k ; ne
 Il se planta devant la vieille femme : 4
 de — En rien elle ne m'est moins chère aujourd'hui
-qu'autrefois. Est-ce net ? D'ailleurs je n'ai qu'à te NN
 | Il ouvrit un tiroir : 5 ;
 — Je ne veux pas! Gi:
-Il se mit en travers de la porte : pe Es
 = — Il faudra bien que tu comprennes ! “0
-Elle se rassit. ; #4
 — C'est de Germain. Comme son ami l'ennuyait
 d'objections, il écrit : « Si je ne t'aimais comme je É 4
 fais, rien ne pourrait m'induire à expliquer encore. À
@@ -1790,15 +1645,12 @@ il me dit ces paroles, — elles établissent ce qu'étaient 1
 | nos rapports, aussi je me force à les répéter : 4
 | « Claire sera seule. Va souvent la voir. Toi, c'est
 
-ne.
-
 moi-même, — et davantage! » Et comme je me
 .  fâchais : « Ah vieux, dit-il, les femmes sont sottes, 1
 … sans quoi je sais de qui toutes s'éprendraient.. » e.
 _ _ C'était une vieille taquinerie qu'il accompagnait de !
 D: — Tu entendras jusqu'au bout !
 1 Ke” Pour la seconde fois l'autorité du ton la fit .
-| s'asseoir. à
 . « Donc je vis souvent Claire. C'est le contraire '
 nt qui nous eût semblé louche. Elle ne fut coquette, ni 4
 moi pressant. Nous n'écartions même pas l'image de
@@ -1806,13 +1658,11 @@ moi pressant. Nous n'écartions même pas l'image de
 | gêne ni honte. Libre d'agir, j'eusse avoué. Mais elle É
 50 était trop scrupuleuse pour le mensonge et trop ï
 faible pour la franchise. Ce fut tout son malheur, — ne
-Net le mien. » 5
 —. Gette fois la vieille femme éclata : |
  — Me voilà édifiée ! Tu lis ça. tranquillement !
 Je ne sais où me cacher, tant j'ai honte! |
 # — Tu mens. Tu crânes. Tu fais l'homme supé-
 _ rieur... qui n'a pas de chagrin. É:
-- Il tremblait d'exaspération : : 00 À
 ; À _— Je n'en ai pas! Finiras-tu par comprendre!
 Je suis content de ce qui est arrivé. — Non, le k
 D afond ne va pas te crouler sur la tête. — Tu veux
@@ -1825,15 +1675,12 @@ _ de son sang, non de ma malpropre race ! De.
 La vieille lui arracha des mains la poignée de la " :
 Il la suivit dans l'escalier : *e
 — Puisque nous nous valons, Claire et moi, F4
-ramène-la. +" 2
 Elle descendait, les mains sur les oreilles. à
 — Si tu ne veux pas, dis-moi l'adresse. QE 4
 La sonnerie de la grille d'entrée le précipita vers
 la porte. is
 — C'est Rémy... Vite... Il va remarquer... .
 Elle dit : ps
-Mais s'arrêtant : : È
-— La figure qu'a Rémy. D
 Il balbutia, blanchissant jusqu'aux lèvres : È
 — Elle lui a parlé! %
 Ils comptèrent ses pas aux marches du perron.
@@ -1852,7 +1699,6 @@ _— Elle est donc folle! C'est ta faute, tante 4
 [Lucrèce. Il ne fallait pas la laisser sortir! %
 …_ La vieille femme cria : 2
 _— C'est toi qui perds la tête. De quoi oses-tu 4
-…_ — Ils ont décidé qu'on me chasserait de la ; à
 classe... A la récréation ils m'ont jeté dehors. 4
 _— Mais ce n'est pas Claire! C'est cette rouleuse :
 …_ — Quoi? fit la vieille. 4
@@ -1874,7 +1720,6 @@ gâchis d'où moi-même je ne sors pas. Nous parlions RE
 d'autres embarras.. plus graves. 2 %
 — Mais qu'a-t-elle affaire à ces imbéciles ? “#4
 — Elle n'a vu personne. Elle a d'autres soucis. 3
-Me crois-tu ? ; “2
 — Que disiez-vous donc tout à l'heure? | 4 À
 — Encore une fois, nous parlions d'autre chose.
 | Je ne sais pas ce qui m'a pris de confondre... Elle 54
@@ -1905,7 +1750,6 @@ _ menter... sans que j'ose toucher personne. #4
 % _— Ce n'est pas vrai ! &
 ee - Mais de sa paume mouillée, une larme glissa le “
 long de son poignet. 5
-___ — Ça, non!il n'y a pas de quoi se désoler ! Sil'on ra
 : _te boude ici, il ne manque pas d'écoles. meilleures! i
 ne. _ Ces paroles ne portaient pas. Rémy s''enfermait rt
 dans son irritation. Il dit en repoussant du pied ses 2e
@@ -1915,7 +1759,6 @@ dans son irritation. Il dit en repoussant du pied ses 2e
 Jean Schlumberger va 70 de
 La réponse de Cyrille fut mal assurée : FC
 — Ne la regrette pas. elle ta prouvé ton éner- L à
-— Et autre chose! LEE
 | Ce mot tombé dans le silence, l'audace de l'enfant x4
 — Qu'on doit laisser en paix ceux qui vous va ï
 C'en fut trop. 44
@@ -1936,8 +1779,6 @@ pas le droit. AE
 tous les côtés. Depuis que tu es ici, chaque jour ;
 il sort une autre histoire. Voilà déjà qu'il me fau- FE
 
-__ HEUREUX QUI COMME ULYSSE me,
-| =it 5 ES È TR
 Il ajouta plus bas : TS
 _  — Et tout cela pour Brigitte. D :
 1 Les lèvres de Cyrille se tirèrent, se durcirent, SRE
@@ -1957,22 +1798,17 @@ _ Les femmes ouvrirent. Cyrille balbutia quelque
 _ phrase inintelligible. Ni Claire ni tante Lucrèce Fa
 _ m'essayèrent de comprendre. he.
 
-CNE $ L L Tia PER PRE ARE PEROU
-
 nt. À URANT trois ou quatre heures, farouche au 5
 “ moindre attendrissement, il empêcha les e
-VER allusions de poindre. À RER
 . Mais Claire finit par le surprendre seul, en un Ds.
 ‘2 _ coin de pièce d'où s'échapper fut impossible. Il ne re
 _  s'aperçut de sa présence qu'au cri qu'elle jeta 20
 __  s'abattant autour de ses jambes. Il la brusqua : É ss
 …_._.  — Pas avant que tu saches.…. F
-…__  — Pas de scènes ni de larmes, je t'en supplie. Fee
 __. C'est une vieille histoire. Je n'en garde rancune à 8 »_ personne... Je le jure... Làâche-moi. RE »_ Elle gémit : Le
 15 — Une vieille histoire !.… depuis quinze ans. qui pe
 _ neme laisse pas vivre. quine veut pas disparaître. pe.
 _ Et je lutte... et maintenant que presque je méritais a
-vie FA ie Le T0
 
 j — Jamais tu n'aurais oublié, comme tu vas le -
 pouvoir... Ton mal est sorti... écoulé. É É 53
@@ -1980,7 +1816,6 @@ A peine, en l'excès de son abattement, elle tenta Me Be.
 de plaider : TE à
 | — Si tu pouvais comprendre! Tout s'est allié ES.
 contre moi... 46
-— Je le sais, j'ai lu ses lettres. RCE.
 Elle cria passionnément : bu
 — Jette-les ! Jette-les!.. Elles mentent…. TR
 
@@ -2011,10 +1846,6 @@ devait tant lui peser ? Allons lève-toi. LE
 
 Cette fois elle obéit, mais avec un pénible sourire : 5 à ;
 
-— Il m'a pesé, à moi... il m'a écrasée... 5 4
-
-" ne", HEUREUX QUI COMME ULYSSE
-
 à Cyrille reprit, inquiété d'un croissant malaise :
 
 14 — Ma pauvre femme, si j'avais su plus tôt! Mais
@@ -2039,8 +1870,6 @@ Alors elle chuchota :
 
 | suis ressaisie… j'ai juré que s'il revenait. 5
 
-ps. — S'il revenait ? |
-
 - — Je saurais bien me délivrer. de lui. et de mes
 
 à Il fonça sur elle :
@@ -2061,11 +1890,9 @@ crèce, tu veux me pousser à bout. A
 Elle répéta, agressive :
 — Alors, dis ce que j'aurais dû faire!
 — N'importe quoi, mais pas cela. IL était le père : :
-du petit. 3
 Cette fois, elle le regarda, terrifiée. 2
 — Cyrille! ne me force pas à comprendre. ù
 Cyrille! quoi que j'aie fait... tu n'as pas le droit : È
-_de supposer !.… ;
 — Je n'ai rien dit. À
 — Tu as eu... l'idée. que nous aurions pu vivre !..…. :
 Elle leva des bras insensés : 4
@@ -2075,17 +1902,14 @@ Elle leva des bras insensés : 4
 Elle n'eut qu'un balbutiement : 1
 — Cyrille !.. Tout ce que j'ai souffert... toute ma ; |
 vie détruite. des embarras!
-Alors dans la fureur de sa gêne et de sa pitié, il à
 — Est-ce que je les demandais, ces souffrances ?
 Elle hocha la tête, abrutie par le coup, aspira plusieurs fois, puis, d'une voix lointaine, glissante,
 — Si je l'ai fait du mal... nous voilà quittes…
 
-_  HEUREUX QUI COMME ULYSSE de:
 Moi qui tremblais.. d'être chassée. C'était moins F8
 _ La voix faiblit encore : “44
 _ _ — Je comprends maintenant l'indignation de nt:
 _ tante Lucrèce.. et au lieu de revenir... j'aurais dû É:
-Re 4 la croire. 4
 #4 _ Elle reculait, perdue, les prunelles papillotantes. « 20
 . Il voulut la conduire, mais elle fit un furieux écart. #
 .  Il:dut se borner à lui ouvrir la porte. 2%
@@ -2115,7 +1939,6 @@ la première fois et dit gauchement : Fa 8
 Cyrille se mit du côté de la porte : 4
 — Elle fait sa malle ? Re
 - Il parvint à demander encore : |
-— Tu sais. pourquoi ? 5 4
 Alors il murmura, pris d'une crainte si horrible
 qu'il n'osait plus questionner droit :
 — Quelles malles est-ce qu'elle a fait descendre ?
@@ -2147,7 +1970,6 @@ _ qu'ici tu dépéris... On te reproche soit ma famille, j
 | soit ta naissance... Nous nous embarquerions
 - demain... tout de suite !.. Dans trois ou quatre ans,
 tes projets à toi... quand tu seras un gars solide...
-Tu veux ?.. Tu veux!
 L'enfant dit tristement : ;
 | — Je n'ai plus envie de rien... Je ne sais plus.
 Alors Cyrille, pantelant : ?
@@ -2177,9 +1999,6 @@ pour dire : | 5
 Elle vint, portant une lampe et de quoi manger.
 Il dit, comme effrayé : #7
 | — Qu'est-ce que tu veux ? ‘
-— Tu m'as demandée.
-
-“ic  HEUREUX QUI COMME ULYSSE 58
 
 | Alors il se rappela : Ë :
 
@@ -2190,7 +2009,6 @@ _ Elle dit : TA
 _ Iltint sa manche devant ses yeux, bien que la 5
  — Juste? … Ils ne seraient plus chez eux... je 118
 ne serais pas chez moi... Fe &
-Puis brusquement : 78
 ne — Pourquoi at-elle parlé au petit? ; 450
 _  — Elle s'est vengée, comme elle a pu. Elle a De
 ne eau pleurer maintenant. Le mal est fait. DR
@@ -2202,11 +2020,9 @@ __ Il secoua faiblement la tête : 22
 5 PEER Je ne comprends pas... “#
 _ Puis un instant après : : 508
 qu'à rester dans sa chambre. ë 8
-| Ilajouta, craintif : F4
 __  — Tu veilleras avec moi 2... Re:
 
 Quand sonnèrent onze heures, elle lui toucha à
-— Il faut partir. DR
 Il ferma les yeux, les rouvrit : SA
 — Tu crois que je peux embrasser Rémy ? ï +
 Elle dit : a
@@ -2219,10 +2035,7 @@ Il prit son front entre ses paumes : Me #4 Ë
 Rien qu'une fois l'embrasser… "AC
 — Tu n'as pas trop de temps. 24
 — Tant pis! Il passe un train de très bonne heure. SA
-La veillée continua. #4
 ; — C'est tout de même singulier... je n'ai fait * 6
-: de mal ni à Claire, ni à Rémy... 5 F
-1 Elle répondit : 14
 — Mon pauvre enfant, tu veux toujours nm
 marcher qu'à ta tête. &-
 — Je le sais bien... Je suis mieux à ma place de
@@ -2230,20 +2043,16 @@ parmi des brutes de coolies…
 Au bout d'un long temps, quelque chose remua,
 dehors, dans le gravier. — Ils écoutèrent, ramassés + 4
 
-|, été NES ST à.
-xt HEUREUX QUI COMME ULYSSE 7.
 55 sous la lampe. — Le clandestin bruissement se rap- &
 k Chacun remarqua la pâleur de l'autre. ë
 _ La vieille femme chuchota : |
 j _  —Il a ôté ses souliers. ï
 Elle écoutait entre chaque mot :
-# — Je connais ce bruit-là.. Tu m'y as habituée
 À quand je te savais en mauvaise compagnie. et que
 _ de mon lit je guettais ton retour.
 4 Le pas atteignait le perron.
 + — C'est la première fois qu'il sort? K
 # Elle dit :
-# — Je le crois. é
 4 Avec des précautions de malfaiteur, la porte
 4 d'entrée fut ouverte, puis refermée. Un pas cau- ;
 # teleux glissa dans l'antichambre. Ils se tenaient È
@@ -2255,9 +2064,6 @@ _ tous deux contre la porte. Tante Lucrèce avait la
 * le noir, Cyrille prit sa valise et son manteau, à
 …_ tâtonna jusqu à la porte et se coula dans le jardin. É
 
-LA as 7e SON ÈLE 1 LRO TO RENE
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, PU.
 …. rez-de-chaussée, Paris, cinquième arrondissement. ds.
 …_ Nos Cahiers sont édités par des souscriptions men- ee
 un  suelles régulières et par des souscriptions extraordi- He.
@@ -2287,10 +2093,6 @@ naturellement aux inscriptions les plus anciennes; c'est A
 …. ce numéro d'inscription qui devient automatiquement le -
 e numéro du tirage réservé à chacun des souscripteurs; à
 l'édition sur whatman est strictement limitée au É
-
-Lee EN AN LE AMSRSE RL NUE Se HT
-
-| 5 SNS |
 
 ._ Pour tout changement d'adresse envoyer soixante
 

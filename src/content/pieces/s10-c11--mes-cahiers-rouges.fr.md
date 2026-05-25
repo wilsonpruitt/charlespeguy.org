@@ -44,8 +44,6 @@ _ quat, un résidu d'impureté, une impureté résiduaire
 
 dans la fortune; et qu'ainsi et pour la même cause et
 
-du même mouvement il n'y a de véritablement, de
-
 totalement pur, et ainsi de totalement grand, que la
 
 défaite, pourvu qu'elle soit vaillamment, glorieusement
@@ -54,7 +52,6 @@ supportée, vaillamment, glorieusement acquise pour
 
 ainsi dire; soutenue; et qu'il n'y a, qu'il ne peut y avoir
 
-je D oes Dee CO
 de véritable, de totale pureté que dans V'infortune ; ét
 que c'est donc à bon droit que les grands honneurs 4
 secrets de la gloire, les suprêmes honneurs, ont donc à
@@ -80,12 +77,10 @@ grande décomposition historique, cette grande dissolution, ce grand précédent
 avec vous, cher monsieur Sorel, {a ruine du monde 1
 antique, n'était rien en comparaison de la dissolution
 de la société présente, en comparaison de la dissolution
-et de la déchéance de cette société, de la présente É
 société moderne. Il y avait sans doute alors beaucoup |
 plus de crimes et encore un peu plus de vice(s). Mais 4
 il y avait aussi infiniment plus de ressources. Cette pour :
 
-_ A Nos AMIS, A NOS ABONNÉS
 + _rituré était pleine de germes. Ils n'avaient pas cette
 | sorte de promesses de stérilités que nous avons aujour-
 .  d'hui, si l'on peut dire, si ces deux mots peuvent aller
@@ -206,8 +201,6 @@ quel ordre de grandeur nous arrivera demain), nos con-
 
 temporains ne pourront, ce demain, se parler (à eux56 1
 
-ch A NOS AMIS, Free ABONNÉS
-
 mêmes pourtant) le langage révolutionnaire, le langage
 
 __ syndicaliste sans que la même guerre intervienne, qui
@@ -312,7 +305,6 @@ pas naturellement d'idée, d'esprit politique ou social,
 _ qui se soit réalisé, qui ait même pu apparaître sans un
 certain corpus, sans un corps de peuple, sans un appui,
 
-| M 0
 |. sans un soutien, Sans un mécanisme, sans un support
 
 de peuple, sans une matière, sans un peuple qui fût
@@ -415,7 +407,6 @@ un monument historique, je ne l'ai jamais autant 4
 qui était venu; et à qui j'en vins, je ne sais comment, à ‘
 parler de l'affaire Dreyfus. Un gamin. Je me rappelle
 
-ss |A NOS AMIS, A NOS ABONNÉS
 _ fort bien qu'il »'y a que quelques années qu'un homme
 _ de dix-huit ans était un homme. Je parlais, je parlais \
 | devant ce gamin comme devant moi, comme avec moi ;
@@ -474,7 +465,6 @@ défaut de la rosace abolie quand nous sommes corrects. 4
 Avant même et au besoin en la démolissant, nous
 64 4
 
-sf et |A NOS AMIS, A Nos ABONNÉS
 _ mêmes, quand nous sommes pressés, quand nous
 faisons du zèle, ce qui est le plus fréquent.
 à Le monde est la rosace réelle infiniment fouillée, la
@@ -511,7 +501,6 @@ s'analysait aussitôt, se décomposaiït en un temps autre,
 en un temps étranger; en un langage autre, en un lan- 4
 gage étranger.) IL m'entendait en un langage étranger.:
 C'est dire, hélas, qu'il ne m'entendait pas du tout. 1
-Et même moins. Et ce qu'il y a de merveilleux; et
 qui fait qu'on n'en sortira jamais, c'est que ce langage
 aussi parfaitement étranger correspond naturellement
 jusque dans ses moindres éléments. Au langage du
@@ -543,8 +532,6 @@ et par cela même aussitôt on s'est déjà condamné, dans
 cette attitude mentale et par cette seule attitude mentale même, à ne jamais la savoir; j'entends à ne plus
 jamais savoir l'événement du réel.
 Jamais je ne mesurai dans un tel éclair, dans un tel
- saisissement, qu'il y a le réel, et qu'il y a l'historique ;
-qu'il y a la réalité, l'événement de la réalité, et qu'il y
 a l'histoire. °
 Ils sont décalés l'un de l'autre, décalés de l'un sur
 l'autre. Entre l'événement réel de la réalité et l'événement feint, imaginé, imité de l'histoire un abîme se
@@ -610,7 +597,6 @@ ne qui ont dans la vie de l'homme, dans la carrière de
 . non interchangeable, un prix unique, un prix inéva-
 . luable, sans équivalent, sans contre-partie possible, et
 _ pour ainsi dire un prix sans prix. C'est une opération $
-de l'ordre du bérceau, de la famille, de la race, de la
 patrie, du temps, de la date, de tout cet ordre temporel,
 d'une importance unique, irremplaçable, où l'opération
 ne se fait qu'une fois.
@@ -621,7 +607,6 @@ Toute amitié, pour chaque homme, est comme une
 promotion. Elle s'obtient en coupant une certaine race,
 _ une certaine histoire, qui monte, à chaque fois par un
 _ certain temps, par une certaine date, qui barre.
-_ Et quand on la manque et dans la mesure où on la
 _ manque (et on la manque toujours en quelque mesure,
 comme toute opération humaine) on ne la recommence
 pas davantage; ça compte pour joué; on n'a tout de
@@ -659,7 +644,6 @@ l'amitié que dans une seule génération, dans une seule
 promotion, dans une seule zone. Le reste est autre. Il ‘
 n'est pas donné à l'homme de se faire un autre berceau,
 
-à _ ni de se refaire le même, enfin de s'en faire un deuxième
 . de quelque sorte, ni de prolonger outre mesure, au delà
 . du temps marqué, l'usage de cet osier.
 à Je profitai aussi de la grande clarté qu'il y avait pour
@@ -678,7 +662,6 @@ comme les coupes sombres et claires, qui repartiront,
 
 _ qui repousseront du pied. Contrairement à ce qui se
 passe dans les autres ordres, dans les ordres de la vie
-et de la végétation et de la fécondité de foisonnement,
 
 - dans l'amitié nous n'avons pas à garder les places de
 
@@ -691,7 +674,3 @@ _ serrer les rangs, où derrière les régiments de ligne et
 : les divisions de marche il y a les bataillons de dépôt.
 
 _ Et c'est vraiment ici qu'une nuit de Paris ne répare rien
-
-_ du tout.
-
-|

@@ -75,7 +75,6 @@ quatorzième cahier de la deuxième série
 seront très considérables. C'est pourquoi j'espère que
 vous daignerez répondre à la présente lettre. Mon
 adresse : 15, rue Gassendi. , Le
-Votre serviteur,
 La « dénonciation » était trop grotesque. Paouli est
 dans le mouvement révolutionnaire depuis plus de vingt
 ans. Il fut membre du glorieux partit Narodnaïa Volia »
@@ -282,7 +281,6 @@ années de prison et de déportation en Sibérie;
 Espèrent que tous les socialistes, ainsi que les honnêtes gens de tous les partis, se joindront à leur protestation indignée et demanderont avec eux justice complète pour Paouli.
 
 Pour la réunion, et par ordre
-L. Cuicako.
 
 Nous avons publié dans le dixième cahier de cette
 série les premiers éléments d'un dossier du récent mouvement pour la liberté en Russie.

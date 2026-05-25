@@ -65,7 +65,6 @@ Lx aucune subvention d'aucune sorte, à compter du premier
 il ARTICLE 82. — MM. le Secrétaire Général, le chef. du serft! vice de l'enseignement, les administrateurs chefs de projs vince et commandants de cerele sont chargés, chacun en
 NET ce qui le concerne, de l'exécution du présent arrêté.
 î ! Fait à Tananarive, le 25 janvier 1904.
-| Vu:
 (H Le Directeur du contrôle financier,
 jl Par le Gouverneur Général :
 f L'Administrateur en chef faisant fonclions
@@ -73,23 +72,7 @@ de Secrétaire Général,
 
 (Journal Officiel de Madagascar et dépendances,
 
-A jp LATE ! RNA MACRO SES STE UNE F8
-à AA 2 Eu" x F HN NET 4 Ar 1 LAND fl à F2 fo TA PU “CU
-Eee MAO" ERA Na EU er 4 pt (TES PGA
-LH PS EAN ie : ; LES COAUAE
-Ets HER L FRA TE VAR PERRET UE” A NL 4 CiMeD ART Gite, ru
-+ RDV EC Re Ne GUN PUR MEN SH en ER NE F4 et LUS
-|: FES Pa FT # Rue LE Ai CUS As
-ES FES SUP EEE que LS A CA AL k es te NAT NES SA CU onu e ME 0 an,
-
-DTA PER SAR à HE SA TAU A ll RER AU ul {
-OS SN AE ER Qui NA EN
-# ONE 4 F1 ROC LAPS RES
-re A HUIT, Ne PL iv
-
 Notre catalogue analytique sommaire... . . . .. IE
-CuaARLES PÉGUY. — Un essai de monopole. . . Y
-RaouL ALier. — L'enseignement primaire
 des indigènes à Madagascar . . . . .. I
 Une lettre de M. Étienne, vice-président de la
 Chambre des députés, à propos de l'amendement Leygues; les noviciats destinés à recruter
@@ -106,10 +89,6 @@ formule odieuse; effort inouï des protestants
 français à Madagascar; commencement de cet
 effort ; la conquête; les jésuites; rudes commencements; importance de l'œuvre protestante
 
-| be
-
-| enseignement à Madagascar
-|
 | française; la statistique; grandes écoles; écoles
 | rurales; population scolaire; personnel ensei-
 | gnant; indigène ; français; budget scolaire ;
@@ -119,8 +98,6 @@ it valeur de cet enseignement; examens; écoles
 (A éloges; une école de district; l'école normale
 | de Mahazoarivo; la mission protestante fran-
 çaise à l'Exposition de Hanoï; question de
-| méthode;
-Fr IL. — Vieillerie condamnée. — 29 mai . . . . + 13
 À Discussion à la Chambre le 21 mars 1904, projet
 de loi relatif à la suppression de l'enseignement
 ,; nelle; sauvegardant les noviciats « destinés à
@@ -169,7 +146,6 @@ responsabilité financière; puis une partie des
 écoles rendues à leurs anciens directeurs ; le
 loyalisme des étrangers, en actes; éloges publics
 du général Gallieni; inauguration de l'école
-à la Société de Londres; le 26 juin 1902, le
 secrétaire du gouvernement, M. Lepreux, parlant des rapports de la France et de l'Angleterre,
 s'exprime ainsi, au nom du général Gallieni ;
 question de méthode;
@@ -261,8 +237,6 @@ certificat d'aptitude à l'enseignement établi par
 l'administration au milieu de l'année 1899;
 arrêtés des 16 avril et 26 juillet de cette annéelà; instituteurs brevetés de la seule mission protestante française; simple artifice de compta-
 
-| ne , t
-
 bilité; en outre les étudiants attribués à l'enseignement officiel; exemple, histoire d'une école
 oflicielle créée il y a quelques mois à Tananarive, dans le quartier de Faravohitra; aurait
 enlevé aux écoles libres de ce quartier plus
@@ -288,8 +262,6 @@ qui sont à l'œuvre à Madagascar ; mais ne devienne pas un prétexte ; un cert
 vers treize et quatorze ans une éclosion de l'esprit; une ville comme Tananarive; certaines
 écoles privées; adultes; encouragement à la pa159
 
-| enseignement à Madagascar
-|
 | resse; informateur officieux de La Nouvelle Revue;
 | exagération évidente; quelques fautes passées;
 1 abus supprimé dès maintenant; une société qui
@@ -374,7 +346,6 @@ par prétérition d'autorisation; ainsi interdiction
 | vous pouvez ouvrir une école; vos élèves n'y
 ; peuvent pas venir; article 45; on retombe sous
 le jeu de cet article; arbitraire organisé, triomphant, réel;
-X.— L'arbitraire.%5)juillet Le CHEN ENINIENEES
 L'article 45 de l'arrêté du 25 janvier 1904; le
 texte; en intentions; en réalité un régime
 { d'arbitraire inouï; intentions de l'administration; ce que l'on pouvait faire; on pouvait
@@ -508,7 +479,6 @@ enseignement du français souvent une caricature; nulle valeur éducative ; mêm
 phrases usuelles ; pure instruction verbale; des
 mots; par suite tout le reste mal appris; temps .
 
-| enseignement à Madagascar
 | pris sur le reste; connaissances réelles et magie
 verbale; paroles d'un Anglais à des chefs indi-
 | gènes de Brass, à l'embouchure du Niger; de la
@@ -592,8 +562,6 @@ observations qu'il faut relire en entier sur le
 caractère des Malgaches et la pédagogie qui
 leur convient ; sur ce que l'auteur et ses commettants se proposaient de faire ;
 
-ne”
-
 Ill. — Arrété organisant le service de l'enseignement des indigènes à Madagascar . . . . . . . 133
 Arrêté du 25 janvier 1904, texte complet, emprunté au Journal Officiel de Madagascar et
 rales ; de l'enseignement officiel ; des établissements d'enseignement ofliciel; de la neutralité
@@ -603,4 +571,3 @@ rieur de l'enseignement ; écoles régionales ;
 primaires rurales; du personnel enseignant des
 écoles primaires, titres de capacité; traitement et avantages accordés aux instituteurs
 officiels; des inspecteurs indigènes ; enseignement privé ;
-manee er SrecLe ni Sent NN CEST

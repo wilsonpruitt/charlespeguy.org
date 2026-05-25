@@ -7,8 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 800
 ---
-# | CAHIERS NIVERNAIS
-
 où Mon cher Péguy,
 44 J'ai le plaisir de vous annoncer la naissance des Cahiers
 La politique est une belle chose. IL est noble et beau
@@ -32,7 +30,6 @@ gi Il s'est trouvé un homme qui les a mis en rapport, qui
 _._ appelées je crois convocations, et nous a réunis.
 HR Cet homme, c'est le commandant de recrutement de
 Ke Nevers, qui convoqua ses réservistes pour leur faire faire
-M Ce fut donc à la caserne, à la table de la cantinière,
 1 madame Garnier, que huit ou dix Nivernais, hommes
 —_ d'études et de bonne volonté, firent connaissance. Ils
 _ s'aperçurent qu'ils avaient des idées communes, des ten-
@@ -72,7 +69,6 @@ rue de Paris, à Nevers, secrétaire de la rédaction.
 se mettre en relations avec le Groupe des Nivernais de
 
 5 Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, utiles, prospères, libres, qu'ils travaillent solidairement avec nous, mais qu'ils soient libres de nous aussi.
-fo Le Gérant : CHARLES PÉGUY
 
 À Ce cahier a élé composé et tiré au tarif des ouvriers syndiquës
 

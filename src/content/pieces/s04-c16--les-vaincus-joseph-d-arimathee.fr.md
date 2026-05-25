@@ -7,20 +7,9 @@ author: gabriel-trarieux
 isAvertissement: false
 wordCount: 20074
 ---
-Le bon rm" bert
 Devint ainsi ] ntair
-Le grar t KI
-Lui dit ji
-Votre À
-Î — Je sui t le roi
-1 Il pleut sur n on d'f
-|
-|
-|
-(1 Le bon r »bert
 Devint alors
 Lui dit roi
-Votre À
 — Aveugle le roi
 Je fais, défais s la loi
 Imitant un aveugle
@@ -39,7 +28,6 @@ Le bon roi Dagobert 2
 ë Le grand saint Eloi #8
 Lui dit ô mon roi, 10
 = Courez tant d'amis Fi
-$ Que semble fourmis; 20
 — Ami suis, dif le roi, 562
 6 Non de leur cœur, mais de leurs voix. Ru.
 
@@ -47,21 +35,18 @@ $ Que semble fourmis; 20
 LS Devint ainsi parlementaire;
 ques Le grand saint Eloi ,
 15 Lui dit Ô mon roi, .
-4 Votre Majesté,
 “5 — Je suis sourd, dit le roi;
 : 220 Il pleut sur ma profession d'foi.
 WA Le bon roi Dagobert
 + Devint alors autoritaire ;
 4 F: Le grand saint Éloi
 4 Lui dit à mon roi,
-RE: Votre Majesté,
 É: — Aveugle, dit le roi,
 4 Je fais, défais, refais la loi.
 ù Imitant un aveugle :
 ‘0 Ayez pitié d'un pauvre aveugle!
 5% Imitant un camelot, puis un ouvrier :
 « 8 Demandez le repasseur, le rapetasseur, le rafis-
-#2 Gr
 
 % la chanson du roi Dagobert VE
 toleur, le rapetisseur, le rapapilloteur, le raccom- CR
@@ -79,22 +64,12 @@ Ici brisa la rime en ert; A
 Le grand saint Eloi ne:
 Lui dit Ô mon roi, 14
 | Tant avons chanté +108
-Que faut déchanter : à n:
 — Ne pouvons, dit le roi, “0
 Battre tant longtemps que beffroi. 3
-| D.
-
-HS À IRON NE ce den SL 15 HNNT DES NI SE FRANS
-
-ad À : NS FREE RU ou
-ce {VERS i { À TL ups dre6i HOT RE à
-Lt PA SEE CR be en OT ut CE pRARET 1 ROLE
-+ & Tu à Lure n 6 père ORNE IE ter RTS wi: NUE:
 
 | Vient de paraitre
 De l'Académie Française
 Avec 7 compositions dont un portrait d'Émile Zola
-par STEINLEN
 Gravées par FROMENT et PERRICHON
 Une plaquette petit in quarto, tirage en noir et rouge,
 100 exemplaires sur vélin à la forme des papeteries du
@@ -109,8 +84,6 @@ Plus 25 épreuves d'artiste signées du portrait d'Émile Zola : #
 20 sur chine, au prix net de 6 francs J
 
 Vient de paraitre
-
-De j'Académie Française
 
 | Gravées par ERNEST FLORIAN
 
@@ -135,9 +108,7 @@ d'artiste sur chine, au prix net de 350 francs
 4 prix de 50 franes
 IL a été tiré en outre :
 20 collections d'épreuves monochromes et polychromes, sur » Chine, de toutes les gravures, au prix net de 100 francs
->
 
-4 Die et VO CINE er
 De l'Académie Française
 Une plaquette petit in quarto |
 5o exemplaires sur vélin à la forme des papeteries du L
@@ -153,23 +124,11 @@ Laflitte, sur chine, au prix net de ; 6 francs à
 De l'Académie Française
 De l'Académie Française
 
-LFSICES MA TE MAX TER Rat (4 NT A RFO
-Lie rAPRRC L HAN E A LS e 5 ART ce NZ LÉ SO
-
-A PU Un sa Re Sr Re à M
 ni d'imprimer deux mille exemplaires de ce PER
 Re qu zième cahier le jeudi 26 mars 1903 ERA
 
 à l'Imprimerie de Suresnes ne
 À eee 9, rue du Pont L]; FOSSES
-
-ni : DREMARNENEN. 1
-LES R 5 À Ÿ EC TULEER ae
-: RS . 2 Mes à: de FX re
-# D
-AE. ne ne
-
-; MEN AUS ETS À ET AH sü7 rà LA: FES $ 4 Ve Là NA Te
 
 __ L'affaire Crainquebille, d'Anatole France, a été
 1 publiée pour la première fois en entier dans les éditions
@@ -191,44 +150,20 @@ de-chaussée, Paris, cinquième arrondissement.
 pour deux mille exemplaires de ce quinzième cahier
 le mardi 24 mars 1903.
 
-Le Gérant : CuarLes PéÉeuy
 À © DePnMntE DE Suueswes (E. Paxex, administrateur), 9, rue du Pont. — 7312
-
-fs Pas Et spores ENS AU Nate DA MAP ENS SUOMI
-PAT É 127 LR CU MP bi PERRET LEE RS des Ë
-ir MES CY qe CAP CRE È F ESS IPS
-Mo e DE 7 CA FEU LARMES ETS TA ln er Re RATE
-
-| ; ; à
 
 4 paraissant vingt fois par an
 
 d 8, rue de la Sorbonne, au rez-de-chaussée
 
-# OS
-| ue LAS TIRR
-
-TAC PAR LINE PT ee 2e (ue ne AEQ ETS ET DELA EE
-"+ À + ORNE ne Eve (7e EE Na TN ec 1. NAT SI
-; ti LE vo El : ; { HENRI
-| LEO + “1 À AA CREER Lo Fa
-M et fi ER EE, PRE
-AL: EG APN MORE TANT A RL tue PME +
-LR TUE Net RAS na en ei, et AO A QE “ti
-à RER fra nn. “he Qt , Pa un out ane 1 At ELU à
-
-Que. CRE CES ie EN ut dans L " 4
 FRE Du même auteur, en vente à la librairie des ca hiers :
-1e . Les Vaincus. trilogie : 1 NIRRENE
 ; 5 Joseph d'Arimathée, _ un volume
 tbe Hypatie SUR mer dure
-Ne Savonarole ; nu PES
 Sur la foi des Étoiles, drame, : un volume
 FORMES La Chanson du Prodigue, poèmes, un volume
 2 La Coupe de Thulé, poèmes, un volume
 a Pygmalion et Daphné, un acte, une plaquette
 La Lanterne de Diog'ène, essais, un volun e
-x 4 Pour paraître : ë MA:
 val La Guerre au Village, trois actes. 45 TION
 se Les Petites Provinciales, essais. PE 0 ni
 
@@ -270,9 +205,7 @@ l'humanité. à
 
 O vraiment tu es un Dieu caché,
 Dieu d'Israël qui sauves !
-|
 
-JOSEPH D'ARIMATHÉE, Pharisien ami de Jésus. é ‘s à 4
 NICODÈME, Pharisien ami de Jésus. FE
 CÉPHAS, jeune Pharisien. (Le jeune homme riche) SUR
 
@@ -280,51 +213,19 @@ HANAN, Sadducéen, beau-père de Caïphe. SE
 
 CAIPHE, grand-prètre, chef du Sanhédrin. : LES
 
-: PONCE PILATE, procurateur de Judée. RL:
 PIERRE, disciple de Jésus, apôtre. ” ER
 JEAN, disciple de Jésus, apôtre. RS
-
-JUDAS DE KERIOTH, disciple de Jésus, apôtre. VEN
-
-LA MÈRE DES ZÉBÉDÉES. | pur 10
 
 MARIE, mère de Jacques. ( Se ; ‘#8
 JEANNE, femme de Chuza. \ rot « cl
 
-: PHARISIENS ET SADDUCÉENS, membres du Sanhédrin. a ï
-Discrces DE Jésus. & %
-
-de Les PÈLERINS D'EMMAUS. : ve
-
-Ux ESssÉNIEx. : LUE Des
-
 % Le drame se passe à Jérusalem, les 14, 15 et 16 de Nisan, ne
 il y a dix-huit siècles. 240)
 
-ES) RE FF à NE É ; Li Rae . ; nr a
-PR A a UT on er ER AE RES OT UE PEU A RTE
 La pièce que l'on va lire a été lue à la Bodinière, par D
 _ M. Coquelin aïné, les 15 et 20 avril 1897 et jouée au
-#7: PP PEN PF : | LHUE
 _ théâtre Antoine le 8 avril 1898. | LR
-__ Céras : : De Max e à ss
-EE = LES 0 Desfontaines pu
-_ Jupas De KeRIOTH Gémier HER
-Mr Re DE MAGDALA M" Mellot “RUE
 Tr La Mère pes Zépénées Dorsy ‘nes
-Marx, MÈRE DE JACQUES Dornay 7e LE
-JEANNE, FEMME DE Cnuza Reynold "NE
-it Un PHARISIEN MM. Carpentier TT
-UN ESséNEx D'Avançon : SR
-D Ux ESCLAVE Verse La Er.
-: LFENS re Ma, on
-
-# re PARU FU FOR ÉNARHE HF
-| | FRERE x:
-| 47X prb"
-| | té Et 4 22
-| 4 AT CTI > ET
-PORT RARE 5 EE LA ru Mg TT TS 2 NES
 
 Une vaste salle dans le palais du Procurateur, ouverte
 au fond par une triple baie à colonnes, d'où l'on aperçoit
@@ -351,7 +252,6 @@ Oui, oui, les rues sont encore désertes, mais le
 prétoire est déjà plein. Si l'on ne se hâte point d'en “2
 . . 5 140
 finir, craignons les troubles. 3
-LE SADDUCÉEN | Fit
 Rien craindre de ce côté. Ils sont tous de Jéru
 salem, ils n'aiment pas le Nazaréen. Les pèlerins
 de Galilée couchent épars dans la campagne, à
@@ -366,7 +266,6 @@ Etait-il desséché par la haine ! Commentse nommet-il ? 4
 Nous n'aurions pu agir de sitôt, sans lui. $
 10 21
 
-| LE SADDUCÉEN
 Maintenant, à nous la victoire.
 
 Nous ne verrons plus de l'aube au soir, dans la
@@ -435,19 +334,14 @@ Mais pourquoi maintenant cette feinte, cette bassesse gratuite ? Pourquoi les Ro
 Pour se justifier près du peuple, en cas de rancunes tardives. Tout est bien prévu. Re
 14 1
 
-D ou Si
-| NICODÈME
 Depuis que ces renards sont grands prêtres, le
 Sanhédrin n'est plus qu'un valet !
 Céphas entre par la porte de droite et se dirige vers eux.
 Je te salue, Rabbi. Quelle aube sinistre d'un jour
 de fête !
-Toi ici, Céphas?
 Oui, je suis venu malgré moi... Le croirais-tu ?
 Sitôt cette nouvelle, j'ai pensé à toi tout d'abord...
 Ce n'est pas à moi, ce matin, qu'il faut penser.
-| CÉPHAS
-J'entends... Va, je ne l'oublie point... Je l'ai vu
 en passant, tout à l'heure... Il a toujours ce même
 regard, que je ne peux pas soutenir. De quel crime
 est-il accusé ?
@@ -464,14 +358,11 @@ J'attends peu de chose d'un lâche.
 Je ne sais quel espoir me possède encore... |
 Caïphe et quelques membres du Sanhédrin se détachent des
 autres groupes et viennent sur le devant de la scène. a
-CAÏPHE ta
 Le Procurateur dira oui à ce que le Sanhédrin d
 prononce. Ce n'est pas un jugement nouveau qu'on j
 lui demande, mais d'exécuter une sentence. Il n'a
 qu'à condamner, selon notre loi. .
-Il a le droit de revoir la cause. 1
 
-Que iui importe ?
 Il haït le Sanhédrin. En faut-il davantage pour
 qu'il se dérobe ?
 Nous avons des moyens de nous faire entendre. Il
@@ -488,7 +379,6 @@ font-elles défaut? S'il ne veut frapper pour blasphème, il frappera pour sédu
 
 peuple, entendez-vous ? Ce fils de charpentier, soi-
 = disant prophète, ne s'est-il pas dit roi des Juifs ? 0
-Sans doute ! x
 
 C'est la vraie tactique! 1.0
 Jésus n'a jamais dit qu'il fût roi des Juifs! F4 » < \r
@@ -499,10 +389,7 @@ Tu défends le Galiléen ? OUR
 Nicodème a perdu l'esprit ! l a
 Je dis la vérité, que voussavez tous. Jésusn'apas
 dit qu'il fût roi, il ne veut pas l'être! Le
-it L'ALUE ass Fr?
 
-nn ER ARS ee 20 L UP
-| Sa PER 2 27 QuR ré
 Qu'en savons-nous ?
 Songez au denier de César... Vous êtes revenus
 la bouche close.
@@ -534,7 +421,6 @@ Tête roide! doutes-tu du grand prêtre? Qu''ai-je
 mes yeux.
 La confession seule n'est pas une preuve.
 L'homme sincère peut tomber au piège d'une question rusée…
-|
 
 Va donc demander à Judas, l'apôtre, ce qu'il
 
@@ -618,7 +504,6 @@ en effet! Celui qui nous entend ici m'est témoin
 que je suis sincère. Pharisiens, tous tant que nous
 sommes, que voulons-nous ? Nous voulons délivrer
 23 4
-| »
 
 du joug la Judée, nous voulons la victoire promise, |
 et le règne de Dieu dans nos villes et dans nos
@@ -644,9 +529,6 @@ Mourir sous nos murs, oui, mourir !…
 Tu dis vrai, Nicodème ! Je suis avec toi!
 11 quitte le groupe des prêtres, et s'avance vers Nicodème
 et Joseph d'Arimathée toujours immobile.
-
-LA nt E
-UN PHARISIEN, à Nicodème
 
 Tu n'es pas seul Pharisien ! Nous ne sommes pas
 moins que toi dignes de l'être ! Je parlerai aussi, en
@@ -730,8 +612,6 @@ plaintes, nous t'avons assez entendu. Cependant |
 prends garde, au passage, que les rues et les places
 n'aient point d'échos. Tu t'en repentirais toi-même,
 aussi bien que tout autre... Souviens-toi que Hanan |
-te le dit !
-Un silence.
 Hanan, tu as pour toi la force, et tu parles haut.
 C'est bien, nos lâchetés t'ont fait maître... Si vieux
 que tu sois, comme tu le dis — bien près de la mort
@@ -743,7 +623,6 @@ vous par Moïse, par Élie et par Jean !.…
 Pourquoi pas par David encore ? Dis-nous donc ;
 qu'il est le Messie !
 
-L'ETÉ SNS Dre Ge
 Si Jésus n'est pas le Messie, le Messie ne doit pas
 TOUS, détournant la tête et avançant la main droite
 La porte de gauche s'ouvre. Deux soldats romains armés
@@ -773,20 +652,15 @@ le répète, grand prêtre, je suis las de vos luttes reli- |
 Tu ne nous repousseras pas, je m'assure, quand |
 tu sauras tout. César est intéressé dans la cause, ily
 a crime de lèse-majesté… 1
-|
 Depuis quand prenez-vous si à cœur l'intérêt È
 de César ? Et quel crime ? }
 Un fou, qui se dit roi, veut séduire le peuple. IL |
 
 annonce des prodiges inconnus. ;
 
-RP TT RTE CE NT en D ER hu NME VE said. OU #P STE
-LA ve # Los LEA CS à NL ; ss 4 CA : = * é Fpui ès DH TS
-> CAÏPHE è
 Ce temple, qui a coûté quarante-huit ans sans 4
 qu'on l'achève, il en prédit la ruine et veut le #
 _  rebâtir en trois jours. Il n'est pas de promesse à
-PONCE PILATE de
 | C'est bien, nous verrons tout à l'heure... nous e:
 allons voir. (Apart) Ce peuple a le cerveau malade.
 Il se dirige vers le prétoire, précédé de ses deux licteurs, s
@@ -818,7 +692,6 @@ s'en vont à leurs besognes, et les pierres ne crieront
 pas qu'un prophète ici va mourir!
 Jésus est-il perdu sans ressources ? Ne gardezvous aucun espoir ?
 Il n'y en a plus de la part des hommes. |
-À Ah! si j'étais un fils du peuple et qu'il m'eût
 choisi pour apôtre, tous les Galiléens seraient sur
 
 cette place. Nous pourrions répondre au grand
@@ -885,7 +758,6 @@ Il faut patienter pour comprendre... Peut-être estil plus grand que nous le sav
 Oui, oui... mais il sera trop tard! Que nous restera-t-il, demain ?
 Pourquoi nous a-t-il repoussés, nous, les riches ?
 
-|
 C'est nous qui n'avons pas voulu de lui!
 Un jour, — j'étais plus las de vivre, il passait sur
 ma route, — je lui ai demandé sa parole... Il m'a
@@ -894,7 +766,6 @@ suis-moi... »
 C'est étrange. Quelque chose en lui emporte et
 S'il était vraiment un prophète, il ne pourrait
 mourir ainsi !
-|
 Bien d'autres prophètes sont morts. Regarde le
 mont des Olives.
 Et s'il était plus qu'un prophète? s'il était... ce
@@ -902,20 +773,14 @@ que tu as dit? Dieu ne le laisserait pas infâme !
 Que sais-je 2... Nous n'en sommes pas dignes! Il
 n'y a pas de Messie pour ceux-là !
 Non ! Non! Je ne peux pas comprendre... |
-|
 
-|
 | Tu veux marquer à Dieu ses voies.
-|
-; Crucifie-le !.…
 l Misérables que nous sommes, de pouvoir parler!
 Oh! sortir d'ici!... (l hésite et va verslaporte) J'aurai
-| vu!
 | La porte du prétoire s'ouvre. Entrent Ponce Pilate puis
 | Hanan, Caïphe et quelques membres du Sanhédrin.
 | Ponce Pilate va et vient en silence, d'un air absorbé.
 | Tous l'observent.
-| CAÏPHE
 | Que décidera le Procurateur ?..
 PONCE PILATE, relevant la tête |
 | Je ne trouve en lui aucun crime. Ce silence n'est
@@ -925,12 +790,9 @@ Ce silence est une ruse du malin! sa langue |
 à propos. Il n'a pu répondre à qui l'accusait.. La !
 seule parole qu'il ait dite, quand tu l'as questionné
 ‘fl en face, est un blasphème.
-| PONCE PILATE
 | Orgueil ou ruse, ne te plains pas. Il n'avait qu'à
 | vouloir se défendre, à nier vos dires, par les dieux
 | 39
-| qu
-|
 
 C'est nous qui n'avons pas voulu de lui!
 Un jour, — j'étais plus las de vivre, il passait sur
@@ -948,9 +810,7 @@ Que sais-je 2... Nous n'en sommes pas dignes! IL |
 n'y a pas de Messie pour ceux-là !
 Non ! Non! Je ne peux pas comprendre... 4
 
-AE ù 41 2 ET REMOTE + r/7 | d Les pins! L 4 FT EME
 Tu veux marquer à Dieu ses voies. |
-Crucifie-le !.… :
 Misérables que nous sommes, de pouvoir parler!.…
 Oh! sortir d'ici!... (I hésite et va verslaporte) J'aurai
 La porte du prétoire s'ouvre. Entrent Ponce Pilate puis
@@ -969,17 +829,11 @@ en face, est un blasphème.
 Orgueil ou ruse, ne te plains pas. Il n'avait qu'à
 vouloir se défendre, à nier vos dires, par les dieux
 
-|
-
-|
 | IL est rebelle à notre loi, il ne peut rester impuni.…
-|
 | ou cinquante autres vont surgir, qu'on ne saura
 | plus châtier.. Le nom de Messie est puissant.
-| PONCE PILATE
 Que veut dire: Messie ?
 | Fils de Dieu.
-| PONCE PILATE, à part
 J'ai entendu cela à Rome, dans les mystères de
 Mithra.… Oui, et les poètes aussi parlent de l'enfant
 qui doit naître... Mais qui prête foi à des songes ?
@@ -991,8 +845,6 @@ Oui. Celui-ci échappa, dit-on, par une fuite
 hâtive. IL est mort beaucoup d'innocents, et la
 | Si je le livrais au Tétrarque ? Il n'aime guère non
 plus les prophètes, lui qui sert leur tête au dessert
-
-| à
 
 je le tenais quitte! Mais il est de votre race, lui
 aussi. Quant à ce que vous appelez blasphème, je |
@@ -1044,8 +896,6 @@ On dira que le Procurateur de Judée prend peu
 de soin des intérêts de Rome... Le gouverneur de
 Syrie, Vitellius, peut-être en sera plus touché. R
 
-|
-
 Et César aussi, n'est-ce pas? Vous ferez des |
 plaintes encore, comme pour l'aqueduc, etle reste!
 
@@ -1077,10 +927,7 @@ dit : « Tu ne tueras point. » Voici ce que je décide. ù
 Je vais demander à ce peuple qui je dois relâcher
 tout à l'heure : Barrabas ou Jésus. Il sera seul juge.
 S'il dit Barrabas, ce Jésus ira donc en croix. Mais
-|
-#
 
-|
 s'il dit Jésus, sachez-le, vous crierez en vain! — Et
 maintenant je lave mes deux mains dans cette coupe É
 du sang que vous me demandez. Je n'ai plus de part |
@@ -1090,7 +937,6 @@ Que son sang retombe sur nous !
 C'est bien.
 Il se dirige vers le prétoire. Ils sortent.
 Voici la main de Dieu! oh! victoire!...lepeuple
-|
 Un long silence. Ils écoutent, la tête penchée. |
 ; NICODÈME, avec un geste de colère. 4
 
@@ -1107,7 +953,6 @@ d'Arimathée est debout devant la voûte cintrée, sous
 laquelle sont entrés déjà Nicodème et l''Essénien.
 Nous sommes arrivés. C'est ici.
 S Nicodème et l''Essénien, qui portaient un fardeau, le déposent doucement sur le sol.
-La porte.
 Je vais la fermer. Häâtons-nous. (li referme la porte
 et, demeurant là, écoute au dehors en parlant.) Pesez sur l'an
 neau de la muraille, la pierre cédera d'elle-même...
@@ -1135,7 +980,6 @@ encore. Son visage a repris sa grâce, depuis l'ago-
 _ nie. Il est beau de sa première beauté... On dirait L
 _ qu'il répand de la lumière dans l'ombre...
 Sa face en est toute baignée !
-| NICODÈME
 # C'est ainsi qu'il m'est apparu, messager d'une naïssance nouvelle, par une nuit de mon destin !... Son
 front resplendissait de même... Mais où sont le re__ . gardet la voix?
 Une courte agonie que la sienne ! A peine a-t-il
@@ -1149,7 +993,6 @@ d'orage, d'un coup !.. les autres vies sont des lampes
 fumeuses qui luttent, dans l'ombre etle vent.
 Son corps et son cœur étaient nobles, il n'a
 | jamais connu le vice... la douleur flétrit moins que
-\ le mal.
 
 Regardez-le du fond de votre âme... Il faudra
 fermer le sépulcre, et nul homme ne doit plus le
@@ -1239,7 +1082,6 @@ Je vais demander, à mon tour, aux Esséniens
 solitaires, la ceinture, la hache et la robe de lin. Je
 n'ai plus ici rien à faire.
 Il reste-toujours quelque tâche.
-|
 
 Mais non le désir de s'y mettre... Les miens sont
 morts, je vis seul déjà... le fils où je pensais revivre
@@ -1282,8 +1124,6 @@ vont pâlir bientôt, je me hâte. d
 I1 sort. Joseph d'Arimathée le regarde s'éloigner en silence.
 Les Saintes Femmes, au nombre de quatre, toutes voilées
 et portant une urne, s'arrêtent en passant près du seuil.
-
-15 1e CARTES véte A 27 dé Le RE) à DS . hi AURA:
 
 Femmes, où allez-vous ?
 
@@ -1333,7 +1173,6 @@ seul l'as secouru ?
 
 Toi aussi, comme tous les autres, tu veux voir
 
-Non! Non!... J'ai assez vu! Partout où je
 vais, je vois encore... cette croix sombre, au jour
 qui baisse, et le corps pâle sur la croix... Ah! j'ai
 vu ! j'ai trop vu! j'ai fui !... (Unsilence) Et rien n'a
@@ -1354,7 +1193,6 @@ de ses disciples... Pourquoi ai-je épié, un à un, ses |
 derniers soupirs ? n'ai-je pas voulu m''arracher ?.…
 Je crois que j'ai envié ce larron de l'entendre, et cet
 autre de porter sa croix...
-|
 
 C'est la mort qui grandit le prophète. il en est
 d'ordinaire ainsi.
@@ -1374,7 +1212,6 @@ en chœur: Lapidons!... Je me frayai vers elle un
 passage, prêt à la sauver, ou mourir... Lui, assis,
 entouré de ses douze, et nous regardant sans surprise : « Que celui d'entre vous qui est sans péché
 
-mr: EL ee l MORE NUST NE
 jette la première pierre, » dit-il. Et, s'étant penché
 vers le sol, il écrivait avec son doigt... La foule se ë
 Je reconnais là ses paroles.
@@ -1526,7 +1363,6 @@ Qu'a-t-il dit, alors ?.. qu'a-t-il dit? 4
 
 Il priait sans ouvrir les lèvres... je crois qu'il a .
 pleuré. Je ne sais pas. ;
-Un silence. À
 
 à Aurait-il douté de lui-même ?...— Mais naguère.
 
@@ -1535,7 +1371,6 @@ souviens-toi encore... que vous annonçait-il de 4
 .
 
 Sur la route de Césarée, il nous a dit : « Je suis
-le Christ! » ;
 
 Enfin! — Il s'était donc trompé... |
 
@@ -1547,10 +1382,8 @@ Mourir, sans avoir fait son œuvre! Et le 4
 
 royaume que vous attendiez? 420
 
-ee A PA M ED EAP TA
 4 7eme n'est pas ce quon pense... nous Re ; #48
 comprenions pas encore. A 2e Lee
-LE SON Minis à
 L Et maintenant, que comprenez-vous?... Qu''allez-
 _ Le Fils de l'Homme reviendra! les nuées seront LL
 déchirées! Il viendra comme le soleil ! de per,
@@ -1558,7 +1391,6 @@ Quand doit-il revenir, d'après vous ? 708
 Les temps sont proches, et le blé mûr... 40
 - Et quels sont vos signes RAR.
 Ta n'y a de signes que pour ceux qui croient. RH
-ù Tu dis vrai. LT
 
 Est-ce vraiment là tout leur songe ?.. A quoi bon
 disputer davantage? Qu'allez-vous faire en attendant?
@@ -1568,21 +1400,17 @@ Vous ferez sagement de quitter la ville. Il faut que
 vous laissiez venir l'oubli.
 Nous ne voulons plus que voir son tombeau, et …
 nous partirons.
-Un silence. |
 Ces hommes sont peut-être heureux...
 Trois des Saintes Femmes entrent dans la salle, sans voile
 et vivement émues. Elles portent encore avec elles les
 PIERRE, les regardant une à une :
 Jeanne, Marie et Salomé. D'où viennent-elles?..
-#
 
 Qu''avez-vous, femmes?
 JEAN, s'approchant de l'une d'elles
-Mère, qu'y a-t-il ?
 Le sépulcre est vide !
 On nous a dérobé Jésus !
 Que disent-elles ?... (A la mére des Zébédées.) Parle,
-toi... Dis ce que tu as vu...
 Nous allions au sépulcre, Rabbi... Nous lui portions ces aromates... La pierre était déjà levée !.…
 Les linges sont pliés encore, ceux de la tête et ceux
 des pieds. Nous l'avons cherché dans la grotte. il
@@ -1597,7 +1425,6 @@ avec vous? 1
 Nous l'avons laissée au sépulcre, à genoux et é.
 comme en extase... Nous sommes parties sans 4
 l'attendre…. É
-; PIERRE, du seuil de la porte 4
 Marie de Magdala?.… la voici. 4
 Entre Marie de Magdala, à pas très lents et les yeux fixes. d
 Elle parle d'une voix presque basse et sans geste. |
@@ -1605,13 +1432,10 @@ Je lai vu... je l'ai entendu... il était sorti du ‘
 sépulcre.. Comme sa tunique était blanche! Il à
 touchait à peine la terre... il n'avait plus de sang ni ‘4
 de plaies. Il était plus beau qu'autrefois… "2
-| CÉPHAS 1
 « Elle parle comme en un songe... 4
 68 20
 
-| LR TRES ASS Que
 Que dis-tu, Marie? Parle-nous.. C'est moi, è
-Pierre. Qui as-tu vu? Ù
 C'est toi, Pierre. (Elle regarde autour d'elle.) Vous êtes
 tous là... Pourquoi gardez-vous ces visages?
 elle est passée, la longue nuit... Ne savez-vous pas
@@ -1629,23 +1453,18 @@ debout près de la porte, dans une robe neuve
 comme le jour... mais mes yeux ne le connaissaient
 pas. — Il m'a dit : « Pourquoi pleures-tu,
 femme? » Je lui ai répondu : « On a enlevé notre
-Maître, et je ne sais où on l'a mis. Si tu le savais,
 
 toi, Seigneur, aie donc pitié de ta servante. » Alors
 sa voix m'a dit : « Marie! » Et moi j'ai crié:
 « Rabboni!.. » Je me suis jetée à ses pieds, et j'ai |
 voulu toucher sa robe... mais Il m'a dit:« Neme
 touche point, car je dois revenir à mon Père... Va
-dire tout ce que tu as vu... » ‘Ki: <0
 Un silence. Les femmes se sont rapprochées de Marie.
 Elle a l'air d'être plus qu'une femme... Elle
 rayonne avec le matin! |
 Tous les deux sortent en courant. _
-MARIE DE MAGDALA, de même :
 Je l'ai vu... je l'ai entendu... Il est ressuscité des
 Elle sort du même pas tranquille, suivie des trois femmes. 3
-Un silence.
-| CÉPHAS 4
 Joseph, que venons-nous d'entendre?
 
 Des folies. Un rêve de femme !.. 1
@@ -1664,9 +1483,6 @@ regarde s'éloigner. Le paysage est baigné de lumière. Seul,
 il va jusqu'au réduit sombre où Nicodème et l'Essénien
 ont enseveli le corps de Jésus. Il se tient là une seconde en
 silence, puis, avec un geste de doute et de résignation, il |
-
-va TAFRUR Tu Ppr
-ORNE AS EN TIR PR DE ent
 
 Même décor qu'à l'acte IL. Au début de la première scène
 Joseph d'Arimathée est seul avec un esclave. On voit au
@@ -1712,7 +1528,6 @@ empêcher et l'amour et la haine de se battre sur ce
 sépulcre comme ïls se battaient sur ses pas.… j
 Moi-même, écoutant cette femme, n'étais-je pas
 
-séduit 7. Oui, je le crois en vérité... On
 dirait quelquefois que les fous sont les sages.
 Étranges détours de l'Esprit !.… (Un silence.) Et lui, qui
 dort là sans parole, que penserait-il de ces choses ? à
@@ -1750,10 +1565,8 @@ Ou les siens, comme des voyageurs altérés àla fin
 du jour, paient leur foi d'un mirage... Ils sont ivres
 de trop de soif.
 Je ne peux plus les railler... Je les sens trop
-haut... Je ne l'ai vu nulle part, Joseph, et je n'ai pu
 douter de cette femme! Il faut qu'elle ait dit
 vrai! il le faut! 1
-Un silence.
 Tous vont venir ici ce soir, une dernière fois. 4
 
 Je le sais ; je suis venu les entendre. J'ai besoin
@@ -1762,7 +1575,6 @@ destinée va lever sa torche, ce soir. (Judasentre, laface
 hagarde, et reste un instant devant eux sans mot dire.) Qui est ce
 mendiant au poil fauve ?.. il a l'air d'une bête
 C'est l'homme de Kerioth... Judas.
-Un silence.
 Oui, c'est moi... Tu me reconnais, toi, Rabbi...
 J'ai mangé ici l'agneau de Pâques, le treize de
 Nisan au soir... Pourquoi me regardez-vous
@@ -1777,7 +1589,6 @@ Eux !.. c'est eux qui seraient en fuite !..… Au
 Cédron ils pouvaient se défendre... mais quelques
 
 . bâtons ont suffi... Ha ! Ha !..… et j'ai baisé ses
-lèvres. et il m'a rendu le baiser! KP
 Chien ! dis-nous ce qui t'amène, ou sors d'ici! À
 C'est toi. n'est-il pas vrai, Rabbi? C'est toi.
 qui l'as mis au sépulcre?.…
@@ -1806,8 +1617,6 @@ gner, et crier. Ha! Ha! 7
 
 Il vit! Marie-Madeleine l'a vu ! Et Pierre et X
 Jean aussi l'ont vu! : |
-Qui es-tu, toi ?.… ÿ
-Un Pharisien…
 Les tiens ont payé pour qu'il mourût... Ils sont
 contents... ils ont payé... et moi j'ai rapporté la
 somme. ils ne voulaient pas la reprendre... mais
@@ -1818,11 +1627,8 @@ s'est pas vendu... Ha! Ha!... Je voulais voir mourir
 le traître... lui, Jésus... pour le voir mourir... Il
 nous avait promis le règne, et nous avait trahis…
 C'est bon !
-Misérable !.. et si tu le rencontres ?.…
 
-JUDAS + ce
 Tu... le crois donc aussi ?.…
-Moi? oui! ;
 Tous... Tous... et c'est contre moi seul... c'est
 pour me rendre fou... Ha! Ha! Maisje ne croirai
 pas l'imposture !.. il est mort, et quelqu'un le s
@@ -1831,7 +1637,6 @@ le rencontrais ?... Ha! Ha! je lui crierais #4
 encore en face qu'il n'est pas le Messie! Ha!
 Ha !.. et que je le hais, mort et vivant! que je 1
 le hais! que je le hais !... comme je vous hais
-tous! tous! tous! Ha! Ha! Ha! Ha! Ha!
 Il sort marchant à reculons, la tête baissée, et s'enfuit. Un :
 On ne peut haïr ainsi qu'un dieu... ;
 Les voici qui arrivent... viens. à
@@ -1841,7 +1646,6 @@ Il faut croire le témoignage de Pierre... Pierreest
 un homme droit.
 80 3
 
-> : %
 Et Jean aussi. ils étaient ensemble.
 C'est Marie de Magdala qui l'a vu la première.
 elle a vu la colombe descendre, et les deux hommes
@@ -1858,7 +1662,6 @@ Depuis hier matin elle n'est plus la même...
 Mais Jésus ?.. En sont-ils bien sûrs 2... Ont-ils vu
 les pieds et les mains ?
 
-DE né
 Il était debout dans une grande lumière... comme
 de glaives, disent-ils… 44
 Ils auraient dû voir les stigmates.… 728)
@@ -1871,17 +1674,13 @@ pas une vierge? k.
 Elle sourit, au fond de son cœur... s
 Voici Pierre, et Jean, et Jacques son frère. ;
 Le front haut, comme des messagers !.… 4
-| TROISIÈME DISCIPLE \
 Pierre est soucieux plus que les autres. 4
 Les trois apôtres saluent de loin Joseph d'Arimathée et 4
 Céphas, et s'approchent des Saintes Femmes avec qui ils À
 82 24
 
-ps :;js UN DISCIPLE entrant brusquement RER
 Judas de Kérioth est mort! Lea * ie
 4 Un silence. Les disciples se regardent. Rumeurs diverses. fre % : Fe À
-Où l'as-tu vu? JS RS
-ge LE DISCIPLE 4
 Je passais par le champ d'Hénoch, le potier. HS
 _ Voici que sous un arbre je vois un homme... La 8
 _ tête touchait presque les branches, et les pieds ER:
@@ -1890,12 +1689,10 @@ _ l'appelle... il est comme une souche... je m'appro- É:
 _ che... eh ! oui, bien pendu ! la corde au cou... c'était 5%
 1e C'est lui-même qui s'est tué? 12 #
 Sans doute... On l'a vu passer comme un démo- RS
-__ La justice se lève ! 1.170
 2 , 113 22
 Ils périront tous par la corde! 4 3 ES
 
 Paix, frères. Il ne nous revient pas de juger. ‘ 4
-Les apôtres s'amendent… 23
 Entrent les deux Pélerins d'Emmaüs, un bâton à la main. 1
 Où est Simon, fils de Jona? £
 Tu nous croiras, Simon ?.. Nous l'avons vu, il 4
@@ -1912,7 +1709,6 @@ Si je me trompe, que Cléopas me reprenne... |
 Nous allions à Emmaüs ensemble, avant la tombée
 de la nuit, mais quand les ombres sont déjà lon-
 ‘ gues... Nous parlions de ces dernières journées, du
-Sanhédrin et du Golgotha, et de ce qu'on raconte
 dans la viile.. En chemin, un étranger nous aborde,
 — d'où venait-il, je n'en sais rien... Il nous dit :
 « Pourquoi êtes-vous tristes”? et de quoi parlez-vous
@@ -1963,7 +1759,6 @@ que ce soir durât toujours ?.… Il avait de la lumière
 « C'est Lui! » et nos poitrines se sont émues…
 car nous savions que c'était Jésus... Nous sommes
 revenus en hâte pour que vous croyiez avec nous...
-Un silence. |
 ” O gloire soit à Toi, Seigneur.
 Parle-nous, Simon... Parle-nous!...
 Les deux Pélerins se joignent au groupe. Plusieurs des
@@ -2095,8 +1890,6 @@ le même soleil! Ce sera le jour du Fils de M
 l'Homme... il apparaîtra à la droite du Père.
 Alors il connaîtra les siens! ke:
 
-| JEAN #4
-
 Et les morts se lèveront du sépulcre!.… :34
 
 Des langues de feu l'environnent… ‘#4
@@ -2131,12 +1924,9 @@ proche... mais il ne veut pas se montrer... (Un silence.
 On entend au dehors comme un bruit d'orage. Un éclair luit.) Je
 l'ai vu !... là... près de la porte !... C'est lui... entendez et croyez...
 
-Un souffle a passé. AU
 Est-ce l'orage? Il vente au dehors. V0
 J'ai vu briller une lumière. : LA
-RH de
 J'ai entendu dans l'air : « Schalom.…. » à
-> É:.
 C'était sa voix! 4
 C'est Lui! C'est Lui !.… Re
 Un silence. Ils attendent encore, sans oser un mouvement. É
@@ -2180,7 +1970,6 @@ le pain et le vin, soutiens-nous dans les crépus-
 
 ,
 
-TOUS Fois D
 Et maintenant l'heure est venue... Peut-être nous “3
 ne te verrons plus ?... Peut-être tu ne foules plus
 pour longtemps cette terre de sang et de larmes? IL 4
@@ -2206,7 +1995,6 @@ A l'œuvre! — Merci d'abord à l'hôte qui ce soir 24
 
 _ nous a recueillis. Qu'il ait sa part avec les Justes! i
 (A Joseph d'Arimathée.) Nous te saluons, Rabbi. Adieu.
-Et maintenant, en Galilée !.…
 Pierre, Jacques et Jean sortent les premiers, suivis des
 Saintes Femmes, puis de tous les disciples, qui répètent
 encore à mi-voix : « En Galilée! » et disparaissent tous au
@@ -2215,7 +2003,6 @@ et Céphas restent seuls.
 Père, étends ta main sur ma face... Bénis-moi, et
 séparons-nous.
 Il s'incline devant Joseph d'Arimathée.
-Où vas-tu ?
 Là-bas... où le soleil est jeune, et d'où nous est
 venu un dieu! |
 Es-tu sûr de toi?

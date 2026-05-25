@@ -9,9 +9,7 @@ wordCount: 59542
 ---
 ## Jean Coste ou l'instituteur de village
 
-ra Mrs PAROLES D'AMOUR, un volume in-18 jésu e dans
 T'AS SES la collection des Poètes contemporains, chez Le nerre
-LITRES Je ve 2. (PET
 
 J'étais délégué aux éditions dans une société anonyme .
 Re: à capital et personnel variables quand me parvint la
@@ -313,9 +311,7 @@ le camp. Sûr, qu'il était renseigné ; avez-vous remarqué
 ses airs et ses prévenances gouailleuses 2... Ah! l'ani-
 mal ! s'il a hâte de me sentir loin, je le regrette peu, le
 père Largue.…. Je vous souhaite ses bonnes grâces.
-Les adjoints sourirent.
 — Oui, à condition de faire son piquet, le soir, dit
-l'un. Merci, ce qu'on s'en fiche du bonhomme et deses k
 paroles melliflues et pédantes.… Il peut nous attendre.
 Plusieurs de ses élèves l'arrêtèrent, l'un demanda:
 , — Est-ce vrai, m'sieu, que vous partez?
@@ -413,7 +409,6 @@ en oubliait qu'il était un peu bigle. Quand ils se séparèrent, à l'entrée d
 la main, échangèrent un long regard d'intelligence et se
 promirent de se retrouver encore le dimanche d'après,
 
-ver ae LE Se
 aux berges du fleuve, rendez-vous habituel des amou- LES
 reux de Peyras.…..
 
@@ -458,8 +453,6 @@ le père de Louise, simple menuisier, s'était aussitôt lié
 d'amitié avec Coste, dès qu'il avait vu sa fille courtisée
 
 par ce monsieur, fonctionnaire de l'État, d'une condition
-
-si supérieure à la sienne; le dimanche, il le suivait aë
 
 café où l'instituteur et ses amis fréquentaient. Même,
 
@@ -651,7 +644,6 @@ et un profond soupir s'exhala de sa poitrine oppresSec.
 — Ah! mon Dieu ! mon Dieu !.. quitter Peyras et mes
 parents! mais nôn, non... je ne veux pas, je ne veux
 à pas... tu vas refuser tout de suite...
-. Elle sanglotait.
 Les enfants, voyant pleurer leur mère, s'étaient blottis contre elle, les yeux pleins de larmes aussi.
 Jean se fit câlin et tendre pour tous.
 — Allons, ma Louison, mon aimée, du courage, sois
@@ -669,7 +661,6 @@ et Jean sourirent aussitôt.
 elle, passionnément. — Est-ce loin Maleval ? — interrogea-t-elle, plus calme.
 — Non, à trois lieues de Montclapiers.. Si tu y lan-
 guis trop, tu pourras de temps à autre revenir à Peyras.
-— Est-ce grand ?
 — Trois cents habitants, je crois; tu verras comme
 nous y vivrons tranquilles. Et puis, s'empressa-t-il
 d'ajouter avec volubilité, voyant Louise prête à pleurer
@@ -697,7 +688,6 @@ ces paysans méfiants et inconnus avec lesquels nous
 plus considérée qu'ici. Toi qui es coquette, — fit-il
 en la taquinant, — tu seras, là-bas, madame gros
 comme le bras. Et puis, c'est un poste de début.
-On y restera deux ou trois ans au plus et, je te le
 répète, on tâchera après de se rapprocher de Peyras… à
 M. Largue prend sa retraite dans six ans... d'ici là, ©
 pourquoi ne viendrais-je pas le remplacer comme directeur ?
@@ -708,7 +698,6 @@ de son mari; elle fut sensible aux paroles de Jean, elle
 gagner là-bas comme ici ?... -#
 — A peu près. oui, Ça reviendra au même. J'aurai
 mon traitement fixe de mille francs. J'espère, avec
-ji : CRETE rfi L._ sd das. bide 2 , DE Fat
 mes dix ans de services, que l'on me donnera bientôt
 ma quatrième classe, ce qui fera deux cents francs de
 plus. — Il disait cela pour rassurer sa femme bien qu'il
@@ -917,7 +906,6 @@ il vous faut aller à l'extrémité du village ; tenez, là-bas.
 Elle tendit l'index vers le trou noir de la rue, car la
 lune venait de se cacher. -
 — Attendez, reprit-elle, le petiot va vous y mener...
-Elle appela :
 Un petit bonhomme de huit ans, les cheveux embroussaillés, apparut dans la lueur rouge des lanternes,
 suçant ses doigts à pleine bouche.
 Coste lui tapota la joue, amicalement. Quelques pas
@@ -1611,7 +1599,6 @@ pays si neuf pour eux, nés dans les plaines, la surprise
 des enfants se manifestait fréquemment par des interrogations drôles, des rapprochements imprévus, des
 réflexions d'une bizarrerie telle que Louise, distraite et
 réjouie, en oubliait son mal et s'habituait à sa nouvelle
-vie.
 k Souvent, assise à l'ombre, pour se reposer, elle
 retrouvait son sourire à voir son mari redevenir gamin,
 s'ébattre autour d'elle avec Rose et Paul. Même leurs
@@ -1963,7 +1950,6 @@ Vierge, à tous les saints, des paroles où pleurait le
 regret du clair soleil, de la douce lumière. Peu à peu, sa
 
 voix s'élevait et, distincte, se répandait en plaintes  .
-infinies. LE TRES
 — Mon Dieu ! vierge Marie ! geignait-elle, c'estilpos- L
 sible que je sois ainsi... Mon pauvre homme,tuesheu- “à
 reux, toi, de fumer les mauves..… Oh! cette nuit ! et ça
@@ -2137,7 +2123,6 @@ il se leva, tisonna le feu, y jeta une bûche et rapprocha
 sa chaise, le dos gelé, de cœur battant à grands
 Un silence pénible plana, tandis que les clameurs des
 rafales hurlaient dans la vallée et dans les combes voisines, telle l'approche d'une foule de géants en marche. Fee
-Tout tremblait.
 — Eh bien! — exclama Caussette, — quoi veux-tu
 me dire ?.… On serait mieux dans son lit qu'à se geler
 
@@ -2338,7 +2323,6 @@ l'hôpital ensuite. Cette vilaine femme, comme elle me
 l'a changé, mon enfant ! Jean lui qui était si doux et si
 bon autrefois. Ah ! il l'a connue pour notre malheur
 Jean était resté auprès du feu, tête basse, l'œil sec.
-Il se leva enfin.
 — Elle a refusé, n'est-ce pas? — dit Louise, en le
 — Tu nous a entendus ? — demanda Jean anxieux et
 très pâle.
@@ -4081,7 +4065,6 @@ sur le perron ? Il doit y faire si bon. k
 Mëmemutisme chez l'aveugle qui clôt ses paupières, E.
 _dédaigneuse à ces avances.
 Louise insiste. Brusquement, avec son air hargneux, x s.
-— Non, je n'ai pas envie de descendre. Ca ne me
 plaît pas. . -
 — Comme vous le voudrez; ça m'est fort égal, — s4
 répond Louise, dépitée de voir ses prévenances ainsi
@@ -4174,7 +4157,6 @@ Mais voici qu'au milieu du silence où vient de retom- F
 
 ber la maison, des voix d'enfants résonnent
 — Petite mère! petite mère ! desfleurs jolies pour
-toi.
 
 Jean rentre, joyeux de la bonne promenade qu'on a
 faite, joyeux de la gaieté des enfants et de retrouver le
@@ -5369,7 +5351,6 @@ d'instruction civique. Il ne pouvait admettre qu'on
 altérât sciemment la vérité du vote. Convaincre, oui,
 tant qu'on voudrait; recourir à des manœuvres illégales,
 
-we PERS Le
 jamais. D'ailleurs, Coste avait foi dans le succès. Ilse
 fiait aux promesses que lui faisaient les paysans qu'il
 catéchisait et qui promettaient volontiers à l'instituteur
@@ -6064,7 +6045,6 @@ bien dû. C'est pourquoi, redressant sa petite taille et
 
 fronçant les sourcils, le maire déclara nettement, d'une Le
 — Je le regrette, mais c'est impossible. N'insistez Fu
-pas. Re
 ù Puis, voulant donner une leçon à ce curé auquel on iQ
 ne pardonnait pas son abstention totale, lors des élec- À
 tions dernières, il ajouta un peu railleur : Ne
@@ -6205,7 +6185,6 @@ les grains de raisin et hâtaient la maturité de la récolte
 
 très abondante.
 — Ce sont des louis d'or qui tombent du ciel, disaient.
-ils.
 Et s'épanouissant d'aise ils se frottaient vigoureusement les mains et songeaient aux beaux écus qui, après
 la vente du vin nouveau, allaient choïr dans leurs bas
 de laine.
@@ -6407,7 +6386,6 @@ Le premier jour de la rentrée, le père d'un de ses
 
 — Voici que le petit est dans ses quinze ans. Son
 
-eue Re l
 intention est d'entrer à l'école normale de Montclapiers,
 s'il réussit au concours. Je suis venu vous voir pour l
 — Ma foi, répondit Coste, voulez-vous un bon con- Ÿ
@@ -6817,7 +6795,6 @@ charbon d'une famille entière, composée du père, de la
 mère ét de cinq enfants. 1 Nate a “
 
 Cette lecture le laissa rêveur. \ ie # œ
-Il se secoua. Las de tout, avide de repos et de néant, % l'A
 il murmura tout bas, avec une lointaine voix de rêve : à
 — Toujours misérer!.. Je n'ai même plus à lutter!
 La vie est mauvaise, la vie est marâtre aux petits. Ceux ; ‘4
@@ -6856,7 +6833,6 @@ ont publié
 Le programme de l'École des Hautes Études Sociales
 pour l'année scolaire 1900-1901 épuisé
 
-d TT RON EPA NE PPT SE va
 le discours lu par M. Boutroux et l'allocution pro
 noncée par M. Duclaux le lundi 12 novembre 1900)
 pour l'inauguration de l'École des Hautes Études So- Li

@@ -7,90 +7,21 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 24106
 ---
-LT LAN TES FE ET 2 ou ANSE RES :
-bre on" di A OA EP TU
-
-LA ep E L à La CT sé 2 RS
-> PM :T 0028
-ne SIVE AO - mr RE 7 VIENT 24 Re
-
-“ DE late de RCE CERN EC ET VAR CAS > j ST 5 PRES
-De Il le p LT
-
-RAR Re ne ARR PS ER ON PIS CO
-LE NRA RS RQ PR UE LT Die en + pe at
-PR D MR UE Le Ci A M Re Les
-| M0 A7 D :
-ns RP à La
-"ne Dee Lu a. A cos Ure He +: 0 À Rs |
-
-A AR RE Ce, PT TNT S ÉTÉ cl RP te Sd
-CRÈTE pe nn Te RE NT 10 dut PA De ; HA PER
 D du mystere LES
-‘ue Ts # Pr x É É Vie A1 4
 
-à SRE 1 DONNEES TE eff n LE ire Lee:
-PES SARA N DEA EE RES 7 Pose Pet 7, dé ne x f
-nn : . SA EP AERSREE RE
-| VAN A
-pu Mes o = ne
-# = A LR LE NT NE x
-EE) D ns a à F ve Le <
-
-se RARE jee PSE Ne NUE GAS SR
-il carre ART RSA SANS PER NENS AP ANSIRNES
-1e de la deuxième ve a
-| STÉRER RÉ
-> Eu ee
-
-LE Re sx À" ee K SR 1742 ru. TÉRETES er
-:. MO RMERR ESS CeS L Rene Dali EU
-RS ee di DU LEUR TES rr CR LR PPS ce
-2 ne RC: LR ER T'éLup Ps EN Ce FR URIUNE
-vu. Apr Dur, AË à # TEA É
-… ve er Pets Dr. AA de | ‘Ov « Ne er +
-
-re STRESS SLR PES SRE CETTE SRE EE REX
-TS Lai rats ni ee Late S j LIEN
-G fneæ au À y Ce Lu , rie w #4
-HE APE art: L: AN BEC CRE
-
-128 Non seulement à la mémoire ; RTE
 es mais à l'intention Set
 5 de notre ami et de notre frère Eddy Marx.
 er à Eltville sur le Rhin, le 2 août 1880 RL
 De Eltville sur le Rhin, le 31 août 1908 FER
 
-: y EE 71 NE E ra RENE us EL E nT :
-
-BAC. ce VAT LR
-
-enet À - ur ne ne:
-
-13e Fer de ce cahier qu'il fit Le
 ER pour le dimanche des Rameaux : K.
-MR, et pour le dimanche de Pâques Ÿ
-#7) 7 8 LR:
-| < Ie
-ne À TRE
-
-DER ae NT PARC RER LE ES TN > c
-A ER ET LP MeV ae Ne NP EN RE RENNES
-LE to PRIS Se É ras r NE. TR 3
-
-PA her ee HN ne Ven 5e F.
 
 PS cahier pour la Toussaint
 : et pour le jour des Morts de la treizième série;
 # deuxième cahier préparatoire
 4 pour le cinq centième anniversaire
-; de la naissance de Jeanne d'Arc,
 . qui tombera pour le jour des Rois
 
-LR EDS TES PE ARNEE et eee Pas TRCC He
-#7 AREAS ar SANTA
-La Cr vi SN CONS ARR NS RE
-# DE LA DEUXIÈME VERTU P
 Le foi que j'aime le mieux, dit Dieu, c'est l'espérance. RE
 La foi ça ne m'étonne pas. "ER
 Ça n'est pas étonnant. #
@@ -107,25 +38,19 @@ Dans la calme vallée. Fr. #20 % es
 Le Dans la recoite vallée. TS Le.
 Fe Dans les plantes et dans les bêtes et dans les bêtes des 34
 be Et dans l'homme. $ PRE "6-5
-us Ma créature. Puis
 à Dans les peuples et dans les hommes et dans les rois € DANS
 1 dans les peuples. Re Es. ;
 Dur Dans l'homme et dans la femme sa compagne. LATE
 166 Et surtout dans les enfants. À 12 à ,
-à Mes créatures. D,
 me: Dans le regard et dans la voix des enfants. AE me ‘ ds
 ï. Car les enfants sont plus mes créatures. ee Ë nr
-Be: Que les hommes. :. ge Fee ;
 D. Ils n'ont pas encore été défaits par la vie. ER: < 3
-Due De la terre. D x $
 __  Etentre tous ils sont mes serviteurs. 3: RES
 RE Avant tous. & <ice ; +
 ds Et la voix des enfants est plus pure que la voix du vent
-LE dans le calme de la vallée. “EN IE
 hs Dans la vallée recoite. LT VLCRRES
 ve Et le regard des enfants est plus pur que le bleu d U ONE
 12e 55 ciel, que le laiteux du ciel, et qu'un rayon d'étoile ‘a
-De dans la calme nuit. BUNT I SE
 F Or j'éclate tellement dans ma création. LCR É
 F Sur la face des montagnes et sur la face de la plaine.
 ? Dans le pain et dans le vin et dans l'homme qui laboure
@@ -152,7 +77,6 @@ ma maison sur la terre.
 : L'aigle royal qui a au moins deux mètres d'envergure
 3 et peut-être trois mètres.
 Et dans la fourmi ma créature qui rampe et qui amasse
-| petitement.
 Dans la terre.
 ; Dans la fourmi mon serviteur. À
 . Et jusque dans le serpent. | %
@@ -161,7 +85,6 @@ F Dans la fourmi ma servante, mon infime servante, qui #
 . Qui travaille comme une malheureuse et qui n'a point
 + de cesse et qui n'a point de repos.
 
-AE OUR LP Par Edhise CN Rs
 | le porche 1 ce
 Que la mort et que le long sommeil d'hiver.
 haussant les épaules de tant d'évidence.
@@ -177,7 +100,6 @@ Et jusque dans le serpent.
 Qui a trompé la femme et qui pour cela rampe sur le
 Et qui est ma créature et qui est mon serviteur.
 Le serpent qui a trompé la femme.
-Ma servante.
 s Qui a trompé l'homme mon serviteur.
 J'éclate tellement dans ma création.
 Dans tout ce qui arrive aux hommes et aux peuples, et
@@ -189,12 +111,9 @@ Dans tout ce que l'homme fait et défait de mal et de
 bien.
 (Et moi je passe par dessus, parce que je suis le
 
-à maître, et je fais ce qu'il a défait et je défais ce qu'il
 È Et jusque dans la tentation du péché.
 Et dans tout ce qui est arrivé à mon fils.
 A cause de l'homme.
-4 -Ma créature.
-- Que j'avais créé.
 Dans l'incorporation, dans la naissance et dans la vie
 À et dans la mort de mon fils.
 . Et dans le saint sacrifice de la messe.
@@ -216,7 +135,6 @@ Comment ne seretireraient-ils point le pain de la bouche,
 le pain de chaque jour, pour le donner à de malheureux enfants qui passent.
 Et mon fils a eu d'eux une telle charité.
 Mon fils leur frère.
-Une si grande charité.
 Mais l'espérance, dit Dieu, voilà ce qui m'étonne.
 Moi-même.
 Ça c'est étonnant. : U
@@ -231,9 +149,7 @@ Et il faut que ma grâce soit en effet d'une force
 Et qu'elle coule d'une source et comme un fleuve
 Depuis cette première fois qu'elle coula et depuis
 toujours qu'elle coule. |
-# |
 
-k 0 ; _ DE LA DEUXIÈME VERTU se ee
 a _ Dans ma création naturelle et surnaturelle. Ps
 _ Dans ma création spirituelle et charnelle et encore ï
 
@@ -251,10 +167,8 @@ er au souffle du péché, tremblante à tous les vents,
 b _ soit aussi invariable, se tienne aussi fidèle, aussi
 RE droite, aussi pure; et invincible, et immortelle, et 1
 l impossible à éteindre; que cette petite flamme du É
-| sanctuaire. #
 | Qui brûle éternellement dans la lampe fidèle. ;
 : Une flamme tremblotante a traversé l'épaisseur des
-| mondes. :
 | Une flamme vacillante a traversé l'épaisseur des temps. :
 | _ Une flamme anxieuse a traversé l'épaisseur des nuits. ‘3
 |. Depuis cette première fois que ma grâce a coulé pour ;
@@ -292,7 +206,6 @@ mangent pas.
 Puisqu'elles sont en bois.
 C'est cette petite fille pourtant qui traversera les
 
-té DE LA DEUXIÈME VERTU < RCA
 | | Cette petite fille de rien dutout. due
 | \ E le seule, portant les autres, qui traversera les mondes Ac
 _ Comme l'étoile a conduit les trois rois du fin fond de +
@@ -328,9 +241,6 @@ l'avez promis, et que vous êtes souverainement fidèle
 dans vos promesses. .
 Or oublie trop, mon enfant, que l'espérance est une
 
-ÿ x PRE 1 AS SEX NEA Runrs Les US 7 ETES
-| LS 4 Dan
-Le UNE PERS RP F 3 re
 vertu, qu'elle est une vertu théologale, et que de toutes Mer
 “+ le s vertus, et des trois vertus théologales, elle est peut- FEES
 être la plus agréable à Dieu. FE
@@ -338,7 +248,6 @@ ee BQw'elle est assurément la plus difficile, qu'elle est LES
 _ peutêtre la seule difficile, et que sans doute elle est la $ 1
 _ plus agréable à Dieu. 52
 _ La foi va de soi. La foi marche toute seule. Pour croire LR
-_ il n'y a qu'à se laisser aller, il n'y a qu'à regarder. LES
 LS . Pour ne pas croire il faudrait se violenter, se torturer, 50
 - l'envers, se mettre à l'envers, se remonter. Lafoiest -
 - toute naturelle, toute allante, toute simple, toute SU
@@ -350,12 +259,8 @@ _ bonne femme, une bonne vieille paroissienne, une }
 ni _de l'ancien temps, qui sont arrivées dans l'ancien ÉTES
 … Pour ne pas croire, mon enfant, il faudrait se boucher #2 :
 … les yeux et les oreilles. Pour ne pas voir, pour ne pas se
-#12 2 À 2
-: L a charité va malheureusement de soi. La charité Ê 5e
 2 m arche toute seule. Pour aimer son prochain il n'y a RS
 
-le porche J | : Dr
-qu'à se laisser aller, il n'y a qu'à regarder tant de
 détresse. Pour ne pas aimer son prochain il faudrait
 Se raidir. Se faire mal. Se dénaturer, se prendre à
 l'envers, se mettre à l'envers. Se remonter. La charité est toute naturelle, toute jaillissante, toute simple,
@@ -375,7 +280,6 @@ qui est difficile.
 à voix basse et honteusement. ;
 Et le facile et la pente est de désespérer et c'est la
 
-| DE LA DEUXIÈME VERTU
 La petite espérance s'avance entre ses deux grandes
 sœurs et on ne prend seulement pas garde à elle.
 Sur le chemin du salut, sur le chemin charnel, sur le
@@ -386,7 +290,6 @@ Sur le chemin du salut, sur le chemin charnel, sur le
 Et celle qui est mère. É
 Et l'on n'a d'attention, le peuple chrétien n'a d'attention '
 que pour les deux grandes sœurs.
-É La première et la dernière.
 Qui vont au plus pressé.
 _ Au temps présent.
 A l'instant momentané qui passe.
@@ -435,7 +338,6 @@ Sur le chemin montant, sablonneux, malaisé.
 Sur la route montante.
 Traînée, pendue aux bras de ses deux grandes sœurs,
 Qui la tiennent par la main,
-| La petite espérance
 Et au milieu entre ses deux grandes sœurs elle a l'air
 de se laisser traîner.
 Comme une enfant qui n'aurait pas la force de marcher.
@@ -479,8 +381,6 @@ Et l'hiver quand il travaille dur.
 É Dans la forêt.
 fr Quand il travaille le plus dur. À
 
-De la serpe et de la scie et de la cognée et de la hache.
-
 Dans la forêt glacée.
 
 L'hiver quand les vipères dorment dans le bois parce
@@ -503,8 +403,6 @@ Et à ses enfants qui sont bien tranquilles à la maison.
 Qui jouent et qui s'amusent à c'te heure au coin du feu.
 
 …. Et qui peut-être se battent. :
-
-_ Pour s'amuser.
 
 … jls passent devant ses yeux, dans un éclair devant les
 
@@ -534,10 +432,8 @@ Afin qu'elle soit défendue par ses deux frères. É
 __ Dans l'existence. rt
 Un avant et l'autre après. } |
 ÿ0 Ses trois enfants qui lui succéderont et qui lui survivront.
-a Sur terre. ;
 y Qui auront sa maison et ses terres.
 
-À le porche ne ALES
 Et s'il n'a point de maison et de terres qui auront du
 moins ses outils.
 (S'il n'a point de maison et de terres ils n'en auront
@@ -545,14 +441,10 @@ point non plus.
 Voilà tout.)
 (I s'en est bien passé pour vivre.
 Ils feront comme lui. Ils travailleront.)
-Sa hache et sa cognée et sa serpe et sa scie.
 Et son marteau et sa lime.
-Et sa pelle et sa pioche.
 \ Et sa bêche pour bêcher la terre.
-Et s'il n'a pas de maison et de terre.
 S'ils n'héritent pas sa maison et sa terre. ï
 Au moins ils hériteront ses outils.
-Ses bons outils.
 Qui lui ont servi tant de fois.
 Qui sont faits à sa main.
 Qui ont tant de fois bêché la même terre.
@@ -569,7 +461,6 @@ Car il est un bon laboureur et un bon bûcheron.
 Et un bon vigneron.
 Et avec ses outils ses fils hériteront, ses enfants hériteront.
 
-nn. ‘DE LA DEUXIÈME VERTU x 6 GE
 _ Ce qu'il leur a donné, ce que nul ne pourrait leur ôter. ENT à
 (Presque pas même Dieu). LT
 4 Tant Dieu a donné à l'homme). LS
@@ -593,17 +484,14 @@ Ce qui fait plus de travail que les outils. 4
 Et les outils finissent tout de même par s'user. =
 _ Comme l'homme. #4
 - Ce qui vaut mieux, ce qui est plus durable que la race De
-| etle sang. à pe.
 - Car la race même et le sang sont périssables et périront. sr
 _ Excepté le sang de Jésus. “1107
 - Qui sera versé dans les siècles des siècles. Ke
 
-: le porche :
 | Et la race même et le sang sont exposés au vent de
 È Et il peut y avoir un hiver des races.
 ; Avec sa maison peut-être s'il en a une et sa terre.
 | Avec ses outils sûrement et sa race et son sang ses
-| enfants hériteront.
 à Ce qui est au dessus de tout.
 | La bénédiction de Dieu qui est sur sa maison et sur sa
 É La grâce de Dieu qui vaut plus que tout.
@@ -631,17 +519,13 @@ Sa place d'homme et sa place de chrétien.
 Sa place de paroissien, sa place de laboureur. 154
 | Sa place de paysan. -< 203
 Sa place de père. ES
-s a place de Lorrain et de Français. È | À à
 Car c'est des places, grand Dieu, qu'il faut qui soient 2 ve.
 … Et il faut que tout cela continue. Ne
 és Quand il n'y sera plus comme à présent. . Re:
 Il faut que paysannerie continue. SR
-Ê Et la vigne et le blé et la moisson et la vendange. 4
-. Et le labour de la terre. 53
 Et le pâtour des bêtes. 4
 Quand il n'y sera plus comme à présent. 54
 31 faut que la chrétienté continue. 1
-: L'Église militante. L#S 3
 Et pour cela il faut qu'il y ait des chrétiens. w
 Il fa ut que la paroisse continue. “4
 Il faut que France et que Lorraine continue. à pe
@@ -688,7 +572,6 @@ Tant qu'il y en a eu depuis que la paroisse a été fondée. À
 D Par quelque saint fondateur. PNA
 _ Venu de Jésus. NET
 à Son corps, car pour son âme il y a longtemps. LES
-_ Qu'il l'a recommandée à Dieu. F2
 La mettant sous la protection de ses saints patrons. ms
 Il dormira, son corps ainsi reposera. ec
 __ Parmi les siens, (attendant les siens). - 4 TS
@@ -697,8 +580,6 @@ _ Jusqu'à la résurrection des corps son corps ainsi repo- LC
 | sera. SE
 _ Il pense avec tendresse à ce temps où on n'aura pas 2
 _ besoin de lui. : 4
-._ Et où ça ira tout de même. FN
-É Parce qu'il y en aura d'autres. T2
 . Qui porteront la même charge. EU
 _ Etqui peut-être, et qui sans doute la porteront mieux. .
 _ Il pense avec tendresse à ce temps où il ne sera plus. 3e
@@ -710,10 +591,7 @@ Où tout n'en marchera que mieux. Ke
 * Parce que ses enfants seront là, pour un coup. He
 Fa Ses enfants feront mieux que lui, bien sûr. MR
 NE t le monde marchera mieux. 147
-ss ER -: je HR “
 
-le porche : | Sr LS PS
-Plus tard. à 5
 11 n'en est pas jaloux. : 14
 . Ni d'être venu au monde, lui, dans un temps ingrat. À
 J Et d'avoir préparé sans doute à ses fils peut-être un :
@@ -730,7 +608,6 @@ L (Si seulement on y pense quelquefois. Rarement.)
 à, Et les appellera, heureux de les voir. Et les cherchera: <
 Car c'est eux qui régneront alors et qui porteront le :
 É C'est eux qui régneront avec les hommes de leur âge ‘#
-AC et de leur temps. LÉ
 é . C'est eux qui régneront sur la face de la terre. Ne |
 Peut-être quelque temps encore un vieux qui se rappel- $
 ; Les deux gars Sévin c'est des braves gars. à
@@ -809,8 +686,6 @@ Et des gars solides comme des chênes.
 
 Dans la forêt quand soufflera la bise d'hiver.
 
-La bise aigre.
-
 Qui leur traversera les os.
 
 Et fera des glaçons dans leur barbe.
@@ -842,11 +717,9 @@ D _ nouveaux venus viennent et poussent). ne
 . D'autres ses enfants qui vivront et qui mourront après ae
 : A lui si tout se passe dans l'ordre. ni
 
-_ Et qu'il retrouvera en paradis. é
 3 Il y en aura d'autres, Dieu merci : AE 3
 Il faut que France continue.
 
-É de Gi France ne chômera, ni chrétienté ni Lorraine. 5e
 … Et la paroisse ne chômera pas. LS -
 Ni ne chômera point la vigne ni le blé. ee.
 
@@ -858,8 +731,6 @@ _ lui refoule au cœur. QE:
 tt le réchauffe tellement. LHNRER
 Et lui reflue dans tous les membres jusqu'au bout des 34 *
 
-: le porche CET ER USE.
-| DR ER
 : Tellement que s'il avait bu un bon verre de vin de =
 se Des coteaux au-dessus de Cepoy. |
 > Et cette onglée qu'il avait aux doigts, (et il avait beau É L
@@ -886,9 +757,6 @@ Alors le pauvre homme il veut faire le malin. 4
 - Celui qui n'a pas pleuré. ;
 : On veut toujours faire le malin. 4
 . Il regarde autour de lui sans avoir l'air de regarder si x
-r on ne le regarde pas. ;
-| Si on ne l'a pas vu. |
-| Des fois. 4
 
 _Riant en lui-même et dans sa barbe et à la dérobée.
 Il se dépêche d'essuyer ces deux larmes sur sa joue.
@@ -897,7 +765,6 @@ Il boit et lèche de la langue sur ses lèvres. )
 à Au coin de ses lèvres l'eau salée de ses larmes.
 Qui lui passe à travers la barbe.
 Et aussi de sa main maladroitement. '
-De biais, en descendant.
 Du revers de la souche du pouce il se dépêche d'effacer
 ses larmes et la trace de ses larmes.
 Pour qu'on ne s'aperçoive pas.
@@ -907,7 +774,6 @@ $ Et qu'on n'aille pas se moquer de lui dans le bourg.
 Et sa femme qui aujourd'hui est restée à la maison.
 Maïs qui d'autres fois d'habitude va aussi aux champs.
 Qui est si bonne femme de ménage.
-Et si bonne chrétienne.
 “ Est-ce qu'elle aurait autant de courage à l'ouvrage.
 Et à faire son ménage.
 « Si elle ne travaillait pas pour ses enfants.
@@ -920,9 +786,7 @@ Tout ce que l'on fait. |
 à Comme si ils nous prenaient par la main.
 Ainsi tout ce que l'on fait, tout ce que tout le monde
 fait on le fait pour la petite espérance. }
-Tout ce qu'il y a de petit est tout ce qu'il y a de plus
 3 beau et de plus grand.
-Tout ce qu'il y a de neuf est tout ce qu'il y a de plus
 beau et de grand. L
 Et le baptême est le sacrement des petits.
 Et le baptême est le sacrement le plus neuf.
@@ -931,42 +795,31 @@ J Tout ce qui commence a une vertu qui ne se retrouve î
 jamais plus. È
 Une force, une nouveauté, une fraîcheur comme l'aube. ;
 Une jeunesse, une ardeur. 3
-We Un élan. L
-pee Une naïveté. ;
 k Une naissance qui ne se trouve jamais plus.
 Le premier jour est le plus beau jour. 4
 Le premier jour est peut-être le seul beau jour. 1
 Et le baptême est le sacrement du premier jour. ? |
-Et le baptême est tout ce qu'il y a de beau et de grand. 4
 S'il n'y avait pas le sacrifice. {
 Et la consommation du corps de Notre-Seigneur. |
 4,
 
-RP Et ee fa D ia Pete Éu HA
 à IL y a dans ce qui commence une source, une race qui an
 _ ne revient pas. FE É:
 _ Un départ, une enfance que l'on ne retrouve, qui ne se
 _ retrouve jamais plus. î ÈS
 _ Or la petite espérance .
-| ms . . % NU
 Est celle qui toujours commence. AE
-a Cette naissance Rs:
-_ Cette enfance F LE
 Perpétuelle. Qu'est-ce que l'on ferait, qu'est-ce que l'on LEQR
 _ serait, mon Dieu, sans les enfants. Qu'est-ce que l'on #08
 _ Et ses deux grandes sœurs savent bien que sans ele 7238
 nr. 5 _elles ne seraient que des servantes d'un jour. AL +
 _ Des vieilles filles dans une chaumière. Fer 0
 Dans une cabane délabrée qui se démolit tous les jours a
-_ Qui s'use à mesure. ES
 _ Des vieilles femmes qui vieillissent toutes seules et qui : 3
 F4 s'ennuient dans une masure. “LEUR
 . Des femmes sans enfants. 2 AS
 _ Une race qui s'éteint. CE
-Re Vie ets, a FAC
 
-> Nc AU
-le porche : |
 Maïs par elle au contraire elles savent bien qu'elles
 sont deux femmes généreuses. à
 Deux femmes qui ont quelque chose à faire dans
@@ -975,9 +828,7 @@ Et que par cette petite fille qu'elles élèvent elles tiennent
 tout le temps et l'éternité même dans le creux de
 Ainsi ce sont les enfants qui ne font rien.
 Ah les gaiïllards ils font semblant de ne rien faire, 4
-Les mâtins,
 Ils savent bien ce qu'ils font,
-Les innocents.
 Aux innocents les mains pleines.
 C'est le cas de le dire. |
 Ils savent bien qu'ils font tout; et plus que tout;
@@ -990,17 +841,14 @@ Et que rien ne se fait que pour eux. ,
 Et que tout ce qui se fait dans le monde ne se fait que
 pour eux.
 
-A De LA pute VÉRPUN UNE Ve UP SR TIRE
 De là leur vient cet air assuré qu'ils ont. ; PRE
 Si agréable à voir. Fa
 Ge regard franc, ce regard insoutenable à voir et qui “e en. ;
 soutient tous les regards. s _.
 _ Ce regard insoutenable à soutenir. bi
-RC regard _. ce ur o droit He ont, ce regard de.
 __ doux, qui vient tout droit de paradis. É
 .… Si doux à voir, et à recevoir, ce regard de paradis. Fe
 De là leur vient ce front qu'ils ont. < É
-_ Ce front assuré. FT
 F Ce front droit, ce front bombé, ce front carré, ce front PSE
 _ Cette assurance qu'ils ont. 54
 _ Et qui est l'assurance même. : F2 00
@@ -1029,8 +877,6 @@ Doux enfants, enfants inimitables, enfants frères de ;
 Enfants près de qui les plus grands saints ne sont que
 vieillesse et décrépitude. f
 
-#4 $ L 3 7 < ps Pr > D A AR Se EÈ re Pa
-RÉREE US OR ER PORC re D DE PE OMR MS te M:
 Enfants c'est pour cela que vous êtes les maîtres et
 _ que vous commandez dans les maisons. BH EE
 _ Nous savons bien pourquoi. RÉÉ AS
@@ -1045,13 +891,11 @@ ne vous aussi vous savez bien que vous êtes les maîtres ie
 _ dans les maisons. Mere
 - LETTRE ES [3 . . 4 ‘« _ Votre voix le dit, votre regard le dit, et vos boucles de e Re
 cheveux, et votre tête mutine. PR
-# EX —— , L
 . E L quand vous demandez quelque chose, vous le & 3
 _ demandez comme un qui rit parce qu'il est bien sûr RE
 _ de lavoir. RURS
 #° Vous savez bien que vous l'aurez. M.
 
-| le porche  RÉPRRE PE ER
 De l'imitation de Jésus. Vous enfants vous imitez Jésus. 4 |
 Vous ne l'imitez pas. Vous étes des enfants Jésus. |
 Sans vous en apercevoir, sans le savoir, sans le voir. Î
@@ -1059,14 +903,11 @@ bis Et vous le savez bien. À |
 Et l'homme, quel homme, le plus grand saint, quel saint A4
 ne sait qu'il est infiniment loin de Jésus. ,
 5 Dans son imitation. |
-de la vie. 1
 TARR Et qui est l'existence et la vie et le vieillissement à
 | même.
 A nos enfances nous joignons Jésus. “A
 Et grandissants nous en sommes disjoints, nous nous
 en disjoignons pour toute la vie. 13
-| |
-|
 Enfants votre ignorance, votre assurance, votre inno- 1
 cence est l'ignorance même et la même innocence de . ‘4
 Jésus, de l'enfant Jésus.
@@ -1082,7 +923,6 @@ _ Votre règne est le règne propre de l'espérance. Cr.
 _ Car nous autres homnies qu'est-ce que nous sommes, SA
 _ Dans notre pauvre imitation. F Te
 _ Et votre commandement c'est le commandement même Æ arr 4
-__ de Jésus. : AE
 } gulier sort, singulière destinée, destination de DS.
 __ Quand nous sommes enfants, nous sommes des enfants EX
 Er, _ Jésus, nous joignons Jésus enfant. PR
@@ -1092,7 +932,6 @@ Beaux enfants, votre regard est le regard même de SEP
 _ Votre regard bleu. 1: Sp ANR
 _ Votre beau regard. ; TE à
 
-le porche É Se0ve Se s.
 Votre front est le front même de Jésus. D
 Votre voix est la voix même de Jésus. : He 4
 Et nous qu'est-ce que nous sommes.
@@ -1103,7 +942,6 @@ Et au coin des lèvres le pli des amertumes. “ù |
 Et au mieux aller le pli même de la contrition. -4
 : Nous ne sommes jamais que des innocences recouvrées. k
 Et eux ils sont l'innocence première.
-#
 4 Nous qu'est-ce que nous devenons. e
 | 3 Qu'est-ce que nous sommes devenus. 4
 5 Qu'est-ce que nous savons. #
@@ -1120,9 +958,7 @@ Et autant le fruit mûr, juste mûr, pris à l'arbre, l'em- É
 porte sur le fruit conservé. 4
 Frais vaut mieux que le fruit conservé.
 | Autant l'innocence de l'enfant l'emporte sur l'innocence 1
-; de l'homme.
 
-à RE NO MT r os CL La Ven td Me NGC 1
 # Vaut mieux que ce que l'homme n'ose plus même nom TE
 mer son innocence. : FRS
 # à _ Il pense à ses trois enfants qui en ce moment-ci même Er.
@@ -1141,19 +977,15 @@ _ lent, autant quand ils s'amusent. FAR
 _ Ils ne s'en aperçoivent même pas. #1
 Ils sont bien heureux. st
 _ Aussi leur commandement est le commandement même ES
-_ de Jésus. :
 _ De Jésus enfant. rai
 _ L'espérance aussi est celle qui s'amuse tout le temps. : 4
 Re: I pense à ses trois enfants qui jouent à c'theure au EE
 coin du feu. 71 2{S RE
 …. Pourvu seulement qu'ils soient heureux. LIÉE ER
-Le mt à
 
 | le porche | CRE RER |
 N'est-ce pas tout ce qu'un père demande. . 4
 On vit pour eux, on demande seulement que ses enfants 5
-|
-|
 Il pense à ses enfants qu'il a mis particulièrement 4
 sous la protection de la Sainte Vierge. : J
 Un jour qu'ils étaient malades. 4
@@ -1167,10 +999,8 @@ A l'idée seulement qu'ils étaient malades. |
 Il avait bien compris qu'il ne pouvait pas vivre comme E.
 “ Avec des enfants malades. D
 4 Et sa femme qui avait tellement peur. “4
-| Si affreusement. |
 > Qu'elle avait le regard fixe en dedans et le front barré ‘© « 4 et qu'elle ne disait plus un mot.
 ÿ Comme une bête qui a mal. “4
-ù Qui se tait. 5
 Car elle avait le cœur serré.
 La gorge étranglée comme une femme qu'on étrangle. :
 4 Le cœur dans un étau. F
@@ -1187,7 +1017,6 @@ peur de parler.
 Il avait parfaitement compris que ça ne pouvait pas se L
 ë passer comme Ça.
 - Ça ne pouvait pas durer.
-- Comme ça.
 _ Ilne pouvait pas vivre avec des enfants malades.
 Alors il avait fait un coup (un coup d'audace), il en
 : riait encore quand il y pensait.
@@ -1201,7 +1030,6 @@ _ Comme on prend trois enfants par terre et comme on
 ji les met tous les trois.
 - Par amusement. Par manière de jeu. L
 …._ Dans les bras de leur mère et de leur nourrice qui rit.
-= Et se récrie. !
 3 Parce qu'on lui en met trop. x
 …_ Et qu'elle n'aura pas la force de les porter. \
 3 Lui, hardi comme un homme. J
@@ -1210,7 +1038,6 @@ ji les met tous les trois.
 — Ses trois enfants dans la maladie, dans la misère où ils i
 
 ‘Et tranquillement il vous les avait mis. FT E
-Le 6 Par la prière il vous les avait mis. EP ITT PRES e
 Tout tranquillement dans les bras de celle qui et
 AA x chargée de toutes les douleurs du monde. MAS
 040 Et qui a déjà les bras si chargés. LT
@@ -1221,7 +1048,6 @@ Rs À Il avait dit, par la prière il avait dit : Je n'en peux
 LS Je ny comprends plus rien. J'en ai par dessus la tête.
 
 “a _ Je ne veux plus rien savoir. GS €
-re : Ça ne me regarde pas. QUE
 “APS (1 faut que France, il faut que chrétienté continue.) MR
 SÉTHNES Prenez-les. Je vous les donne. Faites-en ce que vous …
 
@@ -1239,7 +1065,6 @@ _ Qu'est-ce que ça vous fait. Vous en avez tellement  « ES d'autres. ES
 Det à Qu'est-ce que ça vous fait, un de plus un de moins...
 Me Vous avez eu le petit Jésus. Vous en avez eu tant k
 
-Le d'autres. en 74
 RE (Il voulait dire dans les siècles des siècles, tous les
 “15e enfants des hommes, tous les frères de Jésus, les
 
@@ -1252,7 +1077,6 @@ Les larmes au bord des paupières, les mots au bord 1
 _ Il était dans une grande colère, Dieu lui pardonne, il K2:
 2 en frémit encore (mais il est rudement heureux d'avoir PES
 J SE (Le sot, comme si c'était lui qui y avait pensé, le pauvre : 3
-| homme.) - “54
 e “qu parlait dans une grande colère (que Dieu le garde) et ds
 . dans cette grande violence et, en dedans, en dedans 4
 % de cette grande colère et de cette grande violence <'#E
@@ -1262,17 +1086,14 @@ De: Vous les voyez, disait-il, je vous les donne. Et je m'en Rx
 3 _ rendiez pas. ‘pa
 _ Je n'en veux plus. Vous le voyez bien. M
 Comme il s'applaudissait d'avoir eu le courage de faire VE
-__ ce coup-là. PR
 . Tout le monde n'aurait pas osé. ” -
 38 dl était heureux, il s'en félicitait en riant et en tremblant. #4
 _ (Œnen avait pas parlé à sa femme. Pur
 _ Il n'avait pas osé. Les femmes sont peut-être jalouses. Re:
 4 vaut mieux ne pas se faire d'affaires dans son ménage.
-ù t avoir la paix. ES
 … Il avait arrangé ça tout seul. 16
 … C'est plus sûr. Et on est plus tranquille.) DURE.
 
-Re ne le poréhé ?: ETES
 _ Depuis ce temps-là tout marchait bien. RER.
 PL: Comment voulez-vous que ça marche autrement.
 CES Que bien.
@@ -1290,23 +1111,18 @@ x Il n'y a que les plus honteux qui perdent.
 J pas autant. 1
 > L2 C'est si simple. 3
 ce On ne pense jamais à ce qui est simple.
-| On cherche, on cherche, on se donne un mal, on ne
 ÿ / pense jamais à ce qui est le plus simple. 4
 ? Enfin on est bête, vaut mieux le dire tout de suite. : si
 Et Elle, qui les avait pris, pourtant elle n'en manquait
 Elle en avait avant ces trois-là, elle en aurait, elle en ,
 avait après. J
-| Ga A
-L + dy as
 
 RÉ Elle en avait eu, elle en aurait dans les siècles des RE  —
 _ Et Elle, qui les avait pris, il savait bien qu'elle les 53
-> prendrait. / MR
 5 Elle n'aurait pas le cœur de les laisser orphelins. ; s
 . (Comme il avait été lâche, tout de même). PAST
 Elle ne pouvait pas les laisser au coin d'une borne. A5 12
 | (C'est bien là-dessus qu'il comptait, ee
-cs le gueux). + 2
 . Elle était bien forcée de les prendre, 1
 _ Elle qui les avait pris. ÿ
 __ Ils'en félicitait encore. ".
@@ -1314,13 +1130,11 @@ __ Ils'en félicitait encore. ".
 _ (Mais les hommes ne sont pas jaloux). [LATE
 … Et de les voir manger et de les voir grandir. NA #1
 - Et le soir de les voir dormir comme des anges. "4
-#4 Et de les embrasser le matin et le soir, et à midi. Fr
 - Juste au milieu des cheveux. 3
 _ Quand ils baissent innocemment la tête comme un 1°
 _ poulain qui baisse la tête. SSSR
 nc Aussi souples comme un poulain, se jouant comme un SUR
 _ Aussi souples du cou et de la nuque. Et de tout le corps ER
-et du dos. Le
 
 Comme une tige bien souple et bien montante d'une 4
 ; D'une jeune plante. :
@@ -1328,14 +1142,12 @@ Comme une tige bien souple et bien montante d'une 4
 “ Ils courbent le dos en riant comme un jeune, comme un +
 ; beau poulain, et le cou, et la nuque, et toute la tête. à
 4 Pour présenter au père, au baiser du père juste le milieu .
-4 de la tête. 4
 Le milieu des cheveux, la naissance, l'origine, le point
 4 d'origine des cheveux. 5
 , Ce point, juste au milieu de la tête, ce centre d'où tous >
 « a les cheveux partent en tournant, en rond, en spirale. °
 LT Ça les amuse ainsi. EEE
 À 5e (Is s'amusent tout le temps). ]
-à 2 Ils s'en font un jeu. Ils se font un jeu de tout. “3
 < Ils chantonnent, ils chantent des chansons dont on n'a ;
 É seulement pas idée et qu'ils inventent à mesure, ils
 be chantent tout le temps. ;
@@ -1344,15 +1156,12 @@ dE Comme une jeune tige qui se balance au vent et qui ;
 2 revient de son mouvement naturel. e |
 NE Pour eux le baiser du père c'est un jeu, un amusement, 4
 # une cérémonie. : .
-FES Un accueil.
 Ë . Une chose qui va de soi, très bonne, sans importance.
-| Une naïveté. <c
 A laquelle ils ne font seulement pas attention. à
 Autant dire.
 C'est tellement l'habitude. î s
 : Ça leur est tellement dû. s,
 
-ne Un Um A MSA
 ë Is ont le cœur pur. | RC
 _ Ils reçoivent ça comme un morceau de pain. 1
 … Ils jouent, ils s'amusent de ça comme d'un morceau de Ua
@@ -1376,7 +1185,6 @@ Du bon tour qu'il a joué. +152
 (C'est qu'aussi il ne pouvait plus durer). Sa
 -I1 à remis ses enfants, reposé entre les bras de la F4 4
 
-le porche . +
 Et il s'en est allé les bras ballants. |
 à Il s'en est allé les mains vides.
 Lui qui les avait remis. |
@@ -1384,7 +1192,6 @@ Comme un homme qui portait un panier. Q
 Et qui n'en pouvait plus et qui avait mal aux épaules. ]
 Et qui a posé son panier par terre. j
 3 Ou qui l'a remis à une personne. 3
-|
 k C'est le contraire d'un homme qui a loué ses enfants $
 | dans une ferme. É
 Car celui qui a loué ses enfants dans une ferme. ?
@@ -1399,7 +1206,6 @@ Admire comme cet homme est sage, à
 Cet homme qui ne veut plus être que le fermier de ses
 enfants. il }
 
-NS DE I nr ete LENS IC ES Tite
 _ Cet homme qui s'en va, qui s'en retourne les mains ME
 _ Car Dieu n'est point jaloux, ni la sainte Vierge. LP2SS
 ë Ils lui laisseront tranquillement toute la jouissance de 0e
@@ -1424,7 +1230,6 @@ Vers la mort. 1116
 Et elle, qui les avait pris, elle était FSU
 See _ Si touchante et si belle. (Pendant que lui il s'en allait
 Et elle, qui les avait pris, elle était | >
-| Si touchante et si pure. AVEC
 à 2 Non seulement toute en foi et en charité. _1ESSESS
 Lire _ Mais toute en espérance même. Re.
 _ Pure et jeune comme l'espérance. (Pendant que lui 12590
@@ -1440,25 +1245,19 @@ les deux mains vides). _ 17 SRE
 __  Etelle, qui les avait pris, elle était La
 PE Fi Dans son éternelle jeunesse. e.
 
-1 LP Ily a des jours dans l'existence où on sent qu'on ne ÈS
-
 VAR pe ee | agnd plus se contenter des saints patrons. | SA
 
 # Soit dit sans offenser personne. Vies
 
 _  Œtelle, qui les avait pris, elle était GER
 
-Du. “Si chargée de famille). F4
-
 \ Ses On sent que les saints patrons ne suffisent plus. MES LCR
 
 | (Soit dit sans les offenser). SRE
 ya un grand danger et il faut monter plus haut.
 
-PA D eh De din lee re vou LUN
 _ Il vaut mieux avoir affaire au bon Dieu qu'à ses saints. 30
 _  (Etelle, qui les avait pris, elle était 2280)
-_ Si touchante et si pure. es.
 _ Mater Dei, mère de Dieu, S ‘2
 _ Mère de Jésus et de tous les hommes ses frères. ù ES ©
 _ Les frères de Jésus.) A.
@@ -1471,16 +1270,13 @@ Tous les enfants des hommes. : 14
 … Et qui depuis lui avait causé tant de tourment. À %
 _ Parce qu'il était mort pour le salut du monde.) SAR. #3
 … Et elle, qui les avait pris, elle était (ee
-Si ardente et si pure. Il y a des jours où on sent bien que STE à é
 - lon ne peut plus se contenter des saints ordinaires. MES
 _ Que les saints ordinaires ne suffisent plus. Et elle, qui k:
 24 les avait pris, elle était PA:
-Si jeune et si puissante. a,
 Si puissante auprès de Dieu. ‘8 » Si puissante auprès du Tout-Puissant. “à
 _ Et elle, qui les avait pris, elle était x? +8
 … Sichargée de douleurs. AA
 _ Et elle en avait tant vu depuis ce petit bonhomme. 22 'à
-3 Qui riait en tétant. # LATE
 
 : à le porche FEREES
 Car il y a longtemps qu'elle n'est plus la mère des Sept
@@ -1491,9 +1287,7 @@ Pendant que lui, qui les avait remis, il s'en allait la $
 tête libre et les yeux clairs.
 s Comme un homme qui a fait un bon marché. 4
 d Insoucieux, les sourcils défroncés, le front desserré. 1
-k Le front débandé.
 Comme un homme qui vient d'échapper à un grand
-| danger. Es
 Et vraiment il venait d'échapper au plus grand de tous j
 | les dangers. T2
 : Et elle, qui les avait pris, elle était
@@ -1542,7 +1336,6 @@ ne Et qui peut servir de patron. LE Ë
 34 # Et cette sainte Geneviève, née à Nanterre. 4
 42 g se Parisienne, patronne de Paris. 25e
 er à Patronne et sainte de France voilà de grands patrons 504
-DE se, et de grands saints. : 2
 PTE Pourtant il y a des jours où les plus grandes amitiés ne
 Ê 7 suffisent pas. Se.
 LEE Ni Marcel ni Geneviève, 2
@@ -1552,7 +1345,6 @@ it 18 Il y a des jours où les patrons et les saints ne sufliHN sent pas. PAS.
 / Les plus grands patrons et les plus grands saints.
 4 6 Les patrons ordinaires, les saints ordinaires. 0
 
-ve DE LA DEUXIÈME VERTU , 5
 - Et où il faut monter, monter encore, monter toujours; È
 …_ toujours plus haut, aller encore. 4
 * Jusqu'à la dernière sainteté, la dernière pureté, ia |
@@ -1568,8 +1360,6 @@ Mais c'est bien certes un très grand patron. À
 —… Et éternellement il est Pierre et sur cette pierre. S
 4 Et pour celui qui veut entrer au Paradis c'est bien le #
 +. plus grand patron que l'on puisse inventer. |
-… Car il est à la porte et il a la porte et il est le portier É.
-À _ et il a les clefs. |
 A nil est le Portier éternel et le Porte-clefs éternel.
 | :. Il porte à la ceinture le gros trousseau de clefs. F
 ÿ Et pourtant je te jure que ce n'est pas un gardien de S.
@@ -1578,9 +1368,7 @@ A nil est le Portier éternel et le Porte-clefs éternel.
 - draïent bien se sauver. %
 Mais au paradis au contraire ceux qui sont dans le ? D
 _ paradis ne sont pas près de s'en aller. ;
-| 1e
 
-RAA Eee Ne. A un
 : le porche FILLES SRE
 Il n'y a pas de danger qu'ils demandent à s'en aller. se
 ; Il faudrait les payer cher pour qu'ils s'en aïllent. 22%
@@ -1602,9 +1390,7 @@ in" A celle qui intercède. k
 La seule qui puisse parler avec l'autorité d'une mère. 4
 S'adresser hardiment à celle qui est infiniment pure. 3
 Parce qu'aussi elle est infiniment douce. #4
-L à Vars
 
-a or nn en SNA Ne Den.
 A ce le qui est infiniment noble. : TES
 - Parce qu'aussi elle est infiniment courtoise. MR:
 … Accueïllante comme le prêtre qui au seuil de l'église va re
@@ -1619,7 +1405,6 @@ _ A celle qui est infiniment riche. Fe
 … Parce qu'aussi elle est infiniment petite. L'RACES
 . Infiniment humble. un.
 _ Une jeune mère. D
-er De
 _ À celle qui est infiniment jeune. 204
 … Parce qu'aussi elle est infiniment mère. « 3
 - À celle qui est infiniment droite. HU:
@@ -1650,7 +1435,6 @@ Autant et septante fois autant elle l'emporte sur les
 saints, (sur les plus grands saints même), en jeunesse #
 et en enfance. à 4
 
-| DE LA DEUXIÈME VERTU
 à Autant l'enfant l'emporte sur l'homme en espérance.
 e Autant et septante fois autant elle l'emporte sur les
 _ saints, (sur les plus grands saints mêmes), en foi, en
@@ -1658,7 +1442,6 @@ _ saints, (sur les plus grands saints mêmes), en foi, en
 Ainsi, autant et septante fois autant les saintes et les
 4 saints, les plus grandes saintes et les plus grands É
 — Ne sont rien auprès d'elle en enfance et en pureté. |
-- En innocence et en jeunesse. ù |
 Geneviève, mon enfant, était une simple bergère.
 Jésus aussi était un simple berger. 1
 _ Mais quel berger mon enfant.
@@ -1666,13 +1449,10 @@ _ Mais quel berger mon enfant.
 En quel pays du monde. :
 Pasteur des cent brebis qui sont demeurées dans le
 
-LA ” Pt À: URSS CAR” PRÉC EE er U < Fes Free *
-le porche ! cs es Sn
 bercail, pasteur de la brebis égarée, pasteur de la
 brebis qui revient,
 Et qui pour l'aider à revenir, car ses jambes ne peuvent L
 ; plus la porter, _
-Ses jambes fourbues, |
 La prend doucement et la rapporte lui-même sur ses |
 . Sur ses deux épaules, |
 Doucement ployée en demie couronne autour de sa
@@ -1685,7 +1465,6 @@ autour de la nuque, À
 Autour du cou en demi-couronne, 4
 Comme un foulard en laine qui tient chaud. ‘
 Ainsi la brebis même tient chaud à son propre pasteur, “4
-La brebis en laine. ‘4
 Les deux pieds de devant bien et dûment tenus dans
 la main droite, : 54
 Qui est le bon côté, “ à
@@ -1695,7 +1474,6 @@ Les deux pieds de derrière bien et dûment tenus dans
 la main gauche, RE:
 Doucement mais ferme, 4
 Comme on tient un enfant quand on joue à le porter à
-#1
 
 _ Sur les deux épaules, 4
 _ La jambe droite dans la main droite, la jambe gauche “ESS
@@ -1714,10 +1492,8 @@ _ Maïs ce pécheur qui est parti et qui a failli se perdre CR
 D Par son départ même et parce qu'il allait manquer à 7
 _  lappel du soir 4
 4 _ Il a fait naître la crainte et ainsi il a fait jaillir l'espé- KE 5
-TE | rance même à r È
 L: _ Au cœur de Dieu même, É:
 _ Au cœur de Jésus SR.
-Fi … Le tremblement de la crainte et le frisson, à.
 Le frémissement de l'espérance. |
 _ Par cette brebis égarée Jésus a connu la crainte dans
 ES l'amour. E
@@ -1741,7 +1517,6 @@ Sous la rude écorce, É
 Comme un premier bourgeon d'avril. à
 Ainsi Geneviève était bergère mais Marie |
 Est la mère du berger même ‘4
-Et tant qu'il y aura un bercail, E
 C'est-à-dire une bergerie, ;
 Elle est la mère du berger éternel.
 
@@ -1752,7 +1527,6 @@ Elle est la mère du berger éternel.
 Le Après les patrons, les patronnes, les saints,
 Après la patronne éternelle de Paris.
 Æ Et même après le patron éternel de Rome
-Fe Il faut monter
 L3 A celle qui est la plus imposante.
 Fa Parce qu'aussi elle est la plus maternelle.
 Æ A celle qui est infiniment blanche.
@@ -1851,7 +1625,6 @@ le porche . FR NEE
 De la pureté native, de la jeune pureté, de la pureté ; FA
 première, de la pureté créée, de la pureté enfant, de SES
 la pureté de la création même. #4
-|
 Quand fut créée cette créature unique, 4
 Bénie entre toutes les femmes,
 Et à l'heure de notre mort ainsi soit-il,
@@ -1866,10 +1639,6 @@ En quoi elle est à ce point une créature unique. Mais ee
 suis-moi bien. |
 A toutes les créatures il manque quelque chose, ER.
 
-a ON Gt ee Are PE Men ien ve
-
-D ie DE LA DEUXIÈME VERTU
-
 | Non seulement qu'elles ne sont point le Créateur, k É
 0 > Dieu leur Créateur. - 4
 …_. (Ceci c'est dans l'ordre. FE
@@ -1880,13 +1649,11 @@ _ A celles qui sont charnelles il manque précisément k #1
 _ Nous le savons. 4
 -__ Mais à celles qui sont pures il manque précisément ;
 
-| Xe qu p que p
 | CN faut le savoir.
 | ES: _ Et à elle au contraire il ne manque rien. 49
 …._O Sinon vraiment d'être Dieu même. 28
 __  D'être son Créateur. “à
 un. (Mais ceci c'est l'ordre). Re
-Moi É ss ca
 Car étant charnelle elle est pure. | Le
 
 … Mais, étant pure, aussi elle est charnelle, i
@@ -1942,7 +1709,6 @@ ln  Parelle il a connu l'inquiétude. #
 
 le porche LC
 Par celle-ci qui n'est point restée avec les quatre-vingt- SE
-.La mortelle inquiétude.
 s (La dévorante inquiétude au cœur de Jésus).
 ë L'inquiétude de ne pas la retrouver. De ne pas savoir.
 6 De ne la retrouver jamais. L'humaine inquiétude. AC
@@ -1953,7 +1719,6 @@ Il est sauvé d'avoir à la condamner. .
 Comme il respire. :
 Ça en fait toujours une de sauvée. Ë
 | Il n'aura point à condamner cette âme. |
-|
 Par cette petite brebis qui s'était seulement trompée de |
 (Ga peut arriver à tout le monde),
 et erraverit una ex eis,
@@ -1982,7 +1747,6 @@ e Fe _ C'est pour cela que la sainte Vierge n'est pas seulement à
 3 54 Elle n'est pas seulement la première entre toutes les “à
 * _ Bénie entre toutes les femmes, 3
 :1 _ Elle n'est pas seulément la première entre toutes les é.
-| 5 créatures, à
 
 j le porche
 Elle est une créature unique, infiniment unique, infini- .
@@ -1994,7 +1758,6 @@ Ils ne savent point ce que c'est que d'avoir un corps,
 que d'étre un corps.
 Ils ne savent point ce que c'est que d'être cette pauvre
 Un corps pétri du limon de cette terre.
-| Charnelle.
 Ils ne connaissent point cette liaison mystérieuse, cette
 De l'âme et du corps.
 ve Car Dieu n'a pas créé seulement l'âme et le corps.
@@ -2004,14 +1767,12 @@ Ce lien mystérieux, ce lien créé,
 Cet attachement, cette liaison du corps et de l'âme,
 D'un esprit et d'une matière,
 De l'immortel et du mortel mais qui ressuscitera
-Et l'âäme est liée à la boue et à la cendre.
 A la boue quand il pleut et à la cendre quand il fait sec.
 Et pourtant liée ainsi il faut que l'âme fasse son salut.
 
 é. Comme un bon cheval de labour, comme une bête
 É loyale et vigoureuse, comme une grosse bête lorraine
 be: qui tire la charrue.
-fe De sa vigueur et de sa force il ne faut pas seulement
 LS qu'elle se meuve elle-même, qu'elle se tire, qu'elle se
 $ traîne elle-même.
 La Qu'elle se porte sur ses quatre pieds.
@@ -2037,13 +1798,11 @@ b Se tirer et se traîner elle-même.
 nu. Maïs il faut qu'elle meuve et qu'elle porte,
 —__ Encore il faut qu'elle tire et qu'elle traîne
 ' Ce corps enfoncé dans la terre qui laboure derrière elle
-x: la glèbe de la terre.
 
 le porche FÉES
 £ Ce corps inerte, sans elle inanimé.
 @ Inerte sans elle, laborieux par elle,
 ? Qui animé par elle travailleur peut labourer cette terre,
-ï 2 Réussit à la labourer. ï
 pe Il ne faut pas seulement qu'elle fasse son salut, elle pour
 elle, elle pour soi. ses
 if I1 faut aussi qu'elle fasse son salut pour lui, son salut à x
@@ -2068,7 +1827,6 @@ Ou tous les deux ensemble ils retomberont comme deux 4
 4 _ Comme un bon laboureur pour labourer cette lourde 4
 “ Qui poisse au soc de la charrue,
 : Attelle au cheval vigoureux la charrue (elle-même \
-| vigoureuse, à
 4 Mais en elle-même inerte), ; Ê
 :4 (Et il ne met pas la charrue devant les bœufs),
 Fi Ainsi le Seigneur Dieu pour labourer cette charnelle , ;
@@ -2081,7 +1839,6 @@ Ex Cette grasse terre qui poisse au corps et au cœur de :
 É Et comme il faut que le cheval de labour tire pour lui- À
 si même et pour la charrue,
 ra . Ainsi il faut que l'âme tire aussi pour elle-même et pour
-va le corps, |
 à Qu'elle fasse son salut, leur salut, pour elle-même et ;
 S pour le corps. 3
 8 Car nul des deux, ni l'un ni l'autre ne sera sauvé sans 4
@@ -2102,7 +1859,6 @@ seront déliés.
 avec ce corps; d'être ce corps.
 D''avoir cette liaison avec la terre, avec cette terre,
 d'être cette terre, le limon et la poussière, la cendre R
-ÿ et la boue de la terre,
 > Le corps même de Jésus.
 
 Ainsi il faut que l'âme ne fasse pas seulement pour elle, |
@@ -2111,7 +1867,6 @@ il faut qu'elle fasse non pas seulement pour soi. 5
 Comme un homme riche qui vient à vouloir passer sur
 i un pont.
 Il paye au péager qui a une petite guérite à l'entrée du {
-pont. L
 Il paye un sou pour lui et ensemble un sou aussi pour
 son serviteur qui le suit. S
 
@@ -2133,17 +1888,11 @@ anges ne connaissent que pour en avoir entendu
 Comme une histoire d'un autre monde.
 Et presque pour ainsi dire d'une autre création.
 
-s le poréhe: : 1.4 SOS
 Les péchés charnels que les anges ne connaissent point. : #2
 Je veux dire qu'ils n'ont point éprouvés. 4
 # Fa Lés péchés du corps et du cœur terrestre. .
 | (Rachetés par le corps et par le cœur).
-a Les péchés de la chair et du sang. ;
 (Rachetés par la chair et par le Sang). € ; ;
-Les péchés terrestres. 4
-ie Les péchés terriens. é ;
-Les péchés terreux. }
-i Le péchés de la glèbe.
 4 Et de la terrestre terre. 1
 Le premier péché charnel, quand dans un coup brusque : :
 ' le sang vous monte et vous bat aux tempes, dans un
@@ -2167,12 +1916,9 @@ El Mais est-ce bien une tentation.
 & D''avoir à la condamner, à la perdre, je veux dire à la
 
 ; La peur mortelle, la mortelle inquiétude d'avoir à à
-| condamner à mort.
 
 É Exactement je veux dire d'avoir à laisser condamnée is
 Fe In montibus, dans les montagnes, quand il eut peur
-
-f de ne jamais la retrouver.
 
 Fe De la laisser perdue dans la nuit d'une mort
 
@@ -2197,7 +1943,6 @@ le porche 4
 Quand la lance romaine, perçant un flanc d'homme, fit ;
 couler sur le flanc un sang d'homme.
 Et précédant cette rémission totale même
-Et globale
 Comme le dauphin dans le cortège du roi précède le
 globe de l'empire et de la terre,
 Et comme une enfant dans une procession précède le l
@@ -2206,7 +1951,6 @@ Précédant toute rémission ils ne connaissent point ce 4
 qui est presque plus doux que la rémission même.
 Pour ainsi dire. 1
 : Quand le sang s'annonce et commence à remonter W
-La jeune espérance, :
 Le mouvement de l'espérance, 4
 Quand un jeune sang commence à refluer vers le 4
 Comme la jeune sève d'avril commence à goutter, à x
@@ -2242,32 +1986,23 @@ Et qui bat aux tempes comme un roulement de tambour.
 la chair,
 et comme la sève du bouleau.
 
-PRÉ TS ES Lea Rex ss xs à BP de SES Se RARES ES TA
-TRS fe, N° a ARS le porc == RE MIRE Fes Fe SDS
 : ARE Comme la sève et le sang de l'orgueil, comme la sève A
-“PE et le sang du chêne . FIX LE REA d
 PE _ L'orgueil charnel voilà ce qu'ils ne connaissent pas, MES LE
 Ge qu'ils n'ont aucunement éprouvé. . +R
 | PS Ils ont bien eu leur orgueil aussi, j'entends ceux qui 86:72
-= ee. x sont perdus “ 5 j Rue
 SRE Par l'orgueil, Lucifer, Satan. Leur orgueil de perdi-
 Mais c'était un pâle orgueil, un orgueil exsangue, ue.
 Dee me Un orgueil d'esprit, un orgueil de tête, es.
-ur AN, _ Nullement un orgueil de cœur et de sang, En:
 HA Nullement un orgueil de corps, ; 2
 HE SFES Nullement un orgueil de cette terrestre LATE R
 __ C'était un orgueil de pensée, un pauvre orgueil
 LL Un pâle orgueil, un vain orgueil tout monté en tête. 53
-De Une fumée. F 5
 FNCER Nullement un gros et gras orgueil nourri de graisseet
 EE de sang. a
 Wen Tout crevant de santé. TES
-k SE _ La peau luisante. :
 CA Et qui aussi n'a pu être racheté que par la charetle
 PT Un orgueil tout bouffi de sang LFP
 TRE Qui bourdonne dans les oreilles LH
-FN Par le bourdonnement du sang, (4
-Lo LA P tr LS
 
 : Un orgueil qui injecte les yeux de sang, ‘
 É Et qui bat le tambour dans les tempes,
@@ -2284,17 +2019,13 @@ Pour la montée, pour la remontée de l'espérance charnelle :
 plein orgueil charnel, ce chaud orgueil charnel, ;:
 SE D'un sang bouillant.
 * Ils ne connaissent donc point la rémission charnelle
-Du sang versé.
 Ils ne connaissent point le gros orgueil d'homme,
 Tout plein de soi.
-Tout gras.
 Tout gonflé, tout nourri de soi. » :
 _ Ils ne connaissent point tant de graisse, tant de man- NS:
-- Qui n'a pu être compensée 71e
 : Que par l'effrayante, que par l'affreuse maïgreur, È
 # Que par le décharnement É
 
-$ le porche “,
 De Jésus sur sa croix.
 Ils ne connaissent point le vieil orgueil royal, ils ne
 connaissent point l'antique orgueil,
@@ -2314,9 +2045,7 @@ Jésus-Christ, mon enfant, n'est pas venu pour nous dire
 des fariboles.
 Tu comprends, il n'a pas fait le voyage de venir sur :
 
-# pés DE LA DEUXIÈME VERTU
 } Un grand voyage, entre nous,
-5 (Et il était si bien où il était).
 (Avant de venir.
 | Il n'avait pas tous nos soucis).
 Il n'a pas fait le voyage de descendre sur terre
@@ -2331,7 +2060,6 @@ Les trois ans de sa vie publique,
 Les trois jours de sa passion et de sa mort,
 (Et dans les limbes les trois jours de son sépulcre),
 Il n'a pas mis, il n'a pas employé, il n'a pas dépensé
-tout ça, !
 Ses trente ans de travail et ses trois ans de prédication
 et ses trois jours de passion et de mort,
 ._ Ses trente-trois ans de prière,
@@ -2349,9 +2077,7 @@ Sa vie de Jésus,
 Le: CRIS SRE n'a pas mis, il n'a pas employé, il n'a pas dépensé
 Be cc Il n'a pas fait toute cette dépense ; AT ENIERE NS
 RE Considérable FL ASSS e » Pour venir nous donner, pour nous donner ensuite AS
-ÿ Re: Des devinettes : ; 27
 CCE Comme un sorcier. + NÉ
-4e En faisant le malin. LES
 Non, non, mon enfant, et Jésus non plus ne nousapoint
 x Fe donné des paroles mortes :
 Ex FE Que nous ayons à renfermer dans des petites boîtes 4
@@ -2360,7 +2086,6 @@ Ex FE Que nous ayons à renfermer dans des petites boîtes 4
 Re Comme les momies d'Égypte. DRE.
 RE Jésus-Christ, mon enfant, ne nous a point donné des
 te 14 conserves de paroles LES
-pu A garder, à ë ne.
 ne Là Mais il nous a donné des paroles vivantes <<
 LUE _ Ego sum via, veritas et vita, 54
 A4 _ Je suis la voie, la vérité et la vie. 30
@@ -2368,7 +2093,6 @@ fi se , Les paroles de (la) vie, les paroles vivantes ne peuvent ‘à
 “VERS se conserver que vivantes, ‘#
 £ NAAN É Nowrries, portées, chauffées, chaudes dans un cœur …
 E: ë Nullement conservées moisies dans des petites boîtes »
-ï És en bois ou en carton. >
 AS Comme Jésus a pris, a été forcé de prendre corps, de :
 Ee revêtir la chair ‘fi
 
@@ -2390,7 +2114,6 @@ Ainsi, profitant de ce que nous sommes charnels,
 < Nous devons nourrir, nous avons à nourrir dans notre |
 …_ De notre chair et de notre sang,
 De notre cœur, &
-_ Les Parolés charnelles,
 _ Les Paroles éternelles, temporellement, charnellement
 Miracle des miracles, mon enfant, mystère des mystères.
 Parce que Jésus-Christ est devenu notre frère charnel
@@ -2402,7 +2125,6 @@ _ In monte, sur la montagne, &
 … De faire vivre et de nourrir et de garder vivantes dans 1
 é le temps à
 
-É le porche x ÿ:
 Ces paroles prononcées vivantes dans le temps.
 
 >, Mystère des mystères, ce privilège nous a été donné, |
@@ -2415,7 +2137,6 @@ En outre comme une deuxième éternité,
 1 Une éternité temporelle et charnelle, une éternité de |
 ñ chair et de sang,
 ; Une nourriture, une éternité de corps,
-Une éternité terrienne. R
 Ainsi les paroles de Jésus, Les paroles éternelles sont ù
 les nourrissonnes, les vivantes nourrissonnes de notre 3
 2 sang et de notre cœur t 1
@@ -2428,7 +2149,6 @@ Pourvu qu'elle soit une bonne nourrice,
 Et elle peut être appelée à nourrir un fils de France,
 | Ainsi nous toutes enfants de toutes les paroisses
 Nous sommes appelées à nourrir la parole du fils de 1
-| Ë
 
 O misère, Ô malheur, c'est à nous qu'il revient,
 C'est à nous qu'il appartient, c'est de nous qu'il dépend
@@ -2449,11 +2169,9 @@ C'est encore nous qui sommes chargés,
 Nous qui le matin ne sommes pas sûres du soir,
 Ni même du midi,
 Et qui le soir ne sommes pas sûres du matin,
-Du lendemain matin,
 C'est insensé, c'est encore nous qui sommes chargées,
 c'est uniquement de nous qu'il dépend
 D'assurer aux Paroles une deuxième éternité
-Une perpétuité singulière.
 
 EL le'porthe SVM
 C'est à nous qu'il appartient, c'est de nous qu'il dépend
@@ -2461,15 +2179,11 @@ C'est à nous qu'il appartient, c'est de nous qu'il dépend
 ‘ee Une perpétuité nourrie de viande, de graisse et de sang. :
 É Nous qui ne sommes rien, qui ne durons pas, +355
 À Qui ne durons autant dire rien ;
-à (Sur terre) à
 C'est insensé, c'est encore nous qui sommes chargées 3
-L de conserver et de nourrir éternelles h.
-# Sur terre ‘4
 s Les paroles dites, la parole de Dieu. ‘4
 à Mystère, danger, bonheur, malheur, grâce de Dieu, à
 ; responsabilité effrayante, misère, grandeur de notre vie,
 DONS nous créatures éphémères c'est-à-dire qui ne passons ]
-ÿ qu'un jour, F.
 qui ne durons qu'un jour, ‘4
 pauvres femmes viagères qui travaillons comme des É
 qui ne s'arrêtent dans un pays que pour faire la mois- 1
@@ -2479,9 +2193,7 @@ et qui aussitôt après repartent par la route, si
 sur le chemin, 4
 tournent au coin des peupliers, ‘4
 
-LES DE LA DEUXIÈME VERTU su.
 R nous simples voyageurs, pauvres voyageurs, fragiles ra
-|. voyageurs, $;
 _ quientrons dans la vie et aussitôt qui sortons, :
 . comme des chemineaux entrent dans une ferme pour ÿ :
 + un repas seulement, s.
@@ -2505,11 +2217,9 @@ M Dans des cœurs qui se brisent ke
 . Qui ne se brisera éternellement pas. î ;
 Ë “ Dans des cœurs fragiles une parole qui se retrouvera :
 | | toujours. RE
-| Le. 1IX 3
 
 : le porche DS
 < C'est pour cela, mon enfant, pour cela même, £
-(Tu t'y reconnais, tu t'y retrouves),
 $ C'est pour cela qu'il faut que France, que chrétienté
 - Pour que la parole éternelle ne retombe pas morte dans
 un silence,
@@ -2530,21 +2240,13 @@ Qui garantit demain à aujourd'hui et ce soir et ce midi 1
 Et la vie à la vie et l'éternité même au temps. ;
 Par celle qui garantit, par celle qui promet au matin la ‘
 
-}e Tout entière,
 F4 Au printemps l'année ;
-fs Tout entière,
 * A l'enfance la vie
-ÿé Tout entière,
 é Au temps l'éternité
-(à Tout entière,
 ri A la création Dieu même
 l Tout entier.
-de
 £ A la moisson le blé
-* Tout entier,
 A la vigne le vin
-À Tout entier.
-É Au royaume le roi et au roi le royaume et ainsi le à
 12 monde entier, et l'éternel et le temporel, et le spirituel
 ÿ et le charnel,
 Et la création et Dieu
@@ -2588,20 +2290,13 @@ Après tant d'autres, avant tant d'autres. F
 | Depuis qu'elle fut dite. 8
 Jusqu'au seuil du Jugement.
 
-| Led DE ÿ Er MCE C1 ; Ne Le À £ LE à 3 ES
-| : 56 DE LA DEUXIÈME VERTU | ÈS
 __ Dans les siècles des siècles. SA.
-_ De génération en génération. #4
 _ Depuis le commencement des siècles. "à
 Jusqu'à la consommation des siècles ‘3
-| Dela terre. 5
 . Comme au seuil de l'église le dimanche et les jours 4
-M Quand on va à la messe,
 L.. Ou dans les enterremenis, 7
-_ On se passe, on se donne l'eau bénite de la main à a
 | pee la main, , $
 _ De proche en proche, l'une après l'autre, , #
-_ Directement de la main à la main ou un morceau de Ke À
 M. buis bénit trempé dans l'eau bénite. ii
 _ Pour faire le signe de la croix soit sur soi-même vivant, 2 #4
 sur nous-mêmes soit sur le cercueil de celui qui ‘à
@@ -2610,14 +2305,11 @@ Mn. est mort, +
 LS porté de proche en proche par la même eau, ! 4
 M. Parle ministère, par l'administration de la même eau, ee
 “ L'une après l'autre sur les mêmes poitrines et sur les 3
-| mêmes cœurs, o
 M Et sur les mêmes fronts, À
 : | Et jusque sur les cercueils des mêmes corps défunts, A
 2 * Ainsi de mains en mains, de doigts en doigts, DE
 AS _ bout du doigt au bout du doigt les générations E Fe
-| éternelles, ES
 | Qui éternellement vont à la messe, ON
-| ; ” %
 
 - le porche J
 Dans les mêmes poitrines, dans les mêmes cœurs. 1
@@ -2630,17 +2322,10 @@ qui contient d'avance.
 Par celle qui promet à l'éternité 3
 Un temps. J
 A l'esprit 4
-À Une chair.
-Une Église. |
 A Dieu même e
 Une création, (sa création, la création), ;
 Par celle qui promet à l'éternel
-Un temporel. }
-Un charnel.
 A la Nourriture $
-Une nourriture.
-A la Vie 1
-Une vie.
 
 ‘ Renversement c'est comme si
 elle promettait |

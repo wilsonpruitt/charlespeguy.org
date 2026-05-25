@@ -10,89 +10,9 @@ wordCount: 22140
 périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
-sen NE et \ | k #1 AO HIT HR tint t ét à
-NE ENT NAN We ñ $ Me QE DAMIUT Lys Vi D? ÿ gui fi
-1 ne N AU Un | PNR l Na nu
-À l'A ROUE SE N ÿ in nf “YTARS te ; fé
-La? EN | AS co me LE NON ACER +6
-L' tir $ À ne TP + Aa ÿ
-ai VIRE : ser /S DAS l
-el LP bws A ù f L È ds fi 2.
-| 1 "a ; , "7 4 « ie #)1+ PUCES È
-(4 PAT “il Hi FAR nos F :
-l'N EE) ; FAR PDO in A1 Wr no Û “
-
-| RER SPEED R  RE e, « DE es ASS PR PAP REA AN EN PET et lou: “ Fr
-| | FNOEE RS RME NE DR EN PP EIRE Poe et:
-|. Ko F r : Lrte # PUCES
-| |: 157 - ASE AE) k f TE x
-| Ma “REC
-| Vs 3 É:
-| ad AD À à
-Re) PRE on # RÉANES PARENT A : LARGES
-Fe HARRIS ES en TS A : | NI ARES
-
-0e Re A PU RE A4 UN 20e rs NE ae
-7 18 RSR : RC RO: La PIE LUCE D PE rs NT RSR es = :
-A # f- È k, RTE ou À x ds
-
-RON A A UT PA TE les SP dr 1 te à 4 RAR PNA TU PRES NON
-ÉCRIS TT RSA à eg 95 ne Ce NES CRC er MR PE LANRODEC TE BC
-
-Age L& à CHEF Fe; FH À < ps
-A SP NS SSP RE DA ere PROS EN ot SES
-ES ete . Tes C RS el
-| CR , - : 12 TSI
-
-| ‘ È _ *F4600
-| = É ‘+ FE
 ee. Notre pays... 110
-L'RERS ù er.
 
-A 2 AR NEE VRG st ECRIRE PERS D DE ?
-7: PS RTE CR EAN DER FUN NE Pétrh Re PRE rue
-| VAE s a , SR ANNE side FOUR TOR Je Er |
-et x ; : js FRET
-
-ae ne EE NE ASS
-NE ds HR + TR OST SRE
-| È 4 LENS
-| 102 \ ‘ | ERA
-ris TER U t L HN
-DR nl - « ENTER sa E #6
-
-APP pe POSE HER RM du NA en ER NI RS
-non, FAR RUE ANS AT Por EU Pi LE QUE # Fe Le A Ee Rat “te + EU
-
-MEME LT, NT EMESE : LE N QUE LuE Verres LE Lt Mr 27. TOR CNRS ne.
-
-| 2 A el TRE SENS? LE va PET RCE
 | 16e À notre ami Lotte RE
-| “NE 7 È à
-
-F ra 0e or di &* & DE ne
-
-re LEE NEA PRO TE ra AMANEALS PER FLE MON EST
-LEE (AE SN COTE Ne 1 age MTS | ÿ de EN ER Dee
-A ue ne à PAT LE | UT
-LÉTANSNEREAURE LE a Ses D DNA CAN APN NN
-| PNR RS ere 7e Pur RAT a
-D pe du NE AT LE VI AL RÉ RRN
-
-3 DOUTE, ARTOE LA ÈCS PAT de SAN EVER a la Sr ,
-
-LES RE F3 RS Tebs AE ie sas DR D NME Re 2) * SARA
-A See LUE Ne Mn AU ENER PR EE
-
-L RARE RAR CRC r ss : Nr AE RE nt SE PTE
-me, ; SD er. 7 MEL A Ed à EX A RD: < DCE (LE UIER
-à PTE NE. à. NA ae CR" TL MD: F3: ee F-44, CERERT
-| HR NES : : TAN | D SN EN 4 EMEA à
-D se es LA a , APE? a a in: SA Fait !.s2
-
-#1 TU à x é : « TUE
-
-# Ne M -V 4 + e TR hé
 
 Mer. IN pays est comme un doux berceau ‘7 res
 SR De rameaux verts, de moissons et de fruits, “3 or
@@ -124,8 +44,6 @@ ns Et que sur vous, en quête et vigilance, ‘4
 re Se sont penchés les bonnets des aïeules, Fi
 43 Le nez pointu de la longue prudence, Den.
 
-Rene EST COMME UN DOUX BERCEAU A
-
 : 44 Les nez, les becs, les naseaux et les gueules, É:
 Fil Les chiens, les bœufs, les moutons et les poules, . NE we
 <à : Les fins pommiers, les cyprès, les tilleuls, | 4 op co
@@ -148,11 +66,9 @@ Du. Le léopard, le griffon, la tarasque :
 uns Et la licorne et tout ce vieux blason pr
 __ Et des soldats bretons, lorrains ou basques, FA
 
-Et Il est aussi RS PQ:
 Le toit fumeux des solides maisons "4
 
 FA, N Et les enfants, les mères, les servantes, ni
-en F ë L'homme de cœur et l'homme de raison, 1. TS
 ss La nuit d'hiver qui se voile et qui vente, 4
 ue | La nuit d'été sous un vaste rosaire, SE.
 a Les blanches nuits de prières ferventes, TU
@@ -180,12 +96,10 @@ Prés et moissons, jardins, vergers et bois, Fe
 
 Bourgs et hameaux, hérissement des villes, A
 
-do COMME UNE CATHÉDRALE : à 2 15
 nr. _ Les hauts clochers, les calvaires, les croix, FLAC
 V2 _ Les cheveux blonds des anges et des cierges, FT
 : #40 Les vœux des jours et les fêtes des mois. LT 200
 ET Et les regards de la Très Sainte Vierge. TE
-# % d j ne k
 RO Il est aussi comme une cathédrale (se
 L ul Dont le clocher, les deux tours, les arêtes \ RER
 Rd Suivent sans fin des routes triomphales ; if, ee ee
@@ -196,8 +110,6 @@ Rd Suivent sans fin des routes triomphales ; if, ee ee
 A F5 Le peuple entier du royaume charnel, A
 4 RS - Ceux des châteaux, ceux des bourgs, ceux des chaumes, n
 
-KES : Il est aussi ES TUE
-| EUY, FINS
 : Les noirs tenants de l'Orgueil éternel, . RES “
 | Monstres debout et monstres accroupis, 300
 LA Rongeant des yeux le gîte des mortels, vs à
@@ -259,7 +171,6 @@ his Le tout rangé comme aux signes d'un maître 4
 HT Qui sait former et sauver harmonie SR
 Re Dans le chaos des choses et des êtres, Fe
 : Chacun docile en sa place finie, % ‘4 à
-Lee Le bien, le mal et la foi et le doute, i]
 Naître et mourir, la force et l'agonie, ; ‘4
 à Chacun rigide au poste qu'on lui boute “1
 En la forêt de pierres ciselées, 5 à
@@ -268,7 +179,6 @@ Le tout pareil aux arbres d'une allée, ; ù
 ci Aux vieux soldats qui gardent les murailles, “4
 A l'oraison des figures voilées, « 308
 
-| ge:
 | : Au long souci des rustiques ouailles, :
 A celui-là qui peint et vermillonne, ee
 . A celle-là qui brode sur des mailles, . x.
@@ -278,7 +188,6 @@ A des travaux graves et monotones ; <
 Même la fièvre et l'amour et la peur, F4
 E Même le vice aux changeantes grimaces, 3
 Mèême le nain, le singe ou le voleur, de.
-| *
 1 L'inquiétude et les bêtes rapaces, 22
 À Le vaniteux, le sanguin, l'impudique, 4
 à Tous les désirs et toutes les audaces, À
@@ -291,24 +200,18 @@ Ds Même ceux-là demeurent limités, - #
 1 Même ceux-là demeurent en servage, à
 | 21 ,
 
-a a IL est aussi FTP un Ne
 NE: Car dessus l'huis de la sainte cité ? " FR oh
 ee d ane ‘ Trône Jésus dans la toute-puissance, ne FA
 __ Dans le Royaume et dans l'Éternité.… ESA
 Et devant lui l'Ange tient la Balance. SITE
-| Le 1 x EU: Se
-ÿ Le: K et rl À À
 02e Il est aussi pareil à la maison LE
-Fra Où la naissance et la vie et la mort 152
 GS Sont ordonnées près d'un calme horizon; 44%
 ri Un long passé de vigilance y dort LA
 Fe Bercé par le chuchotement des feuilles o EPS
 a Et par les eaux lissant l'herbe du bord ; LED
-DA à Les blonds matins en éclairent le seuil, SA x
 Les beaux couchants le jardin vert de mousse, NL
 [#4 Et la gaîté les âmes sans orgueil ; Fe
 
-en Ve à eee Ne hr 248
 Ë En sûreté dans les pénombres douces, 2
 4 Près du foyer, des fenêtres, des lampes, ; ;
 À Du chat, du chien, des bouillotes qui gloussent, e
@@ -331,8 +234,6 @@ s Le bon exemple aux discrètes poussées, Ë
 Le jugement qui stimule et redresse, $
 ; Le long regard qui perce et qui déclenche, :
 4 Le repas calme et lent comme une messe,
-
-É we 4 G Ÿ L g ge}
 
 5 Il est aussi |
 Le glissement paisible des Dimanches, |
@@ -359,8 +260,6 @@ Loin de ce qui déprime ou scandalise, £
 Malgré ces heurts de l'huis et des fenêtres,
 Malgré ce bruit lointain des vanités.
 
-| SNS , 2 . + x { QE
-| 24 PAREIL A LA MAISON €
 Et c'est l'instant monastique où pénètrent L PT:
 . A petits pas muets de rêveries #
 \4 L'ombre des temps et l'ombre des ancêtres : Fe
@@ -383,7 +282,6 @@ F2 De ceux qui dans les honneurs et les brigues -
 ee. (Ceux qu'on raconte à mi-mots, à mi-voix) ne
 DE Flots déchaïînés qui renversent les digues, ‘*
 
-MC, Il est aussi RATE A
 | Du fils prodigue absent des jours, des mois, pet x
 Des ans, lâché dans la gueuse de ville, ‘4
 Puis revenant par quelque nuit des Rois. ea
@@ -397,8 +295,6 @@ L'ombre qui choit peu à peu des hauts murs, +710
 | Les longs récits d'hier et d'autrefois, 4
 ! Et les vieux lits qui dorment sous la Croix. ‘
 
-D NS VU EN pas HE AR UNS
-
 Re: Il est aussi comme un vaste jardin. '<06
 
 ne” Ë nie da fre
@@ -409,7 +305,6 @@ E Et les gazons luisent d'éclairs soudains : Le $
 
 da es as, les iris, les pervenches LATE
 
-Les dahlias, 1 , hes, AA
 “0 L'ombre des marronniers et des tilleuls, L'ÈeS
 
 = L'eau qui sommeille et les roseaux qui penchent SE
@@ -444,7 +339,6 @@ L'eau ruisselante et si pure des voix,
 Grâce, mesure et simple dignité, {
 Vieilles chansons, nous n'irons plus au bois D
 Et les cent ans que dormit cette Belle,
-Et la Bergère et le Prince et le Roi,
 Les pas hardis, les courses, les querelles,
 Et l'or divin qui jaillit des prunelles,
 Les bras ballants, les têtes décoiftées, E
@@ -455,7 +349,6 @@ Les elfes roux se nichant dans les fleurs,
 L'ogre qui ronfle et les marmots en fuite, (
 
 _ . Une fontaine avec Peau d'âne en pleurs, - LUE
-_ Les Chevaliers du Lac et de la Table, F0
 __ Ceux du Graal et ceux de la Douleur. = T0
 ‘+4 Ces marronniers, ces tilleuls, ces érables HUE
 & Voient de tels jeux dans leurs ombres mouvantes 54
@@ -470,13 +363,8 @@ _ En cheminant sans bruit, trotte-menu, A ‘4
 Re ui au milieu des choses mi-voilées ( OR
 0 D'un saut de chèvre enjambe les allées, F M:
 | < Bat les échos. et s'arrête soudain, 14
-| 1 7 L . . . # ie
 Re Dès que les voix lointaines et mêlées } AR
 Es Des Angélus tombent sur le jardin. 6 SUR
-| Fe “ sie jé
-| 70 V T3 5 Fe
-
-Dot Etes Ce
 
 | CUS Il est aussi comme un aventurier M.
 | Qui est parti dans l'averse et la brise re é
@@ -486,24 +374,17 @@ FRE Le pré, la vigne et les tilleuls amis, "40
 Re Le bel aplomb des choses bien assises, 5
 Re La règle sûre et les songes permis, %
 
-RE La permanence et la sécurité, Er
-#2) ; « & A FES
-OS + Les patients labeurs de la fourmi, SR
 Le A Le jour qui vient de la veille hériter, 1 2 is
 re Le dur collier des saines habitudes, LT 2
-LEURS La cohérence et la sévérité. a: 4R
 FLN Il a cherché toutes les latitudes, + “4
 De Toute diversité, tout changement, 55
 
 D - Océanie, Antilles ou Bermudes, ces
 
-UT des.
-
 _- La terre chaude et les arbres dormants, PNA #
 CT. La poudre d'or et les planches d'ébène, 3 ES
 48 Le chant qui berce et le rêve qui ment, ; 4100
 0 Les molles nuits qui tombent sur les plaines, Pal
-ne : ÉPACIER
 54 Le sable d'ocre et ses füyants mirages, « 51
 __  L'illusion des puits et des fontaines, VARRES
 5 Tous les démons fiévreux des marécages, ; 3 n}
@@ -516,7 +397,6 @@ __  Ila quêté, dans les senteurs d'épices Ve
 _ Et de goudron qui s'exhalent des ports, £ FA .
 __  L'étreinte fauve et l'obscur maléfice, tr 4
 
-__  Ila fumé l'opium et la mort, É ae
 ._ Connu l'abîme où l'esprit se dissout, Er
 __ Anéanti la gloire et les remords, 54 %
 | _ Puis relancé par les ouragans fous nie “à
@@ -524,10 +404,8 @@ _ Sur les paquets de vagues en bataille (0e
 É Vers l'inconnu qui happe comme un trou, tr 4
 
 ‘ Il est aussi TE TES
-| TE M RE NP ES a PU ANS ET pe 4 on
 Dans l'eau qui cingle et le froid qui cisaille,
 | Accompagné des cris du cormoran,
-|
 à Tour à tour dans un gouffre ou sur un dôme,
 TR Il a croisé des spectres effarants,
 Des rochers noirs et des vaisseaux fantômes, S
@@ -542,9 +420,7 @@ Dans les instants d'ivresse et de langueur, :
 Tout près de lui, le gardant des naufrages, |
 Bien que marin de peu d'expérience, |
 Est demeuré jusqu'au bout du voyage j |
-|
 Le saint Martin de son hameau d'enfance.
-| 32 ;
 
 Ne: Il est aussi comme un repas du soir "TE
 1e Où sont assis tous ceux de la famille, PS
@@ -560,24 +436,17 @@ __ L'oncle soldat qui jure comme un drille.. 7h Je
 _  Ilya là aussi, graves et cois, Los :
 é…_ Dans les fumets, les clartés et les choses, {138860
 4 Tout ce qui fut et vécut autrefois. 200 dE k
-| __ Ily a là dans l'ombre où s'ankylosent Fa
 _  L'humble vertu qui produit et dispose, M ne
 | _ L'humble vertu qui goûte au pain moisi, NT dt
-| 2: £. jc- ANR
 | Fait avant l'aube éclore un feu des cendres, u ee 1S
 Lorsque l'hiver étale son grésil, 20
 
 : PEN L'humble vertu en sa rudesse tendre, k Fr #::
-LS La ravaudeuse et la grave fileuse 4 TRE <- +
-L'ASIE Durs (RE EE
 FAR Dont les récits ondulent en méandres, ue "> a
 RU: La lavandière au bord de l'eau rieuse, ï ne 4
 LES Celle qui fait reluire les faïences ÿ D.
-DAME on 2 ; ? *ey Te
 SES Celle qui suit en manteau de pleureuse.. LR RTESSS
-BRUT Il y a là aussi, lourde présence, AT.
 A Assise comme un songe au coin du feu, SM 4
-ere. Il y a là aussi la Patience, CREER
 LÉCOES La Patience auguste des aïeux, se Sa)
 “1 Le col épais et la nuque puissante, TE
 D. Les yeux petits clignant au fond d'un creux, : Dee
@@ -585,14 +454,9 @@ D. Les yeux petits clignant au fond d'un creux, : Dee
 7 Le foin, la terre et les fruits de l'année, 44
 #4 ‘ Les cheveux drus et qui collent aux tempes; #4
 LES La très fidèle et très enracinée, RE -
-73 La permanente et la recommençante, Re
 RE: Le dur lien de cette maisonnée.. ÊTES
-# ri ‘ Il y a là aussi la bien disante PEN
 5 Et bien prudente et toujours avisée k ne
-ER Et souriante et riante et pensante, je ‘ :
 
-COMME UN REPAS DU son oi
-% ts La finassière et finaude et rusée TH AUER
 __ Expérience au nez pointu qui flaire, ‘5
 2 a _ Au prompt regard qui pétille en fusées... | î | 0
 à _ Ilya là l'éternelle prière, PAIE.
@@ -614,8 +478,6 @@ _ Le blanc bonnet des aïeules cassées, RER
 Re. _ Hommes de faux, de soc et de cognée, A 1
 Hommes de chair, de cœur et de raison, ns LES
 
-w | Il est aussi PTT RU
-LT A LS ne ét tete On Pr CCE red D EE CS EE RES AE El D DEAN UE D = 2 ee SAN
 pl Et les soldats issus de la lignée NU
 POULE Et les curés, les moines, les vicaires, ï ras
 ER - Et, sous un voile en toile d'araignée, < LE ES
@@ -641,8 +503,6 @@ Fe Les gens venus du fin fond des années “4 |
 At: , Viennent frôler les âmes et les corps. 0 |
 pute ne |
 
-> Mons Bi TEEN SIRRE PAR ST RARE PRES 5
-et GS ee dt ON
 Pendant que sur la haute cheminée, 4 RC
 + Saint Jean, celui qui préchait au désert, F7 00 4
 # Saint Jean, rustique image enluminée, + 000
@@ -653,11 +513,9 @@ Re Et la fatigue et les lourdes paupières
 1 Et ceite enfance aux grâces matinales TRACE
 ‘2 Et ce pain bis que dorent les lumières. é EU
 #3 D'un geste évangélique et baptismal. TES
-| +470 È
 | | _ Il est aussi comme une ronde au bois, 580
 || "ss Doigts enlacés, blonds cheveux, douces voix, ce +
 __ Blancheurs de linge entre les chênes cois, SUERSS
-| | 15000 . 37 Salomé. — 3 ‘5
 
 10e Lorsque le soir calme plantes et bêtes Es FERME
 En e Et lentement vient reposer sa tête ER Re
@@ -669,7 +527,6 @@ Ne Chantant la fleur et la feuille et les eaux, = LS
 733 À Chantant l'été qui dore ses fuseaux, er
 HER Chantant la nuit qui ouate les roseaux... SN
 ni Comme une ronde en la forêt prochaine, Re
-De Qui se détend, se resserre et s'enchaîne FE
 Den Sous les rameaux d'un vénérable chêne, ‘HE
 0 Avec un chant mesuré qu'enseignèrent Fe
 > Kg, Au coin du feu les osseuses grand mères Ke: 3
@@ -679,8 +536,6 @@ LR Dans les lueurs par le soir étouffées : . te Ie LE
 Abe Et tout autant, petites, avant elles, FRE |
 52 En avaient fait des belles et des belles 235
 A Qui figuraient dans les rondes mortelles. DR
-
-ON ANNE et DRE A TEST ROM RE A IN APE IE
 
 el Ces belles-là dont vous êtes issues, HER
 ne Ces belles-là, pauvresses ou cossues, 2 ASE
@@ -704,8 +559,6 @@ Depuis la nymphe au grand chêne gîtant, DER.
 Re. Depuis qu'au bois les arbres et les fleurs FF
 Fa A Ont appris Dieu de leurs saints visiteurs, TT
 
-HSAARORS tPIliest aussi NT ERREURS
-: V4 Depuis qu'en robe de communiante FES EEE
 4 4 Illuminant la niche doux-fleurante RE UN TETE
 # s Que Dieu lui fit dans l'écorce béante, MR
 “SE La Vierge entre les feuilles de dentelle, FEES
@@ -729,7 +582,6 @@ E. Et rarement devisent à mi-voix PER
 = Et semblent des familles de vieux rois, HE
 | 20 - Tous vont parmi le tintement des cloches “4
 RE. Avec de la gaîté dans les caboches, EC
-| £ = re RC n
 É Entre deux jours de peine et d'anicroches, w' <a
 | Tous vont d'un pas ni trop lent ni trop vite ‘7
 'S Dans ce beau jour aux blancheurs de lévite se
@@ -737,17 +589,12 @@ ee . Que notre Dieu fait pour qu'ils en héritent, < 4
 | 12 Tous vont pensifs et dignes dans leur foi, Fr:
 Le 4 Dans le vieux culte et dans la vieille loi, ri
 un Dans la vieille âme et dans le vieil arroi, 2) LR
-| 2 SEA
 1° He Dans la vaillance et la paix des aïeux, DE
 ÿ:2 Dans la jeunesse éternelle des cieux, a
 je Dans les chemins du royaume de Dieu, À FN
 Fe ee Tous vont là-bas vers l'église sonnante mi
 1 Re Qui est pour eux la reine et la servante, ne à
 _ La vieille mère et l'épouse décente, 5
-| "0 T's
-Est, PPT
-
-PRE. IlL'est aussi Res PROLSE HE
 
 : Et devant eux, derrière eux, parmi eux +5
 Æ La foule obscure et dense des aïeux 4
@@ -799,14 +646,9 @@ le Et je reviens dans cette matinée ”
 k Que les vivants sont ivres ou perclus
 £ Et que les morts au tombeau sont reclus
 * En attendant la suprême journée.
-|
-|
 
-IPN Het) PAPE MES LAN à
-# nt LA f cn Fer LAS
 56440 Il est aussi comme la vie étroite ; +1 ES
 F1 400 D'un journalier qui casse des caïlloux D.
-F0 D'un j lier q d ill 1460
 T0 Pour soutenir sa famille humble et coite; FE
 te: Il trime, il peine, il rêve peu ou prou, ÈS
 * 8e Se lève tôt, se couche avec les poules,
@@ -827,8 +669,6 @@ WE, Dans la naissance ou la mort des lumières, Dee:
 LP Ne creuse point sa rocheuse caboche #0
 3 à Pour déméler les raisons, ces bougresses, : 34
 +4 Qui font toujours le vide au fond des poches... 140
-# Et le Dimanche il écoute la Messe, FSU
-E SES rate s Re
 _ 108) Gauche et timide auprès du bénitier, À NT :
 | 4 Fier d'être net en sa blouse sans pièces. * ‘
 RC Toute sa vie est un mince sentier - "AK
@@ -843,7 +683,6 @@ NW: Des car, des donc, des si l'on me permet, 172
 | 20 Les raisonneurs et les pédants narquois, LÉ
 | 10 Dans les salons, les sorbonnes, les feuilles, Re
 | _ Les mauvais lieux, les usines de lois, Lie
-| 4 : 45 Salomé. — 3. FAITS
 
 de Ces gens d'esprit, d'avarice et d'orgueil ee
 Raiïllent en chœur les besognes gothiques, ‘4
@@ -873,19 +712,16 @@ ma Qui travaillait des heures et des heures S
 ; Essuie sa joue et baigne son front moite s
 Ë Et doucement lui souflle sur le cœur,
 Ë L'acheminant jusqu'à la porte étroite.
-| *
 Il est aussi comme l'âme en détresse
 D'un pécheur qui ne veut pas s'endurcir,
 | Il est aussi comme âme pécheresse…
 lé Ce pécheur-là dans les teintes de cire
 Ÿ D'un soir tombant sur son vouloir fragile
 “ Regarde, en pleurs, ses dérniers souvenirs.
-|
 | Certe, il est bien de poussière et d'argile,
 (5 Certe, il est bien de vase et de limon,
 Certe, il est bien de chair, de sang, de bile….
 
-MERE Vu test Aussi ONE TRS TS ER
 +2 Il est du siècle où règnent les démons, E
 2 | Il est du vain charroi des convoitises, 4-10
 les à Il est du bagne énorme où nous trimons, 4
@@ -918,7 +754,6 @@ LS La paix du cœur et la foi des enfances, Fc.
 : Qu'on souffre et peine et façonne et cisèle, . 24 :
 Er Qu'on est meurtri, humilié, gêné. ° : SRE
 4 Il a connu la grâce qui ruisselle 188
-72 Sur la fatigue et la lutte et l'effort, : 204
 à Sur le dégoût des lächetés charnelles… E
 30 Il a connu, par des soirs sans remords, 17167
 “Æ Jésus priant à sa table, à son cœur, HA
@@ -931,12 +766,9 @@ _ Parmi la brume éparse sur sa route, MS
 _ Il est tombé dans un piège sournois… R) Le
 
 - Et l'ennemi aux aguets, aux écoutes, AE LENS
-LU Et l'ennemi rôdeur et fureteur, NE a à
 EPS L'envie obscure autour de nous dissoute, ne.
-Ki 34 k Le patient et souple séducteur ra
 9 HT. L'a ressaisi dans la faute première, 4
 Di Dans la faiblesse et le doute et l'erreur, s
-# La » L
 1197: #0 Dans le mensonge et les fausses lumières, 4
 | RÉCÈNE Dans l'appétit violent des délices 14
 “5 : Et dans l'oubli des profondes prières. « 4
@@ -953,15 +785,12 @@ me. « Où, la clarté qui blanchissait vos lys? 4
 Et Où, vos matins calmes et doux-fleurants? Der
 M: Où, les travaux que vos regards bénissent ? EN
 
-GcoMME L'AME EN DÉTRESSE dau. sa
-PS UE Re re Que ir D NT MO ARE DANSE SP NOR LD nc PR RER
 _ « Où, la franchise et les yeux transparents? Te me d
 _ Où, l'amitié, l'amour et l'oraison : TS :
 _ Et les beaux vœux des fidèles en rangs! CE
 « La nuit énorme enserre la maison, ne
 __ La horde immonde enserre mon vouloir, ; 5 es
 _ Et contre moi se tasse l'horizon... » 1020
-_ Il va trouver sa compagne du soir, | TES
 En: Sa pauvre lampe aux clartés incertaines LÉO
 A Et lui demande une goutte d'espoir... : TEE
 be. Alors, perçant les fantômes de haine Meet.
@@ -969,13 +798,11 @@ be. Alors, perçant les fantômes de haine Meet.
 “à D'où se détache une image soudaine. Net
 4 Et le pécheur voit le sourire pur, ie
 * Les yeux mi-clos et l'agenouillement, Ro
-_ Le voile en lin et la robe de bure, . fi es
 Et les longs doigts joints monastiquement Deer
 rit De Celle qui porta dans ses entrailles A È
 - Le Donateur de l'Affranchissement, Ma.
 _ Ce doux enfant qui rêve sur la paille. PEU
 
-Fr cé La (is ne PELH A . k# A Île si a USST “ FA UF ARE re |
 Da : Il est aussi comme, aux jours de scandales, 4
 STE Un vieil évêque en sa ville assiégée Li
 WE Par des Alains, des Goths ou des Vandales.… "1
@@ -985,14 +812,12 @@ K cp Bon enquêteur des maux à soulager. iér4 |
 Re En Il parle aux gens, apaise les rumeurs, nn |
 Na ; Panse un blessé, gourmande le timide, : 15 |
 + TER Fait honte au lâche et bénit ceux qui meurent. "4
-ÿ À ï L'épuisement le dessèche et le ride, D |
 ne. La fièvre luit dans ses yeux renfoncés, ESA
 4 Mille démons tordent son ventre vide. RE.
 711 Rien ne l'abat : il court au plus pressé, . 1
 “530 Le long des rues, sur la place, à l'hospice, h n |
 RR - Dans un taudis, une échoppe, un fossé. D
 
-| COMME, AUX JOURS DE SCANDALES 5e 2 e
 2 Vers l'humble tâche et le pauvre service, , à “Es ME
 50 Vers le danger des remparts et des tours, .
 
@@ -1031,13 +856,9 @@ eu De nos travaux dans l'ombre coutumière, ; Ge 5
 vi Où prient nos mains, nos âmes et nos voix ra
 où Dans la maison de brume environnée, ab -
 DOS Et gardien des calvaires, des croix, LES |
-|' APRN : F . F8
 +f 1 Des saints nichés au creux de nos vieux chênes, € |
 LE Du cœur modeste où veille une humble foi, FE |
-,: FI va ni DEEE te
 
-Lbadnsis RS SR ne in
-Des corps guéris au bord de la fontaine, be Des se
 Des nefs, des tours, des clochers, des offices, et a”
 _ Des oraisons, des psaumes, des neuvaines... D:
 % Au jeune chef des ardentes milices, w F0 de
@@ -1051,10 +872,7 @@ Glaçant d'un mot les zèles trop bouillants, s 1
 A nos terroirs, à nos âmes commis, - EE
 Æ Prudhomme aussi, sénéchal et baron Re :
 7e Qui vint quérir Jeannette à Domremy. 111 JR
-AN LT Rp er BA diet, |, La NET AR Pr
 
-DR RE EL SPA TL Nes nues A LAN sh je |
-# à * "4
 528 Il est aussi pareil à la fileuse "#0 |
 184 Filant de jour, de nuit, filant sans cesse, : KS,
 Le Il est aussi pareil à la pauvresse :
@@ -1070,8 +888,6 @@ HA Et recueillir des sous et des liards 1200
 ET. Et les porter au roi devenu gueux : Je
 ee Dedans un bas ou quelque boîte à lard, r 150 pe
 
-€ tqs 2 Pr NÉS ta CA de, ae ir HOAMUE Bi ie FRE NNEN 8 "R ‘Ko
-LARGES RAR PAREIL A LA FILEUSE a Dee
 4 Pour que le roi par la grâce de Dieu :TÈAR
 Paye aux Anglais la rançon de celui Je
 “à Qu'ils tiennent clos là-bas sous d'autres cieux, ‘28 de
@@ -1085,7 +901,6 @@ Le forgeron des crânes et des os, É 1.8
 # Taillaient la toile en honnêtes chemises F4
 ‘4 Et que les bœufs soufflaient dans leurs naseaux, - {Te
 2 Le gas tanné par la flamme et la bise 1% d
-: Qui besognaïit de la hache ou du poing ae %
 . Pour conserver la robe des églises, La
 #4 Qui besognaït pour qu'on donne les soins TER
 #4 ‘ Qu'il faut donner à la huche, au berceau, 402
@@ -1094,7 +909,6 @@ Le forgeron des crânes et des os, É 1.8
 ‘ol A la charrue, à la herse, aux faucilles, # We |
 268 A la quenouille, à la laine, aux fuseaux, Da #7
 
-ne TES + : AE Ge RS HN NT D FICORERS
 PR: 'ILest aussi N'ES
 ns Pour que l'on chante en piquant les aiguilles,
 v- # Pour que le foin parfume le grenier, 3 HE
@@ -1103,7 +917,6 @@ v- # Pour que le foin parfume le grenier, 3 HE
 a ON Que les moutons aillent à la prairie, +700
 2% Que les raisins aillent dans les paniers, Ÿ ê
 É Pour que le lait s'en aille aux laiteries, 4
-Dee Le pain au coffre et le vin au cellier, “à
 ut Les rêves blancs chez la Vierge Marie. -3
 44 Pour délivrer le rude chevalier, SE
 LES Voici filer jour et nuit la pauvresse, 5 110
@@ -1118,7 +931,6 @@ LES Voici filer jour et nuit la pauvresse, 5 110
 ‘a L'enfant, la veuve et l'église et la croix, AU
 À Le grenier plein, la fille prise au piège, AVES ts \
 
-M EU A LAN eNR EE Lot Re Le
 nu s __ Niles hameaux, ni les chants, ni les bois, in F.
 _ Niles jardins, ni les murs, ni les toits, A
 __ Niles travaux, ni l'honneur, ni la foi, FAR
@@ -1132,7 +944,6 @@ E- _ La foi, les lois, l'honneur et le courage, EE k
 Es L''étranglement nocturne, à la muette, 53
 È Les lâchetés où les âmes se vautrent, = STE
 4 Le pacte obscur et l'entente secrète, Ne
-L La danse ignoble et la lèpre et la faim, ‘| DAC
 % Le rire ignoble et les yeux faux qui guettent, 1 F0
 _ | La joie ignoble et les tours du plus fin, a A pe
 La course ignoble aux tas d'or et d'argent, * NE
@@ -1141,7 +952,6 @@ La course ignoble aux tas d'or et d'argent, * NE
 La pourriture et la perdition 314
 Font tournoyer les arbres et les gens... FL
 
-se Il est aussi EE En ee TETE
 Le La nuit est close et dans sa passion
 nn: La pauvre femme obstinément marmonne ; à
 ‘M Des mots d'amour ou de contrition,
@@ -1176,7 +986,6 @@ _ Laisse tomber ses deux mains et son front; Me
 1 Sur le tapis de neige immaculée, :'H0SS
 “à Vient doucement la Reine des Patronnes, ; RE Fk
 Ke Elle descend au fond de la vallée, ES
-#4 F Re
 A Pousse la porte, entre dans la chaumière, 6 74 K
 4 Prend la quenouille et se met à filer Me
 % Comme jadis, au pays de lumière me
@@ -1184,8 +993,6 @@ A Pousse la porte, entre dans la chaumière, 6 74 K
 E: Elle filait, modeste filandière, “13
 à Quand l'ange vint lui dire son Ave. 4
 
-Re LR RNA de TE ë
-‘Eve RE Fe ET RAR VANTS T7 est nor de TRES %
 LES Il est aussi comme l'heure dernière 5
 RUE ô De Vivien, neveu du preux Guillaume, 578
 DA Aux Aliscamps, la plaine meurtrière. FI
@@ -1196,7 +1003,6 @@ SES L'âme va suivre et quérir son royaume. FES
 LE Aux noirs païens plus féroces que loups 2e
 Me: L'oncle a ravi le beau corps de l'enfant, ‘5e
 Re f Le corps saignant frappé de quinze coups... DU
-#4 te"
 Ro Au souple trot de son cheval Beauchamp 1 de:
 ‘F4 L'oncle Guillaume emporte son neveu FER
 CH Hors la bataille où la Mort va fauchant. 1:50
@@ -1251,8 +1057,6 @@ Sire Guillaume, agenouillé, le fait,
 Avec un bras, dossier rude et solide,
 Se relever vers les Anges de paix...
 
-|
-
 Dee De l'autre main, tout doucement, il guide + TE
 _ La faible main qui se bat la poitrine : 0
 Fe Puis il entend passer l'aveu candide…. HE
@@ -1267,7 +1071,6 @@ Et tristement il pense à l'avenir : LS
 B:: D'où par vaillance il la chassa jadis. F7
 &: Morts dans la plaine ou captifs sur les nefs ; a
 18 Tous ses neveux, ses hommes, ses fidèles. FE
-be Le EArS
 “ Plus de soldats pour obéir au chef. F4
 4 Et le meilleur est couché là sous l'aile DR
 (4 De la mort, pur et fin comme les anges, Re:
@@ -1291,7 +1094,6 @@ Le long regard généreux et hardi
 De saint Michel, glissant vers le blessé
 Pour emporter son âme en Paradis.
 
-| COMME CES PACIFISTES F2 RÉEES
 É. Mais il n'est pas comme ces pacifistes : -
 4 Qui dans les alcôves humanitaires, TES
 _ Sur les poufs des boudoirs socialistes, Re:
@@ -1334,17 +1136,11 @@ Dans les accords flous et non cadencés, 1
 | Dans un concert de mous bruissements,
 : Dans la musique en veine de glousser,
 
-| us COMME CES PACIFISTES | ‘à
-
-| 1 AE #4
-
 | Dans les salons unifiés dûment, Ke:
 
 LS Dans les boudoiïirs dûment sociologues, 0
 
 4 Dans les sérails de nos gouvernements, At
-
-| 4 F5
 
 LA Chez les vendeurs de fiches et de drogues, Es
 
@@ -1380,11 +1176,6 @@ L° Chez les vendeurs de nouveaux décalogues, 1
 
 x. Pour inventer des plastrons de chemise, ne
 
-| TNA à
-
-| FAIRE SRE
-
-| LOS è 2FeT ais À nest pas US ES RE
 VAS Pour conserver leur place dans la danse, 4
 1 Pour conserver rentes et pensions, HR no.
 M Fe Pour conserver leurs jetons de présence, AVE 2 J
@@ -1395,7 +1186,6 @@ eu. Qui, pour sauver leur droit d'être des moules, è
 VE Leur volonté constante de bassesse, ‘ RS
 £ pe ( Leur cœur de lièvre et leur âme de poule, 3
 SRE Qui pour sauver les jupons et les caisses 5
-ER | si Et la sottise et la jobarderie \ 20
 ê 2 Let Et le gros rire et la torpeur épaisse, 1
 + # Qui pour croupir au fond des eaux pourries -
 ‘208 Vendraient nos feux, nos hameaux, nos villages, 0
@@ -1403,17 +1193,13 @@ ER | si Et la sottise et la jobarderie \ 20
 ‘4100 Vendraient nos bœufs, nos moutons, nos pacages, Rs
 MP. : Vendraient Paris, Lyon, nos quatre fleuves, 1300
 Ni i Nos oliviers et nos chevaux sauvages, $ à
-ne, ei ‘
 + Vendraient les cieux où nos âmes s'abreuvent, Le
 Ca Nos blés, nos grains et les plaines picardes LES E
 # Avec les gars, les filles et les veuves, 1208
 
-> Fe COMME CES PACIFISTES VS NE
 | _ Vendraient nos toits, nos meubles et nos hardes, LES
 ae Vendraient les tours, les nefs et les vitraux CLÉS
 É Et les clochers avec leurs savoyardes, ne
-3 Et la Provence et Marseille et la Crau, HN re
-| 4 Et la Bourgogne et tout le Bordelais ee
 Les Et cette Flandre où l'on boit à pleins brocs, pe ae
 Va Vendraient aussi Ronsard et du Bellay, 1 sn
 …._O  L'ardoise fine et le petit Liré, 5e 54
@@ -1422,14 +1208,11 @@ Va Vendraient aussi Ronsard et du Bellay, 1 sn
 De Et les jardins qui flanquent les chaumières [1 RRES
 +9 Et les jardins de quatre pieds carrés, MO:
 _ Ils vendraient Reims et ses anges de pierre, 4 ci
-ae. Et ce bûcher qu'on jette à la rivière, LEE
 É Vendraient aussi les saints par Dieu commis * me
 TA A nos terroirs, à nos bourgs, à nos cœurs, \:: 000
 _ Quand nous veillons ou sommes endormis, Da
 __ Vendraïent aussi, dans leur ignoble peur, de RUN À
 _ Denis, Martin, Geneviève et ce roi ‘KE
-| he. Qui préférait le lépreux au pécheur, nn.
-| Eee: F'\ LIU RUE
 
 Mais il n'est pas È \
 Mais ils vendraient aussi les vastes bois,
@@ -1454,17 +1237,12 @@ Tout ce qui mène à tout ce que l'on aime, |
 Ke A ce foyer, nid d'ombre et de repos, {
 #i Au proche puits comme au rivage extrême, L
 
-LR ON ve MS AR PO EX CETTE ae #
-
-Der te re PAS RES PR TE ENS RATIVAR  SE  TINRIEE
 | ‘4 A cette église, à ces mouvants drapeaux, Pa 1
 
 . 4 Aux champs dorés, à ce champ de bataille, ie
 4 Au beau vignoble, au frisson sous la peau, Er.
-| Se
 l Aussi vendraient la blessure et l'entaille, Te
 | Toute fierté, tout labeur, toute gloire, + LR
-D. Le sang, la race et la force et la taille, a.
 \l } Toute la gloire et toute la mémoire, Lu
 E. Vendraient Châlons, Bouvines et Rocroy, Ÿ x 5# 4
 | Vendraient Jemmape et Lodi sur la foire, TER
@@ -1475,14 +1253,11 @@ E. Vendraient Châlons, Bouvines et Rocroy, Ÿ x 5# 4
 | % Ce peu d'espoir d'été sous tant de glace, +?
 | 24 . Ce peu de jour au fond de tant de nuit, F4 5
 | 41 Ce coin vermeil dans la lèpre vorace, j Fe
-TP Vendraient la ferme et l'étable et le puits, s Een
 
 Re: Les fleurs du champ, les pignons de la rue FA
 _ Et dans le creux de ce sillon qui fuit C8
 Les nobles os que pousse la charrue. ee
 | 4 2
-
-| 134 À 44
 
 FRÈRE Il est aussi comme, devant les Mages, | 2H]
 Re L'Étoile qui guidait L 2 TS
@@ -1498,12 +1273,7 @@ si ce Et par milliers brillaient dans les cieux cois A
 2% Et parfumés les étoiles antiques, ER |
 b. nn Mères des ans, des semaines, des mois, Fa 5 |
 D: MS: Mais au-dessous l'Étoile prophétique, h Mr |
-ME La Messagère et la sainte Meneuse LR
 17 Des Africains et des Asiatiques, TRÈS
-
-7 7 COMME, DEVAN AR ins He » Tab RAR
-
-| FE Cest CERN RE LION AC a AS RSR M AT A a Nue k Le LPS ARRET
 
 . Mais au-dessous l'Étoile bienheureuse À Re se
 15 Qui cheminait dès l'enfance du monde Me
@@ -1526,12 +1296,9 @@ EL Pour guider l'or et la myrrhe et l'encens… se nee fé
 
 #8 Vers l'humble paille et l'Enfance divine. BRTies
 
-| “NES : FARTUESS
-
 “ Il est aussi comme le soir tombant Le
 Fa Sur les rochers, les coteaux, les palmiers, 5
 à ä Les champs de blé, les cèdres du Liban, 4
-ce L
 “ Comme ce soir où le long d'un sentier L
 LS Deux voyageurs cheminaient d'un pas lourd, :
 7 rs Ayant perdu la joie et l'amitié, 1
@@ -1557,7 +1324,6 @@ E. Pleine de foi, d'amour et d'espérance, 70
 - Les voyageurs sentent monter le froid - <
 ‘+ Des abandons, des oublis, des détresses T0
 D Au tiède cœur dont Il faisait son toit; ‘208 #
-ne
 Les voyageurs sentent la nuit épaisse é 1
 ki: Bloquer les yeux qu'Il éclairait hier L FER
 É Avec le feu des divines promesses, SCT
@@ -1568,7 +1334,6 @@ x Peser leurs pieds qui si légèrement ES
 _ De leur chemin avec d'autres chemins : Lea
 ._ Un homme est là dans son long vêtement; Ft É
 
-Re l'est lauseu tr ns nee dc STE
 "4 À Un homme est là dans le soir incertain 4
 1 Qui méle et fond les choses peu à peu, “4
 SE Un homme est là, vague, dans l'air éteint. « FA Ils se saluent, ils échangent des vœux, nas É
@@ -1581,9 +1346,7 @@ ie Et les voilà tous les trois qui cheminent, È
 cas Mais l'inconnu dans le silence épais E.
 à : Les caressant d'une voix douce et claire ; |
 Ra Palpe ce deuil et sonde ce regret. 4
-| At Û
 à L'un d'eux répond : « De quel coin de la terre - 4
-> « Arrives-tu si tu n'as pu connaître 2
 es « Ce qui advint chez nous avant-hier? a:
 « Donc tu sauras que Jésus, notre Maître, :
 
@@ -1592,16 +1355,13 @@ th « Voilà deux jours par les princes des prêtres, É
 . « Et qu'il est mort, Lui Prophète et Sauveur, L À 4
 + « Lui le Promis, l'Attendu, le Messie, 4
 à « Lui qui versait du baume sur nos cœurs, Ce
-Là L MTS fl
 
-# WE % AL Æ ee : » le + à
 _ « Qui remplissait toutes les prophéties, : 564
 _ « Qui guérissait l'aveugle et le muet, FOR
 SR « Qui nettoyait l'âme sale et rancie, ve DR
 = « Qui pauvrement, petitement vivait, 14
 BE « Maïs qui pouvait quand nous étions nochers ES 7 :
 _ « Marcher sur l'onde et remplir nos filets, 2248
-Des É LAC
 “3 « Mais qui pouvait, par notre foi touché, Le CA 2
 D « Tirer les morts de leur dernier sommeil RU:
 « Et les vivants de la mort du péché. FREE
@@ -1615,11 +1375,8 @@ He Prédictions, sentences, paraboles : Fe Ne SE
 _ L'enfant prodigue accueilli par des fêtes 5
 Me Et le beau lys mieux habillé qu'un roi, TES
 _ Etle pasteur attentif à ses bêtes ee 7 £
-RQ, Qui va quérir la brebis égarée, LE ÿ
 _ Et le festin des Noces qui s'apprête, ES
-De 79. EU: ue on
 
-s Il est aussi | RPC ENT CS
 | Et dans la nuit les dix Vierges parées,
 é Les cinq avec des Lampes pleines d'huile,
 Les cinq ayant omis de s'éclairer… ” à
@@ -1642,21 +1399,16 @@ Une servante erre et vaque au diner. 4
 à L'hôte leur sert pain et vin; son enfant 1
 ; A pas légers s'approche quelquefois A
 “nt De l'étranger muet et méditant.
-| 8o ;
 
-ed on et
-fé rer | COMME LE SOIR TOMBANT 1 Se
 38 Mais celui-ci, tout à coup, de la voix rs +0
 k ; Dont ils aimaient le son doux, grave et pur, 1
 E Dit aux amis : « Hommes de peu de Foi! LS
 4 « Ignorez-vous que, selon l'Écriture, se es
-a « Le Fils de l'Homme accomplirait la Loi, $ F4
 É « Vous montrerait la voie étroite et sûre, pr 4
 k « Et puis serait attaché sur la croix ë #
 # « Et mourrait là de la mort des voleurs 0000
 D. « Pour vous sauver, hommes de peu de foi! le Gi.
 EL « Ignorez-vous que malgré les veilleurs ie
-à « Il sortirait de sa tombe de pierre BU.
 ‘4 « Et reviendrait pour assurer vos cœurs ?.…. - 4
 L « Oubliez-vous ce qu'il disait hier, à É
 É:. « Ce qu'avaient dit les prophètes, les sages, né 28
@@ -1668,7 +1420,6 @@ __ « Is avaient dit la croix sur son échine, es
 e « Le manteau rouge et l'échelle et la lance, PA
 # _ QEt ce grand cri tombant de la colline. » 40
 
-V1 Nes PÉTR .TIR PE SOE ES ve MUC LE nie
 Su Il est aussi Pres, ES
 Fe L'étranger parle, et la foi des enfances RAS
 Rentre soudaine au cœur des deux amis : 4
@@ -1715,11 +1466,7 @@ bS: « Que Je me tiens le plus ferme avec eux, ES 10
 pet Tous deux voudraient qu'Il ne s'arrêtät plus. ‘48
 Mais Il retourne au Père qui L'attend. LTÉE
 
-Ne A RO ENS Er OUR Eu ET tn, Un F
 _ Iiest parti vers l'aube des élus; CONCERTS
-__ Et cependant leur détresse a passé: La ARE RER Se ps
-Car Il demeure au Pain qu'll a rompu, BLEUE
-Car Il demeure au Vin qu'il a versé. TE
 . HER Il est aussi l'apôtre qui d'abord ne,
 k FE = Ayant honni Dieu présent parmi nous, F
 : ÈS Ayant marqué les Douze pour la mort, +
@@ -1730,7 +1477,6 @@ ei 'f Dans un sentier, à la fin d'un voyage, * 400
 F É je De notre Dieu tamentable apparu, 1 NS
 ° 11 va prêcher de rivage en rivage, +. 20
 
-M pete __ L'APÔTRE QUI D'ABORD 5 UE
 2 Il va dans ses guenilles et pieds nus Ra
 EX. Quand il n'a point quelques mauvais souliers, 1
 
@@ -1753,13 +1499,10 @@ _ Aux flots de Grèce et sous les cieux latins, ENRS
 
 3 Parmi l'orgie et les rires de brutes, 7 2
 
-# £
-
 ‘A Parmi les fleurs de la molle indolence, 2e
 
 _ Parmi le meurtre et la chanson des flûtes, 308
 
-Ne SE : ki 2 PRE AN À PER ai +
 RSS": Parmi les voix de ruse et de jactance, Mai AQU ss
 A Parmi les voix des vendeurs au marché, FETES
 HAS Parmi les voix des vendeurs d'éloquence, has |
@@ -1771,7 +1514,6 @@ De à Mais dans son cœur portant le Dieu fait homme, +4 |
 Fee Clopin-clopant, dans l'empire sans fond, ee À
 É AP De la Syrie aux rochers ibériques 44 |
 8x Son pauvre corps de malade se fond, : # ï
-| "1
 as Son front se gonfle ou s'ouvre sous les triques, 1,3
 ARE Il laisse un peu de sa chair dans les bourgs, cs
 É Un peu de sang sur les places publiques, à
@@ -1781,9 +1523,7 @@ ra Pour lui, qui parle, et pour eux, qui sont sourds, 4
 ne Et le voilà qui va dans les haros, 4 |
 Ro Dans les sifflets des morveux et des pitres, e T4
 Un. Dans la torpeur des hommes de bureau, É |
-De es
 
-M NN Dee HAeSTRS QUE DA BORD A
 Dans le niaïis sourire des behtres, ph ‘4 ÿ)
 mar. Dans l'infatuation des docteurs, 2 VETTEE
 ARS Dans ce bourbier que font l'or et les titres. de) “1
@@ -1799,17 +1539,12 @@ Ex. Et lui, malgré la fièvre qui le mine, LL NOUS
 3 I1 va, boiteux, dans ce champ de péché, 7180
 # Tout dévoré de nielle et de ronce, A 108
 W' Que lui donna Jésus pour le faucher, '$QS
-à Il va coupant de ses rudes semonces Ha Fo a
 258 L'herbe d'orgueil et l'herbe de luxure, | + TEE
 F4 L'herbe qui pointe et l'herbe qui s'enfonce, 1808 4
 Le À Il va coupant de ses sentences dures NY:
-ee L'herbe de haine et de rapacité, ; af 5e
-#4) : : +5 RO 0
 A L'herbe qui ronge et l'herbe qui pressure, DRE 5
 
-ca MR 11 va coupant de ee" verbe heurté pt PATRONS +4
 Fe Cette herbe folle et cette herbe crispée F0) Tr
-A. i Qui corrompaient le printemps et l'été. f 4 |
 Car Dieu lui dit au cœur : « Sois mon épée. ». M
 @ 7% Il est aussi comme le doux sourire \
 Le De ces trois filles de la Charité 4
@@ -1821,8 +1556,6 @@ Fa Des opiats. lorsque j'ai visité 7
 _ - Cette chapelle où mon guide officie, 30
 8 Ces vieux en drap, ces vieilles en sarrau, ne:
 
-D ne RS ee ME ne LCR EEE
-| COMME LE DOUX SOURIRE S ALES
 ‘4 Dans le dortoir ces malades assis, Re.
 De - Ce parloir sombre où la Vierge rayonne, SE
 F Ces longs couloirs et cette pharmacie <a
@@ -1839,21 +1572,17 @@ A Mais, à sa place, entre ces pots antiques Le 3
 + Si recherchés des dames impudiques A se
 Lu Pour y loger des lampes électriques, er
 à Entre les pots de gomme ou d'émétique, “LR TR
-Fe J'ai vu ces Filles de la Charité Re T
 . Qui souriaient d'un sourire gothique, 5e
 à Sourire doux et paisible, hérité F4
 LE: De la Très-sainte et Très-modeste Vierge 1, 200
 Qui est leur Mère en Son Éternité ; : 1130
 
-ne COTE RO TASSE
 fe Re Sourire uni comme la robe en serge, RAA LEE
 REC: Comme ce lin qui les recouvre d'ailes, De |
-+ S de À Dore
 4 Comme ce jour, ce demi-jour de cierges ; x |
 AA Un lent sourire où des pudeurs se mêlent, . 210
 RE Un mouvement de naissante prière, Re:
 À me L'humilité qui germe sur le zèle; ES
-Enr Le persistant sourire de la pierre EVE »
 TRE Dont autrefois nos Saintes étaient faites, 30
 ‘2 è Roses et lys de nos grands sanctuaires ; +. :
 Fe Le clair sourire où la grâce simplette 72 |
@@ -1867,9 +1596,7 @@ FE Tout blanc parmi la lumière de cire ae |
 RE: Entre les bras de Celle qui console, ÊÈL,
 
 “3 L'Enfant Jésus les regarde sourire. 4 |
-nr tie DE
 
-> Me. 3% À WP 1 1 E M À FE !
 14 Il est aussi pareil à la brebis, PA (728 ne,
 Re. A l'âme de la sœur aux yeux modestes + 2 REIN
 1 Se nourrissant de lait et de pain bis SÈCHE
@@ -1877,17 +1604,14 @@ Ps Qui va dès l'aube abattre ses mains prestes | CORRE
 D. Pour nettoyer, ordonner et blanchir, PE SE
 ES. Sur les tumeurs, les blessures, les pestes… to re te
 Fe: _ Dès que les cieux font mine de pâlir, Nu Ne
-En . Dès qu'un carreau se teinte un peu de rouge, ; D.
 408 Dès que les Grands commencent à dormir, ù A Re
 # Dans la ruelle et dans le creux des bouges, LR
 8 Dans le douaire obscur de la souffrance 5 Ë ne it
-pi Où rien ne luit, ne chante ni ne bouge, ÈS Rue
 Elle s'en va, seule avec l'espérance SES
 1e Qui elle aussi se lève de bonne heure ‘ 25e
 Et qui ne connaît pas la nonchalance, 5 Fe #. ie
 
 Il est aussi ne
-| # |
 Et toutes deux portant la bonne humeur,
 ; - Le pain, le vin, les doux soins, les remèdes,
 Toutes les deux, grande et petite sœur, 4
@@ -1910,8 +1634,6 @@ Et ce taudis noirâtre est un palais sl
 Quand toutes deux, trésorières de foi, F
 Sans marchander y répandent la paix... 4
 
-ou A GP RE Et 2 Rent : ARE
-
 _ Dieu, bénissez le sourire, les doigts, EE 4
 Le blanc bonnet, les pas trotte-menu, ; . pe Fa
 mes Les yeux décents et la glissante voix : “a
@@ -1930,7 +1652,6 @@ DU Quand elle vient écouter sur le tard Fe
 
 Et s'imprégner de l'éternel regard, - 2
 
-A , ‘ SUPX UT test) Aussi Te DE MR ENS
 + Pendant que Marthe active se désole MAUR TN
 ; De rester seule à chauffer le repas | ES
 4 Et n'a plus âme à qui faire l'école. US
@@ -1949,7 +1670,6 @@ fé : Dont Dieu là-haut sait qu'il est grand besoin. 1€ |
 | Et je la vis plus vague qu'un nuage, 4 |
 r Quand le vitrail éteignait ses figures, 50
 hs S'agenouiller très-bas sur le dallage, E |
-|
 . Et c'était quand tout meurt, et que fulgure
 re Obscurément la lampe de l'autel, $ |
 pe: , Un front de marbre, un cuivre d'encoignure. ù De |
@@ -1976,7 +1696,6 @@ Qui méditez dans ces ombres gothiques, à ne.
 E- Ne gagne rien que pauvreté finale, i RE
 É Que camelote et que verroterie, LL 6
 
-Il est aussi G CUS NES ONTAR
 Et vous savez que c'est vous sur les dalles 0
 Où vous mettez vos agenouillements
 Auprès des trois Vertus théologales,
@@ -2014,20 +1733,8 @@ k Par l'agenouillement devant la croix, 4 “ Ê
 4 Car Dieu vaincu subit vos douces lois. LE
 108 500
 
-LA MURS ji MERE te LA FRAC SEEN LEE L
-
-#3 ! tt, EN
-HE Poe | SE LU RS dE SR Are ORNE ROUES RTE Et RENNES RARE 0
-
-CARE CPE ST FPS « , ES FEAT Le te PEUX à, » ae Ar pe AE "
-3 44 SCC UENENE AND EE ÉA CAS al TES
-A ne AE EPS TUE Le et £ D EERRer ne
-| Sd : , F É F0
 se 972% let 3 Salomé. ne IR
 
-LE CSN RE or IE HN RAA EE SE A2 so €
-
-= NOTE AR D eri re dem nan ve cet Ua » d1n ve AGO 5 4
 D A notre ami Does Aie En es 0 eee (6
 1 Notre pays est comme un doux berceau ............... 13 44
 Ë L'est aussi comme un aventurier.....:.......:.....% do 5
@@ -2035,10 +1742,5 @@ A Il est aussi comme une ronde au bois ................, 37 ra #
 4 Ilestaussi comme Id, vie étroite... 1.2e224000m PS
 ÿ Il est aussi comme, aux jours de scandales, ........... 52 CAES
 Le ” Jlest aussi pareil au saint archange................... 54 de
-À IL'estiaussi pareil à la filense tte CRETE a EE ne
 % Mais il n'est pas comme ces pacifistes ................. 67 DRE 2
 “od Il est aussi comme, devant les Mages,................. 94 à de
-
-À HVentiaussi pareil à la-brehig”. 7.450000: 10000 DATE
-
-: PÉÉBTÉR DECO CAIRN 2eme nn dec ris sa ONE TOR vs,

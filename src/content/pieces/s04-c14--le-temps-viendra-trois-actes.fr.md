@@ -70,8 +70,6 @@ revues spéciales, — que ce soit de médecine ou que ce
 soit d'agronomie ; — cette presse forme pour ainsi dire
 des départements intellectuels; comme la presse
 
-M CT NI PA al
-l'an CAHIERS DE LA QUINZAINE A"
 départementale proprement dite, et plus encore peut-
 être, elle représente un grand nombre de lecteurs
 
@@ -89,15 +87,6 @@ Rolland, parmi tant d'autres, en est un exemple probant,
 — un instrument indispensable aux mains de qui veut
 travailler. C'est ici un fait, et je dois au public de
 reconnaître que ce fait désormais n'est contesté par
-‘ Le gérant
-
-M LA D Tai ke ‘ex
-| 192700 ENT NR / F 4 \ : LE KV TOR ONE
-LUE : ue} Ce 1 EUR MLERS MINT SLA
-
-De STE RS ES APRES pipe" Ci SE en LE ARE NS DEN STE 4
-
-LUE Ps se FRE PAPA ET dE Nr OA EU
 
 Paraîtront du même auteur dans la même collection :
 
@@ -123,33 +112,12 @@ il suffit d'envoyer un mandat de trois ancs cinquant
 E à M. André Bourgeois, administrateur des ca tiers,
 É: 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 E arrondissement. On recevra en spécimens six cahiers
-é de la deuxième et de la troisième série. Fa >
 RCE à Nous mettons ce cahier dans le commerce; nous le
-#0 ue LL HOTTES
-
-à ve ES RER pre! hi Has Me NS Ce di 2 Ma PAR LUN
-j ee ne a o PTE A FE À A Are ce LÉO 1
-Fe 4 MAIS EU EN EL NT nee V'AAAGANZENREE
-h" L'ORM ni ï Lan He REA
-# EMAIL, re 2 à STE (UE
-
-TH LA de PA ï ex "et AN
-
-# L. AS SA En TARN EST EUN DRE te ASUS
-b 4 É r mi: à Rare ‘ANS ne ES
-Ex et er * = ? 4 x in CARRE fs CON
-
-RE EN Par ARC A ARE MES TU LÉO NN MES 1
 
 É _ Ce drame met en cause, non un peuple européen, 2
 _ mais l'Europe. Je le dédie — à la civilisation pas:
-_ THE = Romain Rolland LS TER
 
-LA rs . à na “
-| RE +! à (2:19
 w d votre NE
-#40 HyAt C € 0 Der
-nd" dé net à Roue 18 NE PURES PR 1
 
 Sur les œuvres et les travaux de Romain Rolland
 publiés dans les éditions des cahiers antérieures à la
@@ -170,7 +138,6 @@ et les Tharaud ont travaillé séparément.
 LAWRENCE, aide de camp de lord Clifford, 25 à 30 ans. (
 CLODDS, aide de camp de lord Clifford, 25 à 30 ans.
 
-DEBORA ERASMUS DE WITT, 35 ans.
 DAVID, fils de Debora, 6 ans. 3
 La scène, en 1902, à Christburg, en Afrique
 
@@ -183,8 +150,6 @@ La vieille Noëmi, assise, le dos tourné à la fenêtre, tient la
 Bible ouverte sur ses genoux. Elles parlent à mi-voix, avec
 de brusques éclats, où l'on sent la terreur, la haine, l'exaltation religieuse. — Au dehors, des fifres et des tambours
 jouent une marche militaire.
-
-LES FEMMES, regardant à la fenêtre
 
 — Voilà les païens, les Babyloniens !
 
@@ -205,7 +170,6 @@ n'ayez point de peur, à Israël. Car je suis avec
 vous ». Le miracle viendra.
 
 Un moment de silence.
-LES FEMMES, regardant
 
 Regarde ces conquérants! Ils ont l'air de mendiants, hâves et déguenillés. A peine tiennent-ils
 
@@ -223,24 +187,17 @@ et lui appuyant la figure contre la vitre
 Regarde ceux qui ont tué ton père!
 Dis : qu'ils meurent!
 
-M RE nn LR et UN MR EI ON
-D de ET M
 PA « Ils seront mangés des vers comme un vêtement:
 _ ils seront consumés par la pourriture, comme la RAS
 à La mort les tient déjà. | eY
 2 Et c'est devant cet hôpital, ces cadavres qui se
 traînent, que notre peuple a fui! Pourquoi a-t-il 108
 _ abandonné, sans la défendre, la ville? de
-| NOËMI : F3
 Ils n'ont pas fui. Ils les laissent s'entasser dans la dre:
 fosse. Après, ils les cerneront. Ils allumeront le feu : TER
 aux quatre coins de la ville, et tout sera brûlé! #4
-#1 ‘2 er
 « Nous aussi, s'il le faut. As-tu peur? ue
-À 4 : DAVID, frappant du poing la vitre Mi:
-y Non! On l'éloigne de la fenêtre. I1 se débat. Je veux être à ke
 \ Que je meure comme Samson avec les Philistins ! de.
-8 LES FEMMES gant
 _ Que je meure aussi! LE
 #4 i Roulement de tambour. : :;; #0
 
@@ -265,10 +222,7 @@ avec accablement, l'enfant avec stupéfaction. La figure de
 la vieille Noëmi tremble. Debora a fermé les yeux; des
 larmes coulent le long de ses joues.
 
-Lt Ar ai LS en RPRRNE ES Et Le RL TON
-LA NLN D RNSSSRSREE EEE i ve
 van UNE FEMME s'approche craintivement de la fenêtre et regarde al
-Le drapeau flotte! 4
 * LA VIEILLE NOËMI, que ses servantes aident à se relever Le
 Ce sera pour plus tard. 3
 - Elles se relèvent avec découragement. à Re
@@ -276,10 +230,7 @@ Qu'attends-tu done, 6 Dieu ? | Ke
 Que nous agissions pour lui! où
 Elle se relève, indomptable. $ Ÿ
 , .
-UNE SERVANTE, entrant, effrayée ‘4
 Fe Leur général! Il entre dans la cour. Se
-| DEBORA KT
-Que je ne le voie point! 1258) TES
 Emmenez-moi ! &
 ‘ Elles disparaissent en silence. : :&
 Lord Clifford entre, suivi du docteur sir Thomas Miles et " ‘a
@@ -307,10 +258,6 @@ défaut d'ennemis, nous avons assez à faire avec cette
 nature meurtrière, et ces espaces, qui semblent
 reculer à mesure qu'on avance.
 
-FAT RS SEE PRES Fes eur MA LÆ PANNES ME PE
-Re Én ' D hate ep EU PR FAO SUR F
-cr SUN RER Se AE 4 Fee RE FAT. Ve Ne AN 28 SRI
-
 Heureusement! S'il n'y avait pas le plaisir dela
 Vous n'avez pas l'air enthousiaste de votre : 10
 Je suis honteux, mon cher. Toute cette force ES
@@ -323,8 +270,6 @@ Bah! c'est toujours ainsi. Si les forts ne man- Fe
 
 _ geaient pas les faibles, il n'y aurait pas de civili- NE.
 à C'est bien possible. 2 NE
-fs Il bâille. Bee,
-# F ‘ 3 T0
 F Cette grande maison vide est lugubre. Invitons
 _ les camarades à venir pendre la crémaillère. Voulez- Sas
 vous que j'aille le leur dire? BEA.
@@ -332,7 +277,6 @@ vous que j'aille le leur dire? BEA.
 C'est cela, Miles, faites ainsi. Ce sera plus convenable.
 Maréchal, madame de Witt va venir. ;
 Quelle mine vous avez, Owen!
-| OWEN
 Ah ! maréchal, elles étaient, toutes les femmes,
 debout dans la cuisine, appuyées contre les murs
 tout autour, et au milieu madame de Witt, avec la
@@ -386,12 +330,8 @@ défend de rejeter la responsabilité de mes actes. |
 verte ne vous donne que trop de raisons de me
 détester. Je m'incline devant votre douleur, avec
 
-AR PRE ME UM MERS EE AECTC PAC Nr Vie
-if ES RON RE dE MR pui MÉATE  ENC Et Len HO RER TS 5
 un ce passion profonde pour les malheurs que
 # j'ai malgré moi apportés. gb E ps
-| +7 10 DEBORA Fe) er
-ke Que me fait votre compassion ? Si c'était àrecomM4 F4 * as
 _. mencer, vous recommencerlez. 118440
 Se Oui. Depuis le commencement de la scène il regarde avec 5e
 attention le petit David. Votre enfant ? Debora fait signe que T2
@@ -409,7 +349,6 @@ Huit ans. — Et celui-ci? 008)
 
 Il est plus fort que le mien.
 Quand l'avez-vous perdu ?
-; Il y a trois semaines.
 Ici? Clifford fait signe que oui. Sa mère vit-elle encore?
 Elle est morte avec lui.
 DEBORA remue les lèvres, semble pleine de pitié, et prête ;
@@ -420,7 +359,6 @@ Elle se tait. Avez-vous d'autres fils ?
 | Deux autres plus âgés, de douze et quatorze ans.
 Où sont-ils ?
 
-y hp DEBORA TES
 - Ils se battent contre vous. + NE
 Je me battrai aussi ! n 4
 Vous avez encore du bonheur. ue
@@ -436,12 +374,9 @@ C'est pour vous que nous sommes une gêne. 22
 Et si nous vous maltraitions ? Fo
 ÿ Tant mieux! Nous vous ferons agir contre l'hu- 44
 
-Lt D cn À : et lt dE: DEN TASER bois: CEE ki PEUT ‘T 5
 N manité. Nous vous déshonorerons. Persécuteznous ! : $
-Elle sort.
 Clifford reste les yeux fixés sur la porte qui vient de se
 fermer, hausse les épaules, et soupire.
-| MILES à
 C'est convenu; ils me suivent. — Eh bien, vous
 avez vu la dame? Est-elle belle, comme on dit?
 Vous a-t-elle joué la tragédie? — Qu'est-ce que
@@ -474,7 +409,6 @@ J'ai aimé la guerre, oui, je l'ai beaucoup aimée;
 c'était un grand bonheur pour moi, quand j'étais
 plus jeune. Mais à notre époque, Miles, et à notre
 âge, un homme qui réfléchit ne peut pas ne pas
-sentir ce qu'il y a d'archaïque dans la guerre; et on |
 a honte un peu de s'y mêler.
 
 MILES qui, pendant qu'il parle, lui a pris la main et lui tâte è
@@ -512,14 +446,10 @@ _ affaire de jours. :38
 _ Je suis bien usé. Je ne m'intéresse plus à ce que er:
 
 je fais. J'ai envie parfois de partir. 7
-| MILES É 40
-Partir? Où cela ? : 5
 
 Pour l'Angleterre. 350
 
 Vous n'y pensez pas. 3
-
-| MILES Dee
 
 Ne discutons pas. Je ne vous dis pas que jele
 
@@ -621,7 +551,6 @@ Le général nous disait à l'instant qu'une conspiration.
 
 Ils peuvent faire ce qu'ils veulent maintenant. 150
 Nous sommes arrivés à temps. ; x
-LEWIS-BROWN où
 Aux mines. Ah ! il s'en est fallu de peu. Quand
 je suis arrivé aux puits de Guld-Fontein avee le |
 détachement que vous m'aviez confié, nous avons |
@@ -647,7 +576,6 @@ Miies a un petit rire ironique; et Graham réprime un
 geste violent, en regardant la porte par où Lewis est sorti.
 — Ils restent un instant ainsi, humiliés et honteux. 5
 Eh bien, ce prisonnier ?
-Le voici. ù
 Des soldats amènent un paysan, sale et déguenillé, aux
 vêtements déchirés, à l'air idiot. Lord Clifford le considère
 Richard Carnby entre, après avoir frappé.
@@ -661,7 +589,6 @@ tête, en le regardant, ricane et tremble. Qu'a-t-il? — Qui
 comprend pas ? L'homme dit des paroles inintelligibles.
 Quelle langue parle-t-il ? Ce n'est pas le hollandais.
 
-ne Fat L as:
 14 1
 C'est un patois, mêlé de cafre et de hottentot; je
 n'arrive pas à y rien démêler.
@@ -680,7 +607,6 @@ coups de crosse pour lui arracher le drapeau; mais
 il l'a mis en pièces.
 C'est clair.
 CLIFFORD, haussant les épaules
-Un stupide fanatique.
 Que vous faut-il de plus ?
 
 Ils n'ont laissé ici que les infirmes et les idiots.
@@ -700,19 +626,14 @@ Celui-là est normal. Bon pour ce que vous en voulez
 C'est ridicule. Ce sont les condamnations de ce
 genre qui alimentent le fanatisme.
 
-COR à agi MARNE NE LA PE PS RE IS MST ' UE DPASES Des TA
 Tant mieux! Je préfère un franc incendieäun
 _ feu qui couve. BR
-Ë « CLIFFORD ou
 __ Belle politique, et humaine! EU
-| : GRAHAM “ER
 _ La meilleure politique, et la façon la plus LA
 humaine de faire la guerre est de la faire impi- K:
 toyable : on en finit plus vite. É
 C'est votre avis? « 4
 C'est mon avis. Lo
-us Les autres approuvent. : TR
-> # CLIFFORD 20
 _ Soit. — Fusillez-le. Ke.
 RUE: Les soldats emmènent le prisonnier. Celui-ci, qui n'a cessé _ ce Ÿ
 4 de suivre des yeux les gestes et les mouvements des lèvres pue
@@ -724,10 +645,8 @@ qui le prennent par le bras pour le faire sortir. Il semble 18
 k I ne résiste pas, il ne parle pas, il profère quelques Qu:
 a = sons inarticulés; il tremble et ne quitte pas des yeux “ rs
 É Clifford jusqu'à ce que la porte se referme sur lui. LT
-ne RICHARD CARNBY (68
 __ Damnée brute! Rien à en tirer. — Avez-vous | x
 _ remarqué que les moutons aussi, quand on va leur Dot
-x de. AVI
 
 couper la gorge, tremblent, comme s'ils se doutaient
 de la chose ?
@@ -796,7 +715,6 @@ nos intentions humanitaires ?
 _ Cela me paraît légitime. ne -
 C'est politique. RU. #
 Et c'est la vérité même. 18
-RICHARD CARNBY, faisant la grimace Mer a
 | Pour moi, je n'en suis pas. 102
 Maréchal, qu'en pensez-vous ? “4
 Allez, messieurs, allez. Je serai curieux de voir Se:
@@ -808,7 +726,6 @@ Je sais, j'ai déjà écrit cela vingt fois. — « … que $1% “
 nous sommes venus défendre les droits de l'huma- ï É
 _ nilé et la justice violés. » x
 
-# RE TN Ha :
 ; Parfait. 11 parcourt la proclamation. La suite est excellente. « … garantissons la sûreté et l'immunité
 de toute vexation.…. respectons toute propriété
 Attention! « Autant que cela est compatible
@@ -822,7 +739,6 @@ Cet article vise les destructions de chemins de
 fer, de télégraphes, tout ce qui est de nature à |
 entraver le service public, et la marche des troupes.
 
-MAN Le à MILES, de même : ER
 _ Il ne s'agit que de s'entendre. Enfin nous leur 5 TR
  défendons de se défendre. 51e
 Sans doute. Et c'est ici qu'il s'agit de leur inspirer ‘24
@@ -830,14 +746,12 @@ _ une crainte salutaire. Ê
 « Si toutefois des dommages malveillants sont 4
 causés à la propriété, les coupables immédiats de ‘4
 ces actes, et tout individu y impliqué... » “4
-| LEWIS-BROWN à
 _” « … directement ou indirectement... » "
 __« .… directement ou indirectement, seront pas- +5
 _ sibles des peines les plus sévères, dans leurs per- 54
 |  sonnes et dans leurs biens. » tn
 F Ceci n'atteint que ceux qui peuvent être convain- ge
 _ cus de complicité plus ou moins directe dans ces
-| ft
 actes de vandalisme. IL est quelquefois difficile %
 _ d'établir cette complicité. En réalité, les popula- 4
 4 tions entières sont complices; elles savent, et "4
@@ -850,7 +764,6 @@ etc., mais encore toutes les personnes, munies
 d'autorité ou non, qui auront permis. »
 « ou qui n'auront pas fait leur possible pour
 prévenir ces dommages malveillants. »
-« seront passibles de la confiscation ou de la
 destruction de tous leurs biens. »
 Il faudrait être armé aussi contre cette population
 de femmes, qui reste dans les villes pour nous
@@ -859,7 +772,6 @@ Attention, messieurs, attention! Ici il faut de la
 délicatesse; de la délicatesse, je vous en supplie!
 Dès qu'il s'agit de femmes, on risque de mettre …
 contre soi toute l'opinion publique.
-| RICHARD CARNBY
 Des femmes, allons donc ! Des femelles.
 
 LEWIS-BROWN, avec dignité À
@@ -960,16 +872,13 @@ sous la surveillance militaire, jusqu'à la fin des |
 d'Afrique, ce 31 mai.
 Lewis-Brown et les officiers se regardent et regardent lord
 Clifford avec stupéfaction, mais ils ne répliquent pas. |
-| MILES à
 
 Il passe d'un extrême à l'autre.
 
 Et c'est lui qui soutient d'ordinaire les mesures
-de douceur ! 1}
 
 Au fond, il est plus impitoyable que qui que ce
 
-# M
 < Il exagère, mais j'aime mieux cela.
 RICHARD CARNBY, allant à Clifford et lui serrant la main
 > Voilà un viril langage. A la bonne heure ! Il
@@ -1014,14 +923,12 @@ Voici le commandant et Mrs. Simpson. 52
 Bien. Laissons les affaires. En voilà assez pour À È
 _ aujourd'hui. Je suis fatigué. _ 21: PANNES
 à Entrent Simpson et Mrs. Simpson. £ 4
-#
 Ah ! maréchal, nous sommes confus de noire RER « A
 _ retard. Il y avait si longtemps que l'on n'avait 5H
 _ trouvé une installation confortable. — Ah! que % À
 _ c'est ravissant ici ! - 257280
 _ Faites le thé. ‘A1
 
-|
 Laissez, je vous prie, je le préparerai moi-même.
 Eh bien, mrs. Simpson, comment trouvez-vous
 le pays ?
@@ -1038,19 +945,15 @@ Et les gens du pays, corament les trouvez-vous ?
 Oh ! ils sont si gentils!
 Vos hôtes vous ont bien accueillis ?
 
-| Admirablement. EPL
 Qu'est-ce qu'ils vous ont dit ? à 150
 
-| MRS. SIMPSON BR
 Oh! ils n'ont rien dit; ils ne sont pas très eau
 seurs. Mais ils se sont retirés dès que nous sommes D.
 arrivés, pour ne pas nous gêner. Ils sont très
-| MILES LA
 Et dans la rue, avez-vous rencontré quelqu'un? 41
 
 | Oui. Ils ont l'air, tous, de si bonnes gens; ils :%Æ
 _ semblent contents de nous voir. 4 |
-| MILES ÿ 10
 
 Vous leur avez parlé ? TS
 
@@ -1062,11 +965,8 @@ tait que je fisse son portrait. Mais elle ne m'a pas 74
 comprise. Elle est rentrée, et elle a fermé la porte. LR
 Ils sont un peu sauvages. Je les aime beaucoup. TR
 
-HAN MO AE TER A a Le dE ere du oi
-
 Et miss Simpson, est-ce que nous n'aurons pas
 
-à le plaisir de la voir ? M
 Oh! à peine arrivée, elle est allée à l'hôpital.
 Elle aime tant à soigner ces pauvres gens ! C'estsa
 passion. Je crois qu'elle voudrait que nous fussions
@@ -1090,7 +990,6 @@ comme un frère. Le meilleur des ressources de
 x l'armée est absorbé par eux. Ils ont le meilleur
 É lait, de bons lits, des abris confortables, et les
 2 caresses des dames par dessus le marché. Cest
-De se moquer du monde. 15 de
 
 Autrefois, on était logique : on exterminait tout. FAT
 Vous protestez? Faites-vous la guerre, ou non? ‘4
@@ -1109,7 +1008,6 @@ taux et d'ambulances. On brise l'élan de la guerre; 4
 _ et ce n'est même pas un service que vous rendez à ; 3
 ces malheureux : un homme estropié n'est plus un
 homme; mieux vaudrait pour lui être mort. 4
-| MRS. SIMPSON ' fa
 Ah! quel vilain paradoxeur vous faites toujours ! ir
 Tenez, buvez, pour vous empêcher de parler. ‘2
 La porte s'est entr'ouverte. Le petit David a paru sur le seuil, : F.
@@ -1136,14 +1034,12 @@ qui était David ? L'enfant fait signe que oui. Oui ? — C'est
 bien, vous êtes un joli enfant. — Dites un peu qui
 était David. Non ? vous ne voulez pas ? — Je pense
 que vous ne savez pas qui était David. |
-Si, je sais. ,
 Récitez alors.
 « .… David dit au Philistin : Tu viens à moi
 avec l'épée, la lance et le bouclier ; mais moi, je à
 viens à toi au nom du Seigneur des armées, du Dieu
 des troupes d'Israël, auxquelles tu as insulté |
 aujourd'hui. Le Seigneur te livrera entre mes
-mains, je te tuerai, et je te couperai la tête, et je
 donnerai aujourd'hui les corps morts des Philistins
 aux oiseaux du ciel et aux bêtes de la terre ; afin que
 toute la terre sache qu'il y a un Dieu dans Israël. »
@@ -1156,14 +1052,12 @@ son, toujours béate, crie : « Bravo! » et applaudit; mais Le
 elle s'aperçoit du silence des autres, se tait, comprend Ë
 vaguement, mais ne veut pas comprendre. Fr
 
-# à ds + . CLIFF: ‘ORD : LS ÉE TR “
 qui L'enfant s'en va à reculons, puis se sauve. Le $ r:
 nn Il est charmant, ce petit. Elle ne trouve pas d'écho.
 ven Détournant la conversation. Oh! je me réjouis d'êtrevenue
 Pa ici. Nous allons faire tant de bien ! :
 me Nous en faisons déjà. MS
 TE Nous avons tant de choses à leur apprendre!
-# LAWRENCE :50
 8 Ce n'est pas le choix qui manque. Ils sont ignopor rants en diable. . 30 SRR
 _ Tant mieux. C'est délicieux d'apporter à de »
 pauvres peuples arriérés la culture, la morale, la
@@ -1179,12 +1073,9 @@ _ voir comme ils traitent les pauvres nègres? Les 4
 Fe officiers semblent faire des réserves sur la justesse de cette 4 "1
 | critique. N'êtes-vous pas de mon avis? Sir Lewis. ms ë
 Sans doute, sans doute. C'est pour cela que nous
-| sommes venus. ee
 Apprenez-leur d'abord la propreté; ils en ont F3
 _ bien besoin. d 3500
-Nous surtout. “488
 Et le confort. 2
-| 1RS oN #7
 
 Et la beauté! — Nous ferons des écoles. Nous 2 Vo
 _ répandrons partout à flots la lumière. Oh! je suis
@@ -1229,16 +1120,10 @@ sent de rares z
 | des sentinelles
 troupe de prisonz
 marcher plus vite
-: Au camp de E f
 
-Ur ve FR dns LAS Ne Lu ST EP da LÉ
 LAN Quoi donc ? 1 2 NSP RES
-400 MRS. SIMPSON, offrant le thé NATTESSS
 Une autre tasse, maréchal? 11:10
-Fo ie 2 Il se lève, et va à la fenêtre. E 54 DE
 MA la patrie ! D
-“AE A la conquête de la terre! LEGS
-‘nr 4 CLIFFORD, à par {LR
 FES La terre — six pieds de terre. SEE
 
 1 Aux avant-postes. — Au loin, l'immense plaine sablonneuse, parsemée d'arbustes rabougris, qui se gonfle et se
@@ -1287,47 +1172,32 @@ femme, et lui met dans la main le pain qu'il mangeaïit.
 S'il vous plaît, voulez-vous prendre, madame.
 LA FEMME, jetant haineusement par terre le morceau de pain
 Je ne veux pas de ton pain!
-UN SOLDAT, à Alan
 Es-tu fou ? Donner ton pain à ces gueuses!
 Ce n'est pas défendu. S'il n'a pas faim?
-S'il n'a pas d'appétit, qu'il me le donne, je le
 _ mangerai. Faut être imbécile pour donner son pain
 à l'ennemi, au lieu de penser aux camarades. On se
 serre assez le ventre déjà. La moitié de la mangeaille s'en va aux prisonniers. Bon Dieu ! si c'était
 moi, je me chargerais de les nourrir!
 4 J'ai pensé, en la voyant, à ma pauvre vieille
-| Gr
 
-|
-|
 Î maman. Elle n'a peut-être pas non plus de quoi
 Î Comme elles sont enragées contre nous !
-|
-|
 ; Je ne lui faisais pourtant pas de mal.
 | LE SOLDAT, qui a ramassé le pain
 | Tu ne le manges pas ?
 È Il l'essuie et le mange voracement,
 ! Lawrence et Clodds sont venus regarder, du sommet du Kopje.
-| LAWRENCE
-| :
 : Ils sont hors d'eux. Tout le pays est soulevé,
 depuis les proclamations.
 CLODDS, montrant le camp, en bas |
-1 Ils s'apaiseront là-dedans.
 : Quel silence ! que font-ils ? f
 Î Ils prient, ils dorment, ils meurent. |
-|
 
-| LA WRENCE
-Ils meurent beaucoup ?
-| CLODDS
 Hum ! — La nourriture est insuflisante, l'hygiène
 déplorable, les abris rudimentaires ; la pluie glacée
 ruisselle, et s'amasse dans ce creux. Comment ne
 serait-ce pas un nid d'épidémies ?
 N'avait-on pas pensé à tout cela ?
-|
 Ce devait être provisoire. Les prisonniers ne
 | devaient rester ici qu'un jour ou deux, avant d'être
 | transportés dans une ville plus éloignée du centre
@@ -1337,8 +1207,6 @@ routes ne sont pas sûres ; elles sont battues par la
 cavalerie ennemie. Il faut attendre.
 On pouvait les laisser quelques jours encore
 dans leurs maisons.
-
-|
 
 : maman. Elle n'a peut-être pas non plus de quoi
 Comme elles sont enragées contre nous! .
@@ -1350,11 +1218,9 @@ Lawrence et Clodds sont venus regarder, du sommet du kopje.
 Ils sont hors d'eux. Tout le pays est soulevé,
 depuis les proclamations. :
 CLODDS, montrant le camp, en bas
-Ils s'apaiseront là-dedans.
 Quel silence ! que font-ils ?
 Ils prient, ils dorment, ils meurent.
 
-Ils meurent beaucoup ?
 Hum ! — La nourriture est insuflisante, l'hygiène
 déplorable, les abris rudimentaires ; la pluie glacée
 ruisselle, et s'amasse dans ce creux. Comment ne
@@ -1369,8 +1235,6 @@ routes ne sont pas sûres ; elles sont battues par la
 cavalerie ennemie. Il faut attendre.
 On pouvait les laisser quelques jours encore
 dans leurs maisons.
-
-|
 
 Dès qu'on a le dos tourné, ils communiquent
 avec l'ennemi.
@@ -1426,7 +1290,6 @@ violer les femmes.
 Ma foi, pour une prochaine guerre, on pourra
 organiser un régiment de poètes. Il n'y a plus
 qu'eux aujourd'hui pour renouveler les exploits
-| RICHARD CARNBY |
 Je viens de passer deux heures dans le camp. On
 dirait l'Enfer de Dante. Voyez donc. Avec Flag, nous
 avons pris quelques instantanés.
@@ -1457,7 +1320,6 @@ Qui sera nommé à sa place ?
 Je ne sais. — Ah! si l'on pouvait se battre enfin !
 s Patience, jeunes gens. Vous serez bientôt satisfaits.
 
-Du nouveau, colonel ? ;
 SIMPSON, de même
 Le maréchal leur prépare un plat de sa façon, un
 Peut-on savoir ?
@@ -1507,7 +1369,6 @@ Tout pour eux.
 Le pire est l'entassement de cette multitude.
 Toujours l'application absurdement outrée des
 ordres que je donne. — Qui a fait amener ce nouveau convoi de femmes et d'enfants ?
-Le général Graham.
 CLIFFORD, fait un geste de colère, qu'il réprime
 J'ai dit de n'enfermer que ceux qui ont ouvertement agi contre nous. é
 Tous nous sont hostiles. Ils ne se cachent même
@@ -1518,13 +1379,10 @@ m'importe ? Une nouvelle troupe de prisonniers passe sur la
 scène. D'autres encore. I1 hausse les épaules, et regarde les
 prisonniers qui le dévisagent insolemment. Ceux-ci ne sont
 
-Li STE EE A RM SL LA eat en LE SE ee en à Le
 pas du pays. A un jeune homme, très brun, à la figure fine,
 __ imberb e, aux yeux intelligents et ardents. Qui êtes-vous? +4 :
 4 Italien. De la légion de Ricciotti. 6)
 _ Que venez-vous faire ici? Que ne restez-vous 1588
-fe LE PRISONNIER, impertinent SES
-# 4 Re : 1
 De quoi vous mélez-vous? L'Italie n'est pas enpor de l'Angleterre. : 3
 __ Tout ce qui est injuste est mon ennemi. 30
 __ Vous avez assez à faire chez vous. .°E
@@ -1532,9 +1390,7 @@ _ J'ai combattu aussi chez moi. Proscrit par mon 20
 _ pays, je le sers en défendant pour lui les opprimés.
 _ Ma patrie est partout où la liberté est violée. “4
 _ D'où êtes-vous ? 4 1
-u ne ; LS ‘tal
 
-Sicilien. De Caltanisetta.
 \ Je connais votre pays. — J'étais là, il y a bien
 des années, avec votre Garibaldi.
 Vous”? — Vous étiez des nôtres? — Et maintenant!
@@ -1558,7 +1414,6 @@ ne reconnaissez aucune loi. Vous ne vous embarrassez pas de savoir les conséque
 ni si vos équipées sont de quelque utilité à la
 cause que vous servez. J'ai été comme vous jadis.
 Vous serez un jour comme moi.
-Jamais!
 Le temps égalise tout. Le temps plie, use, efface
 tout. — Donnez-moi votre parole que vous ne vous
 échapperez pas. Vous êtes libre.
@@ -1583,7 +1438,6 @@ Je viens demander ma place parmi mon peuple ;
 é je demande à être enfermée dans le camp, avec les
 Je n'ai aucune raison d'accéder à votre désir.
 
-| DEBORA
 J'ai droit à être traitée comme les autres.
 A Dieu ne plaise! Je suis votre hôte. Je vous
 protégerai, autant qu'il me sera possible, des
@@ -1596,7 +1450,6 @@ demandez. Êtes-vous désireuse d'exposer la vie de
 votre enfant?
 Vous avouez donc que vous avez envoyé ces
 _ innocents à une mort certaine?
-| CLIFFORD
 Je n'ai pas à vous expliquer ma conduite. Faveur
 ou défaveur, je veux, cela suffit. La volonté du
 _ vainqueur est la Loi du vaincu.
@@ -1620,9 +1473,7 @@ Ils ont souffert aussi. 1
 Il ne s'agit pas de ce que souffrent les autres. Il x
 É. s'agit de ce que nous souffrons. La
 _ Tout vient de Dieu. Inclinez-vous. pe
-de: DEBORA he
 C'est en Dieu que j'espère, c'est lui qui nous à
-| vengera. A
 2 Me C'est lui qui vous a frappés. :
 Jamais! Dieu est avec nous. SRE
 Eure CLIFFORD ne Ë
@@ -1635,7 +1486,6 @@ sous la roue d'un chariot. (M
 
 Et si votre foi se trompe? Si Dieu vous a abandonnés ?
 Cela ne se peut. Il n'y aurait pas de Dieu. |
-Qui sait?
 
 Alors, il resterait nous. Bombardez nos villes,
 ravagez notre terre, exterminez, si Vous pouvez,
@@ -1664,10 +1514,8 @@ _ embrasse un malheureux. : fs
 ‘hi DEBORA, après un silence, d'une voix plus basse : 5
 k. _ De quoi votre enfant est-il mort? nu
 _ De la diphtérie. es
-L 2e DEBORA hé
 _ Votre femme aussi ? Clifford fait signe que oui. Elle est
 _ morte avant lui? x
-VIE F fe
 _ Elle a vécu après. p TES ENS
 _ Pauvre femme! Clifford embrasse l'enfant. Monsieur, Re
 _ vous avez connu la souffrance; comment pouvez- ur
@@ -1697,7 +1545,6 @@ que Dieu. Vous ne connaissez pas ces fourmilières »
 
 #0) am aines, ces grands États d'Europe, où l'homme Re. Ë
 _ disparaît au milieu des hommes. Au dessus des lois À
-| de l'individu, il y a les lois de la nation ; et c'est en de
 | vain qu'il tenterait de résister. Il serait broyé, et k
 
 _ d'autres assumeraient sa tâche. Si je n'étais point À
@@ -1747,14 +1594,10 @@ pu: F Clifford, assis, muet, fait signe à Clodds. A
 ne. Prenez garde : il vaudrait mieux pour vous queje
 __ fusse prisonnière dans ce camp. Enfermez-moi! 4
 1° Clifford regarde d'un autre côté. Des soldats s'approchent :%
-34 de Debora. *ÿ
-Rs A la volonté de Dieu! :
 110408 On l''emmèéne avec l'enfant. 3
-Mur: L Un silence. 1
 * 24 LEWIS-BROWN, arrivant tout affairé Ur
 …__  Oùest le maréchal? IL faut que je lui parle. —
 À Ah! 1 voit Clifford et va à lui. Maréchal... Fe
-À as CLIFFORD, se levant brusquement et regardant , - : d P
 sa à Lewis-Brown avec une froide colère 7
 k _ Ah! vous voilà, vous ! Qu'est-ce que vous 2
 
@@ -1768,7 +1611,6 @@ CLIFFORD, les lèvres serrées
 Je ne donnerai aucun ordre.
 Je pense que vous ne m'avez pas bien compris.
 Je pense que vous, vous m'avez compris. Je ne
-Mais pourquoi ?
 Parce que mes soldats sont harassés, et que je
 réserve leurs forces pour d'autres tâches.
 .
@@ -1795,22 +1637,14 @@ terre engraissée de notre sang. Que la terre et l'or
 
 : j Vous tolérerez. Ce qui est dit, est dit.
 
-| LEWIS-BROWN
-
 4 Mais c'est la ruine !... Considérez, je vous prie, .…
 ÿ froidement.,.… ne vous fàchez pas. Les mines
 4 inondées.. Si l'on n'agit de suite, il faudra une
 \ année avant de pouvoir reprendre les travaux...
 $ Comment voulez-vous que je fasse ?
 
-Que m'importe ?
-
-| LEWIS-BROWN
-
 Cela n'est pas admissible! Vous oubliez que les
 intérêts de la Compagnie que je représente ne
-
-| je
 
 sont pas distincts de ceux du gouvernement... L'or
 aussi est une partie de la grandeur du pays... C'est
@@ -1882,15 +1716,12 @@ on ne croit pas. Mais cela, c'est trop.
 Qu'y a-til donc, mon ami ?
 Rien. C'est quelque chose qui s'est passé tout à
 l'heure.
-| MILES
 Tout à l'heure? — Est-ce que ce serait? —
 Voyons, — j'en avais eu le soupçon l'autre jour ; je
 
 F ne pensais pourtant pas... Est-ce que cette femme
 Ë vous aurait tourné la tête ?
-| CLIFFORD
 Quelle femme ?
-| MILES :
 Belle question. Celle qui était là.
 | CLIFFORD, après avoir cherché un instant -
 ( Vous êtes stupide, Miles. — Non, non, c'est fini
@@ -1907,7 +1738,6 @@ Oui, oui, ce sont leurs façons. Les paroles d'une
 | femme ne veulent rien dire. Croyez-moi, je m'y
 connais. Je l'ai bien regardée. Elle met trop de pas-
 | sion à sa haine.
-ou
 
 Tant pis pour elle. Et que m'importe? — Non,
 j'ai pitié d'elle, voilà tout, j'ai pitié d'elle; et ce
@@ -1918,11 +1748,9 @@ Ce petit qu'elle traîne partout avec elle ?
 Avez-vous remarqué ?.… k
 4 Remarqué quoi ?
 | En voilà assez ! Je ne puis le supporter.
-| MILES
 | Quoi ? cet enfant ? Je ne comprends pas.
 Tout le reste, voyez-vous, tout le reste, mais pas
 cela ! — Assez là-dessus. J'ai trop lutté contre moimême. Je m'arréte-enfin.
-| ë
 
 C'est-à-dire que vous voulez?
 Me démettre du commandement, oui.
@@ -1931,12 +1759,9 @@ Attendre, toujours attendre. De jour en jour, je
 d suis entraîné par ce mot. J'ai passé ma vie à
 | remettre au lendemain, pour vivre.
 \ Nous sommes à la veille du dénouement.
-| CLIFFORD
 Non, je vois mieux que vous combien cette guerre
 .  exigera encore de souffrances et de sang. Et quand
-|
 - ce serait la fin, j'en cède l'honneur à d'autres.
-#
 | H faut que vous soyez bien hors de votre état
 | normal, pour ne pas aller jusqu'au bout du chemin, j
 où vous avez accepté d'entrer.
@@ -1950,7 +1775,6 @@ Lui ou un autre. L'Angleterre ne manque pas de
 ; En attendant son choix, c'est lui qui achèvera
 votre œuvre.
 Qu'il ait donc la triste gloire d'y attacher son
-UN AIDE DE CAMP, apportant un message
 Je les tiens ! — Simpson ! Lawrence ! — Eh bien,
 je l'avais parié. Ils s'enferrent d'eux-mêmes.
 Qu''avez-vous encore inventé ?
@@ -1960,16 +1784,13 @@ vaincre, de chercher à imposer ses plans à l'ennemi.
 Il faut feindre d'entrer dans les siens, lui servir
 | 9
 
-| 4 RES TOR En ; ITR } À ” 1
 l'appât dont il use avec vous, et retourner ses
 propres armes contre lui. Eh! docteur, il est bon
 parfois, quoi que vous en disiez, d'avoir la manie
 de chercher à lire dans l'esprit d'autrui.
 
 Il écrit sur son genou des ordres qu'il donne à Lawrence. é
-L'ennemi vient.
 CLIFFORD, très froid
-Je sais.
 Il a fait brusquement volte-face, et marche sur la
 division de Harcourt. Je pensais bien que c'était là le
 Ë point faible, et qu'il était dangereux de le dégarnir,
@@ -1982,12 +1803,9 @@ Qu'ils passent.
 
 Il faut qu'ils aient des espions partout. Qui a pu
 les prévenir aussi vite que la route était libre ?
-Moi.
 ; Vous ? — Ah ! c'est différent.
 Ils veulent forcer le passage. A leur aise. Je le
 veux aussi. — Qu'ils y entrent. Mais ils y resteront.
-Leur retraite.
-| CLIFFORD
 est coupée. Je savais qu'ils seraient ici cette
 nuit. La cavalerie de Harcourt, après une feinte
 poursuite, a l'ordre de se replier derrière eux à
@@ -1999,30 +1817,24 @@ nous n'avons qu'à attendre, à l'affût. Le gibier vient
 de lui-même.
 Hurrah ! — Ils n'en réchapperont pas cette fois.
 
-” RS Fate à po 3 PAS 4 de ( + É RATE Fe hi
 Le président, dit-on, est avec eux. PE RES
 
 EG C'est le coup de grâce pour ce misérable petit ‘4
-Ils ne se rendront jamais. ; D
 C'est l'extermination. 140
 HS ; GRAHAM, dépité ta
 
 _ Je vois avec plaisir que vous savez, quand il faut, x 7
 _ user des grands moyens. — Mes compliments. #5
 
-“4 ° Il frissonne. ++ fs
 1 4
 _ Vous claquez des dents. Prenez un manteau
 _ La pluie est glacée. Ce maudit pays souflle la
 à Vous semblez souffrant. Ne craignez-vous pas À
 D prever votre mal ? 1 ni
 
-| CLIFFORD
 Je vais bien, monsieur, je vais bien. — Allons!
-Ils sortent.
 MILES, les sæivant
 Donner sa démission ? — Serment d'ivrogne ou
-de chasseur. Qui a bu boira. Qui a tué tuera. On
 plaint le gibier ; mais il ne s'en porte pas mieux.
 Les soldats du poste restent seuls. La nuit vient. Owen et
 Alan sont assis près d'un feu. — Un silence.
@@ -2033,7 +1845,6 @@ Pourvu seulement que ce soit vite fini! Puisqu'il
 faut les tuer, qu'on se dépêche.
 Bien sûr. Quand on tue une bête, il ne faut pas la
 faire souffrir.
-Un silence.
 Comme le maréchal était irrité!
 
 Depuis que nous avons perdu madame et le petit
@@ -2061,7 +1872,6 @@ Peut-être bien. Mais je ne sais pas pourquoi.
 Moi non plus. Mais je sens ça.
 Comme tout est difficile à comprendre, tout !
 Il montre machinalement le ciel et la plaine.
-Un silence.
 Il ne faut pas laisser éteindre le feu. n1 remue le
 brasier. On est trempé par la pluie, tout le jour. Et
 quand le soleil vient de se coucher, il vous tombe
@@ -2071,19 +1881,14 @@ Des feux comme chez nous. Ils se faisaient signe,
 de montagne en montagne.
 
 Etles cornemuses se répondaient dans la nuit.
-# PL TRES ox 3:23 . t ù È TR ERREURS
 __ Etles cloches des vaches, tu te rappelles, Owen? +4
 1 _ On croyait les entendre passer autour de soi.
 _ Elles sortaient des lacs et des herbes de la prairie. V3
 Les lacs ! Les étoiles fourmillaient dedans.
 e C'était comme des poissons. MR:
 ‘4 Comme on est loin, Alan ! — Et pourquoi eston
-‘PE UN SOUS-OFFICIER, appelant Re
 14e Alan! Alan se lève sans répondre, +0
-pe OWEN CES
 C'est mon tour de faction. ME,
-
-Le Qpn
 
 Allons! — Heureusement, voilà la pluie quia
 Je ne sais pas ce que j'ai. Je suis triste.
@@ -2096,7 +1901,6 @@ chauffent, mangent et fument.
 Je suis glacé jusqu'aux os. — Chien de temps!
 — Regarde-moi ça. 11 montre ses souliers. Des semelles
 trouées. Plus rien ne tient.
-— Et le soir, pour se refaire, voilà ce qu'on a à
 | manger ! Juste de quoi ne pas crever!
 | — Et après, on ira se coucher dans la boue et
 ; dans l'eau!
@@ -2107,8 +1911,6 @@ Si vous aviez pris l'habitude, comme moi, depuis
 votre enfance de faire votre lit dans la boue de
 Londres, vous trouveriez que celle d'ici sent bon. L
 On n'a pas assez à manger? On a tout de même k
-quelque chose. On peut se chauffer ; et on n'a à se
-préoccuper de rien. On n'a à penser à rien. Je ne
 trouve pas ça si malheureux. Qu'il fasse beau ou
 mauvais, qu'on fasse ceci ou cela, je m'en fiche. Au
 bout du compte, on est toujours des héros.
@@ -2130,7 +1932,6 @@ leur casser les reins, de leur piler la cervelle.
 — Peuh! je ne les hais pas tant que ça, moi.
 4 103
 
-— Oui, je te connais, tu n'en épargneras pas un.
 — Bien sûr. Mais c'est sans rancune.
 | — Oui, comme la cuisinière qui ne haït pas le
 poulet, mais qui lui tord le cou.
@@ -2156,7 +1957,6 @@ vivante, parce qu'elle ne voulait pas lui livrer un
 — Allons donc!
 
 . — C'est le révérend Alsopp qui l'a dit. (1)
-— Ah ! le scélérat ! si je le tenais!
 — Ouat! Il a filé, le drôle, avec tout son magot.
 — Moi, ce qui me révolte le plus, c'est leur hypo-
 
@@ -2167,7 +1967,6 @@ d'une main, et leur mauser de l'autre.
 — J'ai perdu mon Nouveau Testament! .
 — Je te prêterai le mien.
 — Non, c'est le mien que je veux.
-— Tu n'as qua en demander un autre à
 
 Mrs. Simpson. Ils en ont des paquets.
 — C'est crânement beau, ces histoires.
@@ -2198,7 +1997,6 @@ monde.
 — Tout de même, il peut ne pas bien comprendre.
 Il faudrait lui expliquer.
 
-EBENEzZZER. — On se tue à leur expliquer. Ils
 font exprès de ne pas comprendre. Ils sont entêtés
 comme des bourriques. — Et puis, il ne faut pas
 tant d'explications. L'Angleterre a droit à l'empire
@@ -2208,7 +2006,6 @@ bien qu'il faudra en venir à tout prendre, pour la
 gloire de Dieu, et parce que les plus forts doivent
 commander aux plus faibles : c'est la morale.
 
-Un grand silence.
 Ux SOLDAT, à mi-voix, montrant l'espace autour d'eux. —
 Comme c'est grand, tout ça! On est perdu.
 Les plus forts, camarade? Qui est le plus fort?
@@ -2228,19 +2025,15 @@ Il est blessé aussi. Je l'ai vu tomber.
 ; Quelques soldats retournent sur leurs pas, et reviennent
 avec le jeune prisonnier italien, blessé.
 — Il vit encore.
-| EBENEZZER
 4 Il veut l'assommer d'un coup de crosse.
-| E L
 | Il arrête le bras d'Ebenezzer. — On met les deux blessés
 près du feu. É
-LE JEUNE ITALIEN, insolent
 
 | Un peu de patience, donc. Je m'en vas. Le temps
 
 _ de prendre congé. Je ne file pas à l'anglaise, moi.
 
 — C'est ce petit Italien qui causait avec le
-— Il voulait s'évader. .
 Les soldats ne s'occupent que d'Alan.
 | Tu vois, tu vois, je le pressentais! Ah! mon Dieu!
 Où est-il blessé ?
@@ -2253,7 +2046,6 @@ Non, pas à l'hôpital ! ne m'abandonnez pas!
 Oui, tu resteras. Ne t'agite pas. Ce n'est rien.
 Non, je sens bien que c'est fini.
 
-Mais non. .
 ALAN, pleure. — Après un moment
 Moi aussi. Attends-moi, nous ferons route ensemble.
 Où est-il blessé ?
@@ -2264,13 +2056,11 @@ de chance! Enfin, c'est fini. — Je m'en moque.
 Quand le destin nous persécute, il faut rire de lui ;
 cela le vexe. On a beau être vaincu, on lui est
 supérieur. Alan gémit. Tu as mal?
-Oui. — Et toi ?
 Pourquoi est-ce que tu m'as tué ?
 
 Tu es bon, toi. Pourquoi as-tu tiré d'abord ? Je
 n'ai fait que me défendre. Je voulais me sauver.
 Est-ce que tu ne pouvais pas me laisser vivre ?
-| ALAN
 Je ne sais pas pourquoi je l'ai fait. Il m'ont
 obligé! — J'ai froid ! — Owen, où est Le pays?
 Mets-moi la figure du côté où il est. — Ah ! ce ciel,
@@ -2290,7 +2080,6 @@ et de sœurs, des petits et des grands; ça court, Dieu
 
 _ sait où. Ce n'était pas facile de vivre. La maman
 _ nous a dit: « Mes petits, tirez-vous d'affaire, si vous
-|
 _ pouvez; vivez tant que vous pourrez : la vie estune
 . bonne chose, malgré tout. Quand vous ne pourrez
 . plus vivre, tâchez de choisir votre mort ; la mort
@@ -2306,12 +2095,9 @@ _ meilleure façon: je ne suis pas mécontent. Cela fait
 
 > 1 LES SOLDATS, prenant part peu à peu à la conversation
 ; Ça n'est pas notre faute. C'est la fatalité.
-« Des bêtises. Il n'y a pas de fatalité. Il n'y a que
 … nous. Vous êtes des enfants. Vous croyez à un
-- maître? Il n'y a pas de maître. Il n'y a rien, iln'y a
 ; rien que nous. Faisons ce que nous devons, et tout
 _ ira bien.
-|
 
 Non, le monde est mauvais, tout est mauvais.
 Si le monde est mauvais, c'est que nous le faisons
@@ -2344,10 +2130,8 @@ ministres, de généraux, de salauds, qui font tuer et
 _ damner les pauvres gens pour leur ambition et pour
 \ Ah! mon Dieu ! Est-ce que Dieu me pardonnera?
 $ Laisse donc Dieu tranquille, et pardonne-toi toik même. Ce n'est pas ta faute, va. Pauvre diable, tu
-# 113
 
 as fait pour le mieux, bien sûr, en faisant le plus
-|
 Tu souffres ? Alan ne répond pas. |
 Craigie, est-ce que tu voudrais jouer une dernière fois : « Auld lang syne. »
 Sans dire un mot, un des soldats écossais prend sa corne- |
@@ -2365,7 +2149,6 @@ Un roulement de tambour bat la retraile au loin. Les voix |
 s'arrêtent brusquement au milieu du chant; la cornemuse 1
 ; gémit sur une note, sans terminer sa phrase. |
 EBENEZZER, regardant les deux morts |
-|
 I1 veut les séparer.
 Laisse-les ensemble.
 Les soldats restent encore assis en silence, songeurs, arec
@@ -2373,14 +2156,10 @@ leur pipe allumée. — La lune brille sur la plaine. |
 Un sous-officier arrive. Ê
 
 Ils se lèvent tous passivement, sauf Owen.
-Du nouveau, sergent ?
-Il vient.
 Les soldats se préparent sans hâte, sans parole. Owen
 reste assis, réfléchit. Un camarade lui touche l'épaule.
-| OWEN
 Où allons-nous ?
 Qui sait où? Où ils veulent, ces diables. Nous
-Encore ?
 Que faire ? Il faut obéir.
 
 Les soldats se mettent à leurs rangs. Au moment de partir,
@@ -2393,14 +2172,7 @@ le poing on ne sait à qui, et crie :
 k nt iv Ils se mettent en marche. Owen s'arrête brusquement, s +0
 LR détache des rangs, revient sur ses pas, dépose tranqu RE
 ) WE qu lement son fusil, et se rassied près des deux morts, devant
-0 le feu. LEA ENS
-PAU Eh bien, toi, tu es malade ? ? Fa à #l
 PE Owen secoue la tête négativement. té
-Alors, debout! RU
-LR Je n'assassine plus. RE VS
-Re: * ni sy PR
-
-AS ON E R ite av0 T0 2E ACT é ii "NÉ RSA
 
 | La nuit. Grand clair de lune. — Dans la cour d'une ferme,
 | devant la maison de Debora. Une citerne au milieu. De grands
@@ -2467,13 +2239,11 @@ LES OFFICIERS, entre eux 1
 ; Il est comme un chat, qui joue avec une souris.
 — Quel silence ! qui croirait qu'on est si près
 d'une bataille ?
-Ils sortent.
 CLIFFORD, à lui-même -
 
 Silence. Silence. Beauté de la nuit, la pluie apaisée,
 
 les oiseaux dans les arbres... Et dans quelques minutes, la guerre va aboyer!.… À
-UN OFFICIER, s'approchant À
 Maréchal, le fusilier Owen refuse d'obéir.Il faisait
 des discours contre la guerre. On l'a arrêté. 4
 
@@ -2483,16 +2253,13 @@ Le misérable ! — Comme si ce n'était pas assez
 d'avoir à combattre ces enragés ! Il faut qu'on aït à
 fusiller ses propres soldats! — Il se permet de discuter les ordres de la patrie! C'est bien assez des
 chefs ! Si les soldats s'en mêlent ! — Amenez-le! À
-L'officier sort. 4
 On entend passer des troupes derrière le mur de la maison, à
-Le docteur arrive. 1
 CLIFFORD, un peu excité À
 Ah! vous voilà, docteur! Vous attendez votre 3
 heure, pour achever ce que nous aurons com
 
 Quand commencez-vous ?
 Vous êtes bien pressés, tous.
-| MILES
 On dirait que vous vous plaisez à prolonger l'attente.
 Je l'avoue, il y a une jouissance à sentir la destruction suspendue dans l'air, à penser qu'il suffit
 d'un signe pour la déchaïîner.
@@ -2530,9 +2297,7 @@ Je pense bien. Moi aussi. Nous avions promis. —
 - Eh bien, Miles, c'est à peu près la même chose aujourd'hui. C'est-à-dire, ce n'est pas l'ennemi que je
 crains; c'est bien pis; — enfin, — en un mot,.… prenez ceci. x
 Il lui tend un revolver.
-Quoi ?
 Vous tenez à mon honneur, n'est-ce pas ?
-Comme au mien.
 Eh bien, s'il était nécessaire pour le garder, usez
 de ceci, et ne me manquez pas.
 Mon pauvre ami, en est-ce là vraiment ?
@@ -2551,7 +2316,6 @@ ennemies. Dans mon état normal, j'eusse fait et
 exécuté mon choix, quel qu'il fût, sans permettre 4
 à ma pensée de le discuter. Maïs je suis affaibli
 d'une façon ridicule ; je me fais honte. Vous avezeu
-tort de m'empêcher de me retirer, Miles. Il y a un
 mois, je le pouvais. A présent, il est trop tard. 1
 Revenir sur ses pas, ou simplement s'arrêter, ne 1
 serait pas seulement la perte de ce pays, mais de la L
@@ -2570,7 +2334,6 @@ me promettre. Surveillez-moi ; et si ma volonté flé-
 chissait une minute, rendez-moi ce service, brûlez
 moi la cervelle. Vous m'avez compris? 4
 
-Vous promettez ? |
 MILES, après un court silence
 Ils se serrent la main.
 Nous n'en viendrons pas là.
@@ -2621,7 +2384,6 @@ I n'y a qu'à réfléchir. C'est pour comprendre ce
 qu'on fait maintenant, qu'il faudrait une autre
 
 | intelligence que la mienne. Moi, je n'y parviens
-pas. de
 Tu n'as pas besoin de comprendre. Obéis. Tes 4
 chefs sont là pour penser à ta place.
 Je sais bien que vous pensez beaucoup mieux que +
@@ -2651,7 +2413,6 @@ de ma maison. Nous sommes solidaires. Tu ne vas
 pas nous déshonorer ? On dira que tu es un lâche.
 Vous ne le direz pas, maréchal.
 Si, par Dieu.
-| OWEN
 ; Je te dis que je te tiens pour un misérable, si tu.
 Vous ne le pensez pas.
 Tète de mulet! — Tu ne vas pourtant pas
@@ -2660,10 +2421,8 @@ m'obliger à te faire fusiller, voyons, Owen, mon
 ! Ne m'en veuillez pas, milord. Je ne peux pas 4
 faire autrement. à
 Clifford frappe du pied, tourne le dos, hésite. — La fusil- à
-UN OFFICIER, accourant F
 Maréchal. ils se décident enfin. ils attaquent. 1
 Ils veulent forcer le passage. -
-Tu seras fusillé.
 Il part au galop, avec ses officiers. L À
 Owen reste avec les deux soldats qui le gardent. ;
 L'UN DES SOLDATS, après qu'ils se sont parlé tout bas, 4
@@ -2698,12 +2457,10 @@ tuer, toi aussi ? L
 Et pourquoi est-ce que je m'en priverais ? — La ;
 | seule occasion qu'on ait dans sa vie de faire cet
 amusement ! Et c'est glorieux, par dessus le
-Il sort en courant. :
 OWEN, à l'autre soldat À
 Jamie, tu es un père de famille, toi, tu n'iras
 pas, voyons ? à
 C'est pour voir seulement.
-Il se sauve. #
 
 L'odeur du sang : cela rend ivre. Deux bonnes |
 . gens pourtant. Il n'y a plus moyen de les tenir.
@@ -2725,7 +2482,6 @@ Chacun de ces coups tue un des nôtres. Dieu!
 pourquoi les as-tu laissé envelopper par l'ennemi ?
 | 133
 
-> 4 4 k pÉRE : # FU
 Ne doute pas! Il sait ce qu'il veut. Prions-le,
 obligeons-le par nos prières à nous sauver! Situ
 doutes un instant, tout est perdu. Il faut vouloir. 4
@@ -2832,7 +2588,6 @@ autour de lui, d'un air sombre et buté. |
 Au milieu des huées des officiers anglais, qui rient au nez
 des prisonniers, le maréchal paraît. Un grand silence se
 fait. Le maréchal se découvre, va au président, et luitend M
-la main. 4
 
 Monsieur, votre héroïsme a retardé, autant qu'il
 était possible, un dénouement que l'inégalité des
@@ -2853,7 +2608,6 @@ Clodds s'approche du président, qui continue à tourner le
 LE PRÉSIDENT, entre ses dents, comme s'il parlait à un autre
 Je ne le connais pas.
 ; Je suis lord George Lindsey, baron Clifford,
-généralissime de l'armée de S. M. B.
 LE PRÉSIDENT, parlant de côté, tournant à peine la tête
 Eh bien, que faites-vous ici? Allez-vous-en.
 Monsieur, il ne sert de rien de nier les faits. Vous
@@ -2910,7 +2664,6 @@ Finissons-en ! C'est trop de patience enfin. Son- ÿ
 nez la charge ! Ecrasez ces fous ! que leur sang re- |
 tombe sur eux ! Je suis vainqueur. Je suis... Coup de k
 feu. Clifford, surpris, porte la main à sa poitrine. Je suis
-mort... Il tombe.
 Pendant la conversation du maréchal avec le président, le à
 petit David, inaperçu de tous, s'est approché de la table, ?
 où le docteur a laissé le revolver que Clifford lui a donné.
@@ -2924,11 +2677,7 @@ cée d'effroi, sans pouvoir parler ni bouger. 4
 — Le maréchal est blessé ! "400
 142 -
 
-LE PRÉSIDENT, criant
-
 « L'épée du Seigneur et de Gédéon ! »
-
-LES PRISONNIERS, se découvrant, et répétant
 
 L'épée du Seigneur !
 
@@ -2945,7 +2694,6 @@ Une grande brute, le sabre levé, se jette sur lui. Un camarade lui arrête le b
 
 4 DEBORA, se jetant devant l'enfant, qui est resté comme pétrifié
 Vous ne le toucherez pas!
-. LES OFFICIERS, hors d'eux
 Le voilà, l'assassin! C'est elle qui l'a poussé au
 meurtre ! Laisse-moi! II n'y a plus ni femmes, ni
 enfants. Il faut tuer la bête et ses petits.
@@ -2959,7 +2707,6 @@ Les officiers reculent, frémissants. Le tumulte se change en À
 Û un murmure violent. — Debora, raïidie et crispée comme 4
 une bête qui défend son petit, se détend brusquement, et
 regarde l'enfant avec effroi. 4
-Qu'as-tu fait! 3
 DAVID, épouvanté, regardant ses mains 4
 Je ne sais pas. 4
 Ah! infâme, c'est vous, avec vos provocations,

@@ -12,29 +12,13 @@ wordCount: 47033
 Troisième cahier de la onzième série. Cahiers de la Quinzaine, Paris.
 RESUME FROM: leaf 0345 (p.122 — Chapter VII). Through leaf 0344 (p.121, end of Chapter VI *Les Arbres et le Ciel*) complete as of 2026-05-24. Range ends at leaf 0444; remaining 100 leaves. Book division: Livre Deuxième *Entrez dans la danse !* begins at leaf 0328.
 
-[leaf 0218]
-
-[leaf 0219]
-
-[leaf 0220]
-
-[leaf 0221]
-
-[leaf 0222]
-
                     l'homme en proie aux enfants
 
                   périodique paraissant tous les deux dimanches
                   8, rue de la Sorbonne, au rez-de-chaussée
 
-[leaf 0223]
-
-[leaf 0224]
                     l'homme en proie aux enfants
 
-[leaf 0225]
-
-[leaf 0226]
        ... L'Apôtre fait un dénombrement de tous
        les dons gratuits du Saint-Esprit, et dit qu'ils
        sont divisés dans les fidèles, et que nul ne
@@ -44,20 +28,9 @@ RESUME FROM: leaf 0345 (p.122 — Chapter VII). Through leaf 0344 (p.121, end of
        saint Grégoire dit du ministère pastoral, que
        c'est une tempête de l'esprit...
 
-[leaf 0227]
-
-[leaf 0228]
        mes élèves à l'école primaire supérieure de Vosves,
                 et à Jeanne,
        je dédie ce livre, qui leur appartient plus qu'à moi.
-
-[leaf 0229]
-
-[leaf 0230]
-
-[leaf 0231]
-
-[leaf 0232]
 
   Jeanne et moi nous étions songeant au pied du frêne.
 Le vent soufflait. Des nuages plombés parcouraient
@@ -76,8 +49,6 @@ ses yeux vivants et dit dans un sourire :
   Ces nuages parcouraient ces pensées sur la face
 épouvantée du ciel. Qui donc était l'enfant, qui donc
 était l'homme ? J'embrassai avec ravissement cette
-
-[leaf 0233]
 
                        Au jeu de la Tombe
 
@@ -102,8 +73,6 @@ humides, vous allez vous enrhumer.
 
                               10
 
-[leaf 0234]
-
   Obéi, je m'éloigne. Un vieux homme que j'ai connu
 me racontait jadis comment il prenait plaisir, dans son
 enfance, à charpenter de petits cercueils de bois ;
@@ -121,14 +90,10 @@ jouer à la Tombe.
 
                               11
 
-[leaf 0235]
-
                           Par la poterne
 
   La cloche sonne, ils s'échappent ; et tout de suite tons
 de vociférer :
-  — Par la poterne ! Par la poterne !
-  Or, il n'y a pas la moindre poterne dans la cour. Il y
 a seulement, sur la gauche des classes et devant elles,
 deux portes de fer qui ouvrent, l'une sur quelque che-
 min, l'autre sur le préau réel. Et c'est à droite que
@@ -148,13 +113,9 @@ un tel renfort que bientôt tons les deux, à longs coups
 
                               12
 
-[leaf 0236]
-
 du couteaux de bois, à vifs coups de poing loin-tendus,
 se dégagent, puis fuient. Et toujours, mais cette fois
 vers la gauche, toujours ils crient :
-  — Par la poterne ! Par la poterne !
-  Et il n'y a pas de poterne.
   Cinq minutes plus tard, René, fatigué, s'éventant
 de son mouchoir comme une belle Espagnole, flûte à ses
 camarades une conférence explicative :
@@ -183,7 +144,6 @@ précision mathématique M. Fernand, mon collègue, pro-
 
                               13
 
-[leaf 0237]
                   l'homme en proie aux enfants
 
 fesseur de sciences, pourra-t-il verser dans cette mé-
@@ -199,8 +159,6 @@ religions, nos morales, nos vertus, et nos passions plus
 encore et nos vices, qu'est-ce autre chose que des
 poternes que nous ouvrons dans le vide sur l'ombre ?
 
-[leaf 0238]
-
   Je disais à l'Inspecteur :
   — Il ne faut pas juger la discipline de ma classe sur
 le bruit qu'on peut entendre en passant devant sa porte.
@@ -209,7 +167,6 @@ leçon, je ne la dicte pas. Il arrive qu'ils répondent plu-
 sieurs à la fois, et en désordre. Mais je préfère cela :
 s'ils se taisent, j'ai peur qu'ils ne dorment. Je ne veux
 pas que la classe soit un tombeau.
-  L'Inspecteur approuvait :
   — Je suis bien de votre avis. C'est à cette abondance
 des questions et des réponses qu'on reconnaît la vie
 d'une classe : voilà la vraie méthode de l'enseignement
@@ -224,7 +181,6 @@ arbres et aux âmes ; du long regard qui m'a enseigné
 
                               15
 
-[leaf 0239]
                   l'homme en proie aux enfants
 
 l'amour de la vie ; — toujours deux images grotesques
@@ -254,8 +210,6 @@ regards divergents et de mon visible rêve ! Je sentais
 sur toute l'étendue de ma personne l'impitoyable, la salu-
 taire oppression de leur vie.
 
-[leaf 0240]
-
   Henri s'excite. Petit macaque à la face osseuse, aux
 joues de papier rosâtre et de son, aux yeux tournants
 d'écureuil, et dont la physionomie promet une intelli-
@@ -280,7 +234,6 @@ réunis chez le notaire. De ces trois hommes, nous en
 
                               17
 
-[leaf 0241]
                   l'homme en proie aux enfants
 
 connaissons deux : l'un est le milliardaire, l'autre l'in-
@@ -298,7 +251,6 @@ nous sans perdre une carte de fin bristol que dans sa
 précipitation Il avait laissé tomber. C'était ainsi son
 identité qu'il avait cachée. Le premier mouvement de
 Français fut d'aller ramasser cette carte... »
-  Le reste manque.
   Pauvres enfants ! — Leur plus nette caractéristique
 serait-elle la confiance ? Croient-ils tout ce qu'on leur
 affirme, tout ce qu'ils voient, tout ce qu'ils lisent, et
@@ -309,8 +261,6 @@ n'ont jamais méritée.
 menteurs non plus. Mais on dirait qu'ils ne savent pas
 distinguer encore les images ou les idées des choses, ni
 le réel d'avec les songes.
-
-[leaf 0242]
 
                        Ils ne comprennent pas.
 
@@ -337,7 +287,6 @@ qu'il fit jour ni qu'il fit nuit.
 
                               19
 
-[leaf 0243]
                   l'homme en proie aux enfants
 
 années d'enfance, ce frère auquel je dois dire que je ne
@@ -374,8 +323,6 @@ de règle violent sur la table.
 
                               20
 
-[leaf 0244]
-
   « J'entrai dans un village que je vis.
   « La première rue où j'entrai était déserte. J'entrai
 dans la seconde. Derrière l'angle qui faisaient les deux
@@ -408,7 +355,6 @@ ne pas chercher le sens de ces visions ? Vous ne devinez
 
                               21
 
-[leaf 0245]
                   l'homme en proie aux enfants
 
 pas que ce sont des faussaires, des menteurs, des
@@ -445,8 +391,6 @@ qu'il n'y avait personne autour de moi. »
 
                               22
 
-[leaf 0246]
-
   On entendait la cloche. Ces enfants de mauvaise
 volonté sortirent, sans doute heureux d'échapper à mon
 commentaire. Mais moi, je n'échappai pas au leur.
@@ -459,10 +403,6 @@ farouche silence à Léon et au deuxième Marcel qui
 l'interrogeaient : — A qui est ce jardin ? Où suis-je ? —
 Et tous pleuraient de rire.
   Moi, je souffrais ; j'étais humilié, je plaignais la
-
-[leaf 0247]
-
-                       L'effort à décourager
 
   Je rencontre René à la porte du collège. Il tient un
 livre et il ne sais quoi. Il me salue en souriant en
@@ -485,8 +425,6 @@ nature, mais... »
 
                               24
 
-[leaf 0248]
-
   Il ne peut s'arrêter :
   — ... « Mais c'est un roseau pensant. »
   — René, dis-je, avec toute la conviction possible, je
@@ -508,8 +446,6 @@ son âme poussiéreuse ?...
   ... Mais moi-même, quand je la prononce, cette phrase
 doublement sainte, quand je la pense, — qui donc
 
-[leaf 0249]
-
   La grâce était rare parmi ces enfants. Ils touchaient
 déjà l'âge où le teint se fripe, où la voix raucit, où les
 yeux se cernent vilainement, — cette adolescence lar-
@@ -520,7 +456,6 @@ rouges ; et Robert ressemblait à ma sœur Jeanne.
 la tolérance de mon souvenir que selon la réalité des
 couleurs et des formes. Il avait un visage menu, les
 joues minces et pâles, un blanc front étroit où ses
-et un à un. Il était doux, paresseux, ingénieux ; je me
 sentais de l'amitié à ma sœur Jeanne pour lui.
   Naturellement, je ne l'exprimais pas. La préférence
 est une injustice. Craignant avec passion d'être injuste,
@@ -528,8 +463,6 @@ je me gardais bien de témoigner à Robert cette amitié
 attendrie un peu dédaigneuse. Il lui suffit toutefois
 
                               26
-
-[leaf 0250]
 
 d'un conseil sans doute plus instant, d'un coup
 d'œil ignoré de moi-même, pour la comprendre, pour
@@ -561,7 +494,6 @@ blondir ce miel au parfum incomparable.
 
                               27
 
-[leaf 0251]
                   l'homme en proie aux enfants
 
   René me paraissait intelligent parce que sa bêtise
@@ -596,8 +528,6 @@ gnements indispensables pour n'importe quel métier ou
 
                               28
 
-[leaf 0252]
-
 des exercices qui vous habitueront à réfléchir. Vous
 n'avez donc pas le droit de choisir. (Moi, qui ai si inso-
 lemment choisi, j'osais le lui défendre ! — peut-être ai-
@@ -620,7 +550,6 @@ n'est analogue à rien, je devinais sa chétive pensée
 approcher affectueusement de ma pensée. Egoïsme ?
 Orgueil ? Il me semblait respirer une fleur pour moi
 
-  Ainsi j'aimais.
   Les grands principes établis par les Pères de la
 Pédagogie m'étaient inconnus.
   Mais tout mon être se rebellait à l'idée d'enseigner
@@ -628,7 +557,6 @@ aux choix-mêmes la géographie physique de l'Australie
 ou les batailles de la Succession d'Espagne ; dans ces
 niaiseries, je respectais seulement des moyens obscurs
 
-[leaf 0253]
                   l'homme en proie aux enfants
 
 de l'amour. Je réclamais la vie ; et pour l'obtenir,
@@ -644,8 +572,6 @@ Valentin, qui dédaignaient de m'imiter pour me plaire,
 qui vivaient, selon leur loi inconnue, de regarder les
 mouches voler ; — j'espérais tout (mais quoi ?) de leur
 amour qui finirait bien par répondre à mon amour.
-
-[leaf 0254]
 
   — Quand je suis arrivé à Francfort-sur-le-Mein...
   Ils sourient de coin. Marcel, de ses yeux d'eau,
@@ -669,7 +595,6 @@ sur les régions excentriques, Turquie, Russie, Caucase,
 puis chuchote :
   — Msieu Thierry, i connaît ça, il a été par là.
 
-[leaf 0255]
                   l'homme en proie aux enfants
 
   La Pédagogie me conseillerait, sans doute, de punir
@@ -701,8 +626,6 @@ pas, pour le bon motif, qu'il s'intéresse à moi. Je confesse :
   — Non, j'étais toujours le dernier.
 
                               32
-
-[leaf 0256]
 
   — Oh ! proteste-t-il, on nous a dit que vous étiez sorti
 le premier de tous !
@@ -738,13 +661,11 @@ bien de son présent. L'amour-propre est si subtil que de
 
                               33
 
-[leaf 0257]
                   l'homme en proie aux enfants
 
 voici affublé des défroques de l'expérience et de la
 modestie même. Dans dix ans, peut-être aurai-je acquis,
 je l'espère, le droit de mépriser mon Moi actuel ; mais
-je le perdrai si je me félicite de ma patience.
   Avouons : — mes deux Marcel avaient bien sujet de
   Devrais-je alors leur accorder sans restriction que
 Moi est haïssable ? Dire du mal de nous-même, nous le
@@ -773,8 +694,6 @@ vomir dans leurs oreilles les mornes vibrations du
 bafouillage social ? Ne serai-je jamais un Vivant pour
 des Vivants ?
 
-[leaf 0258]
-
                        Cet âge est sans pitié.
 
   La Fontaine l'a dit, mais devons-nous l'en croire ?
@@ -802,7 +721,6 @@ l'aumône primaire supérieure se présentaient toujours
 
                               35
 
-[leaf 0259]
                   l'homme en proie aux enfants
 
   De l'un, Albert, solide, violent, indiscipliné en classe
@@ -838,8 +756,6 @@ que les enfants nous sont incompréhensibles : ils sont
 
                               36
 
-[leaf 0260]
-
 tion jaunâtre et rougeâtre, presque horrible à voir.
 Autour des lèvres spécialement, elle s'épaississait en un
 magma de boutons saniaux, de pus et de fécule blanche
@@ -872,10 +788,6 @@ sant, elle submerge d'écume les pauvres petites âmes.
 nous, cette tendresse, on nous interdit de la témoigner ;
 et les enfants, ils la méprisent.
 
-[leaf 0261]
-
-                          La Trahison
-
   Charles était un garçon gentil, vêtu d'agréable bleu
 clair, la mine éveillée et les traits fins : je ressentais
 pour lui encore une vague sympathie physique. La
@@ -894,8 +806,6 @@ continuais-je.
 niaises interrogations. Je ne connaissais pas alors ce
 
                               38
-
-[leaf 0262]
 
 mécanisme que Proudhon a si exactement appelé
 l'Intelligence des Signes. Aussi vite que l'étincelle le
@@ -931,7 +841,6 @@ dans son cerveau comme des boules de loto jusqu'à ce
 
                               39
 
-[leaf 0263]
                   l'homme en proie aux enfants
 
 qu'ils eussent l'air de chiffrer des idées. Et moi, pauvre
@@ -943,8 +852,6 @@ phrase de lui, je me sentais l'esprit raidir, et ma voix
 la plus libre me disait :
   — Écoute, le bafouillage primaire ronronne.
   ... Seulement, qui donc l'avait dressé ?
-
-[leaf 0264]
 
                        Cet âge est sans amour.
 
@@ -970,7 +877,6 @@ drai-je pas l'estime ?
 
                               41
 
-[leaf 0265]
                   l'homme en proie aux enfants
 
   Les enfants sont sans amour !
@@ -1007,8 +913,6 @@ qui est doux à un faible qui est humble, d'un faible qui
 
                               42
 
-[leaf 0266]
-
 est rusé à un fort qui est brutal, ne règne pas ten-
 dresse, mais alliance, mais complicité.
   A cette lumière nouvelle, le chaos des jeux et des
@@ -1041,7 +945,6 @@ des colonnes du préau, s'il lui donne, beaucoup plus
 
                               43
 
-[leaf 0267]
                   l'homme en proie aux enfants
 
 il caresse en rêvant ses cheveux et ses joues minces ; et
@@ -1057,10 +960,6 @@ par le vice ou la vertu qu'elle le conduira.
 Et je me laisse avec un effroi de hibou ébloui par cette
 humble vérité qu'on m'avait cachée : les enfants ne
 ressemblent pas aux hommes.
-
-[leaf 0268]
-
-                       Les mauvais conseils
 
   Je ne dirai pas de mal de l'Administration : elle
 m'accueillit avec la charité la plus tendre.
@@ -1080,14 +979,12 @@ envoyez-moi le délinquant. Je le salerai, moi !
 tais à voir tomber les feuilles dorées de l'érable.
   Mon collègue M. Fernand me serra d'abord la main
 
-[leaf 0269]
                   l'homme en proie aux enfants
 
 maçonniquement. Plus expérimenté que je ne le serai
 jamais, il me pilota avec cordialité :
   — Vous savez, il y a des loupiaux là-dedans qui ne
 valent pas cher. S'ils vous embêtent, allez-y, servez-leur
-la vis.
   — Oui ? dis-je. Je n'ai guère d'aptitudes au métier de
   Il sourit, comme pour insinuer qu'elles me viendraient
 vite et infailliblement. Et tel était son avis de mon
@@ -1116,8 +1013,6 @@ aient voulu vous tâter. Ils ont pensé entre
 
                               46
 
-[leaf 0270]
-
 eux : voilà un jeune maître, essayons-le donc un peu ;
 s'il se laisse faire, nous nous amuserons bien.
   « Il faut être juste, mais il faut être ferme. Ne perdez
@@ -1130,10 +1025,6 @@ s'emparait avec satisfaction de ce conseil inestimable.
   La pluie furieuse de décembre battait les vitres
 noires, les feuilles tourbillonnaient autour des arbres
 fouettés, on entendait le fleuve grossir...
-
-[leaf 0271]
-
-                       La première punition
 
   Mais je tenais à mes idées pédagogiques. Selon un
 procédé recommandé par Léonard de Vinci, je me les
@@ -1157,8 +1048,6 @@ daient ma justice.
 songeais à ces chers enfants futurs qu'on me confierait,
 
                               48
-
-[leaf 0272]
 
 toujours je me les figurais roses, souriants, et avec une
 espèce de képi sur l'oreille ; pareils en somme, il faut
@@ -1195,7 +1084,6 @@ sité ; — supposé que moi-même enfin, qui ai mission
 
                               49
 
-[leaf 0273]
                   l'homme en proie aux enfants
 
 neuf ans pour avoir menti. On me faisait alors une
@@ -1232,8 +1120,6 @@ sité ; — supposé que moi-même enfin, qui ai mission
 
                               50
 
-[leaf 0274]
-
 de les appliquer, je sache intéresser, j'aie une voix
 éveillée et éveillante, je ne repousse pas par une
 abstraite monotonie toute sympathie ; — alors mon
@@ -1260,7 +1146,6 @@ Maxime, dis-je avec résolution...
   Les yeux se lèvent et clignent. — Non, vous ne sou-
 rirez plus. Haïssez ; voici ma force !
   Des voix se pressent en moi qui se neutralisent :
-  — Tu promesse ? — Tu abuses de l'autorité ? — Si tu
 l'ennuies, en gosse, il sont bien qu'il se venge. — Tu en
 as fait tout autant à son âge. — On m'en a fait autant.
 — Mais ainsi tu justifies l'injuste, et tu vas t'éterniser. —
@@ -1268,13 +1153,11 @@ Voilà une affaire à rouler des yeux féroces, un plumier
 
                               51
 
-[leaf 0275]
                   l'homme en proie aux enfants
 
 par terre ! — Pense aux maîtres que tu as détestés... —
 Songe au dévouement de Tolstoï : son génie s'est asservi
 aux enfants. — « Sans la liberté, la vie est sans
-lumière... » — Tu te corromps. — Tu te condamnes au
 mensonge ! — Il y a dix ans, tu méprisais ton professeur
 de physique ; il y a quinze jours, tu méprisais ton
 caporal : immonde parvenu, les imiteras-tu ?
@@ -1286,14 +1169,11 @@ résolutions et une jeune nécessité, m'accompagne d'un
 merveilleux rire, — je pousse à bout ma phrase :
   — Vous aurez deux heures de consigne.
 
-[leaf 0276]
-
                        La Balance à la queue du Chat
 
   Après la composition d'orthographe, je relevais paisi-
 blement les notes des devoirs précédents pour établir
 les moyennes, belle occupation du reste, et intelligente,
-si l'on aime la pesée et le recensement.
   Les enfants se corrigeaient les uns les autres. Je
 calculais les notes sur le chiffre de fautes qu'ils
 m'avouaient : il était trop facile de le falsifier. Jamais
@@ -1313,7 +1193,6 @@ l'émulation, je détestais la discipline. Les notes étaient
 
                               53
 
-[leaf 0277]
                   l'homme en proie aux enfants
 
 néfastes à la modestie et à la sincérité ; les punitions,
@@ -1349,8 +1228,6 @@ de vous passer des fautes, hein ?...
 
                               54
 
-[leaf 0278]
-
   Malgré ma grossièreté, les enfants n'ont pas osé rire.
 Tous entendent le souffle de Maurice répéter :
   — Si, si, msieu ! dit Pierre précipitamment, si, si,
@@ -1385,7 +1262,6 @@ punis, et posant son action devant moi comme une
 
                               55
 
-[leaf 0279]
                   l'homme en proie aux enfants
 
 grosse pierre, je la tourne et la retourne par mille
@@ -1402,10 +1278,6 @@ les victimes se croyaient très coupables, et les inno-
 cents héroïques. Eux se haussaient, moi je dégrin-
 golais à cette extase vertueuse dont les hommes rient
 dans les enfants, — et dont Nietzsche a ri dans les
-
-[leaf 0280]
-
-                          Les Inconnus
 
   On m'eût demandé, au bout de deux mois, ce
 qu'étaient Raphaël ou Paul que, véritablement, je n'au-
@@ -1427,7 +1299,6 @@ vets, ils ne savent d'abord ni lire ni écrire : ils ne com-
 
                               57
 
-[leaf 0281]
                   l'homme en proie aux enfants
 
 prennent rien, ils ne proposent rien à comprendre.
@@ -1464,8 +1335,6 @@ faites, leurs leçons sues : — je ne pouvais trouver autre
 
                               58
 
-[leaf 0282]
-
 chose en eux que ces symboles. Ni souci d'écouter, ni
 ineptie, ni fierté, ni même mauvaise volonté... Je pas-
 sais des journées exactement sans les voir.
@@ -1476,10 +1345,6 @@ que je fus un long temps en doute sur l'existence, sur
 la réalité des enfants. Je ne me résignais à leur recon-
 naître à chacun son âmette que parce que l'un différait
 physiquement de l'autre.
-
-[leaf 0283]
-
-                          Les Menteurs
 
   ... — Pourquoi aimez vous vos parents ? demandé-je.
   — Nous devons les aimer, répond Émile en clignant
@@ -1503,8 +1368,6 @@ plutôt de bons amis, afin de te créer une bonne position.
   Qui donc parle ? Louis, ce nabot joyeux ; ou bien sa
 
                               60
-
-[leaf 0284]
 
 mère vieillissante, veuve, et qui ne saurait proposer à
 ses enfants d'autre idéal que la domesticité ?
@@ -1537,7 +1400,6 @@ per ? Je le punirais avec délices.
   — Qu'aimez-vous donc lire ? demandé-je encore.
   — J'aime les livres d'histoire, déclame Albert en
 
-[leaf 0285]
                   l'homme en proie aux enfants
 
 avançant sa moue batailleuse, parce qu'ils nous ensei-
@@ -1571,8 +1433,6 @@ général des œuvres de Saint-Simon.
   Ainsi, parce que j'ai dicté du terrible duc une page
 
                               62
-
-[leaf 0286]
 
 puissante et confuse sur Marly, ce petit pédant se
 permet ces systématisations ? Je dois le dégoûter de la
@@ -1608,7 +1468,6 @@ tenue avec le professeur de français n'est plus irrépro-
 
                               63
 
-[leaf 0287]
                   l'homme en proie aux enfants
 
 chable ; cela tient à ce qu'il nous laisse trop de liberté,
@@ -1629,8 +1488,6 @@ venait en classe, me répondit avec une naïveté divine :
 dire pour ne pas rester sans travail, pour ne pas nous
   Mais dès le lendemain, il mentait comme les autres.
 
-[leaf 0288]
-
 la mâchoire épaisse, la face longue et prismatique, il
 balance ses gros poings avec embarras.
   — Bon, dis-je, préparez-vous le brevet ? voulez-vous
@@ -1648,7 +1505,6 @@ prise pour un chauffoir.
 bien loin quelque sujet de composition française.
   — Qu'i crève pour hériter ? siffle Charles.
 
-[leaf 0289]
                   l'homme en proie aux enfants
 
   Toute la classe se convulse de rire.
@@ -1662,15 +1518,12 @@ Vous n'aurez pas trop de peine à vous mettre au cou-
   Il me regarde de ses yeux campagnards, sourit et ré-
 pond d'une voix embrouillée :
   — Moi, oh non ! m'sieu, je viens ici pour me dessaler
-un peu !
 
   Je voudrais bien qu'ils fussent sincères. Je ne suis
 guère humilié qu'ils me prennent pour un gardien de
 crèche ou un sergot civilisateur. Mais ils sont trop
 patauds, ma critique se défie : pourquoi le croirais-je
 plutôt que leurs camarades ?
-
-[leaf 0290]
 
                        Destruction des personnalités
 
@@ -1697,7 +1550,6 @@ Certains aveux me font imaginer qu'il est seul enfant
 
                               67
 
-[leaf 0291]
                   l'homme en proie aux enfants
 
 d'une mère veuve qu'il chérit ; ses vêtements, son air, me
@@ -1735,8 +1587,6 @@ de guerre. Je le punis, il s'écrit :
 
                               68
 
-[leaf 0292]
-
   Je le punis encore. En vain : il tient parole.
   J'admire l'efficace de ma pédagogie contre les garçons
 qui choisissent dans la manne. J'ai mission de leur
@@ -1769,7 +1619,6 @@ ont raison. Voici s'abattre la verge du licteur :
 
                               69
 
-[leaf 0293]
                   l'homme en proie aux enfants
 
 autres se calment : ils trouvent aussi cela juste. Tous,
@@ -1790,10 +1639,6 @@ d'éducateur », je décaractérise mes victimes. On m'a
 confié de jeunes champs que je dois sarcler. — pousses
 comme ronces, et j'obéis.
   « Un seul maître pour un seul élève », disait Jean-
-
-[leaf 0294]
-
-                          La mort passe.
 
   Un matin de mars, Robert entre en retard, bien après
 tous ses camarades, qui écrivent les dernières lignes de
@@ -1819,7 +1664,6 @@ de m'avertir que sa sœur est morte.
 
                               71
 
-[leaf 0295]
                   l'homme en proie aux enfants
 
   — Fallait le dire, m'sieu ! sussurrent-ils.
@@ -1837,10 +1681,6 @@ camarade fort amusant, renommé pour les calembours,
 qui eut en faire un huit jours juste après la mort de sa
 mère. Une quinzaine après ce triste matin, Robert
 revenait en classe, et il n'avait pas désappris de
-
-[leaf 0296]
-
-                            Le Messie
 
   Un nouvel enfant nous arrive après Pâques, au temps
 où déjà les érables jaunissent comme d'immenses
@@ -1862,7 +1702,6 @@ l'hypocrisie de la connaissance ; — ce mot que Jeanne
 même ne m'a pas dit ? Ou sinon, sa voix seulement,
 jeune et inouïe, quand je l'entendrai, ébauchera-t-elle
 
-[leaf 0297]
                   l'homme en proie aux enfants
 
 le rythme d'un mystère essentiel, d'une chanson enfin
@@ -1875,10 +1714,6 @@ et puis la flûtent. Il s'écoute, ce garçon que j'espérais
 ignorant de nos verbiages ; il soigne la correction, et la
 prononciation de ses phrases ; et son sourire noircit sur
 ses dents cachées.
-
-[leaf 0298]
-
-                          Le lâche avenir
 
   Je leur posais des questions concrètes et simples pour
 les mieux comprendre, non sans un demi-remords de
@@ -1903,7 +1738,6 @@ la protection et du respect. Avec la précision naïve de
 
                               75
 
-[leaf 0299]
                   l'homme en proie aux enfants
 
 l'instinct, Henri et Léopold révèlent l'empoisonnement
@@ -1923,7 +1757,6 @@ pour l'Éducation du Peuple ! » — Et pour quel avenir ?
 et une certaine ivresse vertueuse dans la noble carrière
 des armes. « Je choisis le métier d'officier, parce qu'on
 a le plaisir de remplir tous ses devoirs de bon Français.
-Et à la mort, on n'a rien à vous reprocher. En plus, un
 officier est comme un instituteur : mais il a plus de
 peine, car il instruit des hommes, non des enfants, qui
 apprennent plus facilement. Ce métier est aussi un
@@ -1938,8 +1771,6 @@ autres pays se tarderaient pas à s'allier entre eux pour
 nous combattre, et alors, étant sans instruction, nous
 
                               76
-
-[leaf 0300]
 
 ne tarderions pas à être vaincus. » Et il gonfle ses
 petits poings sur ses creuses petites tempes. Son père,
@@ -1957,7 +1788,6 @@ tuteur. « Cette profession est ingrate et meurtrière. Elle
 exige beaucoup de dévouement, elle n'est pas rétribuée
 comme elle devrait l'être. Mais mes goûts sont tout
 modestes : j'aurai une maison d'école entourée
-d'un jardin. »
   Ernest, le même qui tout à l'heure se faisait officier
 pour respirer le bon air, se ravise. Versatilité de
 mon enquête. Lui aussi se résigne à l'enseignement, et
@@ -1975,7 +1805,6 @@ champs, je préfère à celui-ci : car un instituteur, tout
 
                               77
 
-[leaf 0301]
                   l'homme en proie aux enfants
 
 en gagnant moins qu'un fermier, met plus d'argent que
@@ -2011,10 +1840,7 @@ tandis que toi, tu seras toujours malheureux,
 
                               78
 
-[leaf 0302]
-
 et tu n'auras jamais une bonne place autre que celles
-de charretier, de berger ou de bouvier ; tu ne te lance-
 ras pas dans le progrès. » Cette intention qu'a Victor
 de se lancer dans le progrès en devenant comptable, — non,
 je ne puis pas dire comme elle me touche !
@@ -2035,7 +1861,6 @@ avoir beaucoup de peine. »
   Et n'est-ce pas l'essentiel ?
   Émile, sans doute, a peur des outils. Un de ses cama-
 rades devient menuisier, il le rabroue, sans élégance.
-« Si cela ne te froisse, je te conseillerai de renoncer à ce
 métier. En entrant à l'École primaire supérieure, tu
 professeur même ; comptable. »
   Louis, celui qui chastifiait son frère, a peur de
@@ -2047,7 +1872,6 @@ places dans les bureaux. Au contraire, les gens ignorants
 
                               79
 
-[leaf 0303]
                   l'homme en proie aux enfants
 
 sont réduits à mendier ou à être placés dans des ateliers
@@ -2085,8 +1909,6 @@ comment ne chercheraient-ils pas à s'y dérober ?
 
                               80
 
-[leaf 0304]
-
   Ils comprennent. On lire une formule plus âpre que
 celle-ci, gravée par la répétition familiale à la profon-
 deur de l'instinct : « Mes parents, dit encore André, le
@@ -2118,7 +1940,6 @@ dans un établissement industriel, ou bien encore ingé-
   Et l'ami de Théodore, le plus intelligent des deux
 Mareean, fils d'instituteur comme l'autre, apporte le
 
-[leaf 0305]
                   l'homme en proie aux enfants
 
 même argument : « Si tu fais tout de suite ton appren-
@@ -2149,8 +1970,6 @@ pas fait grand chose pendant cette année scolaire. Je
 ne sais même pas si je suis de force à passer en troi-
 
                               82
-
-[leaf 0306]
 
 sième année si je reviens. J'aimerais bien mieux ne
 plus aller à l'École supérieure.
@@ -2184,8 +2003,6 @@ humain. Je vous en serai reconnaissant, car c'est vous
 
                               83
 
-[leaf 0307] [p. 84]
-
 propres idées et non des idées inventées que j'exprime ici : et si je les écris, c'est pour que vous me disiez si j'ai raison ou tort. »
 
 Imprudemment peut-être, je fis à cette lettre une réponse sérieuse. Je discutais les pauvres affirmations de l'enfant ; me souvenant d'en avoir moi-même prononcé de pires, au temps où j'avais été comme lui victime d'une fausse conscience. Je leur évitai la discussion publique, mais le maladroit ne sut pas échapper à la raillerie. Marcel, le pitre, ayant chipé sa rédaction à Paul, en avait pris copie : cette épreuve circula, propageant sur son auteur un ridicule extraordinaire, jusqu'au moment où je la confisquai.
@@ -2194,8 +2011,6 @@ Parmi ses camarades, quelques-uns encore, plus modestement, résistent à la pre
 
 C'est tout. Je n'ai pas exagéré, j'ai constaté les réalités : les enfants que l'École primaire supérieure reçoit des ouvriers et des petits bourgeois, pour leur donner, disent ses programmes, « un enseignement essentielle-
 
-[leaf 0308] [p. 85]
-
 ment pratique », elle les restitue avides de sinécures et d'aristocratie.
 
 Consciences ébauchées et composites, le témoignage de ces enfants est trop facilement récusable. Que connaissent-ils de la vie ? Quels documents certains peuvent-ils fournir sur elle ? Jamais on ne croirait qu'ils parlent : ils récitent ! — Je l'accorde : mais alors leur parole est plus lourde encore et plus chargée d'une douloureuse sincérité. C'est le milieu qui crie, ce ne sont plus les individus. Depuis les petites classes où ces gamins brillèrent, instituteurs, parents, voisins, leur ont répété la même foi : — haine du travail manuel, adoration des mystérieuses écritures, pieux souci de la retraite, des appointements réguliers, des nobles fréquentations ; — et cet évangile démocratique de l'Arrivisme, ils me le resservent, tous du même style, à moi qui vainement, absurdement, vais essayer de le contredire !…
@@ -2203,8 +2018,6 @@ Consciences ébauchées et composites, le témoignage de ces enfants est trop fa
 Les deux Louis, Fernand, Robert, Maurice, ont treize ans ; Ernest, Émile, les deux André, Marceau, Henri, quatorze ; Jacques, Victor, Lucien, Marcel, quinze ; Léopold, dix-sept : — telle est l'attitude de ces bambins et de ces adolescents devant le redoutable avenir.
 
 Je n'ai pas le droit de les injurier. Moi non plus, je ne me suis pas rebellé contre leur sort, quand on me l'imposa ; moi aussi, fils de paysans et d'ouvriers, je me suis laissé enfermer dans un « métier d'écritures », et je ne saurais plus l'abandonner. Mais contribuerai-je, à présent, de sang froid, à ce reniement, qui des travailleurs fait les parasites, les administrateurs trop nombreux ou, au mieux, les explicateurs du travail ? Approuverai-je cette lâcheté éperdue, — cette servilité des producteurs qui se détruisent en leurs enfants ?
-
-[leaf 0309] [p. 86]
 
 — Enrichissez-vous ! disait Guizot au peuple.
 — Embourgeoisons-nous ! se dit le peuple à soi-même. Il n'aspire pas à être libre, il aspire à opprimer.
@@ -2215,15 +2028,11 @@ Mais ce faisant, il est essentiellement démocratique. « La démocratie, avoue 
 
 En effet, le meilleur Manuel de l'Arrivisme, c'est encore la Déclaration des Droits de l'Homme.
 
-[leaf 0310] [p. 87]
-
                     Monsieur Père et Madame Mère
 
 On assure éloquemment aux maîtres que leur plus impérieux devoir est de s'entendre avec les parents de leurs élèves pour mieux contrôler le travail, la conduite, la vie morale de ces enfants. J'en étais convaincu. Aussi fut-ce avec plaisir que j'indiquai au directeur le jour où, pour ces messieurs et ces dames, je serais « visible ». Je m'attendais candidement à maintes consultations : il se présenta six personnes.
 
 La mère de l'insupportable Jules m'exposa ses doléances. Son fils était trop souvent puni, il paressait et contait des mensonges : elle désespérait presque de le pousser jusqu'à l'École Centrale. Je lui conseillai délicatement, mais avec surprise (Jules ne m'avait-il pas confié qu'il voulait devenir notaire ? n'était-il pas d'ailleurs aussi incapable de l'un que de l'autre ?), de s'abandonner tout à fait à ce désespoir. Alors madame Jules accusa son mari, qui préférait les soirées de café aux paisibles veillées familiales, qui ne s'occupait jamais de son fils… (Il s'en occupait trop quand l'idée
-
-[leaf 0311] [p. 88]
 
 l'en prenait : un vendredi cet illustre Jules me remit, rédaction copieuse, une description de la gare de Lyon si précise et si technique qu'y reconnaissant la compétence paternelle je lui dus infliger un zéro.) Il me fallut gémir au ton de ces plaintes. Sans doute fut-ce maladroitement, car Jules quitta l'école.
 
@@ -2240,8 +2049,6 @@ Le père de Maurice et de Jean, professeur à l'École Normale du département, 
 
 Enfin c'est M. Alfred, le libraire, qui, dans l'ombre verte de ses casiers, de ses livres, apporta au problème la pire de toutes les solutions.
 
-[leaf 0312] [p. 89]
-
 — Je ne m'occupe jamais des devoirs d'Alfred, déclarait-il, par principe. D'abord, j'ai autre chose à faire ; mais je trouverais tout de même le temps si je voulais. Seulement, je ne veux pas. Je pourrais avoir une méthode, et vous une autre. Je pourrais m'y prendre comme ceci, dire comme ceci ; tandis que vous, vous diriez comme cela, vous vous y prendriez comme cela… Je préfère vous laisser travailler librement.
 
 Théorie bien paresseuse. Je l'accepterais seulement au cas où elle viendrait d'un homme inintelligent. Mais en aucun cas, je ne voudrais en accepter les arguments.
@@ -2254,8 +2061,6 @@ La moitié d'entre eux, sans aucune erreur de calcul, nous envoient leurs descen
 
    … Bon, cela fait toujours passer un an ou deux.
 
-[leaf 0313] [p. 90]
-
 Alors, ce n'est pas moi qui invente ces images agréables, l'école est une garderie, le professeur une nourrice sèche. Peu importe que vous tiriez au maigre pis de la Démêter universitaire, ô enfants qui serez, Jacques, mécanicien, Victor, comptable, René, facteur de lettres, Henri, voyageur de commerce, Armand, couvreur, Georges, télégraphiste, Arsène, laboureur, un lait empoisonné de verbalisme et d'abstraction. Importe-t-il que vos parents en éprouvent la saveur glaciale et nauséabonde, s'en plaignent, prient qu'on la corrige d'un peu de jeune sang ou de fer ? (Agriculture pratique, géographie provinciale, législation ouvrière, hygiène.) Je l'ignore : mais ils n'y penseront pas ; ils se doutent bien que vous n'en conserverez ni le bénéfice, ni le maléfice, que vous serez en attendant l'avenir aussi bien en classe qu'ailleurs ; et ils se réjouissent en somme de vous savoir à l'abri des automobiles, du froid, des chiens enragés et des « mauvaises fréquentations » pendant tout un jour.
 
 — Préservons nos fils, disent-ils, des promiscuités de la rue ! — Ils n'ont jamais remarqué que la rue passait au beau milieu de l'école.
@@ -2263,8 +2068,6 @@ Alors, ce n'est pas moi qui invente ces images agréables, l'école est une gard
 Je suis ravi que les parents de cette catégorie ne s'inquiètent en aucune manière des discours à quoi nous occupons leurs enfants : ils nous en feraient expurger jusqu'à la dernière idée.
 
 Très nombreux aussi, voici des travailleurs manuels, cultivateurs et ouvriers d'usines, qui destinent leurs enfants à quelqu'une de ces fameuses professions libérales. « Il faut que tu sois plus heureux et plus savant que moi, mon petit ! » a dit le bourrelier, le maréchal, le jardinier, l'hôtelier, à son François, à son Fernand, à
-
-[leaf 0314] [p. 91]
 
 son Théodore, à son Gaston, qui préparent l'École Normale ; le cocher, à son Guillaume, qui rêve d'une École des Arts et Métiers ; le cordonnier, à son Charles, le gardien de prison, à son Robert, qui nous quittent pour peupler les études d'avoués et les banques.
 
@@ -2276,21 +2079,15 @@ Enfin, une minorité de parents libres envoie à l'école supérieure une minusc
 
 Voici Marcel, ce discuteur, qui d'une horrible grimace m'interdit un jour de déclarer une idée fausse sans expliquer pourquoi. Voici l'autre Marcel, face de guignol qui fait la nique à la vieille morale ; (à moi aussi).
 
-[leaf 0315] [p. 92]
-
 Voici Henri encore, un nouvel Henri, sensibilité originale et douce de regardeur de nuages, qui se chante à soi-même bas les poèmes que je lui fais apprendre. Et ceux que je n'ai pas soupçonnés, et qui ne se soupçonnent pas encore ? Ceux qui se dégageront seuls de l'abstraction ; ceux dont la force critique plus tard jaillira vive ; ceux où doucement palpitera une poésie aux balbutiements nouveaux ; ceux qui chercheront sans que je les aide et qui trouveront ; — ces fontaines scellées ?
 
 Auraient-ils gagné, ceux-là, les plus précieux de tous, à ce que nous nous entendissions, leurs parents et moi, pour leur présenter d'une façon analogue le vieil art, la vieille intelligence ou la vieille science, (elles vieillissent) ; — la vieille vie ?
-
-Ils auraient perdu.
 
 Si le père et moi nous disons avec le même ton la même chose, c'est une vérité : c'est aussi un consentement universel ; la sensation malfaisante du respect devant les idées ; la servilité d'esprit ; le dogmatisme livresque… — Si le père et moi nous disons d'un ton différent des choses différentes, c'est deux vérités : ou plutôt c'est la contradiction cruelle et utile du savoir et de l'expérience, de la formule et de la recherche ; c'est la bataille du monde contre l'école…
 
 Je consens d'être vaincu, — pourvu que l'on me combatte !
 
 L'École est un milieu artificiel, la Famille est un milieu naturel. Faut-il que pour naturaliser l'un nous artificialisions l'autre ? Des patriotes bien intentionnés nous proposent, par une outre-subtile éducation militaire avant et après le service actif, d'adapter mieux
-
-[leaf 0316] [p. 93]
 
 la caserne à la société : mais c'est surtout la société qu'ils adapteraient à la caserne. Si pour diminuer le caractère abstrait, anti-vital, théorique, de l'enseignement, de toute école, on veut le donner aussi à la famille, — je cherche le profit que nous en tirerons.
 
@@ -2300,17 +2097,11 @@ Nous opprimerons sottement ainsi cette idée qui peut-être a déjà dressé que
 
 Mais si, parents et maîtres, nous nous conjurons pour unifier l'expérience, ce sera donner à nos enfants l'intelligence des signes, ou l'éloquence mécanique et caquetée des perroquets ; — nous aurons peur un jour en voyant bâiller ces stériles âmes de papier mâché et de poussière.
 
-[leaf 0317] [p. 94]
-
-                           Le Vertige
-
 Le matin de novembre était doux et blême. Il n'y avait pas de soleil. Un vent tour à tour frais et tiède émouvait l'air et les nuées. Parfois des tilleuls et de l'érable, un essaim de feuilles jaunes tombait, lentement, faiblement, sur la terre molle. Et des arbres las comme des étendues boueuses, comme du ciel fermé, comme de mon esprit d'automne, s'exhalait une humide, pauvre mélancolie.
 
 Nous marchions. Le Directeur voulait me présenter mes élèves. Je montrais sans doute une face à la fois troublée et insolente, le visage confus de celui qui doit en imposer, mais qui hait son autorité. Je pensais à ces premiers enfants que j'allais aborder comme un maître. Je pensais à mes petites amies d'Autriche et de Bavière, au garçonnet rêveur que j'avais été ; je songeais à Jeanne ; et bien loin de prétendre la dominer, j'attendais respectueusement l'expérience.
 
 Nous entrâmes : et pendant que le Principal me les nommait tous, laborieux ou paresseux, dissipés ou sages ; et pendant qu'eux m'observaient avec une curiosité un peu moqueuse ; — moi, je subissais un mystérieux enchantement.
-
-[leaf 0318] [p. 95]
 
 Je les regardais et je les voyais à peine. C'en était fait : j'étais jeté à la vie.
 
@@ -2319,8 +2110,6 @@ La première image qui vint à ma conscience (on sait assez que de plus grossiè
 Leur confiance était si sensible qu'elle m'intimidait. Du premier coup, par une intuition que je ne voulus pas accepter, j'avais saisi ce que mon observation mit plus de six mois à se réexpliquer : ces regards pauvres, ces sourires superficiels ou mordus, ces physionomies creuses attendaient ma parole, ma pensée, avec un avide abandon. Si ignorants, je les jugeai si informes, — car je ne me rappelai point alors qu'ils possédaient chacun au fond de leur chair l'héritage d'un million de vies ; — qu'à la fin ils m'apparurent comme de frileuses âmes toutes nues, souhaitant que je les vêtisse.
 
 Mais je savais bien ce que j'apportais : des haillons et peut-être quelques-uns des nuages du vieil Homère. Je détestai soudain ma complication. Qu'allais-je dire à ces bambins curieux, moi, si plein de doutes, tourmenté par l'incertitude de ma jeunesse et ma part de l'angoisse éternelle ? Comment leur parlerais-je, moi, délégué des pâles pays d'une méditation embrouillée et
-
-[leaf 0319] [p. 96]
 
 sans objet, vampire exsangue engraissé de la lymphe des livres ?… Un véritable effroi me fit trembler : à contempler ces enfants dans l'attente, je craignis que tout ne fût corruption dans ma culture.
 
@@ -2334,15 +2123,11 @@ Je reconnais bien l'amour là : son premier conseil est d'une lâcheté…
 
 Que dit donc à présent M. le Principal ? Ma rêverie s'amuse, ébauche des formes. Là-bas des bonnes bedaines, là-bas des faces bilieuses de gratte-papier ; là-bas de grasses joues jaunes et des corsages cocasses ; là-bas des traits énergiques, de fins visages qui ne souriront point : — les parents de mes élèves ! commerçants, fonctionnaires, ouvriers aisés, métayers, mar-
 
-[leaf 0320] [p. 97]
-
 chands de cochons, combien d'hommes ? c'est la toute petite bourgeoisie et le prolétariat tourné ; c'est le monde de ces pauvres qui n'osent pas être pauvres, républicains conservateurs, liseurs de journaux, gens de métier presque honteux de leur métier, collectionneurs de papillons ou de polissoirs préhistoriques ; indispensables médiocres adaptés à la médiocrité, talents sacrifiés ou sottises gorgiases ; — honnêtes gens aux honnêtes vies.
 
 Comment imaginer une conversation d'eux sincère avec moi sincère ! J'en rirais, si cent yeux d'oiseaux n'épiaient ma vanité grotesque. Ainsi, sur la garantie illusoire d'un diplôme, sans même s'inquiéter de ma tournure d'esprit, ils me livrent l'éducation de leur fils ? Les plus riches ne me recevraient pas chez eux, moi inférieur : pourtant ils me font confiance, ils m'abandonnent leurs enfants !… Mais mesdames, messieurs, savez-vous si je ne suis pas… comment doutez-vous un seul instant que je ne sois un corrupteur de la jeunesse ? — Avec moi j'apporte la détestation des formules, l'expérience amère de l'exil et de la solitude, le souvenir de la bassesse, la colère des affections trahies et de la justice injuriée : toutes les douleurs et l'orgueil qui m'ont déclassé. Avec moi entrent ici mes propres maîtres, ceux des écoles, que je remercie pour leur science et leur bonté ; et les autres, oserai-je les nommer ? les souverains sans pitié de mon être, Victor Hugo et Marc Aurèle, J.-H. Rosny, Rodin, l'effrayant Pascal, Frédéric Nietzsche et Gœthe, Beethoven et Dostoïewsky… Et vous me laissez seul avec ces innocents ?
 
 Mais je les aime !
-
-[leaf 0321] [p. 98]
 
 A ce moment, le Directeur me serre la main et s'en va. Me voici face aux âmes.
 
@@ -2351,8 +2136,6 @@ Une minute de silence ; — une encore… C'est l'une des plus denses que j'aie 
 Je suis un Événement pour ces enfants. Voici la première fois que cette conscience me possède. Toute l'année, ils rapporteront à moi une large partie de leurs pensées ; toute l'année, ils se nourriront de mes idées, des faits que je leur révélerai, des travaux et des punitions que je leur infligerai. Je serai pour eux un patron, un gendarme, un prêtre, un ami. Sur mes pas, ils entreront dans la Société et la Beauté. Toute l'année, mes caprices, mon effort de justice, ma logique désordonnée, mes migraines, mes lectures, le développement de mes prétentions (ou de mon pouvoir) en art ou en philosophie, ma sensibilité instable les régiront ; et ils m'avoueront, à joie ou à douleur, pour leur maître. Et jamais, puisque je me rappelle ceux des miens que j'ai haïs aussi bien que ceux que j'ai aimés, — jamais ils ne m'oublieront.
 
 … Il faut aller plus avant, il faut d'un geste plus sincère encore se dénuder le cœur. Eux aussi sont pour moi un Événement. Eux quarante, ma classe, je dépendrai d'eux presque aussi fermement qu'ils dépendront de moi. Où me conduiront-ils dans mon propre passé, dans leur propre futur ? Je leur réserverai beaucoup de mes réflexions ; je simplifierai pour eux, ah ! le triste
-
-[leaf 0322] [p. 99]
 
 travail, la morale et l'histoire, que j'aime comme des forêts ; de mes livres les plus chers, je leur extrairai de la récitation et de la grammaire ; et de mes souvenirs, et de mes imaginations, et des sources les plus cachées, des choses que Jeanne m'a dites, je leur parlerai aussi, puisque je les aime !… Et ainsi ils dévoreront mon cerveau et mon cœur.
 
@@ -2366,8 +2149,6 @@ Ils attendent. A présent, je dois parler. Que vais-je leur dire ? Ce que je ré
 
 — Prêtez-moi votre livre d'histoire, et dites-moi où vous en êtes restés la dernière fois.
 
-[leaf 0323] [p. 100]
-
                     Après la mauvaise action
 
 J'ai commis ce soir une mauvaise action. Je ne puis dire laquelle. Ceux qui valent moins que moi railleraient mon scrupule, ceux qui valent mieux que moi mépriseraient ma bassesse. Je veux parler à tous, car je sais que j'ai lésé en moi, par une injustice, par une vilenie, toute l'humanité.
@@ -2375,8 +2156,6 @@ J'ai commis ce soir une mauvaise action. Je ne puis dire laquelle. Ceux qui vale
 La nuit passe, qui berce le remords et l'endort. Mais le matin, le voici qui me saisit avec le froid de l'aurore. Nausée à désespérer : toute pensée me dégoûte, je ne puis lire, je n'ose plus contempler les feuilles ni les nuages. Mon corps, mes sens, ma raison, me semblent chargés d'impureté, à jamais.
 
 Pourtant, il faut bien faire mon métier. Je pars pour l'école. Je n'avais rien prévu. Ces regards confiants d'enfants me troublent. Ils attendent ce qu'ils appellent en eux-mêmes une vérité, ils consentent selon une habitude tranquille au travail. Mais suis-je digne de leur distribuer une vérité, (ne serait-ce qu'un verbe allemand !) ; de leur imposer un travail, (ne serait-ce que l'analyse grammaticale du mot y) ? Je le faisais hier sans honte : et mon caractère et ma personne, cependant, ce n'est
-
-[leaf 0324] [p. 101]
 
 qu'un caillot de mauvaises actions, qu'un triste polypier de vanités, de duretés, d'égoïsmes, de mensonges. Or, j'y ai ajouté encore. Tandis que mes enfants sont les mêmes qu'hier, moi, j'ai changé. Ils ne me connaissent plus, je les trompe. Oui, je devrais, je le sens cruellement, m'arrêter à l'instant, leur parler, obtenir leur pardon. — Mais je ne puis rien dire : l'aveu serait une nouvelle faute.
 
@@ -2388,8 +2167,6 @@ Mais non, j'inscris la retenue, et je poursuis ma leçon, une leçon où retenti
 
 A la dernière heure me guettait une dernière épreuve. Je lus un poème de Victor Hugo si simple, si harmonieux, que les bambins s'émurent. Il y eut ce grand silence ravi, puis ce bruissement de joie, ces vers répétés bas malgré les interdictions de ma règle, ces mains vite
 
-[leaf 0325] [p. 102]
-
 levées pour commenter, ces yeux brillants, ces confidences… Moi, bavard tyrannique, je tâche d'étouffer ma voix profonde. La honte m'accable. Indigne du travail, indigne de la justice, je me trouve indigne de celle que j'aime plus encore que le travail ou la justice, — indigne de la beauté. Je la comprends toujours, mais une partie de moi ne l'entend plus, qui s'est livrée à la laideur. Je ne l'aime plus de toute mon âme, et poème, comme ces enfants le croient ; — non, puisque mon âme a diminué. Et pourtant j'accepte leurs murmures de reconnaissance, je goûte leur allégresse, moi qui me suis dégradé !
 
 Je ne dis rien, je sens mon cœur peser… Hélas, avouer la faute, c'est doubler la faute.
@@ -2397,8 +2174,6 @@ Je ne dis rien, je sens mon cœur peser… Hélas, avouer la faute, c'est double
 Puis s'approche le soir. Plus brusque qu'une tentation, une idée me saisit. « Mais ce Victor Hugo, quel faux bonhomme ! Il n'était pas digne non plus de cette beauté qu'il jetait dans les vents. Et ce Julien, me comparer à lui ; c'est un simple voyou. Et tous ces gosses, ce ne sont que des animaux : sais-je ce qu'ils deviendront ? » J'écoute cette voix brutale avec hébétude. Me voici au fond du bourbier. Ainsi, ayant, de mes immorales lèvres, de mon immorale intelligence, tiré des paroles hypocrites pour ordonner le travail, établir la justice, glorifier la beauté abattus par mon acte ; maintenant ma mémoire et mes sens même se renient ? Je suis détruit tout entier.
 
 O vous qui viendrez, amis dont la main ne s'est pas tendue encore, frères en marche vers un futur qui sera à vous et à moi, vous qui me connaîtrez et ne pourrez point vous résoudre à me haïr, comment vous y prendrez-vous, ne vous aurai-je pas fait la tâche trop diffi-
-
-[leaf 0326] [p. 103]
 
 cile, pour « m'aimer plus ardemment que je n'ai aimé mes souillures » ?
 
@@ -2410,14 +2185,6 @@ Et j'ai parlé à ces enfants comme un homme courageux, juste et sincère ! Et p
 
 … Malheureuse Vie, qu'est-ce donc que les hommes ?
 
-[leaf 0327]
-
-[leaf 0328]
-
-[leaf 0329]
-
-[leaf 0330] [p. 107]
-
 Je montais au collège par un suave crépuscule de juin. Les tilleuls agitaient leurs feuilles dans l'azur étincelant qui blondissait. En même temps que se coucher le soleil, on voyait se lever la lune, lui d'or, elle d'argent. La légère fièvre du soir était douce.
 
 Je souffrais alors d'un remords orgueilleux et peut-être vil.
@@ -2428,8 +2195,6 @@ Posant à peine la pointe du pied, je glissai sur le pavé ambré par le soir, m
 
 Amusé, mais voulant le paraître, j'essayai de pirouetter
 
-[leaf 0331] [p. 108]
-
 avant de me laisser saisir ; et je trébuchai tout à coup. Au bruit, Anne-Marie releva vivement son bandeau : étonnée d'abord, elle me considéra avec un peu de moquerie ; puis elle me dit :
 
 — Monsieur, je vous ai attrapé, voulez-vous le bandeau ?
@@ -2438,23 +2203,17 @@ J'offris humblement les yeux. Elle se sauva rejoindre Paulette, s'enchantant de 
 
 … Les petites filles dansaient. Mon esprit dansait avec elles.
 
-[leaf 0332] [p. 109]
-
 L'allée des tilleuls, le marronnier, l'orme, l'acacia, les érables, nos amis souffrent entre les murs rouges, les parois de verre de l'atelier et le ciel étrange d'octobre. Déjà les vents brusques et les pluies ont enlaidi l'acacia, l'orme et les tilleuls, dont les feuilles chiffonnées, sales, pourrissent sans se détacher. Mais aux derniers soleils le marronnier est pareil à un bouquet de pourpre fauve, et les érables donnent leur fruit.
 
 Jean invente un jeu. Il faut former deux camps, l'un de Bertrands, l'autre de Ratons. Les plus forts ramassent des cailloux, et, aussi haut qu'ils peuvent, les jettent aux branches de l'érable. Les plus faibles, sous la grêle des pierres, courent avec des cris joyeux, tendant leurs casquettes, leurs mains, leurs tabliers, pour attraper les samares. Ces graines sont ailées ; elles ne tombent pas : faibles colibris rouges, légères, dociles au vent et au poids du germe qu'elles portent, tournoyantes, elles volent.
 
 Je reste plusieurs minutes à regarder le groupe. Cela
 
-[leaf 0333] [p. 110]
-
 semble une entrevue d'enfants et d'oiseaux : tant les ailettes descendent doucement dans l'air blond veiné de filandres, tant les bambins rient de leurs mains élevées et de leur butin fragile.
 
 Puis j'écoute la voix de la Pédagogie : elle a paré même à la lapidation. J'ordonne donc aux lanceurs et aux grappilleurs de se placer d'un même côté de l'arbre, et de ne courir aux grainettes que leurs projectiles chus. Ils obéissent, ils font une décharge ; et tandis que les bénit l'abondante et rose neige végétale, Jean me dit dans le sourire de toute sa face :
 
 — C'est des papillons, msieu !
-
-[leaf 0334] [p. 111]
 
                           Rire et pleurer
 
@@ -2470,8 +2229,6 @@ Pour lui montrer sa maladresse, je m'amuse d'une anecdote. Mais très vite, une 
 
 Mais les autres protestent, chuchotent, s'agitent.
 
-[leaf 0335] [p. 112]
-
 Appelons-en au suffrage universel. J'étends la main pour obtenir du silence, et je pose la question :
 
 — Robert, qu'est-ce que vous préféreriez ? Ne pas rire en ne pleurant pas, ou rire et pleurer ?
@@ -2481,8 +2238,6 @@ Appelons-en au suffrage universel. J'étends la main pour obtenir du silence, et
 — Rire et pleurer ! approuvent presque tous ses camarades.
 
 « O monde, disait Marc Aurèle, j'aime ce que tu aimes ! » Ces petits stoïciens jouisseurs le redisent. Rêve qui touche mes rêves, orgueil qui s'appuie à mon orgueil… chers acceptateurs, chers petits Français !
-
-[leaf 0336] [p. 113]
 
 Sur ordre administratif, et pour vérifier s'ils étaient dignes de participer à la communion primaire supérieure, nous dûmes interroger quelques nouveaux élèves au début du troisième octobre.
 
@@ -2499,8 +2254,6 @@ Il finit par répondre d'un seul coup de voix et comme s'il eût aboyé :
 — Comment ? dis-je. Qu'est-ce qui s'est passé cette nuit-là ?
 
 Il se tut. Ses deux paupières tombaient comme deux petites loques de cuir jaune sur ses yeux. Il avait un
-
-[leaf 0337] [p. 114]
 
 habit de velours pauvre et un air gueux qui faisait peine. Ses lèvres se boursouflaient un peu sans qu'il parlât.
 
@@ -2526,8 +2279,6 @@ En classe, il ne trompa aucune de nos espérances.
 
 Nul en arithmétique, nul en orthographe, incapable de répéter une idée exprimée une minute avant qu'on l'interrogeât, et d'une figure que la compréhension
 
-[leaf 0338] [p. 115]
-
 n'éclairait jamais, je le croyais idiot. Une scène de la cour me révéla que je lui faisais tort.
 
 Ses camarades jouaient par un matin décoloré de novembre, les uns avec un ballon de caoutchouc qu'ils se lançaient et contre lequel ils se bousculaient parmi des cris ivres ; les autres se bombardant avec de petites balles dures et blanches. Marius les contemplait tout vert d'envie, mais sans oser se joindre à aucun des groupes. On l'appelait partout mal-à-gauche, et on le repoussait à cause de ses jambes molles et de sa figure ingrate. Et, n'ayant pas un sou pour s'acheter une balle, il s'ennuyait tout seul. Soudain, je le vis fouiller dans sa poche et en tirer de grosses mitaines qu'il avait. Il les retourna, les fourra l'une dans l'autre et les arrondit entre ses poings. Puis il jeta cette boule de laine bleue au-dessus de sa tête, et tandis qu'un bon sourire civilisait ses traits de mulâtre, il commença de la recevoir alternativement sur un pied et sur l'autre, battant ainsi la semelle en l'air avec une adresse délicieuse.
@@ -2535,8 +2286,6 @@ Ses camarades jouaient par un matin décoloré de novembre, les uns avec un ball
 Il restait là, fier ; personne ne s'occupait de lui, il faisait avec son jouet un petit ensemble clownesque à l'ombre pluvieuse du tilleul.
 
 J'étais ravi : mais comment le féliciter ? L'embrasser, je n'y tenais pas beaucoup. C'aurait été bien cérémonieux de lui serrer la main. Lui faire un discours, il se serait moqué de moi. Je me promis de l'interroger aussi rarement que possible.
-
-[leaf 0339] [p. 116]
 
                     Jeanne invisible et présente
 
@@ -2558,8 +2307,6 @@ J'amoncelle les copies devant elle, énumérant avec emphase :
 
 Je les lui livre. Son rôle est de les ranger selon leur exactitude et leur beauté. Quand elle a fini, je les
 
-[leaf 0340] [p. 117]
-
 annote d'un crayon extrêmement rapide. Je me fie à son soin, et de temps à autre, levant les yeux des élucubrations attristantes de mes écrivains, je la regarde, disposant ses cartes comme des images, hésiter vers la droite ou la gauche, cligner, se réjouir d'indignation aux formes grotesques et aux noms estropiés. Reconnaissant, je l'embrasse. Mais elle me dit alors :
 
 — Travaille donc au lieu de t'amuser !
@@ -2570,15 +2317,11 @@ Aussi l'angeline a-t-elle toujours terminé bien avant moi. Alors elle m'observe
 
 Comme elle met l'orthographe à la perfection, c'est elle encore qui corrige les dictées : et c'est d'ailleurs elle qui les choisit dans les livres que nous lisons. Je ne donne jamais une composition ou une récitation qu'elle n'aime ou dont elle ne sourie : car, sans les avoir vus, je sais bien qu'elle connaît mieux que moi ces petits garçons pareils à elle. Avec ses petits poings, c'est elle qui, mieux que moi dans l'orgueil incertain de mon pédantisme, pousse ma pierre ; — comme les enfants qui, dans un délicieux dessin de Rodin, font marcher le monde.
 
-[leaf 0341] [p. 118]
-
                        Les Arbres et le Ciel
 
 Les hommes, qui parlent et qui écrivent, ne sentent presque plus. Les enfants sentent, mais ils ne savent ni écrire ni parler. Apprendrons-nous jamais comment l'immense Nature se peint à leurs yeux vierges ?
 
 L'automne est variable, mais languide en octobre et pesant en novembre. Certaines minutes, à la Toussaint, quand le crépuscule débute, nous arrêtent tous dans un ravissement subit : à droite, les tilleuls de la route et les lueurs reflétées de l'Orient palpitent dans le rose ; à gauche, l'érable et le marronnier agitent leurs feuilles rouges au soleil comme la flamme d'un brasier : la classe alors semble contenue en deux murs de lumière, et les enfants sourient de se voir les uns aux autres des auréoles… Mais bientôt s'obscurcissent les jours. Alfred, qui pourtant est à la plus haute fenêtre près du couchant, réclame : « Msieu, on ne peut plus écrire. » On n'écrit donc plus. La nuit comme une source d'encre coule dans les encoignures. Les paroles se ralentissent dans l'ombre. Plus souvent encore une musique infinie
-
-[leaf 0342] [p. 119]
 
 de pluie les orchestre : — pluie sur les tuiles, pluie sur les branches, pluie sur les vitres grises et blanches… Et ceux qui demeurent loin se font des signes, se taisent, et puis regardent aux murs leurs petits capuchons qui pendent.
 
@@ -2586,17 +2329,11 @@ L'hiver est long. Naturellement, on récite les leçons, on les écoute, on corr
 
 Mars plaintif où gémissent des loups affamés dans la bise, le sournois Avril et Mai qui toujours pleure ramènent le printemps. Dix fois, on a cru le saluer.
 
-[leaf 0343] [p. 120]
-
 Robert apportait une violette. André se risquait à venir sans capuchon. Personne ne protestait plus à cause de l'onglée si j'ordonnais en entrant de se préparer à écrire. Mais le lendemain il repleuvait, il regelait, et des toux frileuses hoquetaient dans les coins. Le poêle grondait comme un chat qu'on tourmente. Et cependant, un matin, l'Attendu était là. Des feuilles nouvelles ornaient la leçon de botanique, et dans les deux cloisons de verre quelque jeune mousse, bourgeonnement gai du tilleul, de l'érable, verdissait et jaunissait. Les hirondelles jouaient aux quatre coins dans la cour. Et de semaine en semaine, la classe semblait émerger de l'ombre, sortir enfin de l'interminable hibernement, du silence engourdi, de l'involontaire attention des longues ténèbres, rire comme un nid dans la clarté. Le matin, ma table se revêtait de pervenches, de lilas et de jeunes roses ; les paperasses s'envolaient au vent caressant des fenêtres ; et le soir nous ouvrions la porte pour jouir déjà de la lumière.
 
 Le surprenant été approchait. Les splendeurs fatigantes de Juillet dissipent ou font paresser. Un esprit sensuel peut seul alors discipliner ces petites intelligences qui se débraillent. C'est l'heure de Saint-Simon, de Michelet, de Victor Hugo s'il est obscur : dictées, récitations sont massives et fraîches comme les tilleuls qui, moutonnant dehors, se creusent et se gonflent ainsi qu'un profond fleuve vert élancé dans l'air ; — comme le soleil d'après-midi sur les pierrailles de la cour, où repose son puissant sommeil de rubis et de corail… René souffrait lors des orages, tremblait et bondissait à chaque coup de tonnerre, sa chère face jaune plus agitée que le ciel. Henri soupirait bas. Mais les autres,
 
-[leaf 0344] [p. 121]
-
 plus lourds, qu'ils se réjouissaient donc au bel éclair, aux nuages fuligineux, aux orgueilleuses averses ! Dans la fraîcheur qui suivait, les esprits devenaient plus agiles, et l'odeur pensive de la terre les enivrait : Ils auraient compris du Renan ou du Goethe. L'intelligence alors se prolonge sur les choses en rayons paisibles, pareils à ceux de ces crépuscules infinissables qui visitent les plus lointains horizons du ciel et disséminent jusqu'au septentrion leurs tiédeurs infatiguées…
-
-[leaf 0345] [p. 122]
 
 Paupières battantes devant la Beauté
 
@@ -2607,8 +2344,6 @@ Je dicte du Verhaeren. La liberté du rythme froisse Charles, puriste inattendu.
 Du Maeterlinck. Les deux Marcel, Thomas, Marc, si pédant, Léon, Frédéric, Théodore, toute la seconde année proteste : — On n'y comprend rien ; les phrases sont trop longues ; ça ne se suit pas. On voit bien que c'est pas un Français !
 Du Flaubert, certaines pages invincibles de l'*Éducation Sentimentale*. — Msieu, dit Jacques, qui la connaît,
 
-[leaf 0346] [p. 123]
-
 c'est pas la forêt de Fontainebleau, ça, c'est n'importe quelle forêt !
 Du Victor Hugo, cette hallucinatoire description où l'herbe, l'arbre, le nuage, la nuit, la lumière sanglante des planètes enveloppent la pauvre Cosette d'une telle épouvante. — Oh, oh, s'indigne Jean, c'est du René, c'est du style René ! — Et René, malgré sa rougeur confuse, voudrait bien le croire.
 Du Stuart Merrill. « Notre mère la France, acceptez cette offrande ! » — Qu'est-ce qu'il a à dire ? ronchonne André, l'homme des grammaires, c'est pas sa mère, la France.
@@ -2618,14 +2353,10 @@ Du Musset, une page de la *Confession d'un enfant du siècle*, si forte que pour
 
 Aucune imploration ne m'arrête. Leur dictant le charmant chapitre où Victor Hugo a dépeint le Luxembourg, je les prie de m'expliquer l'impression qu'il leur
 
-[leaf 0347] [p. 124]
-
 laisse et la plus mystérieusement belle des phrases qu'il contient : « Les pensées qui tombaient du ciel étaient douces comme une petite main d'enfant qu'on baise. »
 Ils me répondent de cruelles niaiseries. Au lieu de m'avouer leur émotion, ils commentent celle de Victor Hugo. Ils trouvent pêle-mêle en ces deux pages de la gaieté, du calme, de la fraîcheur, peu d'animation, de la réalité, de la bonté, de la beauté. Fernand déclare même qu'à les lire « on se croit à l'instant transporté dans un autre monde ». Et Gabriel qui a pris le jardin pour le grand-duché, conclut : « Dans ce pays, tout le monde y est très bien. Les oiseaux chantent, font leurs nids sans être dérangés. Il ne pleut pas beaucoup et ainsi le pays est favorable à tout le monde. »
 Ou bien ils reproduisent la tendre image, mais quelques-uns la paraphrasent avec une sorte de grâce balbutiée. René écrit : « Les pensées qui venaient étaient douces, pures, belles, comme la main d'un enfant ; car celui-ci a les mains non souillées, non salies par aucun travail de la vie humaine. » Charles subtilise : « Les pensées réelles de la nature sont comme une main d'enfant que l'on baise, car les mains d'enfant sont douces. » Antoine enfin essaie d'expliquer à la fois le sentiment et l'idée : « Quand on baise une main de petit enfant, c'est doux ; et les pensées qui venaient à Victor Hugo et qui semblaient tomber du ciel étaient douces comme la main d'un enfant. »
 En somme, me disais-je après toutes ces expériences, les enfants sont indifférents au style, aux images, et à tout ce que nous appelons superficiellement (peut-être ?) « poésie ». Dès qu'ils s'intéressent aux abstractions ou aux formes, ils sont corrompus : le vieil enfant com-
-
-[leaf 0348] [p. 125]
 
 mence à pourrir autour du jeune adolescent. Ces êtres de jeu et de mouvement ne cherchent qu'une seule excitation dans l'art : l'exemple des actes. Victor Hugo, avec des coupures, les passionnera autant que Jules Verne : mon ami Jean ne peut séparer ces deux maîtres en son admiration.
 Eux que l'histoire ou la morale dogmatique ennuient, je les ai réduits au plus effrayant silence en leur lisant des œuvres pleines de la plus complexe pensée, mais tragiques, le *Parricide*, le *Petit Roi de Galice* ; *Servitude et grandeur militaires* ; le merveilleux *Crainquebille* ; le *Quatorze Juillet*, de Romain Rolland ; de Tolstoï, *Ce qu'il faut de terre pour un homme* ; le *Dingley* des Tharaud, les *Quatre ans* de Daniel Halévy, les *Xipéhuz* de J.-H. Rosny, le *Dormeur* de Wells...
@@ -2637,8 +2368,6 @@ Un hymne incohérent et doux qui est dans l'*Art d'être grand-père* :
     Et sa pensée, errante alors comme les proues
     Dans l'onde, et les drapeaux dans les noires mêlées,
     Est un immense char d'aurore avec des roues
-
-[leaf 0349] [p. 126]
 
 Une ode si harmonieuse qu'il faut, parce qu'elle s'y trouve, pardonner à Paul Meurice d'avoir édité la *Dernière gerbe* :
 
@@ -2663,8 +2392,6 @@ L'admirable, l'oppressant *Soir d'Octobre* de Léon Dierx :
 
 Et j'ai bien connu alors, au religieux silence, au machinal battement des syllabes, au chuchotement
 
-[leaf 0350] [p. 127]
-
 répétitif qui accompagnait ma voix relisant, que j'avais enfin planté la fleur, et que ces enfants, sans la comprendre, sans la pouvoir expliquer, adoraient la Beauté.
 — Maîtres qui me l'avez dévoilée, à qui je n'ai jamais su montrer ma gratitude, vous surtout qui lûtes *Eviradnus* à mes quinze ans enchantés, c'est vous, à travers moi, qu'ils remercieront plus tard, ces enfants, lorsque passant devant un café-concert où retentiront de sales rengaines et le dédaignant, ils se répéteront tendrement dans leur mémoire des vers dignes de l'amour :
 
@@ -2674,18 +2401,12 @@ répétitif qui accompagnait ma voix relisant, que j'avais enfin planté la fleu
     Mon bien-aimé ! Mon bien-aimé ! Mon bien-aimé !
         Toute la montagne est fleurie !
 
-[leaf 0351] [p. 128]
-
-Le mystère
-
 Toutes nos paroles, comme les étoiles sur l'infini de l'ombre, scintillent sur un vaste silence.
 Quelque chose existe au dehors, dans les rues, dans certains livres qu'on défend d'ouvrir, à certaines vitrines qu'il ne faut pas regarder, parmi telles conversations à voix basse ; — quelque chose existe qu'ignore toujours l'école.
 Un taciturne sphinx veille aux sources croupissantes de la vie.
 A l'hypocrisie des parents et des maîtres répond l'hypocrisie des enfants. Car en vérité, le mot de cette fameuse énigme, c'est le secret de Polichinelle.
 
 ... Théodore, jaune individu aux traits descendants et plissés que j'ai surpris deux ou trois fois lisant comme une bible *la Sonate à Kreutzer*, cette œuvre originique du vieux Tolstoï, un soir, à l'étude, grogne et se remue. Puis, quêtant la permission de venir à
-
-[leaf 0352] [p. 129]
 
 moi, il me souligne en un tome des *Contemplations* ce vers, qu'il s'applique à trouver inintelligible :
 
@@ -2700,8 +2421,6 @@ Théodore grimace. Il se rassied. Alors son voisin, Frédéric, un garçon de di
 Pourtant, je suis prudemment. Voici ma morale à l'usage des dauphins du Peuple :
 — Le plaisir n'est pas condamnable. Boire, manger,
 
-[leaf 0353] [p. 130]
-
 c'est nécessaire à la vie. Bien boire, bien manger, avec plaisir, c'est utile au bon fonctionnement des organes. « Soyons d'abord de bons animaux, » a dit un grand philosophe. Mais n'oubliez pas que l'excès tue l'organe : non seulement il émoussera le plaisir que nous prenons à contenter nos besoins, mais encore il nous empêchera de les contenter. Vous connaissez les effets de l'alcool sur le cerveau, le cœur, les poumons ; ceux de la trop bonne chère sur l'estomac...
 — Sur l'anus, dit Georges à mi-voix.
 D'abord (il eût pu si facilement trouver pis), je ne voulais pas entendre cette sottise. Mais je l'aperçois se propager sur les oreilles, sur les sourires, descendre les bancs, embourber tout.
@@ -2712,8 +2431,6 @@ Il baisse la tête. Je continue la leçon. Mais de banc en banc toujours, d'orei
 — Qu'est-ce que vous avez ?
 Les autres bourdonnent. Lui se tait ; il continue à gémir et à laver ses mains sur ses joues. Je le connais assez bien, je devine qu'il se refuse à dénoncer quelque niche pénible ; et tandis que je regarde avec intention Robert, son voisin, l'hypocrite à la face morte, je répète :
 — Qui est-ce qui vous fait pleurer ?
-
-[leaf 0354] [p. 131]
 
 Il reste muet. Robert alors se lève et avoue :
 — Msieu, c'est parce que j'y ai dit qu'i jouait tout le temps avec les filles.
@@ -2726,8 +2443,6 @@ Si vous voulez. Mais sans chaleur, et simplement par hygiène.
 Car vous n'empêcherez point, en leur révélant tout, les âmes basses de rire ignoblement ; ni les âmes hautes de se tourmenter de questions sans but. Qu'ils se taisent ou que nous les instruisions, le mystère n'en sera pas diminué.
 Nos paroles, comme les petites étoiles sur l'ombre, palpitent sur un immense silence.
 
-[leaf 0355] [p. 132]
-
 Force des larmes
 
 — Marcel, dis-je au polichinelle, vous ne suivez pas.
@@ -2737,13 +2452,10 @@ Il ment sans y penser, ou bien c'est qu'il ne donne pas au verbe « suivre » le
 C'est de l'allemand. Il articule mal.
 — Mettez le vrai sujet à la place du pronom.
 Essayant de parler, il pâlit. Il se trompe.
-— Le vrai complément ?
 Il se trompe encore. Il balbutie. Sa face égarée me peine, ses yeux troublés verdissent plus fort, ses lèvres gercées pendent.
 — Marcel, dis-je, voilà quelque temps que vous semblez ne plus vouloir travailler. Pourquoi ?
 Il ne répond pas. Ses yeux ne sont plus visibles. Je reprends.
 — Faites attention. Cela m'ennuie de vous adresser des observations pareilles. Vous êtes assez raisonnable pour savoir si vous devez vous appliquer ou non. Je ne tiens pas du tout à vous punir.
-
-[leaf 0356] [p. 133]
 
 Se taisant, il cache sa figure dans l'une de ses paumes. J'interroge ses camarades et ne m'occupe plus de lui.
 A la fin de la classe, il se lève le dernier. Il pleure : deux petites larmes transparentes coulent sur son nez. Je sens une pointe au cœur.
@@ -2753,8 +2465,6 @@ C'est inexact. Je le lui affirme. Il ne cesse pas de pleurer. A son âge ! Avec 
 — Voyons, lui dis-je irrité et tendre, assez. Je ne suis pas mal disposé contre vous, mais je veux que vous travailliez.
 Il s'en va. Une de ses larmes tombe sur sa main.
 Et moi, pour l'avoir sottement affligé, je souffre du même repentir qui me poignit ce jour où, cherchant à vérifier l'étrange sensation d'un rêve, je tourmentai Jeanne, ma chérie, jusqu'à ce que j'eusse vu sur tout le pourtour de ses yeux naître, briller et bouillonner l'étincelante écume des larmes.
-
-[leaf 0357] [p. 134]
 
 De l'amour
 
@@ -2767,8 +2477,6 @@ Lisant avec une protestation sourde, grognonne ou horripilée, et, malgré l'irr
 « Ne mettez pas votre espoir, ni votre principale récompense dans l'affection de vos élèves. »
 Une récompense, je n'accepterais pas de récompense. Mais une espérance ! Comment aimeront-ils ce que je
 
-[leaf 0358] [p. 135]
-
 leur dirai, ces enfants, — mes vérités ou mes doutes, — s'ils ne m'aiment pas moi-même un peu ? Est-ce qu'aimer, ce n'est pas mieux et plus que comprendre ? Dans l'amour toute la compréhension n'est-elle pas absorbée ?
 J'eus la réponse un jour.
 C'était le temps où le Marcel brun, qui eût voulu quitter l'école, s'ennuyait et sentait en lui une hargneuse vie. Causant tout haut, riant très fort, feignant avec ostentation de ne jamais écouter, il s'appliquait à devenir insupportable. Je le menaçais souvent sans jamais le punir, ce qui, je crois, l'humiliait.
@@ -2779,10 +2487,6 @@ Ses camarades élevèrent une rumeur d'admiration. Je réussis à me taire : il 
 Je l'observai dans le silence un peu effrayé des autres. Il riait de ce rire singulier qu'il a, et qui lui contracte le visage au lieu de l'épanouir. Le mépris luisait dans ses yeux : il me trouvait injuste et lâche, il me haïssait. Ma gorge se serra, je sus l'amour dédaigné : et pourtant je n'y renonçai pas.
 — Vous êtes bête, dis-je un peu trop bas, mais c'est de votre âge.
 Il se tut enfin. Ses lèvres tremblaient, ses prunelles se ternirent, un peu de cendre effaça le rouge de ses joues. Je souffrais plus que lui, je me sentais vaincu : mais mon instinct obscur d'aimer, opprimant et ma pédagogie et ma vanité, ne cédait pas à l'ingratitude.
-
-[leaf 0359] [p. 136]
-
-L'Égalité
 
 ... — Lisez-moi ces vers-là...
 J'hésite à désigner quelqu'un. Ils crient pour se proposer :
@@ -2796,8 +2500,6 @@ Ils ont raison, mais ils me surprennent. Je les fais taire, quoique cette idée 
 — Charles, vous ne travaillez pas et vous vous conduisez mal. Votre composition de morale est absurde. On peut ménager un bon élève, mais un paresseux comme vous, on ne doit pas le manquer.
 — On devrait punir les bons élèves plus que les mau-
 
-[leaf 0360] [p. 137]
-
 vais. Si iz ont pas de facilité pour apprendre, c'est pas leur faute. Et iz ont plus de peine que les autes à se tenir tranquilles.
 — Maxime, dis-je, vous êtes trop intéressé dans la question pour la trancher.
 Mais je riais en moi-même de cette subtile parole, d'entendre maintenant affirmer l'inégalité comme une forme plus haute de la justice.
@@ -2809,15 +2511,9 @@ Question ridicule ; mais elle va profond. Après avoir laissé la classe rire, j
 Ils sourient ; ils ont si bien compris, c'était si compréhensible ; ils me regardent avec orgueil et de haut comme un balayeur.
 Et moi, je caresse enfin ma définition dans mon esprit : l'Égalité, c'est l'accessibilité de tous à l'Inégalité.
 
-[leaf 0361] [p. 138]
-
-L'Iniquité
-
 Plusieurs fois, j'avais senti le vent de l'épée. Un vertige léger, le silence, une surprenante indulgence ; l'enfant menacé levait des yeux étonnés, sans se douter que j'avais tout à coup craint d'être injuste.
 « Injuste », selon le vocabulaire des gosses. Qu'est-ce que la justice ? dit Pilate. Elle n'existe pas, peut-être ; mais celui qui n'aurait aucun préjugé serait un fou. J'éprouve du moins un double coup au cerveau et au cœur lorsque ma pensée ou mes instincts exercent une injustice.
 Mes classes de géographie étaient habituellement tumultueuses. Elles venaient le matin à la quatrième heure : les enfants épuisés exigeaient quelque relâche. Et moi-même, la géographie m'ennuie : je la préparais avec négligence ; de sorte qu'au cours de ma leçon, si quelque interrupteur suscitait une dissertation d'histoire ou de politique, je lui en savais gré et je m'arrêtais avec complaisance. Cette faiblesse n'échappa en rien à ces bambins, et sans du reste y mettre grand malice, mais non en toute innocence, ils en abusèrent.
-
-[leaf 0362] [p. 139]
 
 Aussi dus-je, sur le conseil et dans le style de M. Fernand, « leur serrer la vis ». J'instituai le Tribunal Révolutionnaire : une consigne immédiate à celui qui questionnerait sans permission. Et c'est à cette occasion, (méticuleux, d'ailleurs, on me connaît, relaps de la délectation morose, *porté sur ma conscience* comme il en est qu'on dit *portés sur leur bouche*), c'est par cette invention que j'aperçus la justice et l'injustice en face.
 Je répétais ma menace pour la seconde ou troisième fois lorsque tout à coup Louis demanda :
@@ -2829,16 +2525,12 @@ Il se mit à pleurer. Les autres firent silence : ils jouissaient des larmes de 
 — Seulement, tâche de ne pas recommencer.
 Et j'effaçai la retenue. Il sourit : ce fut une lumière sur sa face gonflée. Mais aussitôt, la deuxième piqûre
 
-[leaf 0363] [p. 140]
-
 pénétrait. Je crus apprendre, à l'instant de gracier Louis, de la même appréhension poignante qu'au moment de le punir, que je venais d'être injuste, et cette fois envers toute la classe.
 Nous sortions. Je les accompagnais d'habitude, administrativement, jusqu'à la porte. J'écoutai courir la rumeur au long des rangs : « I y a effacé sa colle ! — C'est son chou-chou !... »
 Feignant une surdité profonde, pourtant j'acceptais machinalement ce style, je me reprochais la maladresse qui m'avait fait craindre par les faibles, la lâcheté qui me ferait mépriser par les forts. Selon la spontanéité de mon esprit livresque, je continuais un système : déjà s'ajoutaient à mes vieilles théories plusieurs remarques sur la justice distributive, toutes chargées de vie. Mais elles me fatiguaient, et je devinais comme une menace en elles.
 A trois heures, j'avais à nouveau classe avec les enfants lésés le matin. Leurs sourires signifiaient une arrière-pensée à mes yeux prévenus. Je n'avais pas honte de ma sottise, mais de ma honte même : à la manière d'un jeune homme bien élevé, comme on les appelle, qui ne se repent pas de ses gaffes, mais de l'embarras où elles le laissent. J'attendis sans bravoure l'escarmouche inévitable.
 Déjà Georges, l'un des Georges, gras, aux yeux de travers, l'un des plus paresseux et des plus vils garnements que j'aie rencontrés, tricheur, dénonciateur, menteur et obscène, Georges m'avait adressé ces mots :
 — Vous savez, msieu : Louis est pas pus que les autes !
-
-[leaf 0364] [p. 141]
 
 Moi, — une leçon de ce crapaud fétide !
 — Si d'ailleurs, pensais-je, il est plus que les autres : il travaille, et toi tu ne fiches rien.
@@ -2853,8 +2545,6 @@ J'avais besoin de la réponse, je la provoquais : je voulais donner loyalement m
 — Ce n'est pas la même chose, assurai-je.
 Naturellement, ils reconnurent là le ton de Tartufe. Les mauvais élèves murmurèrent. Les bons ne clignaient même pas de l'œil : leur lâcheté m'inquiéta. Ils semblaient s'étonner que je permisse la discussion. Si Marcel avait été là, il aurait bien ri. — Quant à Louis, mon complice, ma victime, il se tenait à sa table honteux et blême. Je poursuivis :
 — D'abord, je ne vous ai pas puni pour le même
-
-[leaf 0365] [p. 142]
 
 motif. Et puis, Louis est un bon élève, alors que vous, vous êtes un paresseux. Je ne peux pas être aussi...
 — Ah, c'est un bon élève ! souffla Charles avec colère.
@@ -2871,8 +2561,6 @@ André, l'anarchiste, — physionomie si hypocrite et si fuyante qu'à le regard
 Injure de la Force ! Ils ne la relevèrent pas. Je détestai leur couardise en utilisant leur silence : une grêle de suffixes et de préfixes apaisa la révolte.
 Sauf en moi. La cloche ne me délivra pas de mon trouble. Ma raison proteste, mais de vieilles habitudes, une énergie instinctive, sont stoïciennes contre elle. « Une iniquité, même minime, c'est toute l'iniquité. » Je
 
-[leaf 0366] [p. 143]
-
 crus avoir péché. Puérilisé par les enfants, je retrouvai tout à coup pour me flétrir l'agaçante emphase d'un âge ingrat criardement quarante-huitard :
 — Rappelle-toi Enjolras ! Tu n'es pas digne de la Révolution !
 Tempête sous un crâne pédagogique. Mon erreur était-elle réparable ? Une seconde, un tressaut humiliant me poussa vers une bassesse : — Attends, mon petit Louis, me disais-je, fais une demi-sottise vendredi, et tu verras ce que tu la paieras ! — A peine proférées, ces paroles de stupide talion me firent honte : je les recrachai comme une gorgée de bile.
@@ -2881,23 +2569,17 @@ Ici, distinguant quelques idées, la méditation me peina moins âpre. Mon remor
 — La conclusion nécessaire de tumulte, terminai-je, m'absolvant d'un texte commode emprunté à la doctrine de l'Acceptation Universelle, ce sera la dissertation que je leur infligerai vendredi : — Expliquer et s'il y a lieu discuter cet axiome du droit romain : « Le comble de la justice, c'est le comble de l'injustice. »
 Mais je n'y recourus pas. Le vendredi, nul souvenir,
 
-[leaf 0367] [p. 144]
-
 nulle parole. Le jeudi passé, les consignes étaient faites, les vengeances réservées : — il fallait bien continuer de vivre avec moi ; on ne pouvait en appeler au Directeur, il m'aurait donné raison ; on prendrait une autre fois la Bastille.
 Silence. Calme. Nulle allusion. Les sourdes rancunes dégradantes.
 Face à face, justice et injustice se regardaient en moi. Un seul acte les exposait ensemble, apparences flottantes de la force, masques de la haine et de l'amour. Ailleurs sans doute qu'en elles, plus profond au secret du cœur, bruissait une source plus vive.
 
 ... Humble, je commençai à préparer avec soin mes leçons de géographie.
 
-[leaf 0368] [p. 145]
-
 Jean et la Justice
 
 Jean était très remuant ce matin-là : il l'est toujours, mais il dépassait les bornes. Il se retournait constamment vers Maurice, son frère, pour lui confier quelque secret ; ou vers Henri, le journaliste, pour emprunter un buvard, déranger un cahier, chiper et cacher un porte-plume.
 Celui qui se rend coupable de ces péchés n'en gardera pas le remords en paradis. Mais l'atmosphère sociale de l'école déforme l'enfantillage en anarchie. Chuchoter ou doucement rire, lorsque c'est Jeanne, quelle grâce ! mais si ces quarante coquins s'y mettent, l'Administration m'accusera encore de « ne pas savoir assurer la discipline ». — Je m'en moque. Toutefois, il n'est pas moral que Jean soit autorisé par mon indulgence, (qu'est donc cette indulgence, sensualité ou mépris ?), à troubler ses camarades, à interrompre le cours, à déséquilibrer la classe. S'il était mon jeune frère et qu'il fît ses singeries auprès de ma table, je l'embrasserais ; mais il n'est pas mon frère, nous ne sommes pas seuls tous les deux, il sape les fondements de la société.
 Je lui marque un zéro d'application. Il feint de pleurer, sachant le pouvoir qu'ont sur moi les larmes. Mais je résiste. Au bout de cinq minutes, ses yeux sèchent ; au bout de dix, ses joues violacées rosissent ; le quart
-
-[leaf 0369] [p. 146]
 
 d'heure n'est pas écoulé que le cher môme recommence à bavarder et à rire.
 J'en ai fait autant. On m'a puni comme je devrais le punir. Tâchons de faire mieux :
@@ -2911,9 +2593,6 @@ Il est intelligent, il ose ceci :
 — Msieu, ça, c'est pas de la conduite...
 — Comment, protesté-je avec la joie du vrai discuteur, qui ne dédaigne aucun adversaire, — ce n'est pas de la conduite ! Vous ne suivez pas, vous ne pouvez pas répéter : qu'est-ce que vous avez donc fait pendant toute la leçon, si vous ne vous êtes pas mal conduit ?
 
-[leaf 0370] [p. 147]
-
-Il se tait. J'insiste.
 — Eh bien, je vous donne un zéro. Est-ce juste ?
 Je dois ajouter que, si le zéro d'application n'a pas de conséquence, le zéro de conduite entraîne automatiquement une retenue. Jean reste muet. Mais ses camarades lui suggèrent tout bas cette malice :
 — Dis donc oui, i le marquera pas.
@@ -2924,15 +2603,9 @@ Je sais bien qu'ils m'attendent là : je m'y attendais moi-même. Mon devoir str
 — Eh bien, dis-je avec noblesse, ça me suffit. Je ne vous le marquerai pas, mais vous l'avez mérité. N'oubliez pas ce que c'est que la justice.
 Il y a un petit bruissement. Je crois que les enfants voudraient rire ; mais ils ne s'y risquent pas ; car ils ne sont pas sûrs que j'aie été entièrement mystifié ; et peut-être se demandent-ils si je ne l'ai pas bien voulu.
 
-[leaf 0371] [p. 148]
-
-La Foule
-
 Comme si j'applaudissais à quelque spectacle invisible, je bats des mains au seuil en pierre de la porte. Et le battement se répétant, des cris l'accompagnant, les enfants s'arrêtent, regardent, comprennent le signal : de tous les coins de la cour, qu'ils jouent à la balle ou aux billes, aux papillons d'érable ou à la tombe, les voici qui se ruent.
 Il faut bien s'amuser une dernière petite seconde : ils se défient à qui arrivera premier : et jambes tendues, poitrines bombées, faces rejetées en arrière et rougissant, ils se précipitent sur le mur, sur la porte, sur moi. Quarante-cinq bambins de mauvais drap, de toile noire, de cheviotte, de velours marron ou vert ; quarante-cinq bambins de chair vivante, de race confuse, de pensée plus étrange et plus diverse que la matière des rêves ; quarante-cinq passés inconnus, quarante-cinq avenirs sans forme s'élancent vers leur maître comme de jeunes alouettes vers un miroir.
 J'en suis effrayé. Détestable force de l'habitude et de la parole ! S'ils voulaient pourtant, s'ils le voulaient
-
-[leaf 0372] [p. 149]
 
 longuement et ferventement, ils ne rentreraient pas, ils resteraient là à leur jeu, se moquant de moi et de toute l'Autorité. S'ils voulaient encore, tous ensemble, ils feraient à leurs tables un tel tumulte que ni mes menaces, ni mes punitions, ni mes brutalités ne le pourraient rompre.
 Ils n'y songent pas. Ils sont une Foule et je suis un Individu.
@@ -2941,15 +2614,11 @@ Les Républicains n'ont été purs que sous l'Empire : ainsi jamais je ne profes
 Un calcul singulier me tranquillise. Trois heures de consigne à Valentin, c'est quelque chose pour lui, ce n'est rien pour moi : il y a disproportion. Je suis le Maître, et je suis seul. Valentin n'est qu'un Élève, et ils sont cinquante. Pour me haïr moi-même autant qu'il me hait, il me faudrait mettre en retenue d'un seul coup les cinquante galopins. Encore n'y aurait-il qu'équilibre entre moi et leur foule.
 Despotique mystère de l'Injustice ! Moi aussi, comme tant de moins obscurs, j'ai passé de l'opposition au pouvoir, et ma perspective a changé. Élève, j'étais l'In-
 
-[leaf 0373] [p. 150]
-
 dividu devant la Société. Maître, je représente la Société devant les Individus. Jadis, mes professeurs, mes camarades, vus de la cour bruyante et des jeux, possédaient à mes yeux leur valeur complète : ils existaient chacun seul pour moi dans la plénitude de leur vie. Maintenant, mes élèves ne sont plus que des fractions : en eux, au pied de ma chaire pédante, isolée par la discipline indispensable et les feintises du respect, ne se tordent plus, comme des tronçons de vers, que des cinquantièmes de vies. Ce qui existe, ce que je dois personnellement considérer, ce n'est plus eux, c'est la Classe, leur groupement.
 — Mais il n'y a que des hommes ! me crie ma passion individualiste : chacun en particulier doit exister pour toi !
 — Impossible. Socialement ici, il n'y a plus qu'un ordre ; physiquement, plus qu'une foule ; et leur directeur.
 J'essaie de diminuer mon absolutisme ; mais je n'arrive qu'à l'instituer plus clair. Rémunérateur et vengeur, je me tiens en haut comme un Dieu bougon, tout-ennuyeux et tout-puissant : et quoi que je fasse pour respecter l'équité, pour me défendre de toute préférence, — j'ai mes élus, et je suis contraint de les avoir. Toujours je me tourne vers les meilleurs quand je ne me tourne pas vers les pires : mais la foule des médiocres demeure constamment hors de ma vue, de ma sympathie et de ma pensée.
 Ainsi qu'un peuple à son tyran, la classe ne me montre que les confidents et les conjurés, que les conservateurs et les anarchistes. C'est une position de tragédie selon le vieux Corneille : à droite, les fermes
-
-[leaf 0374] [p. 151]
 
 soutiens de la discipline et de la vérité ; à gauche, les hurluberlus et les indomptables ; et au milieu,
 
@@ -2960,14 +2629,10 @@ Il y a des faibles que je ne soutiendrai pas. L'âme des enfants est petite, il 
 Il y a surtout des énergiques que je méconnaîtrai. Peut-être n'attendent-ils pas, pour se révolter, protester, exprimer leur pensée hésitante, qu'un seul mot, — ce mot justement que je ne prononcerai pas... Elles existent, et je les adore où je les rencontre, ces âmes secrètes, qui parlent peu, qui écoutent, dont la brusque fièvre parfois jette aux visages une battante rougeur, et qui se gonflent selon l'heure d'une telle haine ou d'un tel amour ! J'en ai peut-être là, sous mes yeux indignes, quelqu'une que je ne devine pas, que plus tard j'apercevrai. Qu'elle m'excuse alors en faveur de mon angoisse.
 Pour les « bons élèves », pour les « mauvais », je suis sans inquiétude. Certes, je me trompe : je surestime bien quelque hypocrite, je décourage bien quelque maladroit ; mais ils se retrouveront. Et puis, vie pour
 
-[leaf 0375] [p. 152]
-
 vie : ils m'en ont donné et je leur en ai rendu. Le remords me peine seulement au souvenir de ceux-là que, par ignorance ou dédain, je n'aiderai pas à gagner conscience d'eux-mêmes.
 
 ... L'heure est passée, voici la cloche. Je les délivre par un signe de l'immobilité et du silence. Ils surgissent, ils crient, ils bondissent de gradin en gradin vers l'estrade, vers la porte. Disloquée entre les tables et les bancs, leur foule est encore menaçante : mais elle se dissout, ils partent, du seuil ils se dispersent dans la cour comme les rayons en gerbe d'une fusée : — et je les regarde se bousculant, joyeux, guettés pourtant à quelques pas par la douleur, les passions, la misère, la maladie, la mort. Un irrésistible amour me saisit pour leur pitoyable chair et leur pensée.
 Les voilà isolés. L'unité factice de l'École est brisée, chaque enfant revit de sa faible vie. Je voudrais pourtant pétrir selon sa loi cette pauvre matière humaine. Démiurge désintéressé, comment dégager de ces enfants diffus, sous mes poings, des hommes à *leur* image ?
-
-[leaf 0376] [p. 153]
 
 Impudeur de l'Intelligence
 
@@ -2977,8 +2642,6 @@ Ici, Henri, le regardeur de nuages, ouvre de grands yeux tristes ; tandis que L�
 
 ... Plus tard, je me laisse entraîner par la violence de mon angoisse, et je leur confie ce que je commence à croire de la justice :
 — La Justice réclamerait l'Égalité. Or, détruire les inégalités, sociales, intellectuelles, corporelles, entre les hommes, c'est une absurdité. Je passe sur les impossibilités. Pour être exactement égaux, deux hommes devraient aussi occuper la même position dans l'espace, c'est-à-dire ?... Eh bien, c'est-à-dire ?
-
-[leaf 0377] [p. 154]
 
 Ils se taisent. Je ne sais plus s'ils me comprennent. Mais il faut que j'aille jusqu'au bout :
 — C'est-à-dire être identiques. L'Égalité, c'est l'identité. L'identité, c'est la disparition des formes. Résorption des hommes dans le sein de Dieu, pour les chrétiens ; confusion des individus dans un ensemble sans nom pour les athées. La Justice...
@@ -2992,15 +2655,11 @@ Pour quels effets ? Je vis un jour le Marcel brun souffrir sous ma pensée comme
 Mais, le voulant à peine, je dois poursuivre :
 — Un jour vient où nous jugeons nos frères. Si leur caractère nous déplaît, nous les abandonnons ; et si non, nous les adoptons comme des amis. Seulement alors...
 
-[leaf 0378] [p. 155]
-
 Je m'interromps. Je crains de conclure : voici Marcel tout pâle.
 Je médite ensuite, avec une machinalité douloureuse. Pourquoi livrer ainsi à ces enfants mes idées les plus chères, et qu'ils ne peuvent entendre ? Vanité, enivrement d'autorité, délire ?
 Mais *ce n'est pas à eux que je parle*. A peine si je les questionne. Nul sourire aux yeux, nulle excitation aux langues ; ma voix seule vers les cœurs invisibles ! je ne m'adresse ni aux Marcel, ni à Léopold, ni à Léon, ni à Henri : je m'adresse à un être de raison ou de déraison, à un fantôme imaginé subtil et savant, à la classe « en tant qu'individualité », à la Foule. Qui donc me garantit que, cette Foule mythique, ce soit le meilleur, le plus sincère, le plus laborieux de ses personnes qui la compose ?
 Puis je me console. Ils ne me croient pas. Je sais bien comment j'ai fait. Mes maîtres quittés, mon esprit révolté se hâta de renverser toutes les idoles qu'ils avaient édifiées devant lui. La meilleure éducation, c'est la plus mauvaise. Si je voulais enseigner mes vrais principes, (en ai-je ?), j'exposerais les principes contraires le plus dogmatiquement que je pourrais. — Mais peu m'importe. Ce que je tiens pour exact et juste est faux peut-être, et absurde : je consens, Marcel, Marcel, Henri, que des idéals de ma jeunesse vous fassiez un fumier pour les vôtres.
 Il n'y a pour un homme de vérités que celles qu'il trouve.
-
-[leaf 0379] [p. 156]
 
 Une victime du bavardage
 
@@ -3010,20 +2669,14 @@ Vincent, qui baisse là-bas sa figure étroite, fait tout ce qu'il peut pour se 
 « Plus tard, je voudrais exercer le métier de couvreur, comme mon père ; il faut que j'aie de l'instruction ; je ne pourrai pas exercer ce métier si je n'ai pas d'instruction, ainsi que tous les métiers ont besoin d'instruction. Le métier de couvreur est un bon métier, mais celui qui n'a pas d'instruction ne peut rien faire dans sa vie ; parce que ses semblables qui ont de l'instruction sont plus forts que lui, et pourront, grâce à leur instruction, triompher et le vaincre.
 « L'instruction est très utile pour celui qui sait s'en
 
-[leaf 0380] [p. 157]
-
 servir et celui qui sait résister aux obstacles dans la vie de tous les jours. L'instruction est la source de toutes les richesses, parce que sans elle personne ne connaîtrait les sciences et les œuvres qui existent en notre siècle. »
 
 Pauvre garçon ! Le verbiage dont son crâne bourdonne assourdit jusqu'à son instinct. J'ai envie de me lever de la table où je corrige son ineptie ; d'aller à lui, de le contraindre à redresser sa tête rectangulaire, ses lourdes babines molles, ses yeux peureux, et de lui crier :
 — Vincent, si vous étiez sans instruction, *est-ce que vous sauriez encore pisser ?*
 
-[leaf 0381] [p. 158]
-
 Sur les murs, gravées au clou ou au canif, s'allongeaient autant d'inscriptions au moins que dans les coins fréquentés par les soldats. Et chose bizarre, c'étaient les mêmes : — Encore 54 jours à tirer ! — La fuite dans 35 jours ! — Plus que 72 heures et la fuite !
 Qui niera que le travail des pioupious ne ressemble au travail des potaches ? N'appelle-t-on pas « instruction » et « écoles » les premiers mois d'activité ? Bara et Viala ont si bien joué à la guerre que j'ose à peine rire bas lorsque le plus libre de mes amis intérieurs me développe ses paradoxes sur le transport entre treize et dix-sept ans du service obligatoire. « Quelle admirable éducation physique ! s'écrie-t-il. Comme leur esprit sortirait pur et mûr de cette longue jachère ! Et, je ne veux pas m'en cacher, quel coup à ces deux complices inséparables, au militarisme et à la prostitution ! »
 J'arrivais assez nerveux d'une caserne : j'en retrouvai une autre sans plaisir. Un matin de la première semaine, j'entrais suivant les enfants quand Valentin, roux, subtil, audacieux, cria pour me saluer :
-
-[leaf 0382] [p. 159]
 
 Je ne fus pas maître de moi, je m'exprimai plus militairement encore que lui :
 — Si tu recommences, menaçai-je, je te fous à la porte !
@@ -3034,8 +2687,6 @@ Il y eut des chuchotements. Les enfants perçaient sans doute l'équivoque volon
 « Mais vous, de quoi vous plaignez-vous ? Vous n'êtes pas surmenés, on ne vous tourmente pas, et comme on vous le répète souvent, « c'est pour votre avenir que vous travaillez ». Pourquoi réclamer la fuite ?
 Ils se turent. Est-ce que j'avais menti ? Ils le sentaient, et, craignant de le dire, pensaient tous avec la même conviction perdre, comme leurs frères à la caserne, les trois quarts de leur temps aux inutilités de
 
-[leaf 0383] [p. 160]
-
 l'école. Ou bien, mon Dieu, se fichaient-ils de leur avenir ?
 A la veille des grandes vacances, ils employèrent à exprimer ces sentiments l'originalité la plus ingénieuse. Je commençais de leur trouver une âme : je me réjouissais en tout de l'entendre parler, et même alors qu'elle m'injuriait.
 Je confisquai plusieurs dessins drôles. Alfred avait représenté un ballon, de la nacelle duquel l'aéronaute, laissant pendre une banderole, annonçait aux populations : « Encore vingt-sept mètres à monter ! » ; — André, l'anarchiste, des joueurs balançant leurs boules au milieu d'un vaste écroulement de quilles, avec cette légende : « Plus que dix-huit à abattre ! » — Et le subtil Robert, l'hypocrite au visage immobile, s'émut jusqu'à peindre en noir et en bleu un petit kobold aux pattes de crapaud, se hissant à tous muscles au long d'un mât de cocagne, pour y décrocher, dans une enveloppe cachetée de douze cachets, les bienheureuses « vacances »...
@@ -3043,17 +2694,11 @@ La cour dormait telle un lac au soleil. Le soir, comme dans les romans d'aventur
 
 ... Vive la classe !
 
-[leaf 0384] [p. 161]
-
-L'Énigme
-
 Et pourtant, ces matins en juillet étaient tissés de délices.
 Il ne venait plus que trois ou quatre élèves par année. Nous les laissions dans la cour, forts de la tolérance administrative ; et tirant nos chaises de nos classes, nous nous asseyions, M. Fernand et moi, devant eux, de huit heures à midi, pour causer ou lire.
 La lumière et les arbres régnaient.
 Le soleil gravissait le toit des bâtiments dont il raccourcissait l'ombre. Un halo violet environnait sa splendeur et l'annonçait peu à peu au reste du ciel. Mais longtemps, l'horizon restait d'un bleu de myosotis, tout pâle, tout clair, épuré par une irradiation fraîche innombrablement vibrante. Parfois, un nuage apparaissait penché sur les tuiles de l'atelier, souple et pâle ainsi qu'une indécise forme d'ange : mais l'azur s'élançait entre ses fibres disjointes, il se dissolvait tout sans laisser la plus faible trace ailleurs qu'en nos mémoires enchantées.
 Les tilleuls, les acacias, les érables, l'orme se tenaient debout magnifiquement sous la voûte étincelante. Jamais je n'avais à ce point d'ivresse senti leur vie
-
-[leaf 0385] [p. 162]
 
 divine, leur beauté aussi noble que la beauté humaine. Ils affermissaient leur tronc ridé sur dix pieds de terre, ils étendaient leur ramure en éventail ou en palme, comme un mystérieux piège à capter les forces de l'air. Les feuilles, d'un vert blond et tranquille, battaient aux souffles qui les caressaient : l'une se penchait à droite, l'autre se penchait à gauche, le ciel inaltéré luisait plus bleu entre elles... Ainsi dans les foules, parfois, les épaules et les têtes s'écartent pour nous montrer au loin, pur et inatteignable, un visage ardent que nous ne reverrons plus.
 Des images se présentaient à moi, qui rapprochaient de mon cœur cette beauté inexprimable. L'érable était un géant à mille bras, qui fermait chacun de ses poings sur un morceau conquis de l'azur. Le tilleul chantait comme un charmeur heureux, entouré d'un tourbillon d'oiseaux émeraudés qui ne s'en iraient pas avant l'automne. Et tous se baignaient nus dans l'eau mauve de leur ombre.
@@ -3061,8 +2706,6 @@ Des images se présentaient à moi, qui rapprochaient de mon cœur cette beauté
 — Évidemment, vous devriez croire à la métempsycose, constata M. Fernand avec une raillerie camarade.
 Nous nous taisions. Les enfants jouaient. Quelques-uns bousculaient un matériel de croquet : les arceaux chancelaient dans la terre friable, les coups précis des maillets et les cris embellissaient le silence. D'autres lisaient couchés. Il y en avait un qui, dans l'angle du mur, s'était installé au sommet d'un tas de pavés abandonné là et surveillait la campagne. L'air léger nous enivrait.
 — Qu'en pensez-vous ? demanda M. Fernand tout à coup, est-ce assez absurde ? Les vacances devraient
-
-[leaf 0386] [p. 163]
 
 commencer au quatorze Juillet : nous serions mieux chez nous et les gosses aussi.
 — Moi, repartis-je, je trouve que c'est ici leur meilleur mois d'école.
@@ -3075,12 +2718,9 @@ Le ciel étincelait tant que les étoiles semblaient de partout vouloir pénétr
 La trop grande beauté de l'été me rendait toutes mes idées indifférentes.
 — Je vous donnerais des conseils, continuait mon collègue avec la même excitation sarcastique. Je serais votre Éminence grise : le père Fernand succéderait au père Joseph dans les chronologies.
 « Les programmes d'abord : on en jetterait la moitié dans la boîte à ordures. Plus d'allemand, vous me l'avez dit cinquante fois.
-Son entrain m'éveillait.
 — Ils ne savent même pas le français, approuvai-je.
 — Plus de morale, c'est une foutaise ; plus de lecture, plus de rédaction, plus d'histoire littéraire...
 Il souffla, je me remis à rire.
-
-[leaf 0387] [p. 164]
 
 — Vous allez bien ! De l'histoire littéraire, où en avez-vous vu ? Trois ou quatre classiques en réclament pour nous au Conseil Supérieur, mais ils n'en obtiendront pas. En morale, en lecture, en géographie, je me contenterais de réduire les programmes et de changer les méthodes.
 — Oui, détailla-t-il, on irait du concret à l'abstrait, on ne les étoufferait pas sous les phrases. En géométrie, en physique, vous avez le Laisant, n'est-ce pas, vous avez le Le Bon ? En histoire naturelle, on herboriserait : le père de Jean nous conduirait, il n'y a pas une broussaille qu'il ne connaisse. Et on ajouterait des utilités, de l'hygiène, de la législation, du travail manuel ; on leur apprendrait à se défendre contre les Borgeois...
@@ -3090,11 +2730,8 @@ Il souffla, je me remis à rire.
 — Moi aussi, murmurai-je.
 Répliques cérémonielles : un peu de conscience surnageant sur notre logique, le rire de notre impuissance, la peur de nous être laissé duper par nous-mêmes, les imposent. Mais sitôt ces politesses échangées, nos idées nous ressaisissent. Je reprends :
 — Et ensuite, savez-vous ce qu'il faudrait faire ?
-Il s'étonne :
 — Eh bien, laisser marcher. Après nous le déluge !
 — Non, dis-je, supprimer l'enseignement primaire supérieur.
-
-[leaf 0388] [p. 165]
 
 Il ne réplique rien, attendant. Comme je réfléchis un peu, il se courrouce :
 — Vous n'êtes qu'un Borgeois !
@@ -3109,8 +2746,6 @@ M. Fernand se rebiffe ici, mais je brusque :
 « Les petits commerçants, les petits fonctionnaires ont besoin d'une petite culture. Les paysans, les ouvriers qui s'embourgeoisent ont besoin d'une petite technique. Ils les trouveront ici unies : l'enseignement primaire supérieur fournit à la petite production les collèges manqués et les écoles industrielles hypocrites qu'il lui faut.
 « Y êtes-vous ? Si les classes moyennes durent, les écoles primaires supérieures dureront. Si le Capitalisme
 
-[leaf 0389] [p. 166]
-
 et le Prolétariat, en s'opposant mieux, écrasent les classes moyennes, ils écraseront aussi les écoles primaires supérieures. Et alors les révolutionnaires seront capables sans doute de constituer des écoles syndicales où se réuniront les deux techniques de la grande production.
 — C'est votre idée ? demanda M. Fernand après un silence.
 Le sang-froid me revenait, et l'esprit critique ; et du reste me lassais d'être assis.
@@ -3124,8 +2759,6 @@ Il me regarda avec une indignation sincère. Puis il m'offrit un conseil.
 Il prononçait des majuscules dédaigneuses. Sa lèvre tremblait un peu. Il me déplut de l'irriter, et je conclus en me levant :
 — Prenez-moi pour un niais : je crois que la vie
 
-[leaf 0390] [p. 167]
-
 morale est une réalité plus profonde que toutes vos sciences. Mais allons plutôt faire une partie de croquet.
 Nous la fîmes. Les enfants nous accueillirent avec une joie criarde. Nous étions maladroits, ils riaient de nous voir brandir les maillets et manquer toujours les boules. C'est un jeu charmant. Il y avait un arceau royal qui soutenait une petite clochette. Nous le visions et nous n'y atteignions jamais. Les balles de bois roulaient sur les cailloux, leur ombre courte et bleue sautait sur les pavés, rebondissait sur les colonnes. Antoine, Robert, Valentin applaudissaient ou se moquaient de nous fraternellement.
 Une lumière plus délicate blanchissait au ciel, les trois horizons papillotaient comme une rivière au bord des murs, les arbres bruissaient, nous imaginions autour de nous une mer de corail chantante... ah, qu'il faisait doux dans notre île !
@@ -3134,16 +2767,12 @@ Des souvenirs se dilataient dans mon cœur. Homme, je redevenais enfant vaguemen
 
 ... Non, chers amis, je ne demanderai pas qu'on vous applique à tous mes méthodes, ni qu'on vous lâche tous dans mon anarchie. Mes idées devenues lois, je les
 
-[leaf 0391] [p. 168]
-
 haïrais : elles m'opprimeraient et je ne pourrais que les renier. Ce qui pour moi est indépendance, pour mon frère qui travaille à deux cents lieues ou qui travaillera dans dix ans, c'est servitude.
 Je ne proposerai rien pour vous, je n'exigerai rien pour moi.
 Pourtant, j'ai écrit. Je ne m'adresse point aux pouvoirs : ils me mépriseraient, qui donc écouterait ma voix perdue ? et d'ailleurs, ils ne peuvent rien. Je ne m'adresse pas à mes collègues : que chacun se fasse sa loi. Je m'adresse aux âmes solitaires qui, dans les ombres de l'hiver, songent à l'amour et à la vie tandis que soupire leur lampe ; je m'adresse aux pères et aux mères dont le rêve caresse les enfants qui vont naître ou ceux qui sont nés ; je m'adresse à ces petits garçons même qui, sans essayer, sans réussir à l'exprimer, *sont* cette vérité que je cherche.
 Ils rejouent. Les boules s'élancent un quart de seconde avant que j'entende le claquement du maillet, la cloche tinte, le soleil sourit dans son halo au-dessus du toit splendide. Divers tambours roulent, dont nous dédaignons l'appel trop connu. Robert essuie son front, Valentin secoue ses cheveux rouges, Maurice et Jean se poursuivent, les deux Marcel assaillent Marceau sur son pinacle de pierres...
 — Enfants sincères, me disais-je autrefois, fleurs nouvel écloses aux vieux jardins du monde, quels parfums inconnus allez-vous m'apporter ?
 Je comprends ma folie enfin. J'en ai appelé un *le Messie*. Pensais-je donc qu'ils étaient vers moi des envoyés de Dieu et des Anges ? Oubliais-je qu'ils m'étaient simplement confiés par la grande implo-
-
-[leaf 0392] [p. 169]
 
 ration de l'animal, de la plante, de l'homme ? — frémissements pâles au visage sans couleur de la vie.
 J'avais jeté en eux mes questions comme des sondes, et je n'avais jamais recueilli que des perles banales. Le même mot d'ordre émouvait leurs lèvres asservies. Leurs parents l'avaient prononcé, ou leurs maîtres, ou les bavards haïssables des livres. Quand je leur reprochais durement leur mensonge, ils se taisaient, ils écoutaient : et un jour vint où ce fut ma voix qu'ils me renvoyèrent répercutée.
@@ -3154,10 +2783,6 @@ Chères petites larves, hommes au cocon, — puissé-je ne pas vous blesser avan
 Mais leur leçon est si obscure ! Jamais ils ne se plaignent : serait-il bon qu'ils mentent ? ou bien faut-il que je disparaisse ? L'énigme de leurs yeux frais et de leur sourire s'ouvre bien plus profonde.
 ... L'âme est une plante, disent les poètes : mais moi, qui suis là, je le sens ! pour jeter de la terre dessus, de la terre et encore de la terre, la verrai-je jamais fleurir ?
 
-[leaf 0393] [p. 170]
-
-L'ombre profonde
-
 Je commence ainsi :
 — Votre dernier devoir est bien mauvais.
 Leurs visages n'expriment rien, pas même l'étonnement de n'entendre dans ma voix aucune colère.
@@ -3167,10 +2792,7 @@ Je ne l'ai trouvé du reste sur aucune liste ni sur aucun procès-verbal : j'ai 
 — Il est très mauvais, répété-je, et j'en suis bien content !
 Secousse. Les figures les plus endormies s'éclairent. Maurice lui-même retient sa langue et sa lèvre. Les deux Marcel m'épient avec une sournoiserie moqueuse. Aux yeux de Léon et d'Henri, rien n'est sensible encore qu'un peu de trouble. Je poursuis.
 — Qui expliquera pourquoi je suis content d'avoir reçu un mauvais devoir ?
-Silence. Je reprends.
 — Il y en a un bon, celui d'Henri. (Le cher regardeur de nuages pâlit.) Je ne vous en lirai pas une ligne, et je ne vous en dirai pas un mot. Pourquoi ?
-
-[leaf 0394] [p. 171]
 
 Léon et Marcel le discuteur chuchotent ensemble :
 — Parce qu'y a dedans des choses trop personnelles.
@@ -3186,10 +2808,6 @@ Tous sont d'accord. Je les observe quelques secondes. Henri blême, Léon rouge 
 — Bah, concluent Henri et Léon en se relayant, ça servira toujours, — on le pensera si on le dit pas.
 Ce jaillissement libre des caractères m'enthousiasme ;
 
-[leaf 0395] [p. 170]
-
-L'ombre profonde
-
 Je commence ainsi :
 — Votre dernier devoir est bien mauvais.
 Leurs visages n'expriment rien, pas même l'étonnement de n'entendre dans ma voix aucune colère.
@@ -3199,10 +2817,7 @@ Je ne l'ai trouvé du reste sur aucune liste ni sur aucun procès-verbal : j'ai 
 — Il est très mauvais, répété-je, et j'en suis bien content !
 Secousse. Les figures les plus endormies s'éclairent. Maurice lui-même retient sa langue et sa lèvre. Les deux Marcel m'épient avec une sournoiserie moqueuse. Aux yeux de Léon et d'Henri, rien n'est sensible encore qu'un peu de trouble. Je poursuis.
 — Qui expliquera pourquoi je suis content d'avoir reçu un mauvais devoir ?
-Silence. Je reprends.
 — Il y en a un bon, celui d'Henri. (Le cher regardeur de nuages pâlit.) Je ne vous en lirai pas une ligne, et je ne vous en dirai pas un mot. Pourquoi ?
-
-[leaf 0396] [p. 171]
 
 Léon et Marcel le discuteur chuchotent ensemble :
 — Parce qu'y a dedans des choses trop personnelles.
@@ -3218,8 +2833,6 @@ Tous sont d'accord. Je les observe quelques secondes. Henri blême, Léon rouge 
 — Bah, concluent Henri et Léon en se relayant, ça servira toujours ; — on le pensera si on le dit pas.
 Ce jaillissement libre des caractères m'enthousiasme ;
 
-[leaf 0397] [p. 172]
-
 l'homme en proie aux enfants
 
 une période ronronne en moi pour les concilier : je la brise par une phrase exprès jésuitique :
@@ -3231,18 +2844,11 @@ Nous fîmes le plan et le texte. Ce fut difficile, et l'allègre collaboration d
 — A personne, msieu ? questionne Marcel, qui pense à son frère.
 Silence encore. D'un regard tournant, je recueille les lueurs diverses de tous les yeux. Confiance, sincérité, orgueil… Je réponds :
 — A deux ou trois hommes seulement que vous choisirez, et pour qui ce sera la plus grande preuve d'amour.
-Ils se taisent.
-
-[leaf 0398] [p. 173]
-
-Les Blessés
 
 Ces deux-ci vivront sans nom parmi les autres.
 
 Le premier, nous en fûmes avertis très tôt, était un enfant naturel. On ragotait de côté et d'autre que son père, ayant séduit sa mère, avait ensuite refusé de l'épouser parce qu'il la trouvait « un peu légère ». Cet argument touchant faisait du jeune garçon un demi-orphelin. A cause d'une bourse d'internat dont il profitait et que l'administration lui eût facilement ôtée (pour la morale, je suppose ?), le Principal nous recommandait une grande indulgence à son égard : mais rien de plus inutile, il était aussi intelligent et plus laborieux que les deux Marcel ensemble.
 Son destin m'étonnait. Il n'était tragique en rien. Ses camarades ignoraient, je crois, sa situation ; ou ceux qui la connaissaient par hasard ne la comprenaient qu'à moitié : elle ne lui attirerait en tout cas aucune avanie. Ni M. Fernand, ni moi, naturellement, n'y
-
-[leaf 0399] [p. 174]
 
 l'homme en proie aux enfants
 
@@ -3254,8 +2860,6 @@ Rien en lui n'exprimait le chagrin ou l'anxiété ; — mais seulement une espè
 L'autre souffrait plus durement sous la ridicule férocité des hommes.
 Son père, jaloux, avait révolvérisé sa mère. Elle n'en mourut pas, mais fut blessée. Une instance en divorce s'ensuivit, qui traîna à l'infini et remua du scandale. L'enfant jouissait aussi d'une bourse : il parut opportun aux anciens élèves du collège, qui la payaient, de la lui supprimer pour ces faits. Intention généreuse et raisonnable, à laquelle le Principal, cette fois encore, s'opposa
 
-[leaf 0400] [p. 175]
-
 de toute sa force d'honnête homme ; que nous traversâmes, M. Fernand et moi, avec une bonne volonté ironique et indignée. Mais celui qui déçut le mieux ces pharisiens, ce fut encore le petit garçon.
 Il s'appliquait par à-coups, attentif, mais languide et l'air souffrant. Comment oublier ce tas de ruines où éclosait sa jeune vie ? comment demeurer parmi ces enfants heureux sous le poids d'une misère qu'il ne fallait pas avouer ? Il y réussit : il se soumit aux formules, il obtint les bonnes notes qu'exigeaient ses protecteurs. Je le plaignais sans juger si c'était de sa vaillance ou de son inconscience. Une ligne de rédaction m'éclaira :
 « Il y a encore une chose que je désire, la première de toutes, mais je ne veux pas la dire. »
@@ -3263,8 +2867,6 @@ A treize ans, il apprenait donc la nécessité du secret, l'héroïque hypocrisi
 Un matin de grammaire, pour dicter une analyse, je lui avais pris son livre. Un tout petit trèfle à quatre feuilles glissa d'une page, que je lui rendis avec des précautions un peu moqueuses. Il pencha dessus son fin visage pâle et dit en souriant des yeux :
 — Msieu, je vous le donne, ça vous portera bonheur !
 Je le regardai. Il tendait gentiment la brindille. Ses voisins riaient à mi-voix. Ses joues blanches rougissaient d'un pauvre sang. Comme Robert, il ressembla soudain à Jeanne.
-
-[leaf 0401] [p. 176]
 
 l'homme en proie aux enfants
 
@@ -3274,15 +2876,11 @@ Question qui n'était pas de son âge, où se trahissait mieux qu'au plus libre 
 — C'est plutôt à vous qu'à moi qu'il faut souhaiter du bonheur.
 Il repâlit, voulut interroger encore par respect humain, pour ne pas sembler comprendre et m'empêcher de comprendre ; mais il n'arriva pas à parler. Ses yeux tremblèrent. Je l'envoyai aussitôt au tableau pour que personne ne pût plus le voir.
 
-[leaf 0402] [p. 177]
-
 Éducation à l'Inquiétude
 
 Ces enfants m'ont dit ce qu'ils ont rêvé ou imaginé de faire ; et ensuite ils ont fait ce que la vie a voulu. La vie : c'est leurs parents, les amis de leurs parents, les industriels et les commerçants du voisinage, le maire de la ville, le député de l'arrondissement. Niaiserie, de croire que c'était moi aussi !
 Trente-cinq de ces petits garçons, après un ou deux ans, ont quitté l'école, remplacés par d'autres, et se sont envolés vers différents pièges. Si j'étais un bon statisticien, je préciserais ce que tous sont devenus ; mais je n'ai pu l'apprendre que pour quelques-uns rencontrés dans les rues, ou qui m'ont informé, ou dont j'ai connu depuis les camarades et les frères.
 Plusieurs n'ont que changé de cage. Maxime, las de notre discipline, s'est réfugié dans la plus proche pension congréganiste. Paul, le paria, l'y a suivi : je ne sais s'il s'y maintiendra écrivain en dépit des railleries du monde. Jules, le futur notaire, l'aspirant à l'École Centrale ; Henri, ce gaboriau du vingtième siècle ; Édouard ; François, qui se croyait anarchiste ; ont émigré en des établissements mieux proportionnés à
-
-[leaf 0403] [p. 178]
 
 l'homme en proie aux enfants
 
@@ -3290,23 +2888,17 @@ leur dignité, plus primaires et plus supérieurs, si j'ose dire, que le nôtre.
 Enfin, le Marcel aux yeux verts, Marc et Frédéric, reçus, sont entrés à l'École Normale du département, tandis que leurs amis Gérald, Léopold et Henri (le regardeur de nuages), refusés, mais déjà pourvus du brevet élémentaire, ont obtenu des suppléances ou des postes d'attente dans des écoles primaires. — Faut-il que leur destin me déçoive ou me réjouisse ? Je n'aime pas beaucoup les instituteurs : dogmatiques, librespenseurs qui pensent peu, et républicains d'un républicanisme gueulard, leur intolérance, leur impersonnalité répétitive me glacent. Mais s'ils consentent, comme certains nous l'ont promis, à se préoccuper des intérêts du peuple, à s'y renaturaliser au lieu de s'en désagréger pour lui imposer leur tyrannie pédante, ils conquerront la plus difficile estime. De ces six, deux fils d'instituteurs, le fils d'un paysan, le fils d'un peintre en bâtiments, deux fils d'inconnus, j'en sais au moins deux qui ne deviendront jamais des cuistres. Ce petit jardin autour de leur maison, dont Fernand rêvait, qu'ils le cultivent, qu'ils y nourrissent un tendre parterre de douceur, d'incertitude et de bonté…
 Malgré tant de discours moraux, beaucoup des autres petites âmes n'ont pas résisté à l'appel insinuant des sirènes du carton vert. M. Fernand, docteur de la calligraphie, et moi, démiurge de la grammaire, qu'on nous juge à nos fruits ! — L'obscène Georges est télégraphiste selon son désir. René, malgré le sien, n'y est pas parvenu : il fait pour l'instant les courses de je ne sais quelle officine, une honorable sacoche en bandoulière ; et il est tombé dans la dévotion. Robert, l'hypo-
 
-[leaf 0404] [p. 179]
-
 crite, son tourmenteur, grossoie chez un avoué. Léon, Charles, Antoine, l'inconnaissable Paul, cet Émile qui haïssait le rabot, le cher Robert qu'on a guéri de vouloir illustrer les armées, les deux Louis, le favori de l'injustice et le squelette en spirale, travaillent dans des banques, chez des architectes, chez des géomètres. Les parents (un facteur, je les récapitule ; un scribe, un gardien de prison, deux veuves vivant tristement de faim, un cordonnier, un marchand de vins, deux agents d'affaires, un agent-voyer, un cultivateur), les plus pauvres surtout, sacrifiés et pitoyables, s'enorgueillissent : de leurs mains calleuses aux mains blanches de leurs enfants, ils admirent le savonnage du Progrès.
 Paperasserie universelle, romans-feuilletons lus à l'ombre dans les bureaux puant la poussière, dégoûtante torpeur : idéal sommeillant de la Démocratie !… — L'éveillera-t-il, par son marteau de chaudronnier, ce curieux Jacques, qui s'est mis en route pour cela avec une énergie emphatique ? « La vie des bureaux, écrivait-il huit jours avant son départ, ce n'est pas une vie ; c'est une manière de s'abrutir tout en étant pour ainsi dire nuisible à la société. Ce que je veux, c'est travailler manuellement, me rendre utile autant que possible par mes actes et par mes idées. »
 Et, le dernier matin, sa vieille casquette au poing, son profil âpre et jaune, aux cheveux drus, aux lèvres abaissées sous une toute jeune moustache verte, affirmant sa pensée, c'est lui qui, reniant son bon vieux fonctionnaire de père, acheva ma doctrine :
 — Msieu, j'ai pas été un très bon écolier, mais je vas tâcher d'être un bon ouvrier.
 — Ça vaut mieux, dis-je.
 
-[leaf 0405] [p. 180]
-
 l'homme en proie aux enfants
 
 Tous les autres enfin, trop pauvres pour demeurer trois ans à l'école, ou désespérant de s'assimiler les signes, sont retournés à la boutique ou à la charrue paternelles. — Mais de quel cœur ? Blaise, à ses mancherons ; Albert, le moraliste, maniant sa lime ; Thomas, penché sur ses brocs ; Gabriel, pesant des pruneaux ou des pâtes ; Gaston, coupcrosé par le feu de ses fourneaux ; André, celui qu'épouvantait la mort, entre les coups de sa doloire ; le malheureux Lucien, le bègue, tapant son cuir sur son genou ; quel souvenir conserveront-ils de ce temps vainement mâché avec des syllabes françaises ou allemandes, avec des idées incompréhensibles ? Thomas et Gabriel évitent de me saluer quand ils me voient. Je leur permets de bon gré cette rancune, si elle doit les aider à se former une raison indépendante. Mais les autres, ceux qui oublient, ceux qui regrettent, tous ceux-là dont j'attends mon jugement plus que des inspecteurs généraux, ces ouvriers que j'ai maintenant abandonnés à l'ineptie des journaux ou au rongement de l'envie, — comme ils seraient en droit de me reprocher, les uns, ce que je leur ai dit, cette imagerie abstraite qui les déclassera, et les autres, ce que je ne leur ai pas dit, cette technique dont ils sentiront le manque !
 
 … Voilà, si je compte bien, vingt-cinq destinées engagées. Deux, celle de Marc et celle de Frédéric, dont j'ignore le départ, échappent à mon appréciation. Quatorze continuent l'élan du père, six dans ces professions qu'on appelle « libérales » par je ne sais quelle conception de la liberté ; huit dans le prolétariat. Neuf enfin ont dévié, en partie au moins sous l'influence de
-
-[leaf 0406] [p. 181]
 
 l'école : une seule, celle de Jacques, du fonctionnarisme au travail manuel ; et huit, dont une bien précieuse, celle du second Henri, du travail manuel à l'explication professorale ou au parasitisme administratif.
 L'école primaire avait proposé aux plus intelligents de ces enfants cet idéal bien démocratique ; l'école primaire supérieure les y a portés.
@@ -3317,8 +2909,6 @@ Personne ne me l'avait dit à temps. Aucun maître fiévreux et triste n'avait j
 
 Je n'ai pu la cacher, cette inquiétude, et quelques-uns l'ont ressentie.
 
-[leaf 0407] [p. 182]
-
 l'homme en proie aux enfants
 
 Jacques d'abord, le seul qui paraisse avoir appliqué mon vouloir sourd.
@@ -3328,8 +2918,6 @@ Lui et quelques autres ne font que parler : et leur parole, qui me répète seul
 Léopold, ce grand garçon prétentieux, longuement chapitré, lentement convaincu, avoue un jour en maudissant sa docilité : « J'aurais choisi le métier de cultivateur. Le travail des champs, m'objectèrent mes parents, est trop pénible maintenant ; il faut chercher du travail exigeant moins de forces et plus rémunérateur. Mes parents m'ont refusé le but où j'aspirais, et m'ont ainsi lancé dans l'incertitude. »
 Et le Marcel aux yeux bruns discute. Fils d'instituteur, futur instituteur, il ne changera pas sans doute pour cela de décision : et toutefois il est troublé. « Quant
 
-[leaf 0408] [p. 183]
-
 à moi, dit-il, un métier manuel me plairait beaucoup : je commence à trouver l'étude ennuyeuse, surtout l'étude forcée et réglée telle que nous la faisons. J'aimerais au contraire l'étude pratique, qui serait enseignée par la vie au contact des individus. Aussi c'est avec plaisir que je quitterais l'enseignement : si je continue à travailler, c'est surtout pour mes parents, qui seraient désenchantés si je leur annonçais brusquement ma résolution. »
 Il demeurera donc, mais souffrira ; et Léopold, si on ne lui accorde pas le poste d'instituteur qu'il a demandé, conservera la nostalgie… — A quoi bon cette double inquiétude ?
 Pour Marcel, il n'y avait pas de question. Fils d'instituteur, s'il devient instituteur, quoi de plus normal ? La tranquille inertie de la caste joue. Mon syndicalisme, ici, eût pu sans remords agir comme un nationalisme conservateur. — Quant à Léopold, je l'aimerais certes mieux fermier, à la tête d'une association agricole, organisant une production rationnelle, que magister à onze cents francs, parmi cinquante gosses auxquels il ne saura faire faire que des dictées. De la batteuse au boulier, j'ignore s'il y a un aussi noir reniement que je le pensais autrefois ; je persiste à juger qu'il y a déchéance.
@@ -3338,8 +2926,6 @@ Je l'ai voulu. — C'était affirmer cette souffrance utile.
 — Me suis-je trompé ?
 Je puis espérer qu'ils prennent souci, plus tard, de ne pas exposer leurs enfants à cette angoisse, de les soustraire à une éducation qui leur rendra insupportable le
 
-[leaf 0409] [p. 184]
-
 l'homme en proie aux enfants
 
 travail de leurs mains, impossible l'activité industrielle. Je puis espérer qu'eux-mêmes, instituteurs, méditant plus profond, peinant mieux, ils acquièrent lentement conscience de la dignité vraie de cette profession où les délégua le peuple, où ils doivent demeurer, créateurs d'idées populaires plutôt qu'adaptateurs d'idées bourgeoises, les serviteurs du peuple. Marcel, achevant ses réflexions, ne me promet-il pas de « mieux instruire ses camarades, de leur faire comprendre que le vrai bonheur est à la campagne… de combattre la routine qui existe encore dans beaucoup de campagnes, et qui fait que de nombreux cultivateurs sont malheureux » ?
@@ -3347,15 +2933,11 @@ Moi-même, c'est la même expérience qui m'a informé.
 J'ai lentement reconnu où l'on m'avait placé, et pourquoi. J'étais institué dans cette école, (le Directeur me l'eût dit s'il l'avait su), en Docteur de la Stabilité. Historien, géographe, il me fallait décrire le monde comme il est devenu et tel qu'il apparaît, sans laisser voir qu'il deviendra encore et qu'il ne sera plus. Cette vivante France, patriote, on m'invitait à la représenter comme éternelle, victorieuse aussi des agressions géologiques futures ; républicain, comme achevée, incapable désormais de se dépasser en une plus stoïque déclaration des Droits de l'Homme. Moraliste, sous la dictée du Devoir et de la Solidarité, missionnaire d'un kantisme renouviériste et d'un socialisme édulcoré, les programmes m'imposaient (en toute liberté de conscience) de célébrer la Démocratie et de pavoiser, tournant sur elle-même aux feux de bengale d'un incessant Quatorze-Juillet intellectuel, l'absurde roue d'un Progrès immobile.
 Et grammairien enfin, regratteur de syllabes, la main à la manivelle d'un orgue de barbarie des idées, « pro-
 
-[leaf 0410] [p. 185]
-
 fesseur de littérature », pour me donner tout mon nom, mon rôle exact était d'enseigner à utiliser les phrases toutes faites, les signes du style et de la réflexion, les formules commodes qui permettent de parler pour ne pas penser ; (1) — toute la mimique de l'esprit.
 Distillateur de formules, tant que j'aurais pu j'aurais poursuivi en mes enfants la banalité, le beau style du roman-feuilleton et du journal, le mensonge. — Ardemment, avec une passion qui se fût répercutée à leurs yeux en flamme heureuse, j'aurais proposé à leur vie intérieure, par exemple, les modèles du père Tiennon, paysan, dont Guillaumin nous a raconté le laborieux effort ému en pleine ignorance ; d'Eugène Carrière, peintre, tel que Séailles et Morice nous l'ont montré agissant au plus pur jour de sa vertu ; et de Beethoven, grand comme l'humanité ; — moi, immobilisateur juré des libertés, pitoyable éclusier de la vie morale ! —
 
 (1) Proudhon dit : « Ce que les bourgeois veulent pour le peuple, c'est une première initiation aux éléments des connaissances humaines, l'Intelligence des Signes, une sorte de sacrement, de baptême intellectuel, consistant dans la communication de la parole, de l'écriture, des nombres, des figures ; plus quelques formules de religion et de morale ; — pour que les natures délicates puissent constater, en ces travailleurs voués à la peine, le reflet de l'âme, la dignité de la conscience ; par respect pour elles-mêmes, pour n'avoir pas trop à rougir de l'humanité. » (De la capacité politique des classes ouvrières, page 286)
 Et M. Gréard, plus clairement encore : « L'enseignement primaire supérieur est un enseignement démocratique par excellence. Il élève le niveau de l'instruction et de la moralité de la petite classe moyenne ; il appelle et il appellera de plus en plus l'élite de la population ouvrière. Ouvrant à tous l'accès des carrières où les études secondaires ne sont pas nécessaires, il donne toute satisfaction aux ambitions légitimes, sans surexciter les prétentions aveugles, aussi décevantes pour les individus que fatales pour la société. » (Éducation et Instruction, tome I, page 172)
-
-[leaf 0411] [p. 186]
 
 l'homme en proie aux enfants
 
@@ -3364,16 +2946,12 @@ inébranlablement fidèle à la République, enfin, au patriotisme pacifique d'u
 … J'aurais échoué sans doute ; mais si j'avais essayé, j'eusse peut-être mal agi. Ils seraient nus, ces pauvres enfants. Sans formules, avec qui converseraient-ils ? Révolutionnaires, oui, mais sans programme, quel groupe les accueillerait jamais ? Ivres des spectacles du Devenir et ne croyant presque plus à l'Être, où trouveraient-ils le bonheur ?
 Ah, qu'ils m'oublient ! — Mais, si un seul se souvient ?
 
-[leaf 0412] [p. 187]
-
 L'Élan de la Vie
 
 Je ne sais si je l'avais mérité, — une profonde âme vivante se découvrit à moi un jour. Patience de marcher longtemps ! Un épuisant jeudi de mai ainsi, la plus noble beauté des bois ne m'enveloppa d'émeraude et d'or qu'au crépuscule du quarantième kilomètre, alors qu'à la fin j'en désespérais. Tout de même, je ne connus en entier Henri, le regardeur de nuages, qu'aux dernières semaines, en ce juillet qui est l'automne ardent des années scolaires.
 C'était un garçon triste et sensible, si appliqué qu'il pleurait quand il ne pouvait répondre, et qui, dans le courage distendu de ses idées, savait unir un christianisme réservé à un socialisme provocant. Il aimait la poésie, lisait Lamartine avec la candeur corrompue de ses dix-sept ans, courait parmi ses camarades, plus gauchement qu'eux, sous les vieux tilleuls.
 
 … Comment parler avec le ton qu'il faudrait de sa chère vie ? Je ne voudrais pas toucher brutalement au secret le plus précieux de la jeunesse. Il est une minute
-
-[leaf 0413] [p. 188]
 
 l'homme en proie aux enfants
 
@@ -3386,8 +2964,6 @@ Toujours la même angoisse, dont la monotonie fatigue. Elle est trop naturelle :
 
 « Comme je voudrais avoir deux ans de moins ! On ne pourrait pas me dire que je suis trop âgé pour faire mon apprentissage, je serais un étudiant. Au lieu d'une tranquillité monotone, je souffrirais avec ma classe ; mais je ne fuirais pas. On ne pourrait pas me dire que
 
-[leaf 0414] [p. 189]
-
 je suis un lâche que la fatigue effraye, un bourgeois égoïste et bientôt inutile. Je contribuerais de mes faibles forces à être utile à la société : je ne suis pas le seul qui a un maigre salaire, une existence précaire : d'autres sont dans le même cas et ne cherchent pas le salut dans la fuite. Que ne puis-je les aider !
 
 « Travailler manuellement, peiner toute la journée, qu'importe ! L'argent gagné est bien à soi, on ne l'a pas volé : on est libre, on peut être fier et l'on doit être respecté. J'ai honte de me trouver avec un ouvrier, je le sens supérieur à moi, capable de me mépriser : car je l'ai abandonné, j'ai fui la lutte… — Quand je pense à cela, je me demande comment je fus assez égaré pour vouloir aller à l'École Normale !… »
@@ -3399,8 +2975,6 @@ Et sa souffrance vaine arrachait de lui ce grand cri de vie :
 Cruelle parole, exagérée, vraie, issue après une longue géhenne de cette âme déchirée entre ses goûts et sa révolte… Ou était-ce entre cette vieille ambition de se hausser au-dessus de son origine, dont notre démocratie a fait une vertu ; et ce devoir nouveau, héroïque, de fidélité à ses pères, à ses frères en pauvreté et en oppression, cette morale des producteurs que M. Sorel a si fortement formulée ?
 Sur mes discours sans nuance, ou trop éloquents, ou
 
-[leaf 0415] [p. 190]
-
 l'homme en proie aux enfants
 
 d'une impudique sincérité, Henri concluait à sa « trahison ». Apostat, parasite, jaune, il s'attribuait ces insultes dont j'avais brutalement frappé ses camarades inconscients. Jetées au visage d'une collectivité et d'une pensée, elles me semblaient proportionnées. Maintenant que je les voyais toutes, de tout leur poids, retomber sur celui qui les méritait le moins, qui promettait de devenir le meilleur, le plus utile instituteur de tous, leur énergie me parut déplacée et ridicule.
@@ -3408,15 +2982,11 @@ Fallait-il consoler ce regardeur de nuages, même en me reniant ? Ou bien, pour 
 Hésitant, un matin pâle et bleu où bruissaient les tilleuls, je tirai Henri à part. Yeux brûlants d'une fièvre sérieuse, livides joues qui tremblaient, chères paroles qui se bousculaient entre les dents affaiblies et les lèvres tordues ! Je l'observais à peine, je prononçais bas ces phrases où se juxtaposaient les nécessités, mais les devoirs ; les devoirs, mais les nécessités ; ces phrases logiques, ces phrases sèches que je n'aurais pu finir s'il avait pleuré. Il ne pleura pas : il me donna la promesse assourdie et rauque de réfléchir plus vaillamment.
 Je méditais de mon côté avec mélancolie. Cruel élan d'une colère indiscrète et maussade, mon exagération avait désolé ce rêveur confiant : et pourtant, devant ce visage indécis, déjà pâli par le reflet des livres, subitement je m'effrayais des stigmates qu'y creuserait une seule parole inconsidérée. Je sentais bien que je n'irais pas au bout de ma foi. Condamner cette ardente conscience au mécanisme de l'outil, et selon
 
-[leaf 0416] [p. 191]
-
 sa force soit aux vertiges de la fureur justicière, soit au progressif avilissement de la résignation ; lui imposer d'un âpre précepte, moi qu'il avait fait reculer ! l'héroïsme continu des militants ouvriers ; — je ne l'oserais pas. Pourquoi donc, hélas, avoir suscité en lui cette angoisse inutile ?
 Le hasard m'offrit sa collaboration. Henri tomba malade et dut quitter l'école un grand mois. Des amis charitables le tenaient au courant des quelques leçons et des lectures que je faisais alors : artifice que son inquiète imagination de convalescent complétait sans doute, et grâce auquel il ne nous oubliait pas.
 Vint l'examen : on le refusa à l'école normale. Il m'écrivit une lettre pleine de noblesse, pleine d'un chagrin humilié que pas un seul de ses camarades n'aurait eu la dignité d'avouer. Deux impératifs contradictoires le meurtrissaient : un devoir absolu, confirmé par cet échec, choisir un métier manuel ; une nécessité absolue, que dicterait la faim, accepter une place dans une administration.
 Comme il souffrait bien ! « Je voudrais pourtant être utile et ne coûter rien à personne ! s'écriait-il. (Qu'il me pardonne de le répéter.) Pourquoi ne m'ont-ils pas recalé moi seul ? Puisque je suis destiné à souffrir, j'aurais bien souffert seul. Pour vivre, faut-il toujours prendre la place d'un autre ? Papa ne veut pas que je sois ouvrier : je suis trop âgé pour commencer un apprentissage, et par suite je serais un mauvais ouvrier. Quelle existence ! Je voudrais que l'on soit tous heureux, mais tout se continue : ce sont toujours les mêmes jours… »
 Non plus l'intelligence des signes, cette fois, mais
-
-[leaf 0417] [p. 192]
 
 l'homme en proie aux enfants
 
@@ -3424,8 +2994,6 @@ une pensée de la passion : voilà ce dont souffrait ce courage secret qui, au b
 L'issue m'intéressait presque peu. Elle n'abolirait rien dans la profondeur ; quelle qu'elle fût, la féconde souffrance subsisterait, où cet enfant se reporterait toujours, comme à son plus sublime souvenir, pour y autoriser, pour y faire bénir ses actions futures. Son père lui cherchait un emploi dans quelque banque ; Henri s'y serait dévoué en se désespérant. Je les priai de demander un poste d'instituteur, qu'il obtiendrait puisqu'il possédait déjà le brevet élémentaire ; ils y consentirent.
 
 … Ainsi tant de trouble, et cette décision immuable ? Mais le prix du trouble est en lui-même. Henri a souffert : c'est au travers de sa souffrance qu'il est né. Ce métier prestigieux, que ses frères commencent dans la vanité, dans le dogmatisme, dans une ivresse de mensonges, il en a pesé le sérieux ; il s'y résigne ainsi qu'à un sacrifice ; muni pour longtemps, que la vie le
-
-[leaf 0418] [p. 193]
 
 veuille ! pour toujours, de doute, de clairvoyance ; il s'y prépare, fils d'artisan, humblement, comme à une restitution aux artisans.
 
@@ -3437,15 +3005,11 @@ veuille ! pour toujours, de doute, de clairvoyance ; il s'y prépare, fils d'art
 
 Je l'entends, moi indigne, la voix inouïe qui m'appelle. Je ne l'ai pas écoutée autrefois, elle était moins haute. Aujourd'hui, qui donc m'interdirait de la ménager pour qu'elle propose son énergie à ces enfants incertains ? Qu'elle les guide à la douleur et à l'angoisse, ce sera à plus de vie aussi. Il y a ou il y aura, — que ma faiblesse s'y affermisse ! — une nouvelle vertu dans la République, pour y répandre une inquiétude, pour y susciter une grandeur jusqu'ici inconnues ; un patriotisme de la classe pour compliquer le patriotisme de la nation ; et enfin, tourmenteur, grandisseur d'hommes, un stoïcisme ouvrier.
 
-[leaf 0419] [p. 194]
-
 Le visage et la parole
 
 Ainsi le Messie, René, Robert, ainsi Charles, ainsi Vincent avaient menti. Qu'est-ce que mentir ? Ils parlaient, ils feignaient de penser avec les paroles, avec les pensées qu'on leur avait enseignées, et qui ne correspondaient à rien de leur expérience ni de leur sourire.
 Voici soixante enfants, dont il n'est pas deux qui aient le même visage, ni deux, dès qu'ils pensent, la même pensée. Cependant, pour communiquer avec moi et les uns avec les autres, ils ne possèdent que les mêmes paroles. Je conclus que leurs paroles mentiront à leur visage et à leur pensée.
 (Pour aujourd'hui, je n'irai pas plus loin. J'aurais pu dire : Voici quarante millions d'hommes. J'aurais pu dire : Voici quinze cent millions d'hommes. Je suis trop ignorant pour oser désespérer. J'admettrai que ce mensonge résulte d'une maladresse ou d'une mauvaise intention, non de la plus dure des lois de la vie. Je consentirai à croire qu'au bout d'un effort plus fin, qu'avec
-
-[leaf 0420] [p. 195]
 
 un courage plus fier, la sincérité, du moins une sincérité plus profonde, serait possible).
 Marcel et Léopold, qui tâchaient tant à ne pas mentir, se sont trompés. Pourquoi en suis-je certain ? C'est qu'ils n'ont pas voulu assez souffrir. — Henri seul a dit la vérité.
@@ -3454,29 +3018,21 @@ Ce visage obscur et irretrouvable, Henri, le visage de ta personne, tu le tiens 
 
 Au sommet de sa colline, entre les arbres bruissants de l'été, au cri des enfants qui grandissaient pour le même destin, je revois la chambre où Henri s'est décidé à son âme. Un vent tiède séduisait son cœur, les feuillages palpitaient comme une source sous ses yeux. Sa pensée en lui se tourmentait pour dévoiler une évidence inconnue.
 
-[leaf 0421] [p. 196]
-
 l'homme en proie aux enfants
 
 Cent, deux cents jours, la nuit avait duré. Ma voix obscure, la voix incompréhensible des livres retentissaient, assourdies dans chaque crépuscule. Longues veillées, délibérations où s'enlisait la volonté, sommeil fatigué par les pleurs ; rêves… Qui croire, d'un instinct qui ne s'expliquait pas ; d'un père, d'une mère, de conseillers qui raisonnaient trop bien ; d'un orgueil honteux de soi-même… Et ce ciel découragé, plein d'inconstantes étoiles, puis tout à coup comme pâle de larmes ; ces demi-aubes du délire ; ces doutes ; l'âcre honte de parler ; ces audaces humiliées…
 Une grande renonciation enfin, une grande acceptation ; le long soupir de l'enfant mort ; puis le silence.
 Voici un homme.
 
-[leaf 0422] [p. 197]
-
 Complaisante au delà même du supposable, cette Administration supérieure dont je ne dirai jamais de mal m'offrit un jour un poste mieux rétribué que le mien et, insinuait-elle, plus digne de moi, en Franche-Comté. Je crus tout un matin que j'accepterais. Quatre heures durant, tandis que je parlais, un vertige tumultueux m'empêcha de penser à ma parole.
 C'était un samedi du troisième novembre. Comme deux ans auparavant, l'automne rudoyait les arbres. Droits dans les flaques dorées de leurs feuilles, les érables semblaient des guerriers versant un sang héroïque. Un vent s'élançait, puis s'arrêtait, propageant dans les tilleuls un chuchotement de source tarissante. La lumière grise chancelait dans les vitres, donnant aux enfants des traits plus forts et plus durs.
 J'allais les quitter. Je les épiais avec une attention exaspérée, voulant que jamais leurs physionomies n'échappassent à mon souvenir. Longs coups d'œil dévorants, nerveuse angoisse de ne rien oublier ! Je m'efforçais de détacher l'une après l'autre chacune des caractéristiques de leurs visages pour les fixer sur les médaillons immobiles qu'emporterait au loin ma mémoire.
-
-[leaf 0423] [p. 198]
 
 l'homme en proie aux enfants
 
 Chers enfants ! Je me rappelais cette obscure minute où ils m'étaient apparus, et ce flux désireux qui m'avait soulevé tout entier vers leur amour. J'étais si seul : avidement, j'avais adopté leurs cinquante, leurs soixante vies pour enrichir et compliquer ma misérable vie ; et maintenant que leur substance s'était épuisée en moi, je les abandonnais.
 D'un regard ferme, je les mesurais tous. Leur passé rejoignait leur présent en moi. Témoin et, pour une faible part, agent de leur développement, j'évaluais sans trouble son énergie, et je suivais son chemin sans surprise. Ils étaient là encore, ces oiseaux illusoires du début, si purs, aux yeux si viergement entr'ouverts sur le monde, qui s'étaient transformés si vite en hideuses marionnettes avec des têtes de morts. Ils m'observaient encore, leurs prunelles tranquilles appuyées sur moi et me reflétant avec indifférence ; ils m'écoutaient encore, qui leur exposais des idées à moi-même inconnues ; ils écrivaient encore sous ma dictée capricieuse, ou, dans la répercussion tintante de mes questions, ils répondaient encore… Un calme singulier suspendait ma vie, le calme des adieux trop longs, quand tout l'exprimable de l'émotion s'est exprimé, et que les cœurs qui savent parler, se parlent. La hâtive docilité des plumes, piquant ma pensée à peine dite et l'écartelant sur les cahiers, je l'avais exécrée autrefois, je m'y résignais ; tout me paraissait couler selon le flux d'une régularité heureuse.
 Même les révoltes prochaines, je les attendais, les prévoyant et les bénissant. Henri, Marcel haussaient leurs visages troubles, ébranlés encore par l'élan d'une résolution courageuse. Marceau, Théodore, le second
-
-[leaf 0424] [p. 199]
 
 Maurice cachaient leurs yeux où chacune de mes phrases creusait une onde. Je voyais, je croyais voir, sous les voiles de l'automne, des vêtements et de la chair, le fond des cœurs, où battaient les actions futures.
 
@@ -3491,8 +3047,6 @@ Le Marcel aux yeux bruns : — Moi, l'idée de l'évolution.
 Le Marcel aux yeux verts : — Moi, l'idée que l'individu est supérieur à la société.
 Frédéric : — Moi, la discipline.
 
-[leaf 0425] [p. 200]
-
 l'homme en proie aux enfants
 
 Théodore : — Moi, les droits de la femme.
@@ -3505,8 +3059,6 @@ Les autres le firent taire. Obscurément, ils sentaient que je n'exagérais pas 
 Maintenant, je le sais, et ils me comprendront si je parle. Ils baisseront les yeux, ils ne diront rien ; ils écouteront quelques phrases, resserrant leur gorge, descendre jusqu'à leur cœur et là remuer la mémoire et la prescience.
 Leurs visages ne se sépareront plus de ma jeunesse. J'avais vécu deux ans dans le désert affreux de mon intelligence, perdu comme un atome au frénétique chaos de ces villes où jamais on ne rencontre deux fois la même figure. Et brusquement, soixante enfants s'étaient penchés sur moi, face à face, âme à âme, (lorsqu'ils eurent des âmes !) pour donner à mon cœur assombri l'illusion d'une innombrable vie… O divine matière humaine ! Palpitantes joues ; sourires qui s'ouvrent et se ferment, rougissent, noircissent, scintillent ; pâleurs, roseurs, étendues par la pensée sur les fronts comme l'ombre d'un nuage par le soleil sur les prairies ; os pointants, tendons vibrants de la moquerie ou de la colère ; délicieuses larmes ! Crasseuses mains engourdies, qui traçaient sur les chiffons blancs des
 
-[leaf 0426] [p. 201]
-
 signes aussi anciens que la civilisation ; lèvres, langues, gorges maladroites à refaire l'articulation de quelques mots nés avec l'homme ; cerveaux où bouillonnaient des pensées plus vieilles que le chaos, plus futures que la fin du monde ; ô chères, irremplaçables minutes de l'Éternité !…
 Ils s'inclinaient vers moi, ils m'écoutaient : le plus simple de leurs gestes me poussait dans un vertige de la Connaissance jusqu'à la Vie.
 Hélas, voici des majuscules. Pourrais-je expliquer ce que ces phrases recouvrent ? Et cette gratitude que je voudrais dire, n'est-elle pas de l'indicible ?
@@ -3515,15 +3067,11 @@ Peut-être les mères vivent-elles ainsi avant d'enfanter. Elles parlent, mais l
 
 … Connaissance, avais-je dit. Je tenais en réserve deux jeux de modèles d'écriture, l'un pour la montre,
 
-[leaf 0427] [p. 202]
-
 l'homme en proie aux enfants
 
 l'autre pour l'usage. « Respectez vos parents », intimait le premier ; « s'ils sont respectables », remarquait le second. Ou encore, une pensée : « aimez votre patrie », et une arrière-pensée : « pourvu qu'elle n'attente pas à la justice ». Car j'étais ce qu'on appelle un esprit indépendant, et je me félicitais sans modestie de la souplesse qui m'avait fort rateusement permis de glisser entre les mailles de tous les examens. Ma jonglerie me fit bâiller vite. Marcel rit d'un rire vert, Vincent écarquilla des yeux ronds de hibou. Humilié, je m'avouai que mon anti-pédagogie, c'était une pédagogie, que mes contre-formules, c'étaient des formules. Il se fit un grand silence, un vaste trouble découronna mes hautes idées… O sourires, ô gestes, ô pleurs détournés ! Je renonçai le plus que je pus à mon bavardage, à mon barbouillage : j'excitai mes enfants à barbouiller, à bavarder ; et tous ensemble nous remontâmes de l'instinct profond ainsi révélé vers une conscience adaptée ou révoltée.
 
 … Amour, disais-je ; Justice, disais-je encore. Le petit pioupiou rose de Domela Nieuwenhuis émouvait mes songes, et je ne souhaitais que de le rendre libre ou de l'égayer. Robert s'amusa sans charité, René niaisa, Charles trahit. M'appliquant davantage, je rencontrai ces deux Marcel, dont l'un me méprisa, dont l'autre m'enseigna la force affreuse des larmes. Dur alors et pédagogiquant « avec le marteau », j'exerçai de volontaires iniquités : — Enfants que je regarde, dont les yeux attentifs enfin m'éclairent, ce n'est pas de moi ni du monde que doivent vous venir l'amour et la justice, c'est de vous-mêmes. Je suis ici pour découvrir à votre
-
-[leaf 0428] [p. 203]
 
 présent la plénitude du passé, et ce vaste avenir vide où vous agirez : aguerris et rompus par moi au spectacle magnifique de l'action, vous choisirez : vous vous jugerez, si vous le pouvez ; vous m'aimerez, si vous le voulez.
 Est-ce là des phrases vaines ? Partout au bout du fiévreux chemin, j'ai rencontré les larmes en même temps que les vies.
@@ -3531,8 +3079,6 @@ J'arrivais dans une maturité dogmatique et déclamatoire. Mes enfants s'en moqu
 Je me refis avec humilité enfant parmi les enfants. Et c'était, pensais-je, pour mieux les aimer. Dès qu'ils furent en moi cependant, énergiques petites bêtes, consciences tremblantes, tranquilles hypocrisies, je sus qu'il me fallait les traiter comme je me suis traité à leur âge. Est-ce sans colère, est-ce sans mépris de moi-même que j'ai consenti, pour grandir, au doute, à l'erreur et au péché ? Eux aussi, je les ai conduits dans les pas de mon vertige.
 Souffrir, faire souffrir : tel était le rythme. Éducation nouvelle d'un esprit qui ne voulait qu'évidence, d'un cœur qui ne voulait qu'amour : éducation révolutionnaire et déchirante !
 C'est eux qui me l'ont imposée. De la discipline au jeu, des phrases à la sensation, de l'autorité extérieure à la volonté intérieure, de l'indulgence à l'action : la
-
-[leaf 0429] [p. 204]
 
 l'homme en proie aux enfants
 
@@ -3542,8 +3088,6 @@ Ce moment que je craignais, où j'aspirais jadis, est-il venu ? Ils me possèden
 O chers Ressuscitateurs, vous l'avez accueilli. Ensemble, Messies sans Messages, vous abattiez les samares tournoyantes de l'érable. Rappelez-vous ce soir où nous souffrions tous de l'envie de pleurer pour n'avoir pas dans la guerre sainte accompagné les soldats de l'an II, et parce que nous n'avions pas « gardé nos sabots pour faire dans les villes des entrées triomphales » ! — Mais ne m'avez-vous pas donné plus encore, plus précieux, plus incertain : votre prochaine jeunesse ! Mes huit ans, disparus, vos vingt ans, qui sont à vivre, se rejoignent en moi et s'embrassent. Vous avez mes témoignages, j'ai reçu vos engagements : ainsi je suis votre mémoire.
 Il faut que je le leur dise. Comment m'y prendre ?
 
-[leaf 0430] [p. 205]
-
 L'heure presse. Ma poitrine tressaute tandis que j'évoque l'aboiement brutal de la cloche. D'autres enfants m'appellent en Franche-Comté. Mon adieu doit remercier ceux-ci d'abord.
 Valentin lit. Je l'observe. Ces traits moqueurs, qui pourtant savent pleurer, ces cheveux rouges… Théodore, Henri, Maurice, Marceau, Marcel, tous écoutent, si bien connus !
 Si bien ?
@@ -3551,8 +3095,6 @@ Une surprise me saisit à laquelle j'ai d'abord peine à croire, et que je ne pu
 Nulle part je n'ai menti. Et cependant, à quels signes ? il me semble que mon souvenir, tel que je l'ai fixé, ne coïncide plus avec la réalité. Alfred, sous mes yeux, est moins turbulent que mon Alfred, et rien ne se remarque sur lui des discussions que j'eus avec son père ni des idées qu'il a pour moi symbolisées. Stupide en classe, subtil au jeu, voici Marius : sa figure ne montre pas si fort cette antithèse.
 
 … Les vitres s'embrument, les tilleuls et les érables gémissent, une étrange lumière froide se coagule autour des enfants mystérieux…
-
-[leaf 0431] [p. 206]
 
 l'homme en proie aux enfants
 
@@ -3565,16 +3107,12 @@ Ce ne sont plus des oiseaux, ce ne sont plus des pantins, ce ne sont plus des mo
 De leurs yeux, de leurs lèvres, descend un torrent où leurs ancêtres passent, où passe et s'écoule cet univers qui les a produits et qu'ils vont reproduire, où moi tout entier je passe aussi, plus fragile qu'un reflet de nuage dans une écume. Absurde, absurde vanité qui ridiculise en moi mes vieilles angoisses. Avec la ferveur aveugle de ma logique, pour soumettre à mes digues ces libertés et ces fatalités inépuisables, j'ai deux ans durant tâché de « faire des âmes » : comme si jamais il n'y avait eu d'âmes avant les écoles !
 Ainsi deux ans, pareil au serviteur imbécile de Faust,
 
-[leaf 0432] [p. 207]
-
 j'ai bourré de phrases et même d'idées les cornues où j'espérais voir se former la hideur repliée et fœtale d'Homunculus. Heureusement, le soleil de l'Ile-de-France ne s'est pas laissé discipliner, ni le corps ni la pensée des morts, ni le sourire charmant des sœurs et des amies : — acceptée, desséchée, absorbée, mon influence vit maintenant en ces enfants comme un seul jour de printemps dans un arbre de mille ans.
 Le voilà, cet avenir innombrable, serré entre ces lèvres muettes et clos sous ces paupières : il est là qui ne parle pas, mille fois plus riche que les paroles ; qui ne se découvre pas, plus complexe mille fois que toute image.
 Droites, pures, un sourire léger d'arc-en-ciel mêlé à leur chevelure, les sources s'élèvent. Comme un bosquet de bouleaux en mai, la classe scintille de ces bruissantes lumières humaines…
 Je me tairai aussi, frères bien-aimés. J'ai compris. Pardonnez-moi mes brutalités et mon impudeur. Allez : vous êtes libres. Marcel, vous l'êtes ; Henri, devenez-le : soyez ingrats pour mieux m'aimer. Oubliez-moi.
 Et toi aussi, Jeanne…
 La vie est une naissance perpétuelle.
-
-[leaf 0433] [p. 208]
 
 Sous la paix des ailes
 
@@ -3587,8 +3125,6 @@ Deux nuages blancs qui partent du soleil invisible s'écartent lentement dans le
 
 … Marcel, vous pleurez ? — Voici qu'il a appris de moi comment se font la science et la justice, et qu'il
 
-[leaf 0434] [p. 209]
-
 plaint son père qui les croit toutes les deux pures. — Pleurez : j'ai pleuré aussi, et demain vous rirez.
 
 … Henri, pourquoi craindre ? — Vos lèvres pâlissent. « Ceux qui ont le plus souffert, c'est qu'il leur a été donné de souffrir davantage. » Ou bien avez-vous peur que votre orgueil à la ressentir ne dégrade votre douleur ? — Consolez-vous au ciel.
@@ -3598,10 +3134,7 @@ O toi que je n'ai pas nommé, avec ta vaine blessure, toi dont les yeux ne se ba
 Le jour, tu écriras. La nuit, tu dormiras. Rêve rarement. Si l'un des trois parfois te lasse, écoute le rythme de ton cœur.
 Mes enfants, approchez. Une source bruit dans le tilleul. Le ciel est plein d'une pulsation argentée.
 Je vous ai menti, puis j'ai cru vous dire le vrai. Et ensuite j'ai douté de ma vérité, et je n'ai plus osé mépriser mon mensonge. Ne vous fiez donc plus à moi, mais travaillez : — Voici des pierres, voici des outils, voici des livres, voici des routes ouvertes. — Me sourirez-vous avant de m'abandonner ?
-La cloche sonne.
 — Partez, monsieur, dit le principal ; car si vous
-
-[leaf 0435] [p. 210]
 
 l'homme en proie aux enfants
 
@@ -3613,17 +3146,8 @@ Le soleil se lève, voici l'oiseau d'or.
 Je crois qu'ils allaient sourire quand la cloche a sonné.
 Le soleil plane : moi comme vous, enfants, soumettons-nous humblement à sa force, dans l'étonnement sacré de ce qui croît en nous : ses deux ailes d'immense azur nous couvent.
 
-[leaf 0436] [p. — blank —]
-
-[leaf 0437] [p. 211]
-
-[leaf 0438] [p. 213]
-
-   XV. — La Balance à la queue du Chat ........... 53
   XIX. — Destruction des personnalités ........... 67
 XXIII. — Monsieur Père et Madame Mère ........... 87
-
-[leaf 0439] [p. 214]
 
 troisième cahier                    de la onzième série
 
@@ -3634,19 +3158,9 @@ LIVRE DEUXIÈME. — Entrez dans la danse ! ........ 105
 
 Nous avons donné le bon à tirer après corrections pour quatorze cents exemplaires de ce troisième cahier et pour vingt exemplaires sur whatman le mardi 2 novembre 1909.
 
-                                Le gérant : CHARLES PÉGUY
-
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 4139
-
-[leaf 0440] [p. — blank —]
-
-[leaf 0441] [p. — blank —]
-
-[leaf 0442] [p. — blank —]
-
-[leaf 0443] [p. — back cover catalog]
 
 Sous le nom d'éditions antérieures, ou, plus complètement, d'éditions des cahiers antérieures à la fondation des cahiers, les catalogues et les index des cahiers n'ont jamais cessé de porter un certain nombre, un très petit nombre d'éditions qui n'ont jamais cessé de faire partie intégrante de notre maison.
 
@@ -3655,10 +3169,7 @@ Sous le nom d'éditions antérieures, ou, plus complètement, d'éditions des ca
 Dans les neuf volumes et brochure de nos cahiers antérieurs, nos cahiers ont publié :
 
 MARCEL ET PIERRE BAUDOUIN. — Jeanne d'Arc. — Domremy ; les batailles ; Rouen ............ 10 »
-PIERRE DELOIRE. — de la cité socialiste ........ » 10
 PIERRE BAUDOUIN. — Marcel, — premier dialogue de la cité harmonieuse ......................... 2 »
-JÉRÔME ET JEAN THARAUD. — le Coltineur débile .. 2 »
-JÉRÔME ET JEAN THARAUD. — la Lumière .......... 1 »
 ROMAIN ROLLAND. — Aërt, — trois actes ........ ÉPUISÉ
 ROMAIN ROLLAND. — le Triomphe de la Raison, — trois actes ................................. ÉPUISÉ
 ROMAIN ROLLAND. — les Loups, — trois actes ... ÉPUISÉ
@@ -3667,5 +3178,3 @@ JEAN JAURÈS. — Action Socialiste. — le Socialisme et l'Enseignement ; le So
 Voir à l'intérieur en fin des autres cahiers les conditions et le prix de l'abonnement.
 
 Nous mettons le présent cahier dans le commerce ; troisième cahier de la onzième série ; un cahier jaune de 216 pages ; in-18 grand jésus ; nous le vendons trois francs cinquante.
-
-[leaf 0444] [p. — blank back cover/endpaper —]

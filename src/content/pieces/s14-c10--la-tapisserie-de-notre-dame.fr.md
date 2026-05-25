@@ -7,26 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 21559
 ---
-Dur EN RO NE UT EE eee Ë VU A RE TETE PAT (an 7
-
-| gts J ? * A ee ÿ
-
-> 24 RAS ;
-# 4 ET" ; k k ) RO
-
-Ÿ « VAE Doi) ER ET , AN : à NRA GLEN ne)
-MA RARE dc NT a LUS à Xi 0 7 AE DERESER
-
-| |
-|
-| L
-|
 Dans les dix-sept cahiers de leur sixième série, année CAHIER PC
 1904-1905, nos cahiers ont publié :
 VI. — Cnanres Péeuy. — Texte sans commentaires. — Catalogue analytique sommaire, — 1900- : :
 VI-2.— Ausxis Brarnann.— L'égalité devant l'instruction, — crise de l'enseignement ….. FOURS
 VI4. — Cnances PéGux. — un essai de monopole. — Raour Autixn. — L'enseignement primaire des indigènes à Madagascar............ 3 50
-VI-5. — Le testament politique de WaldeckRousseau ........ Mao MS 3 50
 Vi-5. — Poncué; Giczer; TuanauD. — les primitifs
 français; contes de la Vierge. — cahier orné de
 trente belles reproductions de primitifs 20 »
@@ -35,7 +20,6 @@ VIS. — Roman Rozcann. — Jean-Christophe. — F)
 Vi-10.— Bnens. — Yves Madeo professeur de col- il
 Vin. — Suanès. — La tragédie d'Elektre et
 VI13.— Torsror. — l'Eglise et l'Etat; les évênements actuels en Russie 1 »
-VI14. — Une campagne du Siècle; — RAOUL ALLIER.
 — la séparation des Eglises et de l'Etat ; 6 »
 Vi-15. — Eppx Maux. — La tragédie de Tristan
 et Iseut ‘ sous DCR
@@ -51,15 +35,12 @@ jaune de 249 pages; in-18 grand jésus; nous le vendons trois francs cinquante
 
 4 la tapisserie fi]
 fe de Notre Dame
-Poil CAHIERS DE LA QUINZAINE ‘+ | |
 périodique paraissant tous les deux dimanches % d l
 Sue | 8, rue de la Sorbonne, au rez-de-chaussée 4 4.
-|
 
 Dans les dix-sept cahiers de leur sixième série, année
 1904-1906, nos cahiers ont publié : RE
 VI-1. — CnaRLes Pécuy. — Texte sans commen- RE : L
-VI-2. — ALexis BRRTRAND.— L'égalité devant l'in- DE 8
 £ VI-4. — Cuances PÉGuy. — un essai de mono- 4
 pole. — RaouL ALLER. — L'enseignement pri- 3
 maire des indigènes à Madagascar............... 350 CE |
@@ -71,13 +52,9 @@ VI-8. — Roman RozLanp. — Jean-Christophe. — e|
 — La délation aux Droits de l'Homme ............ 2 »
 VI-10. — Brenx. — Yves Madec professeur de col- Û
 Vi-11. — Suarès. — La tragédie d'Elektre et il
-Desste: M. Re cas Le rt 0 ee UD
 VI:13. — Torsror. — l'Eglise et l'Etat; les évêne- 1:
-VI-14. — Une a pes du Siècle; — RAOUL ALLIER. ES {
 — la séparation des Eglises et de l'Etat ......... 6 » "1
 VI-15. — Enpy Manix. — La tragédie de Tristan à |
-SL AROUL LA NE Lans 20020 PÉPONE PAR LU acer NS :
-VI-16. — RoBerT DreyrFus. — La vie et les pro- :
 phéties du comte de Gobineau.................. ÉPUISÉ
 Vi-19. — Pau DEssarpins, — Catholioisme et critique. Réflexions d'un profane sur l'affaire Loisy..... 2 »
 Pour tous renseignements sur les Cahiers de la
@@ -94,182 +71,27 @@ la tapisserie
 de Notre Dame
 
 périodique paraissant tous les deux dimanches
-| PARIS
 4 8, rue de la Sorbonne, au rez-de-chaussée
 
-+ 12% Le Ft tn pe” RE di à CORRE NS Ne 22
-ee Sete à 2 . ; ne ne: MAR RS ee
-
-# 4 AUS LE +1 8 À: à Ce, PRES PES ENG x:
-
-7 le QN SE MR Per Oh ea EEE PS UE
-
-“ps LE LL < cales Pan 1 7 EE fa : FREE
-
-| LINE
-
-| : AI
 4 14
-
-| AU
-
-| Le 4e Fe, LE 4%
-
-Et . pass
-| NES * HAE
-" À RCA Ë de fe LORS DEAN.
-
-PAR EH Mounir) . ge .
-M FAN WU e NE td DNS vd ls -
-nt ANSE # LA OUR Le a
-NE re Feu Ne
-ne ra C L Le À
-ea Hart t i ‘ LRRU sr AU y Un te AA
-
-AE CRI A TR ET A Re PA NE RIE, RE en
-
-y » ASS CD {OA MSP et LE 2 à LORS CRE Pis bd . Lis PACE 7 Cr
-
-# , rs
-
-À 767 L É TE Len ne
-| AL FEREREIER y Pi é f RU |
-
-k UE de # nt ti sis NL TRAT UE + SI 65) À Ge (12
-
-LOS PHONE RE ha ra Ne MAO RP LI VAREE Per RER
-#12: « # AY à RL | Te ‘4
-#9) \ A % :°%
-Pas. OR
-NOT de OP
-
-À à 0 4 {as DRE NLT Me un
 
 : aux Cahiers de la Quinzaine
 
 Charles Péguy. — la tapisserie de sainte Geneviève
 et de Jeanne d'Arc, — cinquième cahier de cette
 
-ALHEES > AR HP ES Mt LP ti et EN Ne TAN us 212 :
-ENTER LM du ER NACRE ET TE 7 AAA |
-| RER : RTE
-#47 14 NS : PR
-64 40e Le RER AT TS « At vie pt 1 NE ñ 3 He av.
-
-# à 2 9H NPA Copa LE PSI ERA A NE PPT CRE CUIR APE, muz NERO PAT NA SERRE TEE
-
-nant HUE NE. PEUT NE UT s (Fos FAITS
-
-+15 ar, n FE AMEL Fes PA L'NTE À
-PAR di : LE dr %, Wir 1
-ET Me + FN Or ARTE (NA IS MINE j : ju ACER Fee DE 4
-
 la tapisserie
 
-Fo Ye LES \ QE) NO 1e La 2 rx ka AP MER MODES pi
-et Hi € RES PA ER VE fi FRAC HUE
-| ANNE NES … CT
-| 4 LR + a
-#i 4% |: 1UBA
-tr, te LES L
-NY Vent la ral PO Es NL AS ae
-
-AS ES de? MAP NN, RG A TE de PC. FRS OS A:
-te A RUE LES T4 2 VE sr PTS Ba a RÉNCART. sa NRA TRE A RAR FAX
-À FA as Re à A ON D CL Cros Ce PU Dre tt UT. ae CR
 : de Notre Dame QU à
-> à LUS 1
-#2 210
-| A © er : [TL Fr PR
-EL Lure tt MATE ET OS Lt EN Ve EU Te » ANET eu Re PHARE ie TE NO
 
-F Vtt Le : + + FE OUR Pr és : 1e (Ce! RUES LE VAT CR
-DK: AS RON v 4 4 Tant R Le RSR A 00 er
-© of Ein + Et n LEE ENS MERE OS
-| 1e * Pre NOTE AAA €
-
-# # é 7 4 i AE:
-L; é ar OT d RiL Ur : +7 NET Nr mp HE
-
-Dre TT Ed ‘ 1 KT et
-
-D: % Per? : x us ci ERpUE É De Le À ;
-
-| 2 LT RSR TRES DETAIL RAR . F L'an TR KR 1 CET
-'INERE ou DA } Res Re D.
-| SN A È ù a: 4
-EX NET f “: ‘ D du LL L'ATTOMANRISSS
-
-üin RP UN PUS TN QUE de Lite t Fab NPA AT AT ES
-LCR a ES 1 ei PATTAN | ne SEEN 0 RE Eté PA HEAR E VE (
 d cahier pour le dimanche de la Pentecôte : FT
 é, et pour le mois de mai ‘80
-f e L Eat
 k de la quatorzième série : 14
-RE Le 2 Con 0 En hub  ! de N'RTNRANRNRN PSE t
-
-+ CE SE rs PORTES vor Re D EP ALT Li tix Qusrt '
-+} AL A AERNES “LAN AE Po EM LE pu < È cal à Mess ARR FAI
-DOS w “hs, DRONt INSAEUREEE À RENE is ON A FL PET" “CE hs JMD SEMATE FEES
-A PAS Roy UE LL ' et x€ WE
-
-GA re MS EST Et de, ph the APT be
-
-D : 4 Kul sa
 
 ‘4% au Bulletin des Professeurs catholiques de l'Université * 24
 
-|‘ LRO De Mori + PEER
-
-NP AT PANNE CN je FANS Vin te
-HUE ef TOR Ale AS PE DE He AE 2 AT TERRAIN "TAPER
-1194 MISE dar Nr dy di FORME ve Lo PTT TRE de t 14 # VAR fi? (
-2} 1 COPIER MODE RES PNR PEL ti, NT SES
-AY) ne. rar et 5} pr" f Ft Not A0
-| RENE ; ; FOTOS
-nr. er) L , ENS
-: AUTO à NE VAE ur NN DATA
-
-LORS k UNE NAN A AN HR V. Mrs à Ds AT [SSP is # PAF ENE POLE ce
-ERA NA TE AL x AT RAR TO ee ie UN A NULS PA: RTL EN HAE 4 de EN
-PAT AR PES PRE PMR EE AR AE 5 fe ee ON EP NT TRIER
-
-Mt 5 si L " à (AT H His Bu
-
-Re An nr. 4 la yre a “\5S AE |
-
-SA NEA FA NEA es RATS ANT AL ÿr ati, lent: PAS Put Lee MRVE
-LATTES LA HE FRA E Aa CR : DA CAS de TE pe Nr, À 00 NP
-LE OMAN ME MOTEUR RME ler vi r3 nr Mt D RAT
-no A) EU xt ÿ 4) N PR K PAT TA F7 NN 4. ER DR
-UNSS ce. LUS Le:
-| Rx A : \ * ee L AE à { ! (rate Nr 4 + k
-Un Le ve LI
-
-S 12 rc ae 1 LA AT LL
-220 Re 1 ANNTILTC (RT A Fu là Nr SE Déni Ne EX RU
-F0 09 ge Ni s De MAR NE ! è FE ro PRET VER ANNEES
-| L ji ; {5 EAST + ee
-| ; hs n:
-L. sentation i na.
 | Présent: de Paris à Notre Dame | PAU:
-| STE
-| 2 à CLS * 1H n
-| 1 2 1 RON IT
 
-# u LT SENTENRE et
-‘ 27 MES ri à 4 jé Pa ? : ! LATTHRNRNES 4%
-
-Tage APR Hà NE D e 4438 sie PA
-
-FEAT RUN ca de Vo! SAUT ET ET NS Lt SAT ER EE PTE CAN
-L ETES ie bee
-#" (41E ER r En
-LEA LA N à wà
-# AR : LEE
-N ur , VE Non ‘si Le . LAS 17"
-
-|
 | Te de la mer voici la lourde nef
 Où nous ramons tout nuds sous vos commandements ;
 Voici notre détresse et nos désarmements ;
@@ -309,36 +131,15 @@ Mais de l'or et du blé que nous emporterons. |
 Et il tiendra la mer : car nous le chargerons % |
 Du poids de nos péchés payés par votre fils. 1!
 
-| c LUE : Et : SE
-Case ONE MECS TA PET IT NT # Li LCI ï
-à EP, L' 2 dar Pibar ie II #6 Le _ (re
-LL in à TA LE 0 CREER Re
-
-PRET A LE vote FATAL ts PA ÀY RE " SE PAU CTE wi #2 2
-
-anse A ITR 4 CT du
-LCR FA 4 L L CORNE in AUOT:
-
-"4 ER Lu Î a” un tif POSE NES 5:
-
-er e 4e SAUT ed nf FAP ta ns NX La j Cu UE PRE RAD Cr TN k
-| ; ; Le ‘T1
 Paris vaisseau de charge :. 4 AUS
 
-ie 1 AAA ù 1 ENS FAN ANS. ! res je RP Fe
-QU UC Los Fi de SAULT 0 hey ER 4: PFTARN. COR
-
 | 3 ae vaisseau de charge aux deux rives de Seine,
-2-7 Vaisseau de pourpre et d'or, de myrrhe et de cinname, ar.
 __ Vaisseau de blé, de seigle, et de justesse d'âme, 2040 RE ;
 __ D'humilité, d'orgueil, et de simple verveine ; 15 LUE
-| ANT EG MER
 | Nos pères t'ont comblé d'une si longue peine, 2 NA (FRE
 ' Eu Depuis mille et mille ans que tu viens à la lame, RS ro ÿ
 M Que nulle cargaison n'est si lourde à la rame, MU:
 _ Et que nul bâtiment n'a la panse aussi pleine. +2 \° 0
-| DAQNISE . 5) 4 0) k
-| LAINE à A
 
 Date . Mais nous apporterons un regret si sévère, F É
 ei pes Et si nourri d'honneur, et si creusé de flamme, TNA
@@ -348,35 +149,8 @@ _ Et le fera hisser jusque sous l'oriflamme, A:
 y à _  Navire appareiïllé sous Septime Sévère, "
 9 Double vaisseau de charge aux pieds de Notre Dame. nt
 
-Pos: ! cs 28e LEUR
-# s / l | RES
-Ur EUR ne
-# Re
-: i L LA HNE “Le fs qu
-
-À eSATA e à /À AO SRRR ù DANS er Lars ARR ds ae Lu CEMNE
-0 BARON re A dE AE DEL LÉ PAGE NN ME
-
-ne + Les É r HU 4
-
-2 eu LA Past s RS RDS AR
-
-L CAEN] ee Fri Rs RTE FOSTER RNCS » gs D AE, ©
-os. : HT AN PSS A OS pr Dr 2e DÉPÈNE L UF ROUEN DAS
-RARE 5 ds RS: fra nv ANR dat PA HAL PAR UET 0 ASE NN
-Mere FR MEET Fe Fo ni RCE UE QUE SPL * $ (ALIETER
 ni Paris double galè LT 71
-# Ph 3 POP
-ne PRES 4 J CE Î 74 f ue M Ê 1 Y'A
-TOR AR CRE RUE EE 734 le ler re 4 NL ES !
 
-| JU AA 14 VAE TROEE WE de
-4 ASE MONEY Ne D'AtA LT pu Re de a 4e FAN RSR ONE
-pe RER ARE st D'ART a: Rx SE Ha LE L'ME FE 68
-# med: a
-# NU » Ne
-
-|
 | à pin le Point du Jour jusqu'aux cèdres bibliques
 Double galère assise au long du grand bazar,
 l Et du grand ministère, et du morne alcazar,
@@ -393,35 +167,13 @@ ne Nous ramerons des reins, de la nuque, de l'âme, FT CE
 Et nous tiendrons le coup, rivés sur notre rame, à
 AA. Forçais fils de forçats aux deux rives de Seine, Tr" ru
 Mn |: Galériens couchés aux pieds de Notre Dame. "EN
-#8 PET A ; ant
 
-SRE PCT CPS ANSE A LE rte ÿ is é ,
-vi RAA 20 AE SANS AP ERC ENT PRE NUE * à
-TS OR at TAC MPRROANT LE I OR TER
-2 FN MENCEEE NO CPS Re er AT LES See 22050 TT NN
-| A TERRES 4 SANTE PAUT Me: 7 '5 0 00 RS fa | (REC :
-: PES NE ss € Li AE me nt SA RENAN ae le, PA au ra
-RAA DR Je hé k EN 'IALTUIRNE ee ES
-re M H Î t \ "4 il NA à FC
-* ÂGE D nn. b \ de PEN:
-#. < L k \ EVE « + A ; | 4 LE
-De Ru TN we RAR
-Er) Pot, ii: ADR PH PCR MER TE EE 4h AU A QE Ma)
-
-PRE che AE RER SR Et LP: À LINE PUCES FA ni:
 ; Paris vaisseau de guerre TA AR
-| “T2 DEN:
-| dr 14 He y FA ae Un
 
-L EU MS TR ee SPORT AN ee À
-| a ORRCTENR \ : 16 MPINOR
-
-A ns et OR ARR à no PA VASE Les dir FETE
 4 3 vaisseau de ligne au long des colonnades, LAURE
 4 Autrefois bâtiment au centuple sabord, 4 # ni:
 _ Fermé sur le secret des sourdes canonnades. Fe 2 de
 Nos pères t'ont dansé de chaudes sérénades, , HERe # or
-| +R È 2 MR BETR
 | _ Ils L'ont fleuri du sang de la plus belle mort, #3 4 é js)
 | Quand au gaillard d'avant vers l'un et l'autre bord 12100 DE
 _ Bondissait le troupeau des graves caronades. £è RE
@@ -434,23 +186,9 @@ Soldats fils de soldats sous la même oriflamme,
 Qu'on nous mettra valets de tes canons béants,
 Monstres verts accroupis aux pieds de Notre Dame.
 
-25: (EN sn Le NE (us TS "LL Lu LRQ x # PTE ï h
-NH TN pa Er HUE CRE DU LNES M PA EP de PRE
-l'ATTE me FRA A ONE OMAN ND te D FINE RSR
-#2 "RU QUES NE #
-l'a Ari se me
-ras DE “ha { L' is +, ÈS
-#4 ! : FES
-RU /L :" :. j \ ne LR ONSRNNINRNNSSSSSSS
-AM Pubtrir Va td 10 # 4 CÉRRR ». "I NEN ONE ON A à 41,19 li QU CURE SRE
-
 Présentation de la Beauce à Notre Dame de Chartres
 
-er HN ES Et CRE. né : à
-| LIN. Lit”
 1 1
-
-fait 11) dia PhD LM PNA" TIR PPS RE PE À A SAS
 
 ë ] pe de la mer voici la lourde nappe
 ; Et la profonde houle et l'océan des blés VLAAN
@@ -460,9 +198,7 @@ Et voici votre voix sur cette lourde plaine a
 v Et nos amis absents et nos cœurs dépeuplés, no
 Voici le long de nous nos poings désassemblés 1,108
 Et notre lassitude et notre force pleine, n
-| M Cr Au J En OUET
 
-EPA AE: _ Étoile du matin, inaccessible reine, CR À Ya Die au
 25 Voici que nous marchons vers votre illustre cour,
 Et voici le plateau de notre pauvre amour, 224
 Et voici l'océan de notre immense peine. \ v' 0
@@ -512,7 +248,6 @@ Nous sommes nés au bord de votre plate Beauce |
 Et nous avons connu dès nos plus jeunes ans |
 Le portail de la ferme et les durs paysans 4
 Et l'enclos dans le bourg et la bêche et la fosse. |
-|
 Nous sommes nés au bord de votre Beauce plate
 Et nous avons connu dès nos premiers regrets à
 Ce que peut receler de désespoirs secrets |
@@ -554,8 +289,6 @@ Le gage et le portrait de nos arrachements, }
 L'image et le tracé de nos redressements,
 La laine et le fuseau des plus modestes sorts,
 
-dr pt le EE PARUS, PATES NURE 4 RAA ,
-| M 4 - x = pH À EN! mn
 CU Nous arrivons vers vous du lointain Parisis, LR SE UTE
 4 Nous avons pour trois jours quitté notre boutique, DE
 act Et l'archéologie avec la sémantique, ñ “4e
@@ -576,9 +309,7 @@ Comme vous commandez un océan d'épis, Û |
 Là-bas vous commandez un océan de têtes, !
 Et la moisson des deuils et la moisson des fêtes
 ÿ Se couche chaque soir devant votre parvis. à
-#
 
-HA Pohe La FA DAME DE CHARTRES
 à Nous arrivons vers vous du noble Hurepoix. #10
 ‘4 C'est un commencement de Beauce à notre usage, À &
 à Des fermes et des champs taillés à votre image, Ke
@@ -611,7 +342,6 @@ Autrement dit Saint-Clair ; ce n'est pas an castel ; DAME
 
 c. C'est un village au bord d'une route en biseau. ar
 
-présentation de la Beauce Fi EN
 Nous avons débouché, montant de ce coteau, 4
 Sur le ras de la plaine et sur Gometz-la-Ville è
 Au-dessus de Saint-Clair ; ce n'est pas une ville; "
@@ -657,8 +387,6 @@ Et que c'est bien assez de se lever matin.
 Le jour était en route et le soleil montait Fin UE
 Quand nous avons passé Sainte-Mesme et les autres. Qi \
 1 _ Nous avancions déjà comme deux bons apôtres. 4
-‘ne J Et la gauche et la droite était ce qui comptait. l £ f
-Le RE rs
 ve % Nous sommes remontés par le Gué de Longroy. 14 \
 4 É: ÿ C'en est fait désormais de nos atermoiements, : k:
 
@@ -670,23 +398,18 @@ _ Et la roue et les bœufs et le joug et la grange, “
 ni IS Et la détresse égale et l'égal désarroi. 54
 À tn .. Nous voici parvenus sur la haute terrasse Dh:
 ‘Æ _ Où rien ne cache plus l'homme de devant Dieu, %
-x Où nul déguisement ni du temps ni du lieu D
 Fe _ Ne pourra nous sauver, Seigneur, de votre chasse. Pl |
 , + Voici la gerbe immense et l'immense liasse, ‘4h
 Le Et le grain sous la meule et nos écrasements, "4
-je ë œ Et la grêle javelle et nos renoncements, k 1
 4 4) _ Et l'immense horizon que le regard embrasse. 14 4
 
-a ire LM ir ENT Te ARE EE Gr RUN RE 4 er ma.
 nm: Et notre indignité cette immuable masse, [ur k,
 Aa Et notre basse peur en un pareil moment, A na
-F. Et la juste terreur et le secret tourment PAIE IN 418
 L- De nous trouver tout seuls par devant votre face. Hu dti
 Mais voici que c'est vous, reine de majesté. Fe 1018 j
 Fa Comment avons-nous pu nous laisser décevoir, PACE
 | Et marcher devant vous sans vous apercevoir. 4
 ; Nous serons donc toujours ce peuple inconcerté. 4H 40
-NAT de
 F4 Ce pays est plus ras que la plus rase table. ; A
 be A peine un creux du sol, à peine un léger pli. 100 *
 14 C'est la table du juge et Le fait accompli, { ve HE
@@ -723,7 +446,6 @@ Nous coucherons ce soir à deux pas de chez vous, E
 Dans cette vieille auberge où pour quarante sous %
 Nous dormirons tout près de votre illustre tour. 1
 
-FT A NOTRE DAME DE CHARTRES ge
 Nous serons si fourbus que nous regarderons, + 0
 
 Assis sur une chaise auprès de la fenêtre, | |
@@ -764,13 +486,11 @@ _ Voici le firmament, le reste est procédure. 4
 44 Et vers le tribunal voici l'ajustement. » F . . = g
 + Et vers le paradis voici l'achèvement. L
 nr: Et la feuille de pierre et l'exacte nervure.
-|
 Nous resterons cloués sur la chaïse de paille. } h
 Et nous n'entendrons pas et nous ne verrons pas
 Le tumulte des voix, le tumulte des pas, ; à
 Et dans la salle en bas l'innocente ripaille. L 4
 
-FA Nome Dame De cmARtRSs
 | Niles rouliers venus pour le jour du marché. AS
 3% Ni la feinte colère et l'éclat des jurons : s é PA
 4% Car nous contemplerons et nous méditerons ‘20 7h
@@ -793,7 +513,6 @@ Heureux et malheureux et perclus du chemin. de 54
 . Qui mourut comme un sot au cours de cette année, es
 4 Presque dans la semaine et devers la journée 4 n: 12
 | | Où votre fils naquit dans la paille et le son. se an" V
-| # re, 6x Chartres, —$ WIN
 
 présentation de la Beauce ‘4
 à Vierge il n'était pas le pire du troupeau. |
@@ -819,13 +538,9 @@ Vous savez ce que c'est que la vie ou la mort,
 Et vous savez ainsi dans quel secret du sort
 Se coud et se découd la ruse du traqueur.
 
-he: APE MPAOMNSS LT Le LA OR:
-
 Et vous savez ainsi sur quel accent du chœur FC
 
 Se noue et se dénoue un accompagnement,
-
-Et ce qu'il faut d'espace et de déboisement
 
 Pour laisser débouler la meute du piqueur.
 
@@ -847,8 +562,6 @@ L'un des plateaux descend pour que l'autre s'élève.
 
 Et ce que peut coûter la lèvre du moqueur,
 
-Et ce qu'il faut de force et de recroisement
-
 Pour faire par le coup d'un seul retournement
 
 D'un vaincu malheureux un malheureux vainqueur.
@@ -858,9 +571,6 @@ D'un vaincu malheureux un malheureux vainqueur.
 Reine recevez-le dans votre amendement, :
 Où la mort a passé, passera bien la grâce.
 
-RE te de VU
-A QE Les CURE Eat y NT ANR EPL ATEN FAR L
-: 7 È d SERRE : rat IC PRE ds Qt ve P Le
 po Nous, nous retournerons par ce même chemin. AP) h 4
 à Ce sera de nouveau la terre sans cachette, RTE
 1e Le château sans un coin et sans une oubliette, : 4
@@ -883,53 +593,23 @@ Quand on aura sur nous dit l'absoute et la messe, A
 Veuillez vous rappeler, reine de la promesse, 3
 Le long cheminement que nous faisons en Beauce. £ |
 
-de Rae oi SR RE
 Quand nous aurons quitté ce sac et cette corde, LCR , É
 1 Quand nous aurons tremblé nos derniers tremblements, #ù we LA
 4 Quand nous aurons râlé nos derniers râclements, 1: NES
 6: Veuillez vous rappeler votre miséricorde, V (1 FAR Us
-| HR
 s Nous ne demandons rien, refuge du pécheur, ue, ‘à He
 Que la dernière place en votre Purgatoire, À 2
 Pour pleurer longuement notre tragique histoire, 7: À #:
 : Et contempler de loin votre jeune splendeur. 1 “AE
 
-de, PURE 2 LS HETR FRS Juan he 4, EAPAUENUT HAN ee À
-"Shi: C0 CRC AR POS (AREAS RARE ve 1e LEE Wat L
-HIS UE RS 2 rt LUE : Ke ÉRdE Lx ÉROUET FRE here la mé ii AP
-ARC, ORNE 12 LE EMA EN SRE Bou Got où PRE Le
-LE 2 TES MNUR LTR PUR TE Bel pa HP CPC SE ON ct Le je Fe en ;
-RES Ac re S URR UE: QUE CF SERRES ral
-RER 2 - ; L LES Are ÿ ne: LU
-Pie W + . 8h DES rs Lu
-x pl \ D, LA he aè
-ESS Ce Lun j 11 (st Un Pac MANS À
-LR TINSS it Car rt D
-
 les quatre prières dans la cathédrale de Chartres
 
-‘ no ‘AA Ra de NY eut vi TEA SE
-|; AIS EPS 0
-|. 1 TUNER 1? :TTAES
-#44 TOUR ne } ne:
-AL. : (22.7 10 Pr TRE Ua via LE. Toé do HA : SRG RENRRS »
-
 1. — prière de résidence PE
-| 740 Û # 4 + 04 NL)
 
-0 CEE ARE à EN tar De CL AE US ne: À ALT CN
-Î A LES EU à po 4 pe TUARE dois té fre SVT ; Es à " 4
-és UE ASE } WE do : 4 4 LUF Re PE 1 L
-PAU c nd : ÿ Des
-À SA 0 S Le (at MU a ER fl U
-
-| À #10
 | O REINE voici donc après la longue route, 2510
 x Avant de repartir par ce même chemin, AL.
 M Le seul asile ouvert au creux de votre main, .: TÈNRES
-| A ! \s : | F7 QE
 Et le jardin secret où l'Ame s'ouvre toute. MÈRES
-| k : k RAP
 D Voici le lourd pilier et la montante voûte ; ANR
 M Et l'oubli pour hier, et l'oubli pour demain; F ES
 M Et linutilité de tout calcul humain; LAN
@@ -955,10 +635,8 @@ Après tant de hasards, après tant de corvées.
 
 L Voici le lieu du monde et la seule retraite, |
 Et l'unique retour et le recueillement, :
-Et la feuille et le fruit et le défeuillement, |
 Et les rameaux cueillis pour cette unique fête.
 
-ri So te Nr PPT EN ED. L'Oube LRU N LA ont VOD SEA CO RES
 Voici le lieu du monde où tout rentre et se tait, AR
 ne Et le silence et l'ombre et la charnelle absence, 140 }
 5 Et le commencement d'éternelle présence, 6 +370
@@ -979,7 +657,6 @@ Ce qui partout ailleurs est une accession si
 N'est ici qu'un total et sourd abrasement. 1108
 bé: Ce qui partout ailleurs est un entassement Ris de
 N'est ici que bassesse et que dépression. ' « 0 de
-FETE L 93 Chartres. — 5 Pres (2
 
 la tapisserie de Notre Dame i
 Ce qui partout ailleurs est une oppression
@@ -1003,7 +680,6 @@ N'est ici qu'un beau pli sous vos commandements,
 Et dans la liberté de nos amendements :
 Une fidélité plus tendre que la foi.
 
-PRIÈRE DE RÉSIDENCE | jh
 Ce qui partout ailleurs est une obsession Fi
 N'est ici sous vos lois qu'une place rendue. $
 Ce qui partout ailleurs est une âme vendue
@@ -1026,7 +702,6 @@ Nous nous sommes lavés d'une telle amertume
 Étoile de la barque et des souples filets.
 
 ANR Nous avons délavé nos malheureuses têtes LURPASE
-s È ne D'un tel fatras d'ordure et de raisonnement, Nr
 % SC Nous voici désormais, ô reine des prophètes, PLAT ; à
 HAT Plus clairs que l'eau du puits de l'ancien testament. +
 y # # Fa _ Nous avons gouverné de si modestes arches, 4
@@ -1045,7 +720,6 @@ Le ee Nous ne savons plus rien qu'une simple oraison. Li L
 t TR Nous n'avons plus de goût pour le transbordement, Le
 x | Nous voici revenus, au déclin de nos âges, au
 SEP Étoile du seul Nord dans votre bâtiment. Al
-Le AR on.
 
 Ce qui partout ailleurs est de dispersion ae :
 N'est ici que l'effet d'un beau rassemblement. Fe
@@ -1121,7 +795,6 @@ N'est ici que la fleur de la jeune saison. L L
 Ce qui partout ailleurs est un retranchement i +
 ; N'est ici qu'un soleil au ras de l'horizon. d
 
-#5: de. OS te HSE ra. A RE: ARTE
 Ce qui partout aïlleurs est un dur labourage TU
 #4 _ N'est ici que récolte et dessaisissement.
 Ce qui partout ailleurs est le déclin d'un âge : 4
@@ -1188,8 +861,6 @@ Ce qui partout ailleurs est un redressement
 N'est ici que la pente et le pli du gazon.
 82 2
 
-PAR TE SRE Te. LT LR RES bo É | Lo eu pie
-Er ur PRIÈRE DE RÉSIDENCE Cv ù
 Ce qui partout ailleurs est une écorcherie f à
 N'est ici qu'un modeste et beau dévêtement; “
 Ce qui partout ailleurs est une affouillerie
@@ -1211,29 +882,7 @@ N'est ici qu'un paisible et fort détachement, y
 Et dans un calme temple et loin d'un plat tourment )
 L'attente d'une mort plus vivante que vie.
 
-r SC: A a rue Yu: FAO QUE 9 TES dès EN ee % are rer 418
-
-Age DRE GU Pt D NÉE NES AR à LE “'& TRY TRUE ji AREA
-
-"À Lea :. ON MIRE RAC AURA ANS Vu PRE re 4 NE RITESURS
-YANG EE el L
-
-MAN re . ! ne. L RU
-| LE ss ru RCE
-
-ae OO ON TC RE LE 4 LAS ie A RNMRERSSSSSS
-
-n JANET PRE CS) (Re Hate LT SES A Lo CE, TA vÈ NAT se CAN DEEE
 ASS 2. — prière de demande “22 #00
-| M
-1. TONNERRE TOI A te ÿ STE ET OR
-ï KT THE RACE CREER né CH UT GAL Fer Le
-
-K PE AE SON LA se ND MR RTS ANDRE SE S.
-Re, se ne.
-
-PRE ce PCA Fe AE ND ne À ME AR SE RE A Ans QE a
-Ju rai wat Le ps
 
 L N° ne demandons pas que le grain sous la meule ut ii
 # Soit jamais replacé dans le cœur de l'épi, “pis
@@ -1243,7 +892,6 @@ Nous ne demandons pas que la grappe écrasée LR
 Soit jamais replacée au fronton de la treille, UT 26 K:
 = Etque le lourd frelon et que la jeune abeille 2370
 _ Y revienne jamais se gorger de rosée, #4 rs 1x
-ANUS Vie CUIR d
 
 Hi rs _ Nous ne demandons pas que la rose vermeille Ne
 Aus D Soit jamais replacée aux cerceaux du rosier, Sy 140 $
@@ -1273,7 +921,6 @@ ES Soient libérés jamais de cette lourde chape. % DNS :
 É Nous ne demandons pas que cette auguste table | OR Yi
 É Soit jamais resservie, à moins que pour un Dieu, +1) 1 De
 4 Mais nous n'espérons pas que le grand connétable LT à
-vie
 ; Chauffe deux fois ses mains vers un si maigre feu. ‘0100
 Nous ne demandons pas qu'une âme fourvoyée À 5740
 eu Soit jamais replacée au chemin du bonheur. : AI
@@ -1288,28 +935,6 @@ _ Régente de la mer et de l'illustre port er
 ; __ Reine que de garder sous vos commandements ir8 47 È
 Une fidélité plus forte que la mort. en
 
-4 Est SD GATE DE L'OUEST ET RS {  $s. 5 Set EN WE eù bé, TUE
-ET NE NNESOOTSRV ER Lt EN nr , x TO ei VER CRE iR
-FLE 1 PTS Aus AUOT AMETETE LE "0 CENTRES
-
-|, RER ù , A
-
-Te + Fa de Pur (LB [Ice +. Y À 6
-
-À L'5027 ù À AY ÉNNE SOC OU ER AS: OR PES ie er I PI ENE Ga
-#4 i RE
-11 FT RES ré MOREL NES TUE. À pr Et Po ny
-0, tn: LUE Ce PPS Plat CRE
-te Le oi » LR ANT à
-
-Fe tte) LUE Prat a pe MON L A à d
-2680 de SR ES NES dS Res) RENE à PESTE ES APTE {
-APE e SORA CE aa ue GR ANR OR UE ee Es, À
-TON ER LR FAST EU MO CU ER RTS) ANRT Le en ee re
-410 re LT. al DES ÉTAT E AT 2 TN ALU NAT IENRUSSS
-| AU + L #
-# DR ” - ,$ Ye
-
 | N°? ne demandons pas que cette belle nappé
 | Soit jamais repliée aux rayons de l'armoire,
 Nous ne demandons pas qu'un pli de la mémoire
@@ -1323,9 +948,7 @@ Vous seule vous savez, à grande notre Dame,
 
 Ce que c'est que la halte et le recueillement.
 
-| ÉCOSSAIS
 la tapisserie de Notre Dame 0
-| Maîtresse de la race et du recroisement, À
 à temple de sagesse et de jurisprudence, \
 | Vous seule connaissez, Ô sévère prudence, É.:
 Ce que c'est que le juge et le balancement.
@@ -1346,34 +969,15 @@ Et pour bien nous placer dans l'axe de détresse, Î
 Et par ce besoin sourd d'être plus malheureux, 4
 Et d'aller au plus dur et de souffrir plus creux, À
 Et de prendre le mal dans sa pleine justesse.
-|
 
 Par ce vieux tour de main, par cette même adresse,
 Qui ne servira plus à courir le bonheur,
 Puissions-nous, Ô régente, au moins tenir l'honneur,
 Et lui garder lui seul notre pauvre tendresse.
 
-|
-
 -
 
-|
-
-Re A Lt ER M FAT Pt PE D'eumreur Qi NE, hf LA FOR à Ps KE | |
-Ts: à gt LEON ets ET MEAs <5f° Ni re LE Pre) ‘+ S LU 0 F2
-LATE DENT d'une ORNE LEE A 7L0MES 5e p'aue: AN
- TRRRENTRA L SPAS EUUES 12540 MAO Dre nt XNA A
-4 à | à LIN OURS Hot LE mc (VE fra HEC:
-| ra
-
-PME EE De ee Re Loi nie RO DOME D M VRARERX 1H VA AIN
-et ST HSE 44 j La KE ÿ Le AE 11% ; ï t F ANT der AFS ;,
-2 L À * L ce es Me
 à 4. — prière de report MER
-| AIN ; OR
-£ 0 L ONE nf LT eu"
-| ve TX it Ps , LL et y
-COR Re V6 tu dir DRE
 
 IN avons gouverné de si vastes royaumes,
 
@@ -1385,8 +989,6 @@ Nous n'avons plus de goût pour les grands majordomes,
 | Régente du pouvoir et des renversements,
 Nous n'avons plus de goût pour les chambardements,
 Régente des frontons, des palais et des dômes.
-
-| ; |
 
 la tapisserie de Notre Dame RAT TS
 
@@ -1423,7 +1025,6 @@ Nous avons encouru de si hautes fortunes, É 1
 Nous avons dépouillé de si basses rancunes, : L
 Reine du témoignage et du double témoin.
 
-PRIÈRE DE REPORT fi
 Nous n'avons plus de goût pour les forfanteries,
 Maîtresse de sagesse et de silence et d'ombre, fa
 Nous n'avons plus de goût pour les argenteries,
@@ -1445,7 +1046,6 @@ Mais qui marchaient toujours et n'ont jamais plié,
 Nous sommes cette Église et ce faisceau lié, À
 . Nous sommes cette race internelle et profonde, ï
 
-NA _ la tapisserie de Not: s'Dame MOT PR
 | Nous ne demandons plus de ces biens périssables, k Î
 AH Nous ne demandons plus vos grâces de bonheur, %
 RES Nous ne demandons plus que vos grâces d'honneur,
@@ -1471,7 +1071,6 @@ S'il est admis pourtant que celui qui doit tout $
 Se fasse ouvrir un compte et porter un crédit, 1
 | Si le virement tourne et n'est pas interdit, 5
 | Nous ne demandons rien, nous irons jusqu'au bout.
-|
 Si donc il est admis qu'un humble débiteur
 | Puisse élever la voix pour ce qui n'est pas dû, '
 S'il peut toucher un prix quand il n'a pas vendu, r
@@ -1489,23 +1088,5 @@ Nous qui n'avons connu que votre adversité, ,
 à veuillez reporter, merveille de largesse,
 Vos grâces de bonheur et de prospérité. |
 
-14 … Vos grâces de douceur et de consentement, LR
 1" Et tresser pour ces fronts, reine du pur froment, : (Se S
 2 _ Quelques épis cueillis dans la moisson des fêtes. ‘3
-#4] LEE /
-1 gta di Le
-, ue le Le à à
-
-: “ Gé de EN AG TND PTT AUD APR PEN
-| PRO S
-RP. AA TE OR VE Ne 1 k ne TE Ouf
-PTT. # dé er 4 NE Fo CUVE LUE
-
-FE Gus 6e CRM MSN A DIS OR fe LRU EEE ct U'Es DAT TO Le os
-Ras ne Co RE ER LENS [10 LENS RER RAP AN EUR TE
-TES SAT : RL An MINE 4 nee EEE Le ee LUE PE
->. Al HN AS MARQUE MA RNA RS Sen NET LS PPAT TIRE re) OS
-> 1 KIENIIERE “ É er : C8
-| 18 A ER:
-| NT : .# “1 d
-Dar SUR NE FL en, Ti 61 9 Li AT GOT

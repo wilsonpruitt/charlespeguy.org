@@ -8,14 +8,9 @@ isAvertissement: false
 wordCount: 4003
 ocrSource: "Wikisource ws-export 2026-05-25"
 ---
-
 La lettre que l’on va lire a été publiée pour la première fois en français dans le Courrier Européen ; deuxième année, numéro 18, vendredi 10 mars 1905 ; nous publions plus loin, disait le Courrier dans sa première page, un important article de Tolstoy sur les événements de Russie. C’est l’article dont il a été question récemment dans la presse et que l’on attendait. Il paraît en même temps en français dans le Courrier Européen et en anglais dans le Times. Il sera publié en russe dans quelques jours.
 
 M. Bienstock a relu sur épreuves l’édition que nous donnons ici de cette lettre.
-
-Léon Tolstoï
-
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 
 Il y a deux mois, je reçus d’un journal de l’Amérique du Nord, un câblogramme, avec réponse payée de cent mots ; on me demandait mon opinion sur l’importance, le but et les conséquences probables de l’agitation des Zemstvos. Ayant sur ce sujet une opinion très nette, et en désaccord avec celle de la majorité, je crus nécessaire de la donner.
 
@@ -57,8 +52,6 @@ C’est pourquoi les libéraux et les révolutionnaires qui rédigent les cahier
 
 Aussi, selon moi, cette activité est-elle inefficace, déraisonnable et irrégulière. De plus, elle est nuisible, parce qu’elle détourne les hommes de cette activité unique, — le perfectionnement moral de l’individu, — par laquelle, et exclusivement par laquelle, peuvent être atteints les buts que se proposent les hommes qui luttent contre le gouvernement.
 
-⁂
-
 « L’un n’empêche pas l’autre », dira-t-on. Mais ce n’est pas vrai. On ne peut faire deux choses à la fois. On ne peut se perfectionner moralement et participer, en même temps, à des actes politiques qui entraînent les hommes dans les intrigues, les ruses, les luttes, la colère allant jusqu’au meurtre. L’activité politique non seulement n’aide pas à l’affranchissement des violences gouvernementales, mais, au contraire, elle rend les hommes de plus en plus inaptes à l’unique activité qui les puisse affranchir.
 
 Tant que les hommes seront incapables de résister aux séductions de la peur, de l’étourdissement, du lucre, de l’ambition, de la vanité, qui asservissent les uns et dépravent les autres, ils se grouperont toujours en une société composée de violateurs et d’imposteurs, et de leurs victimes. Pour que cela ne soit pas, chaque individu doit faire un effort moral sur lui-même. Les hommes sentent cela, au fond de leur âme, mais ils veulent atteindre d’une façon quelconque, sans efforts, ce qui ne s’atteint que par l’effort.
@@ -72,8 +65,6 @@ Et alors, voilà une théorie d’après laquelle on tâche de prouver que les h
 Les hommes reconnaissent qu’il y a, en leur vie, quelque chose de mauvais, qu’il y a quelque chose qu’il faut améliorer. Mais l’homme ne peut améliorer qu’une seule chose qui est en son pouvoir, lui-même. Mais pour s’améliorer soi-même, il faut, avant tout, reconnaître qu’on n’est pas bon, et cela, l’homme ne le veut pas. Et voilà, on attire toute l’attention non sur ce qui est toujours en notre pouvoir, non sur nous-mêmes, mais sur des conditions extérieures qui ne sont pas en notre pouvoir et dont le changement ne peut pas plus améliorer la situation des hommes que le transvasement du vin ne peut changer ses qualités. Et voilà que commence une activité : 1o stérile ; 2o nuisible, orgueilleuse, (nous corrigeons les autres), méchante (on peut tuer ceux qui font obstacle au bien commun), et dépravante.
 
 « Reconstituons les formes sociales et la société prospérera. » Ce serait beau si le bien de l’humanité s’atteignait aussi facilement ! Malheureusement, ou plutôt heureusement (parce que si les uns pouvaient arranger la vie des autres, ceux-là seraient les plus malheureux des hommes), il n’en est pas ainsi. La vie humaine se modifie non par le changement des formes extérieures, mais seulement par le travail intérieur de chaque individu sur lui-même. Et chaque effort pour agir sur les formes extérieures ou sur autrui, ne change pas la situation des hommes, mais ne fait qu’altérer, diminuer la vie de celui ou de ceux qui, — comme tous ces hommes politiques, rois, ministres, membres du parlement, révolutionnaires de toutes sortes, libéraux, — cèdent à cette erreur pernicieuse.
-
-⁂
 
 Les hommes qui jugent superficiellement, les hommes légers, émus particulièrement par la boucherie fratricide commise récemment à Saint-Pétersbourg, et par tous les événements qui accompagnèrent ce crime, pensent que la cause principale de ces événements est dans le despotisme du gouvernement russe, et que si la forme autocratique du gouvernement russe était remplacée par la forme constitutionnelle ou républicaine, de pareils événements ne pourraient se répéter.
 
@@ -101,11 +92,7 @@ Pour se débarrasser des gouvernements il ne faut pas lutter contre eux par les 
 
 C’est pourquoi plus les hommes voient et sentent nettement la malfaisance des gouvernements, — comme actuellement, nous, les Russes, qui sentons nettement, maladivement, le mal de notre gouvernement stupide, cruel et mensonger qui a perdu déjà des centaines de mille hommes, qui ruine et déprave des millions de gens, et maintenant, provoque les Russes au fratricide, — plus opiniâtrement, ils doivent tâcher d’établir en eux une conscience, nette, ferme, religieuse ; plus scrupuleusement ils doivent accomplir la loi divine qui découle de cette conscience et qui exige de nous non la transformation du gouvernement existant, ou l’établissement de cette organisation sociale, qui, selon nos opinions bornées, garantirait le bien général, mais qui exige de nous une seule chose : le perfectionnement moral, c’est-à-dire notre affranchissement de toutes les faiblesses, de tous les vices qui font de nous les esclaves des gouvernements et les complices de leurs crimes.
 
-⁂
-
 J’avais terminé cet article et me demandais s’il fallait le publier ou non, quand je reçus une remarquable lettre, non signée.
-
-La voici :
 
 Depuis déjà plusieurs jours, je ne puis me ressaisir. Quand quelqu’un commence à me parler des ouvriers massacrés, je ressens pour lui de la haine et j’éprouve une sorte de mal physique.
 
@@ -120,7 +107,5 @@ Cinq fois j’ai pris et laissé cette lettre, à la fin je me suis décidé à 
 Oui, le principal c’est que quelque chose désunit les hommes, qu’il n’y a pas de lien entre eux. L’important est donc d’écarter ce qui désunit les hommes et de le remplacer par ce qui les unit. C’est toute forme extérieure violente du gouvernement qui désunit les hommes ; la seule chose qui les unisse, c’est le rapport envers Dieu, l’aspiration vers lui, parce que Dieu est seul pour tous et que le rapport des hommes envers Dieu est un.
 
 Que les hommes le veuillent reconnaître ou non, devant nous tous, se dresse le même idéal de perfectionnement supérieur et seule l’aspiration vers cet idéal anéantit la désunion et rapproche les hommes.
-
-Léon Tolstoï
 
 Iasnaia-Poliana, février 1905

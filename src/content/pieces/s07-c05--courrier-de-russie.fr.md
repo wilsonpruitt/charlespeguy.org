@@ -9,22 +9,11 @@ wordCount: 8115
 ocrSource: "Trimmed 2026-05-25; Avenard's 22 janvier narrative (lines 882-8943) extracted to sister file."
 translationNotes: "Cette portion conserve l'introduction éditoriale de Péguy au cahier Avenard, plus la matière administrative de fin de cahier. Le titre 'Courrier de Russie' était le titre de la rubrique sous laquelle Péguy publiait Avenard."
 ---
-ETIENNE AVENARD de
 le 22 janvier nouveau styl
-
-#4. 10.16
 
 & 3 paraissant vingt fois par an
 
 ë 8, rue de la Sorbonne, au rez-de-chaussée
-
-D SRE LE M A CLONE te EF SRE
-| (PE - . PRO RE
-| SRE ÿ SE LLC NT
-RSR ne ce 3 Ÿ # à FPS RESTE
-
-de A AR EC OT es RE Le MURS 2 Ve APRES
-|} LRTINROEES À :!, METEO
 
 ; Nous avons publié dans nos éditions antérieures et
 à dans nos cinq premières séries, 1900-1904, un Si
@@ -46,9 +35,6 @@ A une idée, abrégée, mais complète, de nos éditions anté-
 ÿ place, les références demandées.
 RAT Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de XI1+-Z08 pages très denses, marqué cinq
-|
-
-D gi tiei de ain AS A ANSE ANR PAT DL NA gat A TE
 
 francs ; ce cahier comptait comme premier cahier de la À
 
@@ -107,27 +93,6 @@ analytique très sommaire que nous avons publiée en fin f %
 
 de ce cahier index. # 1}
 
-de, 46 NPA LES mn A MR Fa
-2 LU , F PRE Le SR AE une EAN TG PARLE MR « D 0. s DEN PAS NON PCR TeT PEN) : fr 140: CERN
-L * Fée & J' ï t Le MN MOT Ces
-Res us ENTRE A SE: S VMS F hi: OUT IN ONE
-
-TON Ver URL HET Ÿ MT CR ENS AA Fi EMA ET RAIN (ea MAÉ “ AU LE
-
-LE EUR ÿ AE A Al “oi
-
-11. RUIERS LIN EME L À À fai Ô 100 Mes
-
-58 NE ER see k eu à LT RES
-MT je Û FAR \ SNS DANS:
-
-2 HT SENNNENNR AN Sn A re EU RAR LE
-
-AL: AARRAES ÉANAAULE Nos PAL LEONE ANCIEN OLIS GARE SE dede D Me
-en Ce N A Mer a 0
-; ser NDS PUR ï OS , M F rs 26 LA
-
-\ Het ti Hu x Wa te AR de” 2 UNE CARE us
 _ Simple extrait de ce premier petit index alphabétique : HETA
 je analytique MT
 __ Bernard-Lazare, — l'oppression des Juifs dans l'Eu- FOR
@@ -136,21 +101,15 @@ _ rope orientale, — les Juifs en Roumanie, deux francs 114 te D à
 De cassé, ministre des affaires étrangères, — de Buda- Lire
 Ve — — Juifs de Roumanie, —une lettre à mon- t LE gi À
 _ sieur Anatole Leroy-Beaulieu...............un france 930 pa WT
-DRE mES OU ER AE in franc | 239) A4
 Edmond Bernus, — la Russie vue de la Vistule, — his- Nr: np
 André Bourgeois, — quatre jours à Montceau, — un o js à
 | Félicien Challaye, — Courrier d'Indo-Chine, — épuisé, LP PUTEE
 _ n'est plus mis en vente que dans les collections com- AE
-144 RUE de A POISIMESÉFIE. 2.0 et LATE DUAL
 eu: —  — la Russie vue de Vladivostock, journal US
-pe: ke oo _— —_ impressions sur la vie japonaise......... HA eu so
-pe un franc 147 ù PA
  —  — Second courrier d'Indo-Chine, un franc 205 j HA É
 
-rat Foret IN RRS po à LA * Lan | 27 RS RE 81 7) RON PRESS f:
 Re cinquième cahier de la septième série Ex
 ‘2 4 Félicien Challaye, — impressions sur Java, — fragments él ;
-PT de journal... 0 0 Sun FORCER
 HE; —  — la France vue de Laval..... deux franes 34r de
 ER Henri Dagan, — l'Oppression des juifs dans l'Europe G
 # orientale, — les massacres de Kichinef et la situation
@@ -160,19 +119,14 @@ ES d'Algérie, — considérations sur les causes de la gran- ë
 LE deur et de la décadence de l'antisémitisme en Algérie
 ÿ Fa Jean Deck, — cahier de courriers, — courrier de Fin-
 à À lande, — en particulier sur les troubles des 17 et j
-ne LS AVI TOOS. A2. NN ES AC OS EUROS
 ni ! —_ — Pour la Finlande, mémoire et documents
 st Maurice Kahn, — cahiers de courriers, — courriers de 4
 En Lionel Landry, — courrier de Chine, du temps de
-f f l'expédition de Chine, — un cahier en voie d'épuiseS. ; MONDE. Me rce ee entente Mens dau ec OL EPS RES
 ‘4 54 — — courrier de Chine, même temps.........
-5h un franc 36
 21: Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
-De. ATOS SENTE ee LR RL EM deux RSC
 Fe h: Edmond Lebret, — courrier de Bretagne.....un franc 215
 a : Jean le Clerc, — introduction à courrier de France, ;
 bi A grève générale des mineurs, du Bulletin de l'Office <R
-+3 ï dmitrapail URL. RE 'un rares
 NN —  — du même Bulletin, présentation de :
 “14 Henri Michel, — cahier de courriers, — Notes sur la
 
@@ -199,25 +153,15 @@ morales du mouvement révolutionnaire parmi les Juifs
 russes; le mouvement ouvrier juif avant la création du
 ; « Bund »; le « Bund » et son activité, ses rapports avec le
 parti Social-Démocratique russe ; le Sionisme ; conclusion ;
-4 GEORGES DELANACGHE. — Un voyage d'études;
 VLiaprmiIR KOROLENKO. — La maison numéro 13; — traduit
 par Élie Éberlin ; Elie Éberlin, Vladimir Korolenko ;
-| LACS . sen pe . .
 Treizième cahier de la sixième série, un cahier jaune de
 72 pages, in-18 grand jésus, bon à tirer du mardi 21 mars 1905
-(bi A IRL un franc
 j ToLsror. — l'Église et V'État ; les événements actuels
 en Russie; — traduction J.-W. Bienstock; le premier, in-
 | troduit par P. Birukov ;
 dans le même cahier :
 Cahiers de la Quinzaine, — les œuvres de Tolstoi.
-
-À NT EE de | NE fi
-TP EE et os , RENE:
-#1 CN ETAPE + + “ 4 À “1 2 CNE
-
-“ “ne "at ? HAE LSARE ps +
-de.
 
 Le courrier que l'on va lire fait, comme tous les
 courriers des cahiers, dont on a pu lire ci-dessus un
@@ -316,7 +260,6 @@ presque de tout le monde politique, il eut vraiment dans
 ce pays une situation qu'il n'a jamais retrouvée.
 Un assez grand nombre de personnes me reprochent
 
-| Charles Péguy se
 Ë d'avoir gardé pour Jaurès une tendresse secrète, qui
 transparaît même, qui transparaît surtout dans mes $
 sévérités les plus justifiées. C'est qu'elles ne connaissent
@@ -417,7 +360,6 @@ F0 confessions, — dans ma sotte vanité de jeune homme,
 “4 Envoyé de l'Humanité, correspondant de ce journal à
 1 Saint-Pétersbourg, Avenard tenait beaucoup à ce qu'il
 ‘a füt dit en tête de ce cahier quel bon souvenir il avait
-| Ë XVIN
 
 gardé de ses relations professionnelles et généralement
 de toutes ses relations avec le journal dont ïl était Fe
@@ -452,7 +394,6 @@ tion. Le journal de Jaurès! on en avait plein les années #
 à venir. Depuis des années on savait bien, on avait Ÿe
 bien dit que Jaurès finirait par faire son journal. Enfin ‘
 
-TA k Wien pe LS IC ANTIIRS
 We. + on aurait, on verrait, on allait voir le journal de Jaurès.
 Re # On attendait. Il ne fallait rien dire. Ce serait un journal
 i comme on n'en avait jamais vu. Le journal de Jaurès,
@@ -539,13 +480,10 @@ We Et ils ont la vertu qui est devenue la plus rare dans les
 ( teurs ne m'a lâché. Cela vaut encore mieux que tout ce
 h ë que j'ai publié. C'est sans doute la première fois que ce
 &s ; fait se produit depuis le commencement de la troisième
-# République.
 a 11 était embarrassé. J'insistai : Croyez-vous, par
 | : 4 MS exemple, que si vous débutiez par donner en feuilleton
 ê ï 1.20 à le Coste de Lavergne, cela n'aurait pas un sens ? Alors
 4 ï À il commença d'élever un peu les bras au ciel d'un air
-
-A D RU) ANNE à CA AS A: sa Te (', Vs Ce ME ECO de
 
 désolé : Vous savez bien ce que c'est. J'avais mon personnel plein avant de commencer. Il est plus facile
 d'avoir des collaborateurs que de trouver des commanditaires.
@@ -651,14 +589,12 @@ avec les réactionnaires à seule fin d'embêter les radicaux de la Dépéche.
 
 [On me pardonnera de ne pas savoir s'il faut écrire
 Gabriel-Ellen Prévost ou Gabriel Ellen-Prévost. Je ne
-sais pas où il y a le trait d'union, ou même s'il n'en
 faut pas deux. Je ne sais pas même s'il faut écrire Pré-
 vost ou Prévôt. Les journaux et revues orthographient 4
 différemment le nom de ce grand homme. Et je n'ai plus,
 malheureusement, le temps de remonter aux sources.] :
 
 ie ‘3 Il y a deux espèces de normaliens et d'agrégés : ceux
-1 Le qui font de l'enseignement, ou de la science, ou un
 24 à métier équivalent; c'est-à-dire ceux qui de quelque
 de p î - manière font leur classe; nous en sommes; et nous
 re devons les respecter comme on doit respecter tout hon-
@@ -688,7 +624,6 @@ he commandites, avec un appétit insatiable, et d'un mou-
 ù Le vement si régulier qu'il semblait un mouvement d'horA loge, et que nonobstant il ne peut trouver aucuns lecMia teurs, que sans doute il a baissé ou qu'il baisse, en
 ie admettant qu'il soit ou qu'il ait été jamais en situation
 
-D OR ne en PAPE DAS:
 . de baisser, aujourd'hui la situation est la suivante : que 4
 - Léon Blum le bon apôtre donnerait volontiers onze ans 2 2!
 ._ de la vie du patron pour être ailleurs. Il a bien voulu VA
@@ -697,7 +632,6 @@ D OR ne en PAPE DAS:
 L ce nom. Et la situation est aujourd'hui la suivante, que
 _ tout le monde à Paris sait, et que tout le monde dit que F4
 _ Léon Blum a depuis de longs mois posé sa candidature vw + É
-_ à la critique, ou à la chronique littéraire du Temps, RS.
 qui pourtant n'est point vacante, succession qui n'est à $
 _ pas même ouverte, et qu'il ne dépend heureusement pas ; à
 _ de lui de faire ouvrir. De sorte que la situation de .#
@@ -719,10 +653,7 @@ _ Is sont d'ailleurs d'immenses quantités, dans le parti PP
 « _ les saintes huiles pour être appointés cinq cents francs : ee
 “ par mois, qui enfin donneraient cent cinquante-et-un KA
 . ans de la vie de la cité socialiste pour seulement passer SR à
-él au Figaro. Que, 2.
 
-| Charles Péguy
-|
 Voilà des accidents que Jaurès n'eût pas craints s'il
 | n'avait point été chercher ses hommes ailleurs, si luifi] même il n'était point parti se balader ailleurs, dans des
 - pays perdus ; voilà des accidents qu'il n'eût point eu à
@@ -750,7 +681,6 @@ k Italie qui était, si mes souvenirs sont exacts, le voyage
 ë très remarqué était déjà un homme sur qui je n'ai assu-
 à rément aucuns droits à faire valoir, un homme que je
 
-#0] ' | COURRIER DE RUSSIE AE
 _ ne veux point tirer à nous, un homme qui a pour Jaurès 3
 une affection profonde, manifestée ici même dans son
 histoire de quatre ans, mais un homme enfin dont j'ai $
@@ -783,7 +713,6 @@ comme je lui demandais des explications sur ce que ;
 j'aurais à faire, m'a dit simplement : « Arriver d'abord,
 — et puis, tâcher de débrouiller ce qui se passait, enfin |
 
-E È mn f le rendre de la façon la plus claire et la plus vivante
 S ‘4 run possible. » J'ai eu, continue notre collaborateur, j'ai
 TUE £ eu avec le journal d'excellents rapports. J'étais parti
 k 412 pour un mois. La grève éclatant, on m'a envoyé des
@@ -843,15 +772,12 @@ sables par on ne sait combien de sanglants et d'atroces or
 avortements, guerres de peuples, guerres de races, £ n
 guerres de classes, guerres civiles et plus que civiles, Ex
 
-4 juge “ ue DELA NS PO LA PPS SH HT RS OORES
 guerres militaires, massacres et boucheries, incendies
-ue à 5 s RS D ou
 | et tortures, démagogies sanglantes et crimes insensés, 1
 horreurs inimaginables, massacres des Polonais, masLYS sacres des Juifs, des massacres près de qui ceux de
 ‘ETTIRR Kichinef n'auront été qu'un incident sans gravité, masSn | sacres des Russes, massacres des intellectuels, mas__  sacres des paysans, massacres des ouvriers, massacres |
 ) ds sn des bourgeois, monstruosités de tout ordre et de toute
 barbarie, — et quand nous, peuples libres, peuples
-# Ru RS OeOIER Da . A " .
 que _ libéraux, peuples de liberté, France, Angleterre, Italie,
 __ Amérique même, tenus sous la brutalité de la menace
 10e militaire allemande, nous sommes contraints et maiïn-
@@ -862,26 +788,8 @@ CE rien, de ce qu'eussent fait nos pères antérieurs, il y a
 : 74 nationalement tenu en servitude par un empereur miji: à litaire étranger, comprend qu'il n'a provisoirement qu'à
 mu  lire,se taire et méditer.
 
-1 AGE cat AN Loi à AE CE A A SE LE RS Es UC ES STONE SEEN RS
-
-RE, Je mi di Te N bts < : *ÜM AETAMIREESS
-LE VOIES L aus HARRE 2 +2 NE ENRES
-
-# AU TA A7 GE NE LEE AU ae 0 67 à AO TES PAPA A
-ES 4 de ue
-PO SMS 0:70 RON pe NAT NE EEE Las Die
-
 (le 22 janvier nouveau style
 
-F4 ARS L 44 ri \ j Puel
-CONS VE il 7) FENTE
-ARR AT ur Ho } ni
-
-# eat LUE
-
-bé ARS EE MT A De OPA NU
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -912,16 +820,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 naturellement aux premières inscriptions; c'est ce numéro d'inscription qui deviendra automatiquement le
 numéro du tirage réservé à chacun des souscripteurs ;
 l'édition sur whatman sera strictement limitée au
-
-LOVE PE Lutte SOUS 2h Des € A" RUE NATURAL ERA
-#0 7408 AE $ : 4 EG è EP:
-|. 54 S'ANOPRSS D
-# Hi . te
-| ER ; nt
-me ne:
-se) "Le Lactat) té f (: ad
-
-a on ci
 
 | Pour tout changement d'adresse envoyer soixante |
 centimes, quatre timbres de quinze centimes.

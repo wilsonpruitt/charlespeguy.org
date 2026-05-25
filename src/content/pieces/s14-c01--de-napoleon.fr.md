@@ -12,55 +12,7 @@ périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
 ? Re fire RO PE une URLS ours F4 her
-x DRE RO NT ASE OR SO TE ere FASO Ne e
-. OS Ne rs me | Pt PAR ER ES D ANS TE Sue
-PAL PONTS ? ; ‘ L F3 D'UN ART EE er OI Riot
-APP Ep fl N = NE URL EE TER NT EEE
-2e (PRES ET Een AR
-F S Y RPE : : d (924 17 x Ha Cha are PR Eur) 0 » L'EME ÿ des LR TN RNA RER Le Re
-Por Mt : Dur Ÿ MER { REC de Rs HA # :
-LV dl Havr ALORS : PIN NP 0 FN MANN TAN ER PONTS
-+. Ce, en, | t ANA Sn OS LAS ETES ae que ARTE
 
-Pre Al At à à DE UN RP 1 TAN DANN RARE pi PAT LE
-
-| MN ES Se a RAR
-moine } PAT LR . L'ETAT
-LEUR à Din} te L EU LRU NAS re + 2
-
-# NO SANS a DONTAN ETS Se, D poléon. — 1  ! f
-
-(jt 007 EE it je D NTRR Re 44 D Ut TN € a SEM A
-
-PANNE RS He RARE on AA te
-
-1 DURE TRES ANS 2 LE Elie Li we PR RSR RP CN OUEN CRE RAR EME EN TES { b
-SR PIMEN EL DANS NPD ne NUE MER Sy Re LI POTTER fe
-A A ‘EE LA GARE \Y PRIE VRP Fa ER IF ane Li ns k NEC
-SAN 4 46 141 MONTRE ADN DE SON | MALTA ue 1e à pa TRES
-1 D OC NUS ee À A CR Ver 494 ON EEE HEC ter AA ie A 4
-
-NE? Lux a 142, ET RTE ATOME AE Are PAT Me CENT RTE le AN
-4 Et RP du TS MANN PR die LE MOTO AEUNES Va LA RE res W
-. ÉTAT RE GRR TN RENE UE RARE 0 Dans tp re CRE | AN LT 720 V3. VOTES
-Gers : FAI OUTERS PNA ÀARL SUUUE Uri L APE + Re gr Y LG UTENTS “et RER
-La ur 2 Lite Ant À KES 1: Lie EN es
-
-NA A Vaud VISE ch RE ut NE PRET On s hein ARE A
-NE RATES VA SE te AU FR Ant APN OU) LANGE Rs
-AA en 2 à LEE ! à ROME EVA \IPATA PS ES HAUT Near NL FAT Le RSA
-| VAN DR x A PNA A CR | (ER k
-4 £ (o LAC AGTU (ee de na HIGURETAE Le IR Re |
-A Mc 4 : AE Ne \Aa" "0 gi RONA ES DUT ' La ec)
-ds ‘UE Mn V' Fe M # ñ Re À ; LA « sine RE “ AU \ AE
-RS NES à se 2 ÿ ou > $ PAASEAN EU.
-A4 KE pie RS AR AA pre ne MEL LUE
-AA ‘oil 4 D) 4: \ 3 re Un WY W ie Sy tx ré A F hate LEON M
-
-| QUELQUES ŒUVRES
-de
-
-aux CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne :
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'Electre, 1 volume grand in-18, 1905.
 Le portrait d''Ibsen, 1 volume grand in-18, 1908.
@@ -82,45 +34,6 @@ Voyage du Condottière, tome I, 1 volume grand in-16, 1910.
 chez ÉMILE-PAUL, éditeur, 100, faubourg Saint-Honoré :
 Sur la vie; Essais, tome II, 1 volume in-18, 1912.
 
-JTE Le HA HÈNE RAR AU MON h ARCS FH NE qi ja ie ve
-RE FRS ELA k TN Nr ae EN Le LATE
-eUY 14 LUS von NE PA CS UN LEAGUE. pr TIMES AP
-
-MT 0 MER PTE Ne AA on DA MAN A LE RE AT
-Re ins it La AP AAE Lo. HSMREUR al PUR |} 6
-ie “00e PAU DE sh ete CN LIL LA fon APE A HENNTIE ut ENG AUTRES
-"ATEN ‘É TE HAT à MA qi ÉCRAN
-Pas Le REP NU TS" | LRÉCREE MER
-OR 4 es 47\ VON LA RUE | et AUS DELA |; NN OER
-ONE RAA de: EP it AU k RAA PAR NN en 7),
-
-‘te AMAR € de ANOROMERN NES NAME Pt Re) PRES
-
-mA gun DURS 4 M Re GA A DES A ETER RAA AA ANS que Aa l'E RAC
-
-1 NE MENT AN CU MP 2 NE VQU e xs PAT A Le ANS RSC ETS re
-
-| RUN FI * à L NE , [ ARC IN 76 y à x UMR
-
-NE di NC NE 4 APE NS ETC A PAIE 1 DAADAEA | ou!
-
-OU ue ERA ES 45 0 TIME TINTIN
-per LAN SL CT RETIENS nie ul * ; UE UC ‘i DU D 1
-
-4) SATA AT LAN AA { \ PAST l ( & Fall jh MA NA À Ai
-
-|: 22) 1 ONE EN Ho x AO A PE PAT CNIL + EN SE
-
-pur DE: ANTON art AA PA ED RE ANRT CARE AE RAR y
-
-‘ PE ARE ETe de Soi DRE D A y Sr $
-Has \ 42 de AS RTS SES ADR DE EAN G ‘HN FT FAR RAT re due dr
-iv 1% $ PET Ne AAA Ste (Le RARE RE LUE à He PL NT NM ae Rx ST TOR
-KA TERRE LE LES D'ACA PAPAS ER ECERE AE et AUX EP S Unes
-Na (a nn 4 SOEUR à ÿ S n ARE Ole M Ta Pro). 1
-On 0 re + de Fe MAR R ENE EU EON J
-APE € - AA PE SAN ANS Ron Ge APTE Se NE NICHT Port {
-
 Le monde est plein de son nom, et
 pour longtemps encore, il semble
 plein de son œuvre. Il a épuisé la gloire
@@ -131,7 +44,6 @@ Mais la grandeur emporte tout. Et ceux
 qui ont l'âme puissante, pardonnent tout
 
 à la puissance. Toute sorte de contradiclions en lui, mais toutes accordées. De là
-qu'on le hait et qu'on l'admire. La France
 n'a pas cessé d'en être vaine, comme une
 femme qui a eu pour époux le maître de
 tous les hommes. Elle ne peut penser à
@@ -146,13 +58,11 @@ dieu, il est toujours chef de bande. Tous
 les hommes de guerre admirent en lui le
 maître de la guerre, le prince des géné-
 
-| DE NAPOLÉON
 raux. Le génie des armes est le sien :
 non pas le torrent des invasions, mais
 l'art achevé de la manœuvre, et le poète
 sans égal de la stratégie. À l'État et à
 la paix, il a donné les formes de l'armée
-et de la guerre. Il a la passion de l'unité :
 tel est le génie de l'homme seul, sans liens
 profonds qu'à soit même.
 Il est l'homme de la Révolution : il est
@@ -192,10 +102,8 @@ C'est pourquoi, lui qui est la force, il
 est l'ordre aussi; et l'ordre bien plus
 même que la force; car l'ordre est le
 second âge de la force, et tout le blé de
-l'épi.
 On le croit Italien, parce qu'il ne peut
 pas prononcer les « u ». On le dit Toscan,
-| parce qu'il y a eu des Buonaparte à San
 Miniato. D'ailleurs, on en trouve à Tré-
 vise et à Udine. Mais, certes, Napoléon
 est le moins vénitien des fils de la Méditerranée. Que lui importe la volupté, et
@@ -242,7 +150,6 @@ qui ne dépense rien pour sa table, rien
 pour ses habits, rien pour rien enfin,
 s'imagine de posséder, en cette femme,
 tout ce qui tente les autres et tout ce qu'il
-dédaigne : il s'empare du luxe et de la
 chair; il croit jouir en elle de toutes les
 folies : peut-être même jouit-il d'être
 
@@ -269,8 +176,6 @@ du fait, le dieu du réel, ne rien saisir de
 toutes les formes sur les figures de son
 esprit! L'amour de tête est l'exercice
 Javori des trrans.
-
-| FNÉRENE
 
 Sans doute, parler du Corse, c'est
 nommer Napoléon : il faut encore le
@@ -318,8 +223,6 @@ l'usage légitime de la violence. Ainsi, la
 vengeance n'est pas un droit, mais un
 devoir; et jamais le clan n°Y manque.
 
-| Suarès
-
 Le Corse est le cousin du Génois, mais
 non de l'espèce latine qu'on prétend. Les
 Ligures, grands hommes d'action en tout
@@ -362,10 +265,6 @@ dieu du clan fait figure de grand bourgeois, tant il administre avec une parfait
 Simplicité qui déconcerte l'analyse: :
 le moi plus fort et plus plein, plus continu
 
-|
-
-| DE NAPOLÉON Ë.
-|
 que tous les éléments qui le composent.
 Tout lui est objet, à prendre, à manger, }
 à garder ou à briser : c'est l'idée d'un $
@@ -377,7 +276,6 @@ qu'il en fait. Magnifique simplicité, toute # +00
 contraire à celle de l'artiste! Comme il ÿ
 pense, il se décide; il prend parti, comme à
 il prend contact : jamais il ne s'oublie. |
-Jamais il ne sort de sa ligne. Il est le fl
 chêne corse, qui peut croire toute la terre \:
 faite uniquement pour ses racines, et le ë
 ciel uniquement pour lui dispenser le ‘4
@@ -399,7 +297,6 @@ qui l'unité est si forte? On est maître
 dans l'action, à la mesure où l'on est un.
 Nul n'en a l'instinct plus que lui, le grand
 
-Napoléon est L'HOMME DE LA VALEUR,
 en tout ordre, en tout lieu, en tout temps.
 Personne n'a connu comme lui la valeur
 de tout objet, de toute idée, et de tout acte.
@@ -415,7 +312,6 @@ nuit de Paris réparera tout cela. » Il
 n'est pas aveugle, il n'est pas insensible :
 il a vue sur ce charnier énorme; il en a
 la puanteur au nez. On était en Juin.
-Mais ni l'horreur, ni la tristesse, ni la
 
 putréfaction, ni les cris des mourants ne
 l'occupent. Son affaire est ailleurs : ayant
@@ -444,8 +340,6 @@ le plus grand des hommes de guerre. Il
 a tout engagé dans la guerre, quand il
 
 l'a fallu; et depuis Napoléon, à la guerre
-
-il y va, pour un peuple, de la vie et de la
 
 mort. La guerre est l'opération qui les
 _ enferme toutes : elle est le mètre temporel
@@ -509,8 +403,6 @@ Il regardait un homme comme un fait,
 toute passion comme un chiffre, toute
 action comme un nombre, toute vie enfin
 comme un signe entrant dans son arithmélique.
-
-| Suarès
 
 Les ëétres vivants et les sentiments
 propres qui les animent ne sont, à ses
@@ -584,7 +476,6 @@ raison. Il est admirable, comme un État
 fondé sur la raison, se gouverne par les
 maximes de la force. Sa loi est sans
 
-La connaissance de l'or et du pouvoir
 véritable dépend de la raison. Par la
 haine qu'on lui voit des voleurs domestiques, des parasites, de la concussion,
 on sent que le respect de l'or était dans
@@ -728,7 +619,6 @@ sont pour le peuple. Se parlant à luimême, Napoléon invoque son étoile : et
 quand elle est bonne, il la fait luire aux
 Jeux des soldats. Il est joueur comme
 
-| DE NAPOLÉON
 Annibal. À tout moment, l'on sent qu'il
 ne croit pas plus à sa fortune qu'à rien
 autre. Mais non pas moins. Il croit au
@@ -761,7 +651,6 @@ sauraient pas grandir.
 Il joue sur les faits, le fort aventurier.
 Il a souvent caché la table de jeu sous
 les oripeaux, sacrés à tous les hommes,
-de l'éloquence, de la pompe royale et de
 … la prophétie. Mais au fond il jouait l'empire sur une chance, à Waterloo comme
 devant Saint-Roch. Sa mère ne s'y trom- |
 pail pas, l'œil sur lui, cet œil de la nour- |
@@ -791,7 +680,6 @@ Si... Le mot de la chance! c'est l'éten-
 dard du jeu. Le mot qui flotte, le mot qui
 
 palpite, le mot qui tombe. Si... La con .
-Jonction de la volonté et du pouvoir, le
 nœud du fait à l'hypothèse, et du présent
 à l'avenir. Le mot qui revient sans cesse
 dans les propos de Napoléon : « Si...
@@ -842,7 +730,6 @@ comme l'artiste au travail. Ha! donnezmot un monde ou deux à conquérir, pour
 que j'y fasse la paix, pour que je le
 taille, en plein bloc, à l'image de ce que
 Je veux, de ce que je suis!
-| XXXII
 
 Il est sans pitié pour tout ce qui trouble
 
@@ -884,7 +771,6 @@ une effusion brève : « Tu es une bonne
 une bonne femme,une bonne mère. Jamais
 homme ne fut moins amant de l'amour.
 
-| DE NAPOLÉON
 Il y met peut-être moins de vulgarité
 bourgeoise, que l'accent du peseur juré,
 ou de l'essayeur d'or : une bonne femme,
@@ -911,7 +797,6 @@ laisse manger. Il est dupe, le veut être et
 le sait.
 
 Il a eu du cœur pour ceux de son clan.
-Il n'en a pas eu pour la France.
 
 Il n'y a absolument rien du chrétien,
 en lui. C'est pourquoi le sentiment n'est
@@ -999,7 +884,6 @@ Elle corrompt la signature. Le seing, qui
 valait de l'or en barres, ne vaut plus que
 du cuivre. L'ironie, enfin, démonétise les
 
-LA ï Suarès MA LA
 statères de Syracuse, pour en transférer
 > le prix, non pas à ce qui n'en & point,
 bien pis, à la valeur fictive, qui parfois
@@ -1017,7 +901,6 @@ passer de lui. Talleyrand était sa faiblesse, son vice, son bas de soie, son go
 nom, qu'il n'arrivait pas à prononcer
 comme il est écrit : Taillerand, disaitul,
 
-te | DE NAPOLÉON Ë
 Que n'eût pas donné Napoléon pour
 
 _ écraser ce prince de la corruption, ou
@@ -1079,7 +962,6 @@ ces fils de la terre? Des mots? Non, les
 pavillons de la France libre et délivrant
 le genre humain : la même France, les
 mêmes étendards qui proclamaient, sous
-Jeanne d'Arc, Jésus et le Roi.
 
 Napoléon n'a point d'égal, tant qu'il
 s'égale au génie de la France. S'il parle
@@ -1089,7 +971,6 @@ grand, sans doute, de s'être perdu ainsi.
 Sa faiblesse n'est pas de l'homme; mais
 au contraire, qu'un moment est venu où
 la force de l'homme souverain s'est séparée de la force nationale. Et la faiblesse
-de la France a paralysé la force de
 l'homme souverain. La France tombait
 de fatigue, et Napoléon était infatigable.
 Voilà où ce grand homme de la valeur a

@@ -10,8 +10,6 @@ wordCount: 12397
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-|
-
 Nous avons publié dans nos éditions antérieures et Î
 dans nos cinq premières séries, 1900-1904, un Si 1
 grand nombre de documents, de textes formant dos- À
@@ -33,7 +31,6 @@ Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 2 4
 
-: Nue ie “à ik dl FA / " Le LU RSR 4 + Fe) : FLAN
 | une idée, abrégée, mais complète, de nos éditions anté- M.
 hi rieures et de nos cinq premières séries ; tout y'est classé f Pa
 dans l'ordre ; il suffit de le lire Pour trouver, à leur °1 « 2
@@ -48,11 +45,6 @@ _ sixième série et nos abonnés l'ont reçu à sa date, le M.
 | | pait, par le fait même de son abonnement, en tête de la d é
 L. me > ROUS l'envoyons contre un mandat de cinq francs 0
 à toute personne qui nous en fait la demande. EN
-dei: HR 1 La. gi! DENESS
-
-Fr AR il
-HR | où nu
-ner g à AL EE NT Le AE
 
 k aux Cahiers de la Quinzaine +
 . Le présent petit index donne automati- “ Fe
@@ -66,7 +58,6 @@ complètes, le numéro d'ordre de la série GE
 . déteMninée, en chiffres arabes, de sorte "
 que V-r7 par exemple doit évidemment se ee
 lire dix-septième cahier de la cinquième ue!
-fl b) la date du bon à tirer, ou, à son dé- LS:
 | faut, la date du fini d'imprimer, ou, à son f
 défaut, la date du cahier même; ER
 4 4 c) le prix actuel; A9
@@ -75,20 +66,11 @@ défaut, la date du cahier même; ER
 À , mières séries, la page du catalogue ana- rh
 Li: lytique sommaire où ce cahier se trouve “4
 1 0
-#1 sir
-| “15
 _ Daniel Halévy, — Michelet et Quinet; — et dans le même LE.
 Cahier présentation des quelques textes (IV-21, mardi 4
 _ — — Louis Ménard, une étude préliminaire à la réim- Lee
 pression de Louis Ménard, Prologue d'une Révolution #75
 
-RARE W ju ou ta un AA NA 1 QU AS FEU He
-TON ? EAN NET Gp an
-# , RARE EPA EE QE ENT, si
-à VERS fi ï RER MACRO ENT (AR
-
-#2 0 DE A AR
-" DU MÊME AUTEUR mn:
 Le: en vente à la librairie des cahiers ‘#à
 __ Danrez HaLévy. — Essai sur le mouvement ou- 1 24
  vrier en France. — Société Nouvelle de Librairie et ‘5705
@@ -97,47 +79,14 @@ tion française (1893) de Frénéric Nrerzscne. — le Cas 4
 _ Wagner, un problème musical........... deux francs { FA » Au P Là A
 aprés un travail inédit de madame Duclaux. Librairie à
 _ de Pages Libres. 1907............. cinquante centimes nt.
-#4 ù APR t ".
-ne Au
-Tr je v ° ET ', ‘LL en
 
-FE PA) LE Led pee M NT) À
-MALTA 1 4 Ne CEA APN ARE ENS tai
-Le na LAINE MAMA VAR A Mie
-RU) a ni A A AT 1 Li ‘4 joe UNS
-
-LP er de #6 nt GS
-13 pu XVIII: ARRONDISSEMENT Ne.
-RE _ Mes chers amis, 3
 Laissez-moi vous dédier ce conte où vous recon- ‘00
 _ naîtrez les traces d'expériences qui nous furent À
 _ communes et le souvenir d'un travail qu'assuré-
 _ ment nous ne renonçons pas. ‘2
-T0 Votre ns
-il or,
 
-UNIES Ÿ jt a FD LPSE ton 1 D AN D Va 1 pot 4
-‘ MERS l MUR M AAE ge 40 si à
-# Al { Det EAU DANANe MS SE AN ANS #1]
-| (OURS fi) î MAL ent PM ts LAON
-KV à v { ne à D fa) VAN EX K LAN | tu) 19.
-(7 1e RAR de et nn (VA UNE nage di FAN ; 4
-
-au RETR a an De, ÿe PEL 1 \ ( \'u Ter Su
-| A " LE }
 ‘Se isode il
-| (1) oui
-L'aHTe ri * Piste LS
 
-NET ce fs GLEN tu A Eee ACT EC HAN En 4
-(han Un TC PEN CO DA nt Le NL nn
-| VANNES 4 Vos JS
-Mes fl A | AMEL ( AE
-| LAS ST AE DEEE ANA TERRE EE AT ES
-mb l'A AS NRA FAST A GE AR
-NI A LA PA rt M LED
-
-| TXT
 hu J' pars, c'est donc vrai... pensait Julien Guinou. ‘42
 Il entrait sur un quai de la gare du Nord,
 longeant un train, toutes portières ouvertes, où
@@ -195,8 +144,6 @@ dilaté par sa fuite et sa délivrance. À
 
 . Adeline et le père Guinou sortirent ensemble de d :
 
-la gare. .
-
 — Ma petite Adeline, dit-il, marchant à côté d'elle Ë
 
 à lourdes enjambées, ce que je vais vous dire, je 4
@@ -209,13 +156,11 @@ _ Adeline fut blessée par ces paroles. "à
 
 ; — Monsieur Guinou, fit-elle sèchement, Julien ne d
 _ ressemble à personne et vous ne le comprenez pas. cl
-à Je m'en vais, Au revoir, 4
 _ Elle tourna vers la gauche et partit vers son 4
 D Quartier lointain, Ménilmontant. Elle avait oette ‘4
 1 rapide allure des ouvrières habituées aux longues 4
 % courses quotidiennes, le matin vers la ville, le soir È }
 
-| j À STAR REINE He TR Là FE
 vers le faubourg. Elle marchait vite, mais son |
 Julien Guinou avait toujours été son camarade.
 Ils avaient habité la même rue, étudié dans des à
@@ -242,7 +187,6 @@ ne les désunit pas. La boutique de bijouterie où elle
 où il travaillait. Chaque jour tous deux cheminaient,
 déjeunaient ensemble, puis, le soir venu, se retrouvaient encore dans une petite université popu16 ;
 
-Nu af à “a UN ÉPISODE 4
 laire : ils y rencontraient quelques personnes, isolées 40
 comme eux-mêmes dans le grossier faubourg et les à
 
@@ -399,7 +343,6 @@ puis donnait le meilleur de ses jours aux amis en
 peine ou malades qu'elle allait visiter. A '
 En d'autres temps ils se retrouvaient plus nom- N
 breux dans cette petite salle : quinze, vingt, zélés, ,
-| fé. L Ê
 
 heureux et riches d'intentions. Aux soirs de confé- |
 ; rences on ouvrait la porte de la boutique et les
@@ -428,7 +371,6 @@ nullement; il n'est pas tuberculeux; c'est de repos À
 qu'il a besoin ; c'est un temps de repos que nous lui £
 avons procuré. |
 22 4
-y PANNES ses
 
 Adeline hocha la tête comme pour décliner cette
 pensée de réconfort.
@@ -441,7 +383,6 @@ Je le soignerais alors, je le guérirais peut-
 Et tout à coup avec un long sanglot qui lui rompit
 la voix : Tv
 — Il m'a quittée sans un adieu, s'écria-t-elie,
-sans un regard. Qu'a-t-il? Est-ce qu'il me déteste ?
 Elle se détourna d'un mouvement rapide, et,
 laissant tomber son visage entre ses mains, pleura.
 Les hommes, soudain levés, l'entourèrent tous avec \
@@ -476,7 +417,6 @@ quelque ennui : car il avait ouvert sa bibliothèque à LL:
 Cependant Guinou descendait de son train et, \
 laissant ses paquets à la station, dédaignant 1
 
-A cal ut UN ÉPISODE
 l'omnibus où s'entassaient quelques malades, il
 monta seul, à travers bois, au sanatorium d'Angicourt. Ce jour de janvier était sombre, mais sans ai- 3
 greur, et d'une apaisante tristesse. Guinou chemina ;
@@ -559,7 +499,6 @@ _ l'alexandrin de Baudelaire :
 Il réussit à sauvegarder sa solitude. Les poètes
 _ qu'il aimait, le souvenir innombrable des images,
 
-| 7 D
 des rythmes que retenait sa mémoire jeune et
 ferme, maintinrent son esprit dans un état bizarre
 de constante et douce obsession. Il continuait à lire
@@ -589,7 +528,6 @@ Il lui parut que de mauvais amis lui déniaient son
 d'une façon cruelle les ombres qu'il avait chassées.
 Il prit les enveloppes closes, les déchira sans même
 
-Lin ui ASSENNEE AA LFAAE (OP ANS Et PR TAEX PAUSE
 _ Les ouvrir, les jeta d'un mouvement irrité : il retrouva soudain son calme et sa douceur de vie. |
 Étendu sur sa chaise longue, il lisait. Quand il .
 se promenait, un livre à la main, il lisait encore. Il y
@@ -610,9 +548,6 @@ _ et, comme honteux d'être vaincus, évitaient de DE
 _ ces hommes sans familles vécurent solitaires dans '
 _ leur vaste faubourg plein d'enfants, de rires et de É
 _ cris, de rixes et d'appels, de sensualité, de colère ;
-_ et d'amour.
-
-A RAA EE ne cu
 
 Adeline était fâchée d'avoir montré ses larmes, sa
 faiblesse, et triste de l'abandon où Julien la laissait :
@@ -693,8 +628,6 @@ __ arrêter au nom du peuple le commissaire de police 1
 
 _ délégué pour surveiller son langage. ' {
 
-| Daniel Haléoy M | k
-
 Groslay, tout heureux de ces histoires françaises,
 
 Marot connaissait bien l'histoire du siège de Paris.
@@ -710,8 +643,6 @@ jusqu'au plaisir d'amuser. Il se retrouvait dans sa \
 
 ù vie ancienne, poussé par des heures sombres. 4
 Soudain il fut silencieux. Groslay s'enquit :, 4
-
-— Et la Commune ?
 
 Marot avait été communard, mais sans illusions )
 
@@ -762,7 +693,6 @@ ils font des bêtises comme nous autres. |
 — Non, maintint Groslay, frappant du poing ‘1
 contre la-table, je dis bien, c'est l'ignorance È
 
-qu'il faut combattre... Ah, si on savait, si on
 Marot et Groslay sortirent ensemble. Rudoul ne
 les suivit pas, ayant dessein de travailler ce soir-là
 et de vérifier les comptes de la coopérative. Il s'assit
@@ -787,7 +717,6 @@ silencieux, retiré dans un coin, il avait réfiéchi à À
 l'avenir annoncé par ces mots surprenants. Il sau- 4
 rait : pourquoi ce verre sur cette table avait cette 1
 
-bu nié à UN ÉPISODE 4
 forme, il le saurait; pourquoi ce vin qu'on y voyait
 avait un goût si bon, il le saurait; et pourquoi les ‘3
 enfants, avant d'être grands, étaient petits, et pour- N
@@ -842,7 +771,6 @@ encore, il resta étendu, tâchant à jouir des rapides
 instants, de l'air, de son livre, de la clarté. Il répéta 4
 36 1
 
-RME on ÉesoDE 4 l'E
 _ souvent la strophe de Baudelaire qu'un hasard lui a
 _ avait révélée au premier jour de sa retraite : EL
 * O Mort, vieux capitaine, il est temps! levons l'ancre! #
@@ -864,7 +792,6 @@ Le surlendemain il partit. Re;
 jour était humide et sans clarté. Les gens allaient \N
 A0 ans la boue en regardant leurs pieds. Il se 4
 demanda : où irais-je? Il se sentait la victime d'une h:
-DU de Det.
 
 Il marcha pendant quelques minutes, puis s'assit
 
@@ -897,19 +824,13 @@ assailli par tous les souvenirs de cette vie où son
 destin le rejetait : cris, rudesses, bêtise épaisse, À
 désordre et négligence, clartés douteuses, odeurs
 
-pi PAPA, De ti TEUN ÉPISODE Ü 14
 __infâmes. Quelques rythmes de Baudelaire lui arri- 14
  vèrent tout à coup, traversant, blessant son esprit ee:
 _ de leurs moqueuses et lyriques cadences : ; 1
-! Des meubles luisants, STE
 <a Polis par les ans, :. 38
 (à Décoreraient notre chambre; j 4}
 4 : Les plus rares fleurs Ta
 1 Aux vagues senteurs de l'ambre, 4
-1 } Les riches plafonds,  :
-6. À Les miroirs profonds, 15
-‘1 La splendeur orientale, ‘4
-N Tout y parlerait + A
 1 _ A l'âme en secret Re
 D Sa douce langue natale. 13
 "4 « Ma vie, toute ma vie, s interrogea Guinou; est- de
@@ -917,7 +838,6 @@ ce bien elle qui est ainsi, à jamais sordide, à jamais He.
 … perdue ? » Il répéta ces mots, ma vie, serrant les a
 _ mains comme pour retenir un bien précieux dont ;#u
 on l'eût dérobé. Le rythme léger l'assaillit encore : 8
-1 | Tout y parlerait k, ke
 11 A l'âme en secret sl
 _ Sa douce langue natale. Ne
 At | Là, tout n'est qu'ordre et beauté, LE
@@ -925,7 +845,6 @@ At | Là, tout n'est qu'ordre et beauté, LE
 _  Ampuissant et furieux comme un animal pris au | 1
 piège, Julien laissa tomber la nuit. 10
 
-| A di
 Le lendemain, tardivement éveillé, il reconnut de
 ses yeux las la laide chambre et se rappela une à
 une les tristesses de son état. Un bruit de pas montait de la rue. Ils vont au travail », pensa dédaigneusement Julien, € moi je n'irai plus... » Il réflé-
@@ -946,10 +865,8 @@ s'il eût découvert une vision sublime. Il sourit. « Je
 ferai cela. ce sera bien : il faut que je me tue,
 puisque ma vie ne peut pas être belle... (cette
 phrase le satisfit et il sourit encore) je dois le faire,
-je me tuerai... »
 Il musa dans son lit, heureux d'avoir trouvé.
 Enfin il descendit vers cette ville dont il entendait
-la rumeur. ÿ |
 Il alla vers les quartiers riches et se promena
 
 | toute la journée sur les boulevards, les Champs- ‘4
@@ -963,7 +880,6 @@ fait mon coup. » Son suicide lui paraissait une M
 chose glorieuse. Il décida qu'il écrirait une lettre, ne x:
 _ afin que les journaux parlent de lui, du jeune ou- 4 %
 _ vrier qui s'est tué parce que sa vie ne pouvait être D:
-- belle, de:
 _ Il s'interrogea soudain : « Quand me tuerai-je ? il #]
 st Dans une semaine : je veux vivre huit jours encore. Ji 4
 Mais l'argent pour vivre ? » Julien ouvrit sa bourse, 74
@@ -978,7 +894,6 @@ Adeline allait un peu vite, préoccupée à cause de ; £
 
 _ Guinou et de son étonnant silence. La date de son ‘2
 _ retour devait être bien' proche : que devenait-il? ‘5
-_ Elle entendit: , Dee
 
 C'était Guinou qui l'appelait. Tournant un peu la
 tête, elle l'aperçut, l'air pâle et singulier, et lui
@@ -1002,7 +917,6 @@ Adeline fixait sur lui des yeux décidés, et Guinou
 fut humilié de la rencontrer si ferme devant lui.
 
 — Veux-tu me rendre service, oui ou non? dé-
-clara-t-il. |
 
 — Quand tu seras poli ! fit-elle.
 
@@ -1016,7 +930,6 @@ quand tu es de retour à Paris, pourquoi tu ne travailles pas, où tu demeures. 
 
 depuis deux longs mois rien. Je t'ai écrit, tu ne
 
-js UN ÉPISODE
 m'as pas répondu ; Mégy a vu ton père, qui ne pouvait rien dire. Julien, sois comme autrefois, parle.
 
 Julien Guinou fit un geste agacé, puis, à sa grand
@@ -1077,7 +990,6 @@ pas Julien, Julien ne l'aime pas, de tous tempsils
 | se sont querellés... C'est Mégy que j'aurais dû pré-
 venir, ou, mieux encore, monsieur Dorsel; il conde % M 1
 
-de à ue hi DNS ÉPISODE NL PR KT
 Ris Julien, il sait lui parler; monsieur Dorsel aurait 54
 compris; j'aurais dû lui écrire; je peux le faire en- 4%
 _ core; il est bon, il ne refusera pas... j'irai; et il 5
@@ -1117,7 +1029,6 @@ Adeline m'a trahi, pensait-il immobile dans son
 lit. Ce pas, cette voix lui avaient rappelé toute son
 enfance contrariée et il était à nouveau possédé par
 la haine. Le père frappa contre la porte.
-— Julien! es-tu là?
 Julien, silencieux, retenait même son souffle. Au
 dehors le père, penché sur la rampe de l'escalier,
 conversait avec le garçon d'hôtel. On ne répond
@@ -1163,7 +1074,6 @@ Guinou tourna la clef et se rejeta dans son lit.
 NAS Il s'était étendu sur le dos, la tête un peu pen-
 ; chée du côté de la chambre, et il vit Dorsel entrer,
 hésiter une seconde, puis aller vers le chevet
-| du lit.
 — Vous êtes souffrant, Guinou? fit-il surpris de
 le trouver couché. ‘
 Guinou considéra Dorsel, ne répondit pas un mot
@@ -1184,7 +1094,6 @@ Et Guinou se taisant toujours, Dorsel insista
 
 di _ tez-vous encore malade? — Je ne peux pas com- LEA
 prendre! — Répondrez-vous ? — Que voulez-vous ? } in
-Que je m'en aille ? Je ne m'en irai pas, Guinou. Je ‘4
 sais que tout à l'heure vous avez renvoyé votre 4
 père. Vous inquiétez Adeline, vous m'inquiétez
 _ aussi, tous vos amis sont inquiets, Guinou, répon- ro
@@ -1207,7 +1116,6 @@ Gi :d'un mouvement léger. Il resta quelques minutes, “à .
 _ hésitant auprès de ce lit; il aperçut les livres sur la 1 À
 table et lut les noms de Baudelaire et d'Huysmans. ‘à
 Il était gèné par l'angoisse. 4
-| " ‘4
 
 — Puisque vous ne voulez pas m'entendre, Guinou, dit-il, adieu !
 Il regardait encore cette nuque et ce dos immobile sous les draps. Il partit et ne sut pas que Guinou
@@ -1302,7 +1210,6 @@ colère, une conviction et un but. ;
 À Il rentra, se coucha, fut longuement agité parmi :
 des pensées et des rêves, trouva enfin deux outrois : ê
 
-bi | PATATE UN ÉPISODE a di
 _ heures d'un sommeil lourd. Un rayon de soleil û
 matinal, s'insinuant sur son visage, l'éveilla : il se
 dressa sur son lit et tout aussitôt il compta : J
@@ -1330,7 +1237,6 @@ Quand tomba la nuit— sa dernière nuit — Guinou a
 
 _ reconnut que nulle part mieux qu'à l'hôtel on ne 4
 
-4 RD PAR APR EN PNEU MEENIRRE hd
 mettrait la main sur lui : il sortit de nouveau, erra
 dans les rues sombres, dormit sur un bane de bois
 dans la gare d'Orsay, s'éveilla transi par la fraîcheur,

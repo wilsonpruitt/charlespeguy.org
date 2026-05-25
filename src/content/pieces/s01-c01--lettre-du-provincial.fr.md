@@ -8,7 +8,6 @@ isAvertissement: false
 wordCount: 4691
 ---
 De la Province,
-Mon cher Péguy,
 
 Aussi longtemps que l'affaire Dreyfus a duré, je
 me suis efforcé, à mes risques et périls, et surtout
@@ -208,7 +207,6 @@ J'admets le premier de ces quatre paragraphes.
 Quand je dis que je l'admets, je ne veux pas dire
 que je m'arroge un droit de contrôle, une autorité
 sur les décisions du Congrès : je veux dire, en gros,
-qu'il me paraît conforme à la raison et à la vérité.
 
 Le second paragraphe présente quelque difficulté.
 Les obligations définies dont on parle ici, et qui

@@ -53,8 +53,6 @@ Ainsi ils s'efforçaient d'abolir l'idée d'acte, de perdre connaissance dans l'
 
 Le petit Pierre fut souffrant. Elle fut deux jours sans sortir. Il s'informait d'heure en heure... Ils se penchèrent les mains jointes sur le sommeil du petit malade... Il goûtait d'ignorer l'égoïsme des mâles, de s'associer aux peines de celle qu'il possédait. Il prenait le goût de cette élégance pour de l'amour.
 
-Ils rentrèrent à Paris.
-
 Gravement, religieusement, il s'appliqua alors à assurer ses liens, à construire sa liaison.
 
 Il commença par rompre autant qu'il le pouvait avec tout ce qui n'était pas Madeleine.
@@ -401,10 +399,6 @@ Ils prirent une voiture. L'arrêtèrent à l'endroit habituel... Ils se taisaien
 
 — Je viendrai demain... vers trois heures...
 
-Lui, faiblement :
-
-— C'est ça.
-
 Elle, plus tremblante encore :
 
 — Peut-être ça te dérange... Tu aimerais mieux jeudi...
@@ -415,13 +409,9 @@ Défaillante, rassemblant toutes ses forces :
 
 — Écoute, Félix... Je ne peux pas vivre ainsi... Réponds-moi... Est-ce que tu ne m'aimes plus?
 
-Il balbutia, lâchement :
-
 — Je vais te répondre... comme ça!... Et puis te laisser rentrer entre tes quatre murs!...
 
 Elle retira sa main, dans un mortel retrait de tout son être, &, blême, elle murmura :
-
-— Ah!... Tu m'as répondu...
 
 Il la prit dans ses bras. Il disait qu'il était fou, qu'il ne savait pas ce qu'il disait... Elle ne l'écoutait pas, elle ne le voyait pas... Elle perdait sa pensée vers la force maudite, incomprise & sacrée qui broyait son bonheur, &, ivre de misère & d'incompréhension, elle dit très simplement :
 
@@ -475,8 +465,6 @@ Et il songeait encore à ceux qui disent : « Qu'est-ce que je pouvais y faire s
 
 Un soir, il passa son bras sous celui de Madeleine. « Tu vois, tout est bien maintenant. Tu n'es plus inquiète. Tu es sûre de moi... Laisse-moi m'en aller une quinzaine. Moins peut-être. Pas loin. J'ai besoin d'être un peu seul, de penser à tout ce qui nous a secoués depuis trois mois... » Elle comprenait... Il partirait le surlendemain. Elle vint à la gare... Le train s'ébranla... Il resta longtemps à la portière du wagon. Elle lui souriait...
 
-[leaf 0440] [p. 83]
-
 Il s'installa au Grand-Hôtel de F***, vide à ce moment de l'année... Il renaissait. Il se plaisait à voir, à respirer, à être... Tout lui était liberté... Certes il avait encore des liens. Mais bien supportables. Et qui se dénoueraient peu à peu, doucement.
 
 Il était là depuis deux jours. Elle n'avait pas écrit. Il trouvait des raisons. Pourtant il s'étonnait.
@@ -485,37 +473,24 @@ Quatre jours... Cinq jours... Elle n'écrivait pas.
 
 Il lui semblait qu'un temps, qu'une distance hors du nombre venaient s'allonger entre eux.
 
-Il grelottait d'indépendance.
-
-[leaf 0441] [p. 84]
-
 Le sixième jour commençait.
-Il finissait.
 
 Elle n'écrivait pas.
 
 Son silence était formidable; plus bouleversant que toutes ses plaintes. C'était clair : une fois seule, elle avait osé regarder les choses en face, elle avait fini par s'avouer qu'elle n'était plus aimée, elle avait résolu de se reprendre... Il voyait le rictus de la résolution... Il voyait la femme sombrement appliquée à rentrer son élan, à réduire son amour, à l'étouffer lentement...; sa sourde indignation d'avoir à ne plus aimer; son ricanement funèbre à l'adresse de l'amour, des serments de l'amour; & l'affreux engagement de ne plus croire à rien; et la haine taciturne... Il voyait tout cela. En même temps il était comme souffleté par ce silence : il lui semblait qu'elle lui jetait sa liberté à la figure.
 Il attendit encore un jour. Puis il partit. Il voulait la revoir. Il voulait savoir... Il voulait d'abord savoir ce qu'elle était toute seule,
 
-[leaf 0442] [p. 85]
-
 quand il n'était pas là : la voir sans qu'elle le sût.
 
 Il alla se poster à la fin de la journée, à l'heure où il savait qu'elle rentrait, dans une encoignure d'où il la verrait sans qu'elle le vît... Il était là depuis un temps; très agité. Bientôt, & d'encore loin, il l'aperçut qui s'avançait gravement, parmi ces gens pressés, l'œil fixé vers le sol, avec son petit garçon qu'elle tenait par la main. Il tressaillit. Tout de suite il reconnut la sombre créature qu'il avait pressentie, qui travaillait à rapprendre la solitude du cœur. Elle avançait : le pondérable était venu à ses formes, la déchéance du poids. Elle leva la tête : il vit ces traits d'enfant devenus en huit jours des traits définitifs, où rien ne jouait plus, & où les signes de la souffrance faisaient moins mal à voir que ceux de la volonté; il vit cet œil vitreux, comme vidé de son ressort, où rien ne tendait plus, où rien n'attendait plus... Maintenant elle était au pied de la montée qui ramenait chez elle, & elle montait lentement, comme traînant avec elle toute la quotidienneté de sa lourde existence & toute
-
-[leaf 0443] [p. 86]
 
 sa servitude. Et il pensa : « Elle remontera comme ça tous les soirs de sa vie ! » Alors il n'y tint plus. Il voulait lui crier : « Madeleine, tu n'es pas seule... Je ne te quitte pas. Je t'aime. » Il voulait sortir de son ombre, courir à elle... Il trouverait bien moyen de lui glisser un mot... Il s'arrêta. Son cœur battait à se rompre. L'instant était suprême. Quoi! Cette femme se reprenait... Il allait venir encore la troubler; comme l'autre fois... Pour la quitter... Car il ne l'aimait plus... Il savait bien qu'il ne l'aimait plus... Maintenant elle était tout près de lui... Un mot pourtant, un regard vers elle, & elle renaissait... Allons donc! elle savait ce qu'il valait ce mot! Et puis, quoi! elle ne demandait rien. Elle demandait qu'on la laissât tranquille, qu'on la laissât guérir... Ce n'était pas pour elle qu'il allait lui parler, c'était pour lui, trop lâche pour supporter sa propre cruauté... Allons! assez de lâcheté comme ça... Haletant, il s'adossa au mur, se jurant de ne pas bouger... Il la laissa passer...
 
 Il la laissa passer... Quand elle fut assez loin, il sortit de son ombre. Il prit une rue à droite, qui montait. Il marchait, encore tout
 
-[leaf 0444] [p. 87]
-
 agité... Il savait bien que c'était pour ses besoins de lâcheur qu'il s'était mis à croire qu'elle se reprenait si fort, qu'elle reprocherait qu'on la troublât... Il marchait... Il arriva ainsi à une grande place déserte qui dominait le quartier, où il y avait des bancs. Il s'assit sur l'un d'eux.
 
 La nuit venait. Il sentait s'abaisser avec les feux du jour les dernières vagues de son émoi... Tout s'apaisait... Maintenant il était calme... Et son calme durait... Alors il se risqua à évoquer l'image de Madeleine qui venait de rentrer, qui retrouvait sa misère, tendait vers son amant, & qui de toutes ses forces comprimait sa tendance... Et cette image ne lui apportait pas le mal qu'il en craignait. Il la regarda plus fixément, plus longuement, plus au fond... Et il la supportait... Alors il évoqua l'image de Madeleine dans cinq ans, dans dix ans, qui remontait sa rue comme il venait de la voir... Et il la supportait... Alors vint l'envahir une tristesse mortelle. Il comprit qu'il venait de donner son dernier tressaillement... Il y avait près
-
-[leaf 0445] [p. 88]
 
 de deux ans qu'il pleurait sur cette femme. Il avait épuisé sa puissance de pitié. Il n'aurait plus que des larmes douces. C'était fini.
 
@@ -527,19 +502,13 @@ Il allait dans la vie, libre, heureux & fort, quand il avait rencontré une malh
 
 Alors, dans la solennité du silence & de la
 
-[leaf 0446] [p. 89]
-
 nuit, le sens de son histoire lui apparut, très simple :
 
 Madeleine, ce n'était plus cette pauvre petite blonde, qui dînait tristement derrière ces volets clos entre un mari brutal & un enfant indifférent...; c'était toutes les femmes, les plus élevées comme les plus humbles, & toutes les créatures de faiblesse & de servage. Et ce qu'elle avait fait, c'est ce qu'elles eussent toutes fait, ce qu'elles feraient toujours. Toujours elles l'enlaceraient de leur plus folle étreinte celui qui, libre & fort, & seul d'entre les hommes, les regarderait autrement qu'un gibier, avec un peu de douceur, avec un peu d'amour. Et toujours en même temps, par un secret instinct, elles travailleraient dans l'ombre à abolir en lui les ressorts de la force & de la liberté — la religion de l'Idée, le goût des choses sociales — , à faire éclore en lui la religion du cœur, à y faire épanouir les puissances de faiblesse & de vassalité... Et toujours l'être heureux commencerait par subir, sans méfiance, sans défense; bien mieux! il commencerait par s'employer lui-même à détruire sa force, à construire sa faiblesse,
 
-[leaf 0447] [p. 90]
-
 parce qu'il était — lui fort — parce qu'il était — lui libre — élevé dans l'esthétique du faible & du servile; parce qu'il n'y a pas d'autre esthétique... Et toujours l'être heureux risquerait d'en mourir, parce qu'il avait puisé dans la jouissance des biens l'infinie sensibilité; parce qu'il venait pleurer avec les malheureux alors qu'il n'avait pas leur habitude des pleurs; parce que enfin il sentirait la pitié...
 
 Car la pitié c'est la mort, voilà ce qu'il avait appris, ce qu'il savait maintenant, ce qu'il n'oublierait plus... Mais s'il savait cela, c'est qu'il avait vraiment éprouvé la pitié, c'est que devant la misère de cette infortunée son cœur s'était fendu, s'ouvrant éperdument à une vraie communion & perdant d'heure en heure, par cette large blessure à son intégrité, toute force d'être & tout désir. Et il songeait alors à une autre pitié, sincère aussi sans doute, mais qui n'empêche pas ceux qui l'exercent d'aller, de venir, de voir les pièces du jour, de soigner leurs affaires & d'élever leurs enfants... Et il songeait encore à une autre pitié, qui relève doucement les pauvres agenouillés, mais qui n'empêche pas le Rédempteur qui la
-
-[leaf 0448] [p. 91]
 
 détient de prononcer de belles phrases, d'avoir de nobles gestes, de penser à flétrir les orgueilleux de ce monde... Ah! ces pitiés-là, on peut les pratiquer, on peut les propager, on peut les enseigner... On n'en meurt pas!...
 
@@ -550,8 +519,6 @@ Il se cabra longtemps devant la réponse, qui était là, devant lui, logique, f
 Alors... il serait dur... Ces drames, ces détresses, ces êtres murés vifs à la vie d'intérieur, ces femmes crucifiées sur le lit conjugal, qui détournent leurs lèvres du maître qui les prend,... il passerait près de tout cela, sans un mot, sans un regard... Et elles l'appelleraient, elles lui tendraient les mains, devinant qu'il comprend, que sa dureté est feinte...; & le monde lui ferait honte — qu'il est sec!
 
 [TEXT TRUNCATED — leaf 0448 / p. 91 is the last available scan; sentence continues on p. 92 which is not present. No colophon reached. No next-cahier content encountered.]
-
-[leaf 0449] [p. 92]
 
 qu'il est dur ! quelle vilaine nature !... — Il laisse-
 rait dire & croire. Il passerait sans un mot, il
@@ -578,8 +545,6 @@ mille fois honte à ceux qui sont durs joyeuse-
 
    Il resta là longtemps, dans une muette
 
-[leaf 0450] [p. 93]
-
 prière au pied de ce dieu dur ; qui avait fait
 les forts ; les maîtres ; les vrais maîtres ; qui
 surent dompter leurs larmes pour comprendre
@@ -597,57 +562,28 @@ ces contingences chéries qui avaient été sa
 vie, ses larmes, sa jeunesse... Et ses bras
 retombèrent... Et ce fut la dernière convul-
 sion d'un amour expirant... Il quitta son
-banc. Il descendit.
 
                                           1910
-
-[leaf 0451] [p. 94]
-
-[leaf 0452] [p. 95]
 
    *Nous avons donné le bon à tirer après corrections*
 *pour deux mille exemplaires de ce neuvième cahier*
 *et pour quatorze exemplaires sur whatman le mardi*
 
-                              Le gérant : CHARLES PÉGUY
-
    Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 5688
-
-[leaf 0453] [p. 96]
-
-[leaf 0454]
-
-[leaf 0455]
-
-[leaf 0456]
-
-[leaf 0457]
 
    Dans les dix-neuf cahiers de leur septième série,
 année scolaire 1905-1906, nos cahiers ont publié :
 
    tique du catalogue analytique sommaire et table
    analytique très sommaire de la sixième série
-VII-2. — CHARLES PÉGUY, — de la grippe et la guerre
 VII-3. — CHARLES PÉGUY, — notre patrie
-VII-4. — CHARLES PÉGUY, — la séparation au Sénat
-VII-5. — RAOUL ALLIER, — courrier de Russie
-VII-6. — CHARLES PÉGUY, — louis de Gonzague
    ÉTIENNE AVENARD, — 22 [?] juillet, un nouveau style. 4 »
-VII-7. — E.-D. MOREL et PIERRE MILLE, — Le Congo
 VII-8. — CHARLES PÉGUY, — les suppliants.
    FRANÇOIS PORCHÉ, — louis de Gonzague
 VII-9. — ANDRÉ SUARÈS, — vous riez...
-VII-10. — CHARLES PÉGUY, — de la situation faite à
    l'enseignement supérieur en France.                  3 »
-VII-11. — JÉRÔME et JEAN THARAUD, — les frères
-   ennemis. CHARLES PÉGUY, — de la situation
-VII-12. — FERDINAND LOT, — courrier de Russie
-VII-13. — FERDINAND LOT, — de la situation faite
    à l'enseignement supérieur en France.                2 »
-VII-14. — FÉLICIEN CHALLAYE, — Le Congo français
-VII-15. — GEORGES PICQUART, — courrier de Russie
    CHARLES PÉGUY, — de la situation faite à la défense mili-
 VII-17. — les cahiers d'Arnold Scherer
 VII-19. — JEAN SCHLUMBERGER, — Heureux qui

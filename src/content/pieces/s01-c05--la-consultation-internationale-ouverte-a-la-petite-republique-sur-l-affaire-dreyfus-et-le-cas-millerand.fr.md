@@ -20,7 +20,6 @@ Laissez-moi, mon cher Millerand, vous féliciter pour
 votre courage d'avoir accepté le poste de combat au minis-
 tère dans les circonstances connues.
 La même Petite République avait donné les citations
-Le Vorwaerts
 Le Voriwaerts publie le manifeste du Parti ouvrier français et du
 Parti socialiste révolutionnaire et le fait suivre des commentaires ?
 que voici
@@ -33,7 +32,6 @@ l'entrée de Millerand dans un ministère sans une décision b
 
 î ns de l'ensemble du parti, nous ne perdons pas l'espoir que les
 Ni antagonismes seront résolus par là.
-A L'Avanti
 À \ L'Avanti de Rome, organe central du parti socialiste italien, con-
 sacre à la crise qui travaille en ce moment le socialisme français mis
 a un long article que nous traduisons presque en entier, laissant de
@@ -71,11 +69,9 @@ l'heure du danger, lorsque dans les nouveaux comités
 de salut publie on appellera les socialistes à prendre la
 é responsabilité du pouvoir, il faudra répondre toujours non.
 
-CONSULTATION INTERNATIONALE L'Avanti 7 5
 Non aux démocrates, non aux radicaux, non à tous ceux qui Fe
 ne sont pas des prolétaires victorieux en train d'instaurer fa
 le régime collectiviste. Est-ce qu'ils ont, peut-être, l'intention Fe
-de discuter si Millerand, en participant à un cabinet de “ABS
 défense républicaine, a cédé à une nécessité suprême créée
 par les événements, ou bien s'il a suivi seulement son ambition? Les guesdistes ne se soucient pas de rechercher 1 Ur
 cela : ils affirment qu'aucun socialiste ne peut aller au
@@ -154,7 +150,6 @@ s'entrechoquent autant qu'avant, les grands conflits nationaux et sociaux éclat
 
 Et nous, avec notre armée de prolétaires, nous ne pou-
 
-CONSULTATION INTERNATIONALE L''Apanti
 vons demeurer avec les armes au pied en attendant que
 prenne fin la lutte des autres et que nos ennemis, avertis de
 notre présence, contractent une alliance entre eux. Au contraire, il faut que cette alliance n'ait lieu que bien tard et,
@@ -344,18 +339,15 @@ Amicalement à vous,
 
 La Petite République du lundi 28 août publiait la mt
 Adresse des députés socialistes italiens à Jean Jaurés Ÿ Fa) ge
-Carpi, 25 août, De
 Le groupe parlementaire socialiste s'est réuni aujourd'hui
 pour la direction du parti. Il vousenvoie et, par votre entre:
 mise, envoie aussi aux camarades du parti socialiste fran- cn
 çais l'expression de sa solidarité enthousiaste dans lalutte
 noble et courageuse engagée, avec conscience révolution nt,
-naire, pour la défense de la justice et de la civilisation. IL ne
 souhaite qu'à celle-ci soit assurée la victoire définitive.
 Le secrétaire du groupe parlementaire socialiste dE sie
 La Petite République du jeudi 14 septembre publiait ‘1
 cette réponse à la Consultation internationale : à k “ati
-HENRI VAN KOL (Rienzi) un
 Nos lecteurs connaissent le questionnaire adressé par nousaux
 représentants les plus autorisés du socialisme international.
 l'heure actuelle nous avons reçu presque toutes les réponses que
@@ -695,7 +687,6 @@ parti socialiste d'intervenir en tant que parti en faveur de
 Dreyfus, avec tous les moyens et toutes les forces dont il
 
 disposait. C'est malgré Dreyfus que sa cause est devenue
-la cause de la justice et de la liberté du citoyen.
 
 Je ne cache pas que l'immense majorité des camarades
 allemands n'a pas pu comprendre, et ne comprend pas encore, comment dans l'affaire Dreyfus le parti socialiste
@@ -747,7 +738,6 @@ d'agir selon ses propres convictions, entrera forcément en "A
 conflit avec ses collègues et ne pourra, en dehors de petites
 réformes qu'il sera à même de réaliser dans son départe- Le
 
-RTE S TANT AO HA AR Ce 42 NURUMPAS VS LL SL de doute jen dec
 ment, atteindre rien d'essentiel. Sur toutes les questions
 sérieuses il sera en guerre permanente avec ses collègues.
 
@@ -797,7 +787,6 @@ se forme pour la solution d'une question spéciale, tel le mi- 12 SE
 nistère actuel, dont fait partie le camarade Millerand, et RIRER
 dont la tâche doit consister, comme on le sait, à liquider nu
 l'affaire Dreyfus dans le sens conforme à la justice et
-la loi.
 Il faut reconnaître que, dans ce cas, la question se pré- 0304
 sente un peu différemment. Mais le même butne pourrait-il ; 548 ,:
 pas être atteint sans que Millerand entràt au ministère ?
@@ -839,7 +828,6 @@ propose, ou lorsqu'une proposition de loi donnée venant
 de l'initiative populaire est adoptée par la majorité du
 D'autre part, il n'y a pas dans les cantons de Chambre
 haute (Sénat); le gouvernement cantonal n'a pas non plus
-le droit de veto; il n'a qu'à exécuter ce que le peuple ou
 éventuellement ses représentants élus ont décidé : le gouvernement des cantons n'est pas pris dans la majorité des
 conseils cantonaux, mais il est élu pour un temps déterminé
 par le peuple.
@@ -912,7 +900,6 @@ de l'initiative populaire est adoptée par la majorité du Vo
 
 D'autre part, il n'y a pas dans les cantons de Chambre
 haute (Sénat); le gouvernement cantonal n'a pas non plus
-le droit de veto; il n'a qu'à exécuter ce que le peuple ou
 éventuellement ses représentants élus ont décidé : le gou- soumet
 vernement des cantons n'est pas pris dans la majorité des e
 conseils cantonaux, mais il est élu pour un temps déterminé
@@ -1165,7 +1152,6 @@ France, soit dans les geôles du roi Humbert.
 Andrea Costa cumule les fonctions de député avec celles de secré-
 taire du parti socialiste italien.
 Prison de Imola (Italie), septembre 99,
-Mes chers amis, i
 C'est ici, en prison, où je me trouve depuis le 1° juillet
 et où je resterai une quarantaine de jours encore pour y
 escompter une de ces condamnations qui sont comme nos
@@ -1431,8 +1417,6 @@ Député de Berlin au Reichstag, rédacteur en chef du Vorwaerts,
 vétéran des congrès internationaux, Liebknecht est aussi connu des
 socialistes de France que des socialistes d'Allemagne.
 
-Mes chers amis,
-
 Puisque la réponse à vos questions se trouve dans ma
 lettre au Congrès d'Épernay (1), je vous prie de me dispenser
 d'une répétition des raisons que j'ai données dans cette
@@ -1592,8 +1576,6 @@ prolétariat ne devrait se soucier que de ses intérêts particuliers et non pas
 sociale. Mais ces deux penseurs étaient, au contraire, d'avis
 que les deux catégories d'intérêts étaient liées de la façon
 la plus intime et que le prolétariat devait participer énergi-
-
-L'air 4, Ps ar
 
 quement à toute lutte intéressant le progrès social, même
 
@@ -1838,8 +1820,6 @@ wallons et flamands, entourent de la plus vive affection cet homme Ve
 tout de bonté et de générosité, qui fut en Belgique le précurseur et
 l'apôtre du suffrage universel et de l'idée républicaine. ce.
 
-Chers citoyens, Le
-
 Vous me demandez si je crois que le prolétariat socialiste i'
 peut, sans manquer au principe de la lutte des classes, in- ñ.
 tervenir dans les conflits des diverses fractions bourgeoises, cac
@@ -2034,10 +2014,8 @@ social français à propos des événements des deux dernières
 années, et j'ai été fort heureux de voir qu'ensuite il y a
 joué un si beau rôle.
 Mais c'est un cas trop simple et, à ce qu'il me paraît, trop
-évident. IL y en a de plus difficiles ou, au moins, de plus
 compliqués. Dans tel pays, il y À lutte entre un parlement
 
-CONSULTATION INTERNATIONALE LaAvrov ne
 bourgeois ou agrarien et un semi-absolutisme militariste. dr
 L'un et l'autre sont ennemis du socialisme. Une alliance ral
 avec l'un ou avec l'autre serait une trahison, non seulement
@@ -2632,7 +2610,6 @@ et la liberté de ses mouvements. Dans tous les cas ils doivent 1%
 être alliés sans aucune de ces connivences quise résolvent, ‘1
 à la fin, en dangereuses responsabilités et en vaines pro- és
 messes, tandis qu'elles portent dans les rangs du prolétariat
-le sentiment de l'incertitude et de la défiance.
 Millerand pourra demander un bill d'indemnité, et je crois ÿ
 que les socialistes auront d'ici peu l'occasion de le lui accorder, parce qu'il le demandera comme ministre démission-
 naire et comme camarade désabusé.
@@ -2646,6 +2623,5 @@ par récent commerce! Est-ce que, par exemple, quand je
 lis les romans d'Anatole France, je ne dis pas continuellement : voilà, je suis chez moi ? he
 Agréez mes souhaits pour la prochaine constitution du
 parti socialiste français un et indivisible.
-Le Gérant : CHARLES. PÉGUY
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie G.-A. Ricmarp & Compagnie, 9, rue du Pont. — 2036

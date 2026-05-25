@@ -7,9 +7,7 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 13851
 ---
-17 17 Pia LNARMNTIESRAR TES 0 re é y $ ;
 4 3106
-nl ARE NOT fes UNE "ent CARA 4 À Ÿ 1 pe y
 
 Dans les dix-neuf cahiers de la septième série, année
 scolaire 1905-1906, nos cahiers ont publié :
@@ -17,31 +15,15 @@ scolaire 1905-1906, nos cahiers ont publié :
 tique du catalogue analytique sommaire et table
 analytique très sommaire de la sixième série ....... 1 »
 
-Vil-2. — CnarLes Ricuer. — La paix et la guerre 1 »
-
 VII-3. — CnarLes PÉGUY. — notre patrie.......... 1 »
-
-VII-4. — RaouL ALLIER. — la séparation au Sénat 4 »
-
-VII-5. — ÉTIENNE AVENARD. — le 22 janvier nouVeAL SCYLE NE MEN ER MAR NU Een PAPE OS
-
-VII-6. — E.-D. More et PIERRE Mie. — le Congo
 
 VIl-7. — CHARLES PÉGUY. — les suppliants parallèles. — FRANÇOIS PorcHÉ. — les suppliants......... 92 »
 
-VIl-9. — FEerDINAND Lor. — De la situation faite à
 l'enseignement supérieur en France. — 1......... 2 »
 
-VII-10. — JÉRÔME ET JEAN THaRAuD. — les frères
-
-VIl-11. — FERDINAND Lor. — De la situation faite
 à l'enseignement supérieur en France. — II1...... 3 »
 
-VIl-12. — FÉLIGIEN CHALLAYE. — Le Congo français 2 »
-
 réforme. — de la situation faite à la défense militaire dela France. ...:..#102.1100b0 8 Rens
-
-VII-14. — GABRIEL TRARIEUX. — Les Vaincus. —
 
 VII-15. — les cahiers d''Arnold Scherer ......... 2 »
 
@@ -52,7 +34,6 @@ VII-17. — JEAN SCHLUMBERGER. — Heureux qui
 VIL-18. — RomaIN RoLLAND. — Vies des hommes *« illustres. — la vie de Michel-Ange. — I.— la lutte.. ÉPUISÉ
 
 Vll-19. — Emize Mosezzy. — les retours. — Les
-haleursiile soldat TR PORTO SERA RER
 
 Voir à l'intérieur en fin de ce cahier les conditions
 et le prix de l'abonnement.
@@ -66,11 +47,6 @@ de 84 pages; in-18 grand jésus: nous le vendons
 du Luxembourg
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
-
-ÿ k gr DE den At At Pt ct XL
-
-HR CELEURNN ni FA OUR 1: AAA
-D ou
 
 + Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
@@ -105,39 +81,8 @@ s'abonnait rétrospectivement à la sixième série le recevait, par le fait mê
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-DE An A x? M Lee CU CAN
-
-es RENE Er DE Hs PANNE M ATAN
-
-D AT AS de ii din SRE
-
-Rat MOTTE MEET ‘ Que à A TT AT PES
-
 mes cahiers rouges
 
-# ANSE 1
-A DAS nn on A Re ie LE
-DAS Varie DCI LIT 48e D VE RE LA TES END ON Cie CAEN MEN ri RATE
-d aus AE MAT AA AH AA LAN LUE D et 5 52 a D 2
-MR Rein MATE FA ANNET RES TNA LNE V6) ne 14 TES ÿ fu
-ü MAT: DEAN RAM AE) / eh API TR NON A8 F0 : je:
-NE Fute À TJ ERTE 5 DAC Eu "Pi $ NE ER ù rues F\ 4
-2 ge CSS ATUEE F sat fr il r PRE nee
-wi VALUE ET ADENA AUS nd x ARR 'S'ATE FE $
-AREAS on: RE me RS OL AA RU RENE (a RTE ME DE x \
-ATEN ae IR TRE ANS AE CRT LE DR à à: EN
-RDA PAR dE LLN T4 AA ae DA SE AU RUES Pare DURE
-
-D AU Ve AU PR au ere AA US NY SA
-
-LE Re RE re Ne en cn
-DR Re en PAR AA ANNE NN ARR
-ne 11 SAANNS Buxe fa (AN ENTER Pan NE He APN Ci
-AL el en | PAU UN RNCS
-ah Mr ÉVITE Vin La SELS a
-| NON MORE À At | i ! NAN ENIREE
-
->;
 Si nous ne consultions que le goût de Maxime Vuillaume, il est probable que la meilleure introduction à
 ses Souvenirs serait celle dont Vapereau et Larousse
 envieraient la concision.
@@ -165,7 +110,6 @@ contre son vieil ami Blanqui; une figure de rhétorique,
 s Rogeard, l'auteur des Propos de Labiénus; un futur 1
 député, Ordinaire, que sauvera de loubli, dix ans plus
 tard, son apostrophe à la Commission des grâces :
-À Et le cabaret de la rue Dauphine, où Vermersch et
 Verlaine accordaient leurs violes...; car le terrible auteur des Incendiaires n'était, au fond, qu'un Rossel du
 Parnasse, impatient de gloire littéraire, comme l'autre
 l'était d'avancement au choix. Et la brasserie Müller,
@@ -197,8 +141,6 @@ Un autre lieu de rendez-vous mémorable était l'impri-
 
 merie de la rue du Jardinet, d'où partaient les brülots,
 
-d'où partaient La Rue de Vallès et Le Père Duchéne (le
-
 premier) de Maroteau (décembre 1869) dans lequel '
 
 Vuillaume publiait son premier article.
@@ -210,8 +152,6 @@ des lilas de la Closerie! Temps où les amendes et quel …
 chambre pour un article, un dessin, un trait, une allu- |
 sion, épargnaient à des feuilles, éphémères sans cela,
 la honte de mourir obscures! $
-
-RAD Ce ER à ESA et SAR
 
 ï Et ces révolutionnaires étaient poètes, et ces poètes
 étaient révolutionnaires. Dernier avatar d'une bohème
@@ -275,7 +215,6 @@ chaussant de grandes bottes, pour pénétrer dans les
 égouts. J'aime mieux Blanqui ganté de noir, Flourens
 | 13
 
-| D à
 bien mis, et le père Delescluze prenant un bain avant .
 * d'aller mourir, en redingote, chapeau de soie et bottines ;
 Son verbe encanaillé prête aux vitupères du soi- ;
@@ -303,7 +242,6 @@ qui ne sont pour ainsi dire qu'une manière de ponctuation; surmontez le dégoû
 ce parler de la Râpée, une tactique habile, un adroïit
 alléchement pour le populaire, une mise à sa portée des
 thèses gouvernementales et des propositions abstraites
-ne
 
 de la politique. Vous trouverez par delà un idiome
 ! poussé de ton, nourri, vigoureux, rabelaisien, aidé à
@@ -368,7 +306,6 @@ lamnistie, alla, peu de temps après, en Russie, explorer
 (1) Liberté (de Bruxelles), 25 mai au 29 juin 1875.
 
 le bassin houiller du Donetz, pour une Société de dynamite, et, rentré définitivement à Paris, en 1887, devint
-le secrétaire de rédaction de Clemenceau, à La
 
 Il n'a pas quitté la presse depuis. Il collabore au
 Radical, et c'est à l'Aurore, lannée dernière, qu'il
@@ -399,7 +336,6 @@ celles d'un jeune fils de famille, frais émoulu, comme
 (:) De Maxime Vuillaume, en outre, une brochure L'horloge et
 les cloches de la Bastille, Tours, 1896.
 
-| ANR BUT
 vous l'étiez alors, de VÉcole des Mines et des revendi- |
 cations mâchées à la brasserie et dans les âcres salles
 VIRE de rédaction. »
@@ -432,7 +368,6 @@ récits de Vuillaume, la fâcheuse initiale suivie de points,
 * désignant un personnage auquel l'auteur croit devoir
 faire la charité de l'anonymat, mais ce scrupule est
 insuffisant pour imprimer un caractère provisoire à des |
-Car derrière ce que Vuillaume a vu sur Pheure, il y a i
 ce que Vuillaume a entendu, noté, contrôlé, plus tard.
 Je connais sa méthode de travail. Il ne donnerait pas le
 témoignage direct de l'homme sincère qui lui dit :
@@ -455,8 +390,6 @@ ligne dans les & cagnards » de l'ancien Hôtel-Dieu, tandis que la Préfecture 
 de l'ordre, meute excitée, chasse aux alentours.
 La pêche à la ligne semble être, de toutes les oceu- \
 pations, celle qui permet le mieux à l'amateur de
-
-| Lucien Descaves
 
 Dans les papiers d'elle que je possède, une femme de
 lettres et d'action que Vuillaume a bien connue et qui
@@ -507,88 +440,9 @@ Notre marine sait, et nous savons aussi, que ces
 vieilles poudres-là sont encore dangereuses pour la
 sécurité des vieux bateaux.
 
-ne Mi ae on ae
-Fa pois AL pis Je bi oo AU AR TRE
-ui 1. ee D pe se je dan nr
-qu Por RU i Con il Le De f Ÿs AS j
-2 EE RAS NE à f FE l 4 dre Fun Nas } ESC) PRE
-MA 4 is Ain 7) al 6 Ed da Dpt He M AN ne KE PA 2100 4 4 Eee HUE
-# tes PAAE 1 He J Mn | } Su RAGE 00
-Li DER HA JR TEA du VAS fin A0 LR RULES k SAN 4 TR ne js de KEANT 74
-Fi os EAN vi l'A en NUE (EAN de VENTE RAS St 5 Du Go
-HU Le NE #9 #4 Nan nr at PEN a D vu MIRE k su ES y 53 An ï
-NUITS Une AE SALE a er pl EU £ A Me Es NU tx “Re AUS ail
-
-sie Vin dE A At A AA A UE CA JA nou ANR
-ne: La MSN TIRE A CU A Rd ar |: NO RNRES
-A A en LA NTM TEE ne LR LE ï dE MAO
-AU FR LUNA Papa Eu te CE NI SRE RARE" ÆLETX NRCAUIE ME Pa AM REA M Et
-ca RS EN IL EU tie ho a AU
-
 L — une journée
 
-ANS de on Fa ia Pos
-A (4 AE Nr HnEo Na ù Re on fo Ÿ
-he ne JS FAUX A oo on An RC -
-
-ue “ D it CU A je ae je ne ;
-
-Ke RAR VA x . Rita 5 ni Hot 1 gi
-
-Ve FA Le 60) (l L' A vert} ok 4 HEAUL ne (En 1 A HS Et BL # dt du NEA
-dot FA Ar PA A de NU \ sel sur dé at $ ne LR, pt
-
-F4 un cu
-
-Gite ON oo A RAA
-
-pri | A Ne dans NME IeMeR AA NPC A PAUL CU LRO DRE : hi NN EN
-
-del Qu A FES LAINE ADD AN M RENAN ER DAT ETUDE PART AR ET NME AA Par
-LEE 1j | , \ nu RAM Et ie
-
-Age AAA TE LA ; { 1 DD A À A EE Per RE RE N
-
-FAN PURES NA. IE HE NE AA AE LEO NS APANEL CAN LUN Gun ‘ET OMO EN pie
-
-Lune EU re ANSUANT fo LA A dus UNE a à A LAUE
-
 du Lux embourg
-
-nus où do ro nr Pr
-
-on ie din M RE eo 164
-
-D É “04 1 Vs oo. ni ni joe Hs " je 7 ie de EX
-
-ti po ts oo oi Li ne Fat à
-
-à 1 . os 14 pue Cou Are n APE "| HD PSS nie 1 FAO sa
-
-ne ss son Fe oi '
-
-ji ui po ï ne n° ee ie
-
-| a ou Lo ie ut Ru Fe
-
-ce D Hs Ana “ARE us MA Me 0 UE
-
-Un no. a à US ARS pi ae po UE ‘1 00 te
-
-vu 7 jo ul tes x PA] ol NS ke 2} LS ï Lori EN NE 4 Wat + Ale Se LR 3
-
-i no. is Un LUN oi MR os ”
-
-“ no HAUeS je NA ‘ EN à Su ne My WE' ps 00 AE
-
-je ton JU (VE ÿ ii Ed : ARE Pre AU AR EE f HU NE ; nee
-
-ni sis pu je FR y #1! LA ï : ï A 1" AU DA Fe À ae AS
-
-Fl ‘0 a HA Na Ni Dane oo 4
-
-UE dont Se L'AEE dia Su Se Cuve Eu le A fi Li \ 1e TE Û
-do. aa NE ht Aa ci Ro a 410 FA
 
 Six heures du soir, le mercredi 24 maï 1871. En face
 
@@ -635,7 +489,6 @@ sombre. Je crois bien qu'il m'a parlé de Saint-Sulpice,
 d'où quelqu'un arrive, et où l'on a tout passé par les
 armes : prisonniers réfugiés dans la cour du séminaire,
 blessés cloués sur leur lit d'ambulance, pêle-mêle avec !
-le médecin. (1)
 
 La fusillade a cessé. Le quai est toujours à nous. Si
 nous nous reposions ? Depuis deux jours je n'ai pas eu
@@ -725,7 +578,6 @@ même que je l'aie interrogé. Vite il va me chercher
 son chapeau rond à lui.
 — Monsieur, ils sont descendus toute la nuit, me ditil rapidement, étouffant sa voix. Il y en a plein le jar- f
 din. Moi, j'ai déjà jeté ma vareuse et tout le reste. û
-A chaque marche de lescalier, il y en a un qui
 Nous sortons, l'ami qui est venu me retrouver dans
 ma chambre, et moi. Le cœur me bat certainement 1
 ; quand je mets le pied sur la première marche.
@@ -762,7 +614,6 @@ Les débits en sont pleins. Ils trinquent bruyamment
 une barricade. Deux ofliciers à brassard et capote
 
 — Allons ! allons! crient-ils aux passants, qu'on me
-démolisse ça. Et vite.
 Il faut prendre son pavé, le jeter dans le fossé plein
 d'armes et d'uniformes.
 — Faut-il aussi que je prenne le mien! dit subitement
@@ -786,7 +637,6 @@ poudre, rouges de sang, trottoirs semés de mille choses
 diverses jetées la nuit par les fenêtres. Il faut se hâter
 de se débarrasser de tout ce qui pourrait rappeler, aux
 yeux des perquisitionneurs, que l'on a touché, de près
-ou de loin, à la Commune.
 Un coup d'œil sur la place du Panthéon. Debout,
 devant wn pilier de la mairie, deux officiers lisent
 l'affiche de Delescluze (1) appelant le peuple aux armes.
@@ -811,8 +661,6 @@ cinquantaine de prisonniers au milieu d'eux. Des
 
 Rue Saint-Jacques, adossé à la devanture de cet établissement de liquoriste connu sous le nom de L « Académie », le cadavre d'un vieux à barbe blanche, encore
 
-i revêtu de sa vareuse de fédéré. î
-
 Il est là depuis la veille — ou depuis la nuit. Ses jambes
 étendues sont rouges de sang,
 
@@ -829,7 +677,6 @@ terrain vague où s'élève maintenant la nouvelle Sorbonne. J'ai su plus tard q
 Je croise un fourgon qui marche au pas. La porte
 d'arrière est ouverte. Il est plein de cadavres.
 
-Au coin de la rue Racine et de la rue de l'École-de- à
 Médecine, les deux barricades qui défendaient l'entrée
 du boulevard Saint-Michel, sont éventrées. Au fond du
 
@@ -879,8 +726,6 @@ Moi, je m'étais assis sur une borne, attendant. On
 amena un vieux en chemise, tout tremblant. Un soldat Ç
 l'aborde.
 
-— Tu te rends, vieux.
-
 Le vieillard regarde le soldat d'un air suppliant,.
 
 — Mais oui. oui..…, je me rends.
@@ -905,7 +750,6 @@ au carrefour. En passant rue Saint-Jacques j'ai vu
 dans un angle deux femmes fusillées, dont l'une avait
 
 encore, fichée dans sa chevelure brune, une cocarde
-| rouge.
 
 Et, baïssant la voix : ‘
 
@@ -975,7 +819,6 @@ ma prunelle. Je me retourne. Mais, brusquement, je me
 sens pousser par l'épaule, d'une main solide et pesante,
 
 ' une journée 4
-|
 certainement cette même main qui m'a empoigné ilya |
 — Allons, allons! Qu'on ne traîne pas... F 1
 Nous sommes tous deux dans une petite salle obscure, |
@@ -1001,7 +844,6 @@ avec une tignasse brune toute frisée, et de gros yeux
 noirs de caniche. L'autre, blond, est plus dur de visage,
 avec une moustache en croc, qui le fait ressembler à un
 
-| A LA COUR MARTIALE DU LUXEMBOURG ‘
 Ce gendarme, je ne lui parlerai jamais. Mais l'autre ?
 Si j'essayais ? Précisément, il s'approche. C'est lui qui
 prend la parole : 1
@@ -1027,7 +869,6 @@ rage qui le fait presque écumer. Ah ! tu es de l'Internationale ! Ah! nom de Di
 Et il se retourne, triomphant, vers les gendarmes, que
 je vois, assis sur les banquettes, donner des signes
 Et il gueule :
-— L'Internationale !
 Je veux répliquer. J'essaye de plaider ma cause. De
 — Mais, citoyen, dis-je doucement, l'Intern…
 — Citoyen ! citoyen! Ah ! nom de Dieu! ça, c'est en45 Luxembourg. — 3.
@@ -1040,7 +881,6 @@ caniche de tout à l'heure, subitement enragé, m'assied
 sur la banquette, où je m'écrase, vaincu, atterré. |
 D'un geste violent l'homme au brassard ajoute : |
 — Et soignez-le, celui-là. Ça doit être un bon! :
-|
 entre les deux gendarmes |
 À cette apostrophe, deux gendarmes se détachent de |
 la longue banquette où ils font comme une grosse tache
@@ -1098,7 +938,6 @@ retrouverait ce nom :
 matin, jeudi 25 mai, interrogé à une heure. Envoyé à la
 
 J'expliquerai plus loin cette expression : « Envoyé à
-la queue ».
 
 A la cour martiale du Luxembourg, c'était la mort,
 
@@ -1107,13 +946,11 @@ ma montre
 Je ne puis encore prévoir la sentence. Tout ce que je |
 puis faire, c'est de bâtir dans ma cervelle un plan de
 sauvetage. Ai-je sur moi quelque chose qui puisse me &
-dénoncer? Car on va me fouiller. Et je repasse dans L
 ma mémoire le contenu de mes poches. Mes cartes de
 la Commune, je les ai déchirées ce matin même avant
 de sortir dé l'hôtel de la rue Cuvier, où j'ai passé la nuit.
 Je n'ai point d'autres papiers. De ce côté je suis tranquille.
 | Subitement, je sens comme un fer rouge me brûler à
-la gorge. |
 — Ma montre! ma montre de cuivre, que j'ai dans |
 ma poche de gilet! C'est toi qui vas me dénoncer, |
 montre de malheur...
@@ -1136,7 +973,6 @@ dans ma main, je passe le bras derrière le dos, je
 lallonge jusqu'à la banquette, et, avec un battement
 de cœur, lentement, silencieusement, j'ouvre la main.
 La montre s'échappe. Elle est tombée... Moi seul ai entendu un petit bruit sec... Personne n'a sourcillé autour
-de moi...
 
 Oh! la brave, l'excellente montre, que je maudissais
 tout à l'heure! Elle ne m'en a pas voulu d'avoir bossué
@@ -1192,7 +1028,6 @@ L'un des agents l'avait ramassé, ce livre. Et il jetait
 des regards furibonds sur les deux jeunes gens chez lesquels le livre avait été saisi — LE SocrALISME! — Un
 livre bien inoffensif, mais dont le titre accusateur conduisit peut-être jusqu'à la fusillade les deux prisonniers.
 
-| /
 un prêtre
 
 Un lieutenant venait d'entrer. Et, avec lui, un prêtre,
@@ -1202,8 +1037,6 @@ Je n'oublierai jamais ce prêtre. Un grand vieillard
 au mince profil, au nez busqué, à la chevelure longue
 
 () Le titre exact du livre est : Le Socialisme d'hier et celui d'aujourd'hui, par Th. N. Besnard. Paris, Guillaumin. 1870.
-
-| À LA COUR MARTIALE DU LUXEMBOURG
 
 et bouclée, grisonnante. Ses yeux brillaient, enfoncés
 sous larcade saillante. Une large croix de la Légion
@@ -1232,7 +1065,6 @@ voilà ce qu'ils voulaient cependant nous foutre dans le
 Le prêtre eut un sourire. Approbation ou dédain de
 la grotesque sortie du mouchard imbécile. Il sortit
 
-. ét je le vis traverser la cour. û
 le Prévôt
 
 La petite salle retomba dans le silence, coupé çà et |
@@ -1254,7 +1086,6 @@ s'assit de nouveau à terre, et, déboutonnant son corsage, offrit le sein à so
 en silence, sans un cri, heureux dans cet enfer.
 
 Midi. Les douze coups de l'horloge du Luxembourg
-se détachent. Je songe à ma montre. J'ai envie de la |
 ramasser, de voir si elle est à l'heure. Cela me donne un
 
 É éclair de gaieté. Vrai, je les ai bien foutus dedans, mes |
@@ -1363,7 +1194,6 @@ l'oreille.
 Subitement, abaïssant son regard sur notre groupe, et
 fixant un homme en vareuse de fédéré, dont les galons
 ! et les passementeries avaient été arrachés :
-— Qu'on l'emmène !
 Et après une courte pause, s'adressant au voisin :
 — Allons, à vous... Où avez-vous été arrêté ? ‘
 — Rue Saint-Jacques, ce matin...
@@ -1417,7 +1247,6 @@ voudrais nvassurer que c'est le sabre d'un autre,
 bataillon des Enfants du Père Duchéne. Ce bataillon était caserné à
 la Cité, aujourd'hui la préfecture de police.
 
-se une journée A RE UE
 un sabre de gendarme ou de cavalier tué pendant la ‘
 - Mais non, c'est bien le sabre du chef de notre bataillon des Enfants du Père Duchéne. C'est bien sa
 coquille dorée, sur laquelle se détache une large et |
@@ -1464,8 +1293,6 @@ Le prévôt levait les yeux. Invariablement, sans autres ;
 — Qu'on lemmène à la queue!
 
 Ou, plus simplement, avec un regard vers la porte où
-
-— A la queue! ï
 
 Une femme fut poussée à la barre de cet effroyable
 tribunal. La barre était une barrière hâtivement installée, quelques planches neuves et nues où les clous
@@ -1525,8 +1352,6 @@ soigné tout le monde pendant la bataille, les soldats de
 l'armée et ceux de la Commune.
 
 — Vous n'êtes point médecin de l'armée ?
-
-— Non... Mais.
 
 — Vous êtes resté à Paris sous la Commune ?
 

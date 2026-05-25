@@ -48,7 +48,6 @@ et nous tous, il ne nous restait plus qu'à fuir en exil, sans
 même emporter à la semelle de nos souliers un peu de
 cette terre de France vendue par nous à l'étranger.
 
-Hélas! M. Rochefort a eu peur de trop de succès; il a eu
 peur de trop de gloire. Et il se dérobe avec une modestie
 incomparable au formidable triomphe de rire et de moque-
 
@@ -262,7 +261,6 @@ de vous demander une enquête, et j'ai l'honneur de
 la solliciter.
 Veuillez agréer, monsieur le président, les assurances de mon profond respect.
 Un de nos anciens abonnés nous a envoyé cette contribution aux Preuves
-Mon cher Péguy,
 Puisque vous êtes de ceux qui tiennent qu'il y a toujours une affaire Dreyfus, vous devez penser qu'il est
 utile de continuer à l'étudier pour en éclaircir les obscurités. Je vous soumets donc une hypothèse qui vous l
 paraîtra sans doute, comme à bien d'autres, lever de

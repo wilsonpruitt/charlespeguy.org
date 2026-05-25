@@ -11,47 +11,23 @@ de [a Quinzaine
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-FOME EU AE de.
-
-| 46 TES Je
 Nous mettons ce cahier dans le commerce. nous ASS
 FETES vendons un franc =".
-| 5% QUE: F CR ï R Ÿ
-
-eh ne LEE ONE
-EE DD où He PE
-
-DA HAE ATEN “EE AS ni
 
 Du même auteur, Calmann-Lévy éditeur, volumes à
 trois francs cinquante, en vente à la librairie des
 Le Crime de Sylvestre Bonnard.
 L'Étui de nacre.
-Le Jardin d'Épicure.
 Jocaste et le chat maigre.
 Le Livre de mon ami.
-Le Lys rouge.
 Les Opinions de M. Jérôme Coignard.
 Le Puits de Sainte Claire.
 La Rôtisserie de la Reine Pédauque.
 La Vie littéraire, quatre volumes.
-I. L'Orme du mail. Ô Î
-II. Le Mannequin d''osier.
-III. L'Anneau d'Améthyste.
-
-LT 'ahiers de la Quinza A
-g* fs AU At L Ne dé “ ; LR ENS RUN Les
-De TMAUS at 4 . à ENS TR du
-
-on js a AE AS CE
-on À AMEN \i YALU rs ous \ A fou MT ÿ lse te
 
 de la Quinzaine
 
 8, rue de la Sorbonne, au rez-de-chaussée ur PAU à LR
-1 UN HA tieo LAS A d i Lis À Hi d: LP PRESS t es : MAL à : areN ay AA US LA
-Une, sans RON AAA" k JE gU ‘ Ur A
-| 20 AR EUR le } tt AU Ni } MCE te {AG
 Dans le troisième cahier de la première série, daté du
 5 février 1900, aujourd'hui épuisé, nous avons publié,
 d'après les journaux du jeudi 23 novembre 1899, le
@@ -78,7 +54,6 @@ Les connaissances utiles à la vie ne sont pas seulement celles des métiers et 
 
 De saire que chacun sache son métier, ilest utile à
 | chacun d'interroger la nature qui nous a formés et
-| 9 I.
 
 la société dans laquelle nous vivons. Quel que soit
 notre état parmi nos semblables, nous sommes
@@ -99,7 +74,6 @@ dans les siècles anciens un grand nombre d'hommes
 avaient eu cette juste idée de l'univers et y avaient
 suffisamment attaché leur pensée, il eût été possible de les effrayer en leur faisant croire qu'il ya
 sous terre un enfer et des diables ? C'est la science
-dit tu
 
 Û qui nous affranchit de ces grossières imaginations et
 
@@ -127,7 +101,6 @@ et accrue la force capitaliste, vous jugerez mieux des moyens qu'il faut employe
 
 _ lexemple de ces grands inventeurs qui n'ont
 | asservi la nature qu'après l'avoir parfaitement
-| observée.
 
 Vous étudierez les faits de bonne foi, sans parti pris ni système préconçu. Les vrais savants — et
 j'en vois ici — vous diront que la science veut garder son indépendance et sa liberté, et qu'elle ne se
@@ -203,18 +176,6 @@ vos esprits et vos cœurs, et de vous rendre capables,
 par l'étude et la réflexion, de préparer l'avènement
 de la justice sociale et de la paix universelle.
 
-tt a nt DA ne 407 de. is el D PACE
-MU | PE HER AN ( PTS Faits RERASE NE AE e ME) jidias) Fous
-Arena Ca TE A: 0 Dan der) 1 vil ÿy AE Fer ES As Ni MAPS MILAN EU, f qu
-ki el AA 1 ARÈNES dy (HA RaM EAN NE fÉ di "11
-“ d apr ME 4 à he AK Le nr ee #! ‘ 4 Là UP QE ER YL ND 1 FR NS
-« AA À x: + è sk A 0288 ‘te LT tu 'AAER LATE tn AN LE LRU A St ia)
-QE Pt da À 4 ee 1* NT sien AVS (tt De ex ApU A + Mie EN EN
-he LA CA TN ana Te "df EC At AMEN a D 58 AUX À Wit SR
-pare (4 Ta RL: AE LP NS AN bé
-ti CAN Got" du FAQ ( At JuNGE nor je SU DR ic) Al + OS
-Vs il TA RU : LOTS An Le ire) 135
-
 Dans le même cahier nous avons publié, d'après le
 Figaro du mercredi 3 janvier 1900, de l'Histoire contemporaine, le conte intitulé Clopinel; d'après le Figaro
 du mercredi 10 janvier, de la même histoire, l'article
@@ -228,18 +189,10 @@ premiers de ces articles ont passé dans Monsieur Bergeret à Paris, quatrième 
 
 Dans le septième cahier de la deuxième série, aujourd'hui épuisé, nous avons publié, d'après la Petite République datée du mardi 31 juillet 1900, le discours prononcé l'avant-veille à la salle Wagram par Anatole
 France pour la Célébration de Diderot.
-fu HT AS fat SA de AS AE nee PME EN (ac ne
-EU ni) ae Me Ab Re AUS RTE hits nu ie a nt
-“à Te hi) afu NAN da à RQ a ul E VAT A Ÿ) \ + HAS amer AA PUS) L fioul ACTA De AU
-ce Lt a no EN RES
-A ti Ro ts A pas de HN Le as PA
 
 Nous publions ci-après, sur la copie de l'auteur, et
 avec son assentiment très bienveillant, plusieurs fragments de l'Histoire contemporaine. Les fragments que
 l'on va lire n'ont jamais été réunis en volume. l
-
-A UE A date ne RAT CN
-Je, n at PPT RL AT à Ben
 
 — C'était au printemps de 1895, j'avais vingt ans.
 Nouveau venu à Paris, je traversais des temps difficiles. Cette nuit-là je m'étais étendu dans un taillis
@@ -418,9 +371,6 @@ conséquences bonnes ou mauvaises que peut produire sa sentence dans un intérê
 sa santé ou sa vie au profit exclusif du patron, lequel ne peut compromettre que son capital. » » Et j'ai cité presque au hasard, ajouta M. Bergeret en fermant le livre. Voilà des paroles nou-
 
 . velles et qui rendent le son d'une grande âme ! »
-
-DRE NET ji NE duo DU du
-|! PES OR A ON NAN LUN M
 
 Il y a environ dix ans, peut-être plus, peut-être
 moins, je visitai une prison de femmes. C'était un
@@ -613,11 +563,6 @@ Je demandai ce qu'elle avait fait, celle-là.
 — 503. Elle était servante chez des cultivateurs…
 Elle a volé un tablier à ses maîtres... Vol domesti-
 . que. Vous savez, la loi punit sévèrement le vol
-DURE ne A a joe an ni
-ANS ji Ne RO Ten L
-1 POUR done: Le AN ne cu
-1 i pa: te à AAA RuIGS oe st AN LA oi
-de en : LS É AR
 
 — J'ai vu, dit Jean Marteau, des juges intègres.
 Ce fut en peinture. J'avais passé en Belgique pour
@@ -715,10 +660,8 @@ arbre, et que la même sève nourrit.
 SECOND JUGE. — Le vieil arbre des lois distille
 un suc amer. Sans cesse on y porte la cognée.
 
-PREMIER JUGE. — Le juge n'a pas à rechercher
 si les lois sont justes, puisqu'elles le sont nécessairement. Il n'a qu'à les appliquer justement.
 
-SECOND JUGE. — Nous avons à rechercher si la
 loi que nous appliquons est juste ou injuste, parce
 que, si nous l'avons reconnue injuste, il nous est
 possible d'apporter quelque tempérament dans
@@ -822,10 +765,6 @@ pas que le cheval a été mis au monde pour souffrir,
 que s'il ne souffre pas, il va en sens contraire de.
 ses fins, et que le cheval céleste se détourne des
 
-Area We Deer tl Paye) ha { jee JR 4 AE NE HAN pe FA
-
-# Ar ON LE tu
-
 Ayant pénétré plusieurs pensées de mon chien (.
 
 Riquet, je les ai mises en langage humain. Ilya à intérêt à connaître les idées morales des chiens et
@@ -864,7 +803,6 @@ favorables, autour de moi.
 On voit dans le sommeil des hommes, des chiens,
 ï des maisons, des arbres, des formes aimables et des ?
 
-ae PENSÉES DE RIQUET
 | formes terribles. Et quand on s'éveille, ces formes
 ont disparu.
 
@@ -921,16 +859,6 @@ paniers sur leur tête ou qui roulent des tonneaux.
 Je n'aime pas les enfants qui, se cherchant, se
 fuyant, courent et poussent de grands cris dans les
 rues. Le monde est plein de choses hostiles et redoutables.
-
-ei De PR Core PR nt OR HAE
-Ce ANNAAE LA NAT Ren) re
-AA Fe Le eu D US trés Rs
-AL EPA À der Une ‘LAMES Fée Es à
-ARE AA ti te Qi AL ee AA 1 l
-Es 8 CARO LES RE PC a ee here EN PL Rd de vel re: (RE OR De AUS
-
-RE PL QT ol een ERA AU Un Aire
-A nn AL « ar gif NE
 
 Enfin nos abonnés seront heureux d'avoir en ce format
 de volume le discours prononcé par M. Anatole France,
@@ -997,10 +925,8 @@ veulent plus tuer personne; ils ne parlent plus
 de matraques. Ils respectent les institutions parlementaires, ils respectent le Sénat, ils respectent
 les chapeaux. (Rires) Lisez leurs affiches. Vous
 serez bien surpris : il n'y est question ni de guerres,
-ni de massacres, ni de décervellement aucun. On
 ne parle là-dedans que de liberté, de tolérance,
 d'économies et de réduction du service militaire.
-On se contente de souhaiter un changement de
 ministère. Et ce n'est pas là, sans doute, une profonde pensée. (Rires et applaudissements) On ne
 dit pas du tout dans ces placards qu'on renversera
 la République, on y dit même qu'on la réformera.
@@ -1131,15 +1057,9 @@ première édition le jeudi premier mai 1902
 à l'Imprimerie de Suresnes
 9, rue du Pont
 
-NE de
-LR 1 pet ent Un RSC AE EN û Dei
-
-a LR AUS Dre PE es Ten Wa dé La M nl SCA A AO EE RES
-
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
 
-Nous servons
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs; .
 et des abonnements de propagande à huit francs.

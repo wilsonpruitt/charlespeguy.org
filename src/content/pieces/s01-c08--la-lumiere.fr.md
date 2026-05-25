@@ -18,7 +18,6 @@ passent sur la lune si légers qu'ils se fondent dans
 sa clarté. Le ciel est profond et les étoiles semblent
 lointaines, lointaines comme les mages de l'Orient.
 — Et l'horizon, devant nous ?
-— Une forêt.
 — À notre droite, c'est la mer ?
 — La mer — à l'endroit où elie se confond avec
 le ciel, une trace lumineuse.
@@ -298,7 +297,6 @@ ce collège de savants qu'une brutalité ignorant.
 — Socrate vint détourner les philosophes de
 l'étude des phénomènes naturels pour les intéresser
 à de misérables cas de conscience. — IL fut l'ini__ tiateur imbécile au scrupule.…..
-L Cie
 ‘DH Ils s'entretinrent souvent ainsi d'hommes
 oubliés : émus d'entendre encore résonner à leurs
 oreilles l'écho de paroles prononcées il y avaitsi
@@ -371,7 +369,6 @@ sa dirent
 Et l'on était en train de le hisser par les aisselles
 quand un page s'écria
 — Fouillez cet homme ; il a peut-être l'argent sur
-lui.
 On le fouilla il avait juste dans la poche les trois
 Le soleil avait disparu derrière une bande de
 cyprès : Majorel poussa la porte de la chapelle. Il
@@ -437,7 +434,6 @@ pareil à un homme qui sortirait d'un sépulcre où on
 l'aurait enfermé vivant. Je n'avais jamais entendu
 un son, senti une fleur, tâté une forme heureuse. — 1e
 Tous mes sens s'ouvrent à la vie : ilme sembleque
-je vois. 48 à
 Zachée : Vous voyez bien. La nature l'enveloppe :
 de ses maléfices. Reims écrivit à madame Saint-Adjutory : « Revenez vite. La foi de Clément chancelle à
 comme une église où l'on ne dit plus la messe depuis
@@ -445,8 +441,6 @@ des siècles. »
 Majorel et Clément durent revenir. : 000
 ÿ — Clément, ta mère arrive ce soir par le paques
 bot des Indes, : FR
-
-Ent Va * CET
 
 { la lumière
 Majorel et Clément rencontrèrent l'abbé sur le
@@ -504,7 +498,6 @@ reproché, en toi-même, det'avoir abandonné? \ 14
 la lumière
 — Mère, n'évoquez pas les anciens souvenirs.
 — Évoquons-les, au contraire, pour relier par eux (
-le présent et le passé. Il n'y a qu'un instant, dans
 le bateau, tu aurais pleuré si tu avais connu ma dé-
 tresse. J'avais peur de-ne retrouver en toi qu'un
 étranger. Je ne pouvais chasser cette pensée qui
@@ -574,7 +567,6 @@ descendons dans les cabines — il se fait tard.
 
 — La nuit doit être pleine d'étoiles ?
 
-Le Gérant : CHARLEs PÉcux
 Ce cahier a été composé par des ouvriers syndiqués
 
 Suresnes. — Imprimerie G.-A. Riciann & Compagnie, 9, rue du Pont, —

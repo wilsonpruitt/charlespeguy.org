@@ -7,38 +7,8 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 48717
 ---
-LE PTRER LOT LR RSR HMS Nu ee Ou
-| PREMIER CAHIER DE LA SIXIÈME SÉRIE À ci
-TEXTE SANS LOMMEN: AIRES et
-| AO. i6 |
-vi | CAHIERS DE LA QUINZAINE è
 ; ne de paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée …
-
-DR UN Mi TS ere Po Mets ER FIVE
-Lee LE SERGE FRITES He EE :
-LTÉSRN ONE CH Er X te De in des 7 2
-2 VERRE ae ee LE Re,
-ES 4 ka le] Sr 2
-| T2 Are 1 PAR RRS
-Les D car
-
-Cia ra Le D'ART LAEE Vars k
-pi céter VE US - PA d AT LU Ce 08 DA
-D bn NI x AP ES
-RARE Ne QE LE AN SNEUIR SEE ee PE A es a PA
-
-Prut Ne + L'tSA i THON LR FA TRIER
-PNR ENS RS Nate SUR D ERRIRTE An à 4,
-| SES MIT ; CALE. 0 Mise TRIER
-fe UT IERSSSS Ta Re RE
-ne aux EAN PRE MNCU A ESA sie 5 SUR 16% AE ds
-
-TER KA ze AVE Ra RE AN SR nt FN RUES LR NE e 4 ÈS 4
-214$ Han s) AU DS UR 4e] Que D USER RL:
-| 11e RSR 0 Fra f + SUR ÉNRE
-Eva IVe | EAN n À » At EN 40 L eu NT)
-| SASRESS NA ee M or
 
 Nous envoyons ce catalogue analytique sommaire à
 nos abonnés, nous le présentons au public en toute
@@ -124,7 +94,6 @@ plusieurs courriers, nous avons donné autant de commencements.
 
 J'ai fait de mon mieux; on me pardonnera les inévitables imperfections.
 
-| Charles Péguy
 les Que tout honnête homme aux mains de qui viendra
 ce catalogue le lise donc, sans arrière-pensée, sans
 5 pensée antérieure, comme entrée en connaissance.
@@ -183,25 +152,10 @@ Nous présentons ce catalogue analytique sommaire
 au public en toute confiance, en toute simplicité, en
 toute sécurité.
 
-Le gérant
-
-de 19914 ete LOREV EEE : D: ha a È
-te ‘Ne hi #1 tv
-HATONES L ‘ À PAT New ÿ NAME
-; S'ÉES ONE Mes I VE MER
-
-| ; MES PRES ATEN
-pe Et
-| « ATEA
 4 4 . 4
-
-» à . j Ke Ex M à 1 rs tu de
-ré PRE : À er HART) CE
-#1 L } Pa r * 4 d A, 4 + |
 
 antérieures à la fondation des cahiers
 
-MARCEL ET PIERRE BAUDOUIN. — Jeanne d'Arc,
 drame en trois pièces ; Domrems ; les batailles ; Tiouen ;
 décembre 1897, un volume grand in octavo de 752 pages ;
 
@@ -210,17 +164,13 @@ PIERRE DELOIRE. — De la Cité Socialiste, — août
 PIERRE BAuDouIN.—Marcel,premier dialogue de la cité
 harmonieuse, — un volume grand in octavo, 228 pages,
 juin 1898, éditions de Georges Bellais; deux francs
-JÉROME Er JEAN THaRAuD. — Le Coltineur débile,
 — un beau volume in-12, carré, de 116 pages, avec une
 lithographie de HENRY DE Groux, dédié à Lucile de
 Châteaubriand qui mourut d'avoir aimé son frère, épi-
 
-# cahiers antérieurs
-
 4 sodes l'Échafaudage, la Merveille, sur les routes, la lu
 + Détresse ; éditions de Georges Bellais, Paris, hiver 1898, “
 
-à 4 Jérome Er JEAN THaRAUD. — La Lumière, — un
 4 cahier de 96 pages; épigraphe : Qui perd les yeux perd
 
 4 la beauté de l'Univers et reste semblable à un homme qui "
@@ -245,13 +195,11 @@ vs marqué trois francs, ce volume est en voie d'épuise-
 
 be ment; chacun des derniers exemplaires \ sept francs
 
-F $ Romaix RoLLax ». — Le Triomphe de la Raison,
 MEL drame en trois actes, — représenté pour la première fois
 ‘4 à Paris, sur le théâtre de l'Œuvre, le 21 juin 1899; épits _ graphe : Instituons une fête plus touchante, la fête du
 Fee malheur. Les esclaves adorent la fortune et le pouvoir. |
 L Nous, honorons le malheur. Robespierre, 7 mai 1994:
 
-v Le rh NPA) :  EERMRERURUR
 la scène à Paris et en province, en juillet-août 1593;
 | | éditions de la revue d'Art dramatique, où achevé d''im- te
 [M primer le 20 octobre 1899, un volume de 92 pages, in-16,
@@ -264,7 +212,6 @@ la scène à Paris et en province, en juillet-août 1593;
 | Georges Bellais, un beau volume grand in octavo, carré, k
 mue 128 pages, avec une lithographie de Hexry DE Fa:
 | -Groux, fini d'écrire à Paris fin mars 1898, fini d'im- #
-# >. È
 | _Jgax Jaurès. — Action Socialiste, première série,
 Mu — un fort volume in-18, carré, de 560 pages, éditions de : ,
 | Ge orges Bellais, le Socialisme et l'Enseignement, le Dee
@@ -317,8 +264,6 @@ Ex ‘ La Jeunesse pensante et le Peuple;
 
 #4 L'esprit des paysans ;
 
-| : Les Universités régionales;
-
 La réforme du baccalauréat;
 
 L'action cléricale et l'Enseignement;
@@ -327,7 +272,6 @@ Fin d'année ;
 Le Pape des ouvriers ; 5
 Néant du Catholicisme social;
 L'Instruction morale à l'école;
-La Question religieuse;
 La Laïcité de l'Enseignement ; ;
 Les libertés du personnel enseignant. — Interpellation
 
@@ -335,13 +279,9 @@ L'Enseignement laïque et l'enseignement clérical;
 La crise de l'Université;
 
 Le Socialisme et les Peuples
-La Paix;
-Les Alliances européennes;
-Les Écoles militaires ;
 La Loi militaire égale pour tous;
 En revenant du régiment;
 Paix et revanche ; !
-Un discours de M. de Bismarck;
 La Démocratie française en Europe;
 Nos camarades les socialistes allemands;
 La Conférence de Berlin;
@@ -350,28 +290,14 @@ La France et le Socialisme;
 Armée et diplomatie; è
 Les marins russes à Paris ;
 Aux pays annexés ;
-L'armée démocratique ;
-Les compétitions coloniales;
-Le tsar à Paris ;
-Les massacres d'Arménie;
 La guerre de l'Indépendance crétoise ;!
 L'alliance russe et la réaction;
 La guerre hispano-américaine ;
 Fashoda, l'Angleterre et la paix;
-L'action internationale.
-
-|
-
-ti À CAHIERS DE LA QUINZAINE .
-
-|: 114
 
 LT Premier cahier, du 5 janvier 1900, un cahier jaune
-nn de 144 pages :
 
 100 Lettre du Provincial; de la Province, jeudi 21 dé-
-
-RU à Le « Triomphe de la République »;
 
 AU L'affaire Liebknecht : un incident au premier congrès
 TE Liebknecht ; compte rendu ofliciel de cet incident; docu-
@@ -381,7 +307,6 @@ Ex. 1899, 26 octobre 1899; traduction de ces trois articles; la
 À #4 \ traduction de ces articles dans l'Action française, numéro 10,
 fs ns du premier décembre 1899 : W. Liebknecht et l'affaire
 4 À Dreyfus; un article de la Libre Parole, mardi 5 décembre
-ÿ Va € _ 1899, W. Liebknecht et l'affaire Dreyfus ; un article de La
 À 2 ‘na Petite République, lundi 11 décembre, l'article de Liebknecht;
 
 un incident au punch de Saint-Mandé, d'après la Petite : +
@@ -452,7 +377,6 @@ k une rectification de M. Gabriel Bertrand; et une rectification de M. Gabriel M
 i filles mineures et des femmes dans les établissements
 . + industriels; séances du mercredi 20 et du jeudi 21 décembre
 
-| TROISIÈME CAHIER DE LA PREMIÈRE SÉRIE ES
 1899; compte rendu emprunté au Journal ofjiciel; plu- de
 sieurs discours de M. Vaillant et de M. Millerand, détail à
 des scrutins pour les députés socialistes; 6
@@ -465,7 +389,6 @@ République du samedi 13, le discours de M. Bourgeois;
 marqué un franc cinquante, ce cahier est en voie
 d'épuisement; chacun des derniers exemplaires
 Troisième cahier, du 5 février 1900, un cahier jaune
-de 144 pages :
 Pour et contre le socialisme : la liberté par l'étude,
 discours prononcé par Anatole France à l'inauguration
 de l'Émancipation, université populaire du quinzième
@@ -666,7 +589,6 @@ marqué o franc 80o,ce cahier est en voie d'épuisement;
 chacun des derniers exemplaires huit francs
 
 Sixième cahier, du 20 mars 1900, un cahier jaune
-de 72 pages :
 
 De la grippe ; inclus Prolétariat et science, allocution
 
@@ -675,7 +597,6 @@ De la grippe ; inclus Prolétariat et science, allocution
 he premier et deuxième arrondissements, texte emprunté
 13 5 à la Petite République datée du mardi 6 mars; et :
 44 dans la même Petite République un article de Jaurès,
-| FX Universités populaires;
 10 La Consultation internationale ouverte à la Petite Répuie blique sur l'A ffaire Dreyfus et le cas Millerand, suite: dans
 ve la Petite République du dimanche 22 octobre, notice, réponse “
 ni de Tom Mann, datée de Londres, septembre 1899, adressée
@@ -696,8 +617,6 @@ Le Singer, adressée chers camarades; dans la Petite Répu-
 , : marqué 0 franc 80, ce cahier est en voie d'épuisement;
 chacun des derniers exemplaires huit francs
 Fr Septième cahier, du 5 avril 1900, un cahier jaune
-mé de 72 pages :
-| Annonce au Provincial;
 
 Toûjours de la grippe ; Û
 La dernière préparation et la tenue du congrès socialiste ë
@@ -742,7 +661,6 @@ x Liebknecht adressée mes chers amis ; notice inédite, réponse
 :44 inédite du docteur Charles Schidlowski, adressée chers
 110 camarades ; notice inédite, réponse inédite du docteur
 3 Jérôme et Jean Tharaud, la lumière, deuxième partie,
-“2 le magicien ;
 QE marqué un franc, ce cahier est en voie d'épuisement ;
 É te chacun des derniers exemplaires huit francs
 Le: Neuvième cahier, du 5 mai 1900, un cahier jaune de
@@ -755,8 +673,6 @@ De 120 pages, bon à tirer du mardi 8 et du jeudi 10 mai:
 ù Seine, et sous les auspices du Groupe d'Etudiants
 DE discours du citoyen Vaillant; conférence du citoyen
 4 Lafargue; discussion de la conférence; incidents; compte
-
-DIXIÈME CAHIER DE LA/ PREMIÈRE SÉRIE nf
 
 Jérôme et Jean Tharaud, la lumière, troisième partie,
 Timor, et quatrième partie, les ténèbres ; ;
@@ -849,10 +765,8 @@ de cette première série, fut republiée en un tirage à
 part, une piqûre de 1 6 pages, aujourd'hui complètement
 épuisée, et qui n'est pas même en vente dans les collections, complètes, de la première série.
 
-ni
 ‘18 Premier cahier de la deuxième série, un cahier jaune
 à W de 76 pages, bon à tirer du jeudi 29 novembre 1900 :
-Dit Ajournement;
 SEEN Nos annonces; nos comptes rendus;
 ER DE École des Hautes Etudes Sociales, école de morale,
 Lu s école sociale, école de journalisme, 1900-1901, 16, rue
@@ -864,8 +778,6 @@ _ lundi 12 novembre 1900, pour l'inauguration des locaux
 FL et pour l'oyverture des cours;
 is marqué un franc, ce cahier est en voie d'épuisement;
 ès chacun des derniers exemplaires douze francs
-
-; Salomé VERS L'ACTION
 
 Deuxième cahier de la deuxième série, un cahier |
 blanc de 120 pages, fini d'imprimer le 17 décembre 1900:
@@ -917,12 +829,10 @@ a É la République, — organisée avec le concours de la Presse
 7% socialiste au profit du Congrès international de 1900;
 # programme ; conférence donnée ce jour par Jean Jaurès,
 dl le théâtre social ; (
-| : Couverture :
 
 ‘3 A nos anciens et à nos nouveaux abonnés
 Ki nous ne donnons
 
-“ ni le cours de la Bourse
 1 \ ni un roman de Sienkiewicz
 Ne ni une cave à liqueurs
 ul ni un merveilleux écrin
@@ -1053,7 +963,6 @@ Au — Je vous nomme, lui dis-je, inspecteur général des
 à hommes et des événements pour les cahiers.
 | — J'accepte, Loti fera la littérature et je ferai ce que je
 Nous publions aujourd'hui les deux premiers courriers :
-ù Mon cher Péguy
 Voici des notes, faites-en ce que vous voudrez. Elles sont
 exactes autant que je l'ai pu. J'ai supprimé les accusations
 personnelles que nous ne pouvons peut-être pas nous per-
@@ -1088,8 +997,6 @@ Septième cahier de la deuxième série, un cahier jaune
 
 * de 72 pages, bon à tirer du samedi 2 mars 1901 :
 
-où il y a un recensement et un appel de l'administration ;
-
 Librairie des cahiers ; annonces de librairie :
 
 Pour et contre Diderot, confrontation : dans {a Petite
@@ -1110,7 +1017,6 @@ von primer du samedi 2 mars 1901 :
 119 marqué deux francs, ce cahier est en voie d'épuime 14 sement ; chacun des derniers exemplaires huit francs
 moi . Neuvième cahier de la deuxième série, un cahier
 pur jaune de 72 pages, bon à tirer du mardi 19 mars 1901 :
-| THON
 4 Intellectuels et socialisme : une contribution de
 ‘ M. Paul Mantoux, datée de Paris, ce premier février
 pe 19017 ; une contribution de M. Charles Guieysse;
@@ -1120,9 +1026,6 @@ qi marqué un franc, ce cahier est en voie d'épuisement ;
 ne chacun des derniers exemplaires huit francs
 
 DE du même quelques exemplaires sans couverture, l'un
-ni
-
-DIXIÈME CAHIER DE LA DEUXIÈME SÉRIE de
 
 Dixième cahier de la deuxième série, un cahier jaune
 de 72 pages, bon à tirer du jeudi 4 avril 1901 :
@@ -1135,20 +1038,11 @@ universitaire en faveur des étudiants russes ; la crise
 des universités russes ;
 
 Aulard, Histoire politique de la Révolution française,
-Origines et Développement de la Démocratie et de la
 République, 1789-1804, extrait de l'avertissement ;
-
-Nos annonces :
 
 Les Journaux pour tous; e
 
-La Propagande socialiste :
-
 Société des Visiteurs;
-
-Le Mouvement Socialiste ;
-
-La Revue d'Art dramatique ;
 
 Société nouvelle de librairie et d'édition ; =
 
@@ -1164,7 +1058,6 @@ ae Librairie des cahiers;
 ‘ce Collège libre des Sciences sociales, fondé en 1895,
 Kat sixième année : 1900-1901, rue Danton, à Paris (entrée :
 He 28, rue Serpente) ; programme des cours ; certificat
-#4
 Re Couverture : la révolution sociale sera morale owelle ,
 1108 ne sera pas ;
 Hi: marqué un franc, ce cahier est en voie d'épuisement ;
@@ -1172,9 +1065,7 @@ ARR chacun des derniers exemplaires douze francs
 | ï b! Douzième cahier de la deuxième série, un cahier
 1 : 18 jaune de vi + 208 pages, bon à tirer du mardi 11 juin,
 |. 82 fini d'imprimer du jeudi 13 juin 1901:
-|"
 | (1 ANTONIN LAVERGNE. — Jean Coste ou l'instituteur
-|), 10 : ra ER
 pe de village; — octobre 189/4-juin 1895, Évreux ;
 ee une préface de l'éditeur ;
 |: #0 Si nos abonnés veulent bien lire d'un esprit non prévenu,
@@ -1186,8 +1077,6 @@ i bi ils verront que l'auteur a très honnêtement mis son
 | FRE se demandent s'il entre ou n'entre pas dans les formules
 ‘ des docteurs et dans les motions des congrès seront ici
 |: 16 déçus. Nous les avertissons qu'ils seront toujours déçus par
-
-voue ces LYON EL + l DEN PR LA da à
 
 l'institution de nos cahiers. Justement parce que nous
 respectons nos convictions, nous éviterons scrupuleusement
@@ -1275,8 +1164,6 @@ hi ordinaire des actionnaires du Palais du Peuple, tenue le
 Ra: seil d'administration, extrait, signé pour le Conseil d'admi-
 
 {: : nistration, le dirécteur, Georges Deherme ; une déclaration
-
-|
 
 publiée dans la Coopération des idées du samedi 15 juin 1901,
 transformation de la Coopération des idées, signée Georges
@@ -1385,8 +1272,6 @@ frères, Ssténographes habituels du Parti socialiste français,
 en avaient établi par nos soins la sténographie.
 
 Nous avons publié cette sténographie comme les sténographes nous l'ont fournie. M. Hubert Lagardelle a revu le
-
-une
 
 É > texte. M. Sorel a bien voulu revoir les épreuves et annoter.
 13 Mais ils ne se sont proposé que de rester fidèles à la sténoTics graphie, que nous avons voulu éditer en véritables histo11e 4 riens. Pour la même raison nous avons évité de communiER quer aux orateurs la sténographie de leurs discours.
@@ -1547,7 +1432,6 @@ ph Jaurès ; donne lecture d'une lettre du camarade Katayama,
 à éditeur au Japon du Monde socialiste; enthousiasme; Jaurès ;
 à \ commente; à l'heure même où l'Extrême-Orient est le
 
-| CONGRÈS DE PARIS 1900 |
 théâtre de la guerre, il est consolant de voir que même là, |
 l'esprit internationaliste s'éveille; Troelstra; hollandais; À
 
@@ -1580,8 +1464,6 @@ a que d'habitants de cette localité qui sympathisent avec
 | du prolétariat ; l'autre, de l'organisation ouvrière englobant
 
 des ouvriers de toutes les professions, dans tous les quartiers de Saint-Pétersbourg; Xnudsen ; danois; la révolution
-
-b de 1848; retentissement ; la Commune de Paris en 1871;
 
 | retentissement ; Daszynski; polonais ; nous voulons la paix
 
@@ -1634,7 +1516,6 @@ Deuxième journée; séance du lundi 24 septembre 1900 ;
 matin; présidence de Singer; ici commence la sténographie; Singer; bureau définitif ; délégués français ; délégués
 | aux commissions; Furnémont; proposition adoptée; Singer; deux dépêches; une de Nimes, Maison du Peuple;
 Hi deuxième, télégramme de Carmaux, militants socialistes;
-# 5
 
 Fribourg ; proteste contre méthode de travail proposée par
 le bureau ; Singer ; propose de rejetet la proposition Fribourg; proposition du bureau adoptée à l'unanimité ;
@@ -1727,8 +1608,6 @@ Fe ceux qui auraient pu être délégués à ce Congrès sont des
 4 candidats qui font la guerre contre ia guerre; Karpeles;
 
 4 46
-
-| CONGRÈS DE PARIS 1900 vu
 
 \ pour l'Autriche, c'est la même chose que pour l'Angleterre :
 
@@ -1857,7 +1736,6 @@ LEUR chose esprit pratique et organisation que trouve en Angle-
 È vi de terre, quelque chose esprit vif et brillant que trouve en
 4 1 (XX France; Singer ; un télégramme regrets socialistes roumains;
 À 1 Jeunes Gardes belges ; quête pour grévistes Giromagny;
-#, \
 | 4 ÿ Troisième journée; séance du mardi 25 septembre 1900;
 LE 1 matin; Andrea Costa président; Hyndman assiste; Furné-
 44 mont ; dépêche socialistes hollandais, espagnols; Costa; tous
@@ -1869,8 +1747,6 @@ Se ; Van Kol; Van Kol; unanimité dans la commission sur prinh cipe utilité in�
 Ji ù traduire en actes les résolutions des Congrès ; comme la lutte
 devient de plus en plus acharnée de la part de l'Interte nationale des capitalistes, il est urgent d'organiser l'Interr WE nationale du prolétariat; agiter les masses profondes ; propa-
 } 4 gande gigantesque; faire dominer la volonté du prolétariat;
-
-CONGRÈS DE PARIS 1900 ve
 
 organisation des Congrès; bon travail; facilités aux délé-
 gués; exécuter les résolutions; formulera ordre du jour
@@ -1944,7 +1820,6 @@ gera le Comité international; yndman; honneur de pro-
 2 facilement accessible à tous ; Maison du Peuple excellente
 
 ,
-#0 +
 
 ,
 témoignage de sympathie vaillants camarades belges;
@@ -2017,7 +1892,6 @@ par Congrès précédents; journée légale de huit heures; :
 mais provisoirement peut légiférer sur journée plus longue; PA
 par les luttes politiques et syndicales réunies; texte de la #
 résolution; citoyenne Sits:; pour la limitation légale de la
-| journée de travail; il n'y a pas de travail libre s'il n'y a
 pas de liberté économique du prolétariat; base de toute Fe
 intellectualité, de tout progrès de la classe ouvrière; toutes
 les libertés politiques et économiques suivraient ; principe
@@ -2407,7 +2281,6 @@ Ki 3 el que j'avais proposé, moi, une motion devant le Congrès
 HS notre ami Vandervelde, ce serait le prolétariat qui s'empa4t D ÿ rerait de la maison et qui dirait à la bourgeoisie : allezsi 104 vous-en ! je crois que la parole a trahi la pensée de notre
 f 15 : ami, qui connaït si bien l'esprit de notre parti socialiste : .
 k HER j lorsque le prolétariat se sera emparé de la société humaine,
-a a. { il va chassera pas la bourgeoisie et il ne mettra personne à
 ‘1 FR la porte ; le socialisme poursuit la lutte de classe au nom des
 QE: PA n travailleurs mais pour la rédemption de l'humanité entière!
 4 4 fs Vandervelde ; parlé exclusion non société, mais gouverne-
@@ -2521,8 +2394,6 @@ libérale elle-même reconnaîtra son impuissance à se sauver
 sans le concours des prolétaires organisés, ou lorsque la
 force du prolétariat sera telle que son abstention gouver-
 
-À w Fe J LE Foi VoV k: un !.: NEA NT MN EC LAPS
-| Sin NS de AE
 | TS catalogue analytique sommaire :
 [3 nementale créerait un si grand vide que dans ce vide,
 ‘2 comme dans un abîme, la vie politique du pays dispa-
@@ -2579,7 +2450,6 @@ beaucoup plus fortes, elles sont dans la solidarité de classe,
 dans la conscience de classe du prolétariat tout entier; d'un ñ
 autre côté, la situation quant aux travaux d'un Congrès
 international a beaucoup changé par la résolution même
-qu'on a votée à ce Congrès : la constitution d'un secrétariat A
 international et la création d'une commission interparle- ï
 mentaire; ces deux organes de l'internationalisme prolétarien vont se charger de beaucoup de travaux qui, jusqu'ici,
 étaient l'objet des sessions périodiques du prolétariat
@@ -2587,7 +2457,6 @@ international; étant donnée cette situation, il se produit un
 amoindrissement du travail et il n'est plus nécessaire que \
 les Congrès internationaux siègent aussi souvent qu'autrefois; puis, j'estime qu'il ne peut pas entrer dans la tâche
 
-di ont ÿ TE
 | 18
 |: d'un Congrès international de s'immiscer dans les petits
 | à ‘#4 détails du mouvement socialiste des différentes nationalités :
@@ -2621,7 +2490,6 @@ VA élimination complète; examen et approbation des organiNC sations régionale
 | AM groupe engagé; avec Kautsky, avec majorité neuvième comfi At mission, entrée d'un socialiste isolé dans un gouvernement
 4e (re bourgeois ne peut être considérée comme le commcenement
 
-CONGRÈS DE PARIS 1900 pi
 de la conquête des pouvoirs publics par le prolétariat orga” ar
 nisé ; extrême importance, parce qu'au point de vue inter- : SYES
 national, elle va séparer ce qui doit être séparé : la prise GA
@@ -2642,7 +2510,6 @@ nous avons la réalité de ce pouvoir; au lieu d'être une cause
 de force pour ceux d'en bas qui luttent, il est une cause
 extrêmement importants; défaillances non pas seulement
 nationales ; partout un fléchissement ; le mouvement a perdu
-en profondeur et en conscience ce qu'il a gagné en étendue;
 première rectification indispensable pour la tactique inter- à
 nationale du prolétariat; mais non plus avec Kautsky, à
 ayant condamné théoriquement et expérimentalement le
@@ -2699,7 +2566,6 @@ De défendre, alors que dans les pays où cette promiscuité ne
 allemande, la bourgeoisie royale italienne, la monarchie
 constitutionnelle anglaise déposent ces mêmes crédits, les
 socialistes répondent : vous n'aurez pas un kilo de poudre, +
-pas un boulet, pas un soldat !. Il y a là la destruction de
 lInternationale que vous êtes en train de créer ici : avec
 un Millerand prussien, avec un Millerand italien, avec un :
 Millerand français, avec un Millerand anglais il n'y a plus
@@ -2839,7 +2705,6 @@ EURE d'une population coloniale; Quelch; c'est la Hollande qui a
 véiR majorité de la classe ouvrière anglaise; appel à ce congrès
 Re pour nous soutenir dans notre protestation contre la
 # guerre; on dit qu'à l'étranger on n'aime pas l'Angleterre;
-à y de
 
 eh bien, je suis convaincu que la classe ouvrière du conti- à
 
@@ -3054,7 +2919,6 @@ Fil 2 Ra | à la victoire ! dans trois ans, nous serons heureux de vous
 | Le | f d h souhaiter la bienvenue dans notre ville d'Amsterdam ; d'ici
 fi 0 là, chacun de nous aura continué son œuvre de propaji a gande dans son pays respectif: vous, dans la belle France,
 
-| DR +
 camarades français ; nous autres, dans la triste et brumeuse vi
 Hollande, nous traverserons les prairies, les arides 08
 bruyères pour aller porter la bonne parole, qui délivrera à ER
@@ -3086,7 +2950,6 @@ De la deuxième série nous avons formé des collections incomplètes mais conti
 Collections continues, complètes depuis le douzième ,
 cahier, inclus, de la deuxième série, c'est-à-dire compre-
 
-RNA ' PTE AL MA LEUR NE A nn LE Le
 bé nant les douzième, treizième, quatorzième, quinzième,
 :1ù et seizième cahiers de la deuxième série;
 ei collections en nombre restreint, chacune de ces collecse tions vingt-cinq francs
@@ -3100,17 +2963,12 @@ hi La deuxième série, au Provincial, publiée dans le
 20 et qui n'est pas même en vente dans les collections, comqi plètes, de la première série. ÿ
 111 50
 
-ne
-
-ADS mtre à APE RE 14 ” $: Ne ht me Cars - ‘e:
-ENTRE ete ent » fie L è " Le # pi}
 Premier cahier de la troisième série, un cahier jaune É
 de 72 pages, bon à tirer du mardi premier octobre “34
 Compte rendu de congrès;
 Attentats dans l Yonne, suite : "2%
 l'affaire du Pioupiou de l'Yonne, \5e
 Lt une mauvaise affaire pour les ë, A
-| 2 O1 CRETE Le
 EU 3 où l'administration universitaire, 4
 _ ayant cru lever un lièvre, leva un sanglier; inclus un es
 article de Sans-Patrie dans Le Travailleur socialiste, les TEE
@@ -3121,18 +2979,13 @@ marqué o franc 60, ce cahier se vend aujourd'hui ue
 un franc En.
 8 4
 
-rer PP ER RÉ EL A D'ACTE AS CRTC Man De A Pic
 FL: Deuxième cahier de la troisième série, un cahier
 120 jaune de 72 pages, bon à tirer du jeudi 17 octobre
-RE 1901; un franc
-4 CHARLES GUIEYSSE. — Les Universités Popu-
 | |:0RS laires et le mouvement ouvrier :
 | KT L'Université populaire institution ouvrière; la lutte
 | ‘4 de classe pour la liberté; l'Église et les U. P.; JU. P.
 ue Les intellectuels dans les U. P.; Yenseignement; :
 | FRE l'éducation artistique;
-#4 Vie et fonctionnement de l'U. P.; organisation inté-
-+: rieure; le cercle et l'U. P.;
 nuit L'avenir des U. P.; -
 He. Il est fort délicat de parler de l'avenir des U. P.
 ) 08 Que vont devenir les U. P. qui existent aujourd'hui tant
@@ -3149,7 +3002,6 @@ FE À : caprice de quelques hommes, parce qu'elle répond à un
 DE + mouvement historique réel, celui de la classe ouvrière
 É fÉ 52 montant vers la direction de la société, vers la liberté.
 
-je
 L'U. P. évoluera ; elle achèvera de perdre les caractères \\10)
 que lui a donnés la bourgeoisie; elle s'adaptera mieux à
 qu'aujourd'hui au mode de la vie ouvrière. Comment? }
@@ -3231,8 +3083,6 @@ F venir directement dans la conduite des U. P., lesquelles
 
 1 bué aux intellectuels isolés vis-à-vis de chaque U. P. : un
 
-| rôle consultatif.
-
 ‘4 Que la Société des U. P., sans prétendre à aucune direc-
 
 pre tion précise et immédiate, aide les U. P. de toutes les
@@ -3264,7 +3114,6 @@ paraît être de rappeler que l'union de toutes les forces peut
 et doit se faire sans servitudes nouvelles, que l'ordre et la
 méthode peuvent et doivent s'établir sans créer de nouvelles hiérarchies sociales, et que si dans le grand mouvement d''émancipation de la classe ouvrière, celle-ci perd un
 seul instant le souci de la liberté, le mouvement n'aboutira
-pas.
 
 au commencement du même cahier, Charles Péguy, |
 
@@ -3278,7 +3127,6 @@ l'enseignement primaire.
 
 L'enseignement supérieur, entendu à peu près au sens
 
-“à PER AR RE ae Ne D SPRINT SRE
 T4 usuel, commande l'enseignement primaire, et à plus forte
 4 raison l'enseignement secondaire, qui fait le trait d'union.
 4 Et de l'enseignement primaire à l'enseignement supérieur,
@@ -3291,7 +3139,6 @@ ci a celui qui fait passer avant tout la considération des
 $ È parce que, tout en formant des élèves, il commence
 D”: à leur enseigner à faire avancer la connaissance hu- ”
 0 L'enseignement supérieur ne reçoit aucun commande714 ment ; il se commande lui-même ; ou plutôt il n'est comRe mandé que par le réel dont il cherche la connaissance
-bEu vraie; il ne tend qu'à la recherche de la vérité dans la
 LE philosophie et dans les sciences ; à la limite, et rigoureu-
 ‘Tu Ù sement, il n'a pas à se préoccuper des élèves. Il ne tend qu'à
 14 ‘ faire avancer la connaissance que l'humanité peut avoir du |
@@ -3311,7 +3158,6 @@ ARE fait pour eux, puisqu'il est fait pour l'objet du cours.
 fi RRQ" que le professeur prononce la connaissance la plus exacte
 11100 qu'il pourra, scientifiquement, géographiquement, des hauji D 92 è
 
-UE Pre te UE NA CE AMEN
 teurs européennes réelles. Quand un philologue fait une 14
 leçon d'enseignement supérieur sur un texte ancien, il ne 8
 s'agit absolument que de reconstituer et d'interpréter, le (54
@@ -3357,7 +3203,6 @@ D. | nuances de l'art et de la vie. Mais nous croyons aussi que
 x de ces nuances recouvre une réelle rupture logique, morale,
 KL: et peut-être métaphysique. Dans la vie de tout homme
 4 intéressant, et à s'en tenir aux fonctions de la connaissance,
-3 il y a un moment où l'on cesse d'être un bon élève. Par
 1} l'histoire de la pédagogie nous connaissons qu'il s'en faut
 VMS de beaucoup que les meilleurs élèves soient devenus les
 4 meilleurs philosophes et les meilleurs savants. Par l'histoire
@@ -3417,7 +3262,6 @@ Ailleurs les hommes reçoivent l'enseignement primaire
 pendant l'enfance et l'adolescence, puis ils passent normalement à l'enseignement supérieur, s'ils y passent. Mais
 dans les Universités populaires les auditeurs qui reçoivent
 
-nue Fans A SPA LA At ET 3 Re à PU ATEN ER OR OR ir MECS :
 0 ‘ un enseignement primaire ne sont plus pour la plupart des
 4 HR Ÿ enfants ni des adolescents; ils sont des adultes, souvent
 y] 30 des vieillards. Ils ont tous recu le maître enseignement de
@@ -3425,7 +3269,6 @@ y] 30 des vieillards. Ils ont tous recu le maître enseignement de
 ‘4 ‘# A de la pauvreté. Ils en savent, en un sens, autant que leurs
 4:18 instituteurs et professeurs, ils connaissent comme eux le
 à 10 monde et le réel s'ils ont connu eux-mêmes l'amour et
-A0 la mort. j
 ei 0 à Dans les écoles primaires l'instituteur a sur l'élève cet
 (17 2 ‘0 avantage que son avance de savoir est doublée, autorisée
 à] A par une avance de vie. Dans l'université populaire l'insti-
@@ -3450,7 +3293,6 @@ ici 54) la politique; les affiches.
 de ë Un: cahiers à mesure que nous le pourrons. Nous n'introduite rons aujourd'hui la distinction de l'enseignement primaire
 JR D et de l'enseignement supérieur que pour demander non
 ne No: pas l'indulgence mais la patience de nos nouveaux abonnés
-Le ‘a È et de nos abonnés éventuels.
 (Me. Je n'ai jamais dit, mais je puis dire, à présent que nous
 M: Pa avons défini les mots, que nos cahiers font de l'enseigneOR ment supérieur. Que nous y réussissions plus ou moins, il
 ne it | appartient à l'événement de le dire. Mais telles sont nos
@@ -3503,7 +3345,6 @@ Hi du même cahier, neuf exemplaires sans couverture ;
 408 seront vendus l'un cinq francs
 1 20 Troisième cahier de la troisième série, un cahier
 : AS jaune de 72 pages, bon à tirer du samedi 26 octobre
-12 GEORGES SoRELz. — De l'Église et de l'État, —
 4 7h Beaucoup d'obscurités sont jetées sur la question du do-
 : maine ecclésiastique par suite de l'habitude que l'on a
 % prise de le confondre avec le domaine des particuliers; et
@@ -3519,11 +3360,9 @@ M d'administration intérieure ? La loi aurait raison de nous
 4 causons des dommages, il faut que nous puissions être
 ÿ 4 poursuivis et qu'on puisse faire exécuter les jugements. La
 50 54
-# “
 4 7 98
 .
 
-Lits TNA TA AR r AÉRRRESEEES PL d D ie UT:
 question est de savoir si, en fait, nos représentants donnent ï
 toute garantie aux gens qui peuvent avoir à plaider contre À
 nous. Nous sommes exposés à être quelquefois trompés '
@@ -3539,7 +3378,6 @@ seront vendus l'un cinq francs
 Quatrième cahier de la troisième série, un cahier
 jaune de cv + 276 pages, fini d'imprimer du jeudi
 Introduction, question de méthode, datée de Paris,
-Mon cher Péguy,
 Vous m'avez demandé de réunir pour les Cahiers de la :
 Quinzaine les études socialistes que j'ai publiées ces derniers
 mois dans la Petite République ; vous vous proposez d'adresser un exemplaire de ce volume à chacun de vos abonnés.
@@ -3574,11 +3412,8 @@ h He: pouvons pas éluder : et c'est l'éluder que d'y faire des ré-
 |: TE soi-même, que de répéter, en 1901, les réponses que firent,
 4 il y a un demi-siècle, nos aînés et nos maîtres.
 }: MY Fi j Il y à un fait incontestable, et qui domine tout. C'est que
-i\ M LE le prolétariat grandit en nombre, en cohésion et en con-
 (F4 ‘a science. Les ouvriers, les salariés, plus nombreux, plus
 ci di groupés, ont maintenant un idéal. Ils ne veulent pas seu-
-| 5 lement
-| \#
 ANT EUR Je m'arrête, mon cher Péguy, en me félicitant une fois
 APS Va de plus, quelles que soïent nos divergences en bien des
 it | RUES questions ou à raison de ces divergences mêmes, d'être en
@@ -3591,7 +3426,6 @@ Il y a onze ans, au moment où la démocratie socialiste A
 allemande élaborait son programme, le projet de pro- FU
 _ gramme qui devait être bientôt adopté à Erfurt fut soumis He.
 à Engels, l'ami survivant de Marx. Engels fit de graves 8
-objections à la partie politique de ce programme. Il la % É
 trouvait timide, inconsistante et inefficace. On parle, disait- 2174
 il, de suffrage universel direct, de referendum et d'initia- dr. ‘ |
 tive populaire. Mais à quoi cela peut-il servir tant que la "#18
@@ -3609,7 +3443,6 @@ publie la revue de Kautsky, la Neue Zeit : #4
 rités révolutionnaires; paroles de Liebknecht; Liebknecht et la tactique; « élargir, non resserrer »; le %
 socialisme et les privilégiés; les raisons de majorité ; 13
 grève générale et révolution; 4
-Le socialisme et la vie; m |
 De la propriété individuelle; les radicaux et la pro- ré F
 priété individuelle ; propriété individuelle et code bour- a
 geois; la propriété individuelle et l'impôt; la propriété k |
@@ -3664,9 +3497,7 @@ raison par la discipline qui fait la force principale des
 armées. C'est faire déraisonner la raison que de l'enseigner
 par les moyens militaires. La raison ne demande pas,
 n'accepte pas l'obéissance. On ne commande pas au nom
-de la raison comme on commande à la manœuvre. Il n'y a
 aucune armée de la raison, aucuns soldats de la raison, et
-surtout il n'y a aucuns chefs de la raison. Il n'y a même, à
 parler proprement, aucune guerre de la raison, aucune
 campagne, aucune expédition. La raison ne fait pas la
 guerre à la déraison. Elle réduit tant qu'elle peut la déraison par des moyens qui ne sont pas les moyens de la guerre,
@@ -3691,7 +3522,6 @@ j cahier de la troisième série n'a pas été réimprimé dans
 # Cinquième cahier de la troisième série, un cahier -
 # jaune de 72 pages, bon à tirer du jeudi 19 décembre
 ; GEORGES DELAHACHE. — Juifs ; — introduction du
-# gérant ;
 : Le mémoire que l'on va lire a été publié pour la pres à mière fois chez Ollendorff, en 1901. L'auteur l'avait écrit en
 | 5 1900, quand l'affaire battait son plein, quand elle finissait
 ? en effet. L'auteur est un Juif. Il a même un beau nom juif.
@@ -3732,7 +3562,6 @@ de Hervé : à bas la guerre; nos intérêts en Chine; au
 conseil général de l'Yonne; à quoi servent les armées
 permanentes; deux cas de refus de service militaire en
 Cahiers de la Quinzaine, 8, rue de la Sorbonne
-Mon cher Guieysse
 Nous avons des abonnés communs. L'un d'eux hésite
 à s'abonner à la troisième série des cahiers, qu'il aime
 beaucoup, parce que les cahiers, dit-il, ne lui profitent
@@ -3788,8 +3617,6 @@ h Notre abonné commun ne peut donner ses cahiers à lire
 
 Chine, l'histoire d'Hervé, le Danton même, en les y aidant
 beaucoup. Il peut leur donner à Kre nos Mémoires et
-
-|
 
 Dossiers. Je m'en tiens à ces quelques exemples, ne voulant é
 pas refaire ici mon catalogue. à.
@@ -3968,7 +3795,6 @@ Re un effet de venue; ils parlent pour dire, agissent pour
 ni :  déclament ni ne posent; ils ne quêtent pas l'applaudisLes sement ; tout se passe, en un sens, comme si le spectateur
 ë n'était pas là.
 : Je ne veux pas entrer incidemment dans le grand débat
-50e du classique et du romantique, du classique humain et du
 “5 , romantique bourgeois. Mais dans les limites où l'on va
 Ve nous poser le problème, si l'on veut accabler pour les
 #3 à besoins de la politique Racine sous Hugo, Andromaque
@@ -4021,8 +3847,6 @@ article publié dans le même journal, numéro du samedi
 Félicien Challaye, Courrier d'Indo-Chine; un courrier
 _ daté de novembre 1901 ; un deuxième courrier daté de
 
-La Grève;
-
 marqué un franc, ce cahier est complètement épuisé ;
 : en dehors des collections complètes, il n'en reste aucun
 : exemplaire; il n'est donc mis en vente que dans les
@@ -4035,8 +3859,6 @@ BERNARD-LAZARE. — ZL'oppression des Juifs dans
 
 d l'Europe orientale, — les Juifs en Roumanie, — daté ‘
 
-| Janvier-février 1902;
-
 x Il y a seulement trente-cinq ans que, dans l'Europe occi-
 
 | dentale, les Juifs ont été émancipés complètement. Si, la
@@ -4044,7 +3866,6 @@ x Il y a seulement trente-cinq ans que, dans l'Europe occi-
 première, en France, l'Assemblée constituante avait, le
 27 septembre 1791, proclamé cette libération et fait un
 citoyen de l'esclave séculaire, ses droits ne furent définitivement reconnus qu'en 1860 en Angleterre, en 1864 en
-Allemagne, en 1866 en Italie, — en 1870 à Rome, — et
 en 1867 en Autriche-Hongrie. La conception théologique
 du déicide condamné à un éternel servage avait disparu
 pour faire place à une conception du droit indépendante
@@ -4114,7 +3935,6 @@ L tectionnisme chauvin. Seules, elles seraient capables de
 . faire aboutir l'antisémitisme théorique en le traduisant en
 
 Ë loi. L'Europe occidentale verra-t-elle un tel recul? Il est Ë
-À incontestable qu'elle y tend et, en 1901, on a vu la Diète
 > bavaroise adopter par 77 voix contre 51 la proposition
 
 3 d'un député du centre catholique, limitant le nombre des
@@ -4156,7 +3976,6 @@ en est qui soient indépendantes des changements à opérer "+
 
 dans l'état politique et économique de ces pays mêmes. Ê
 
-# * ä : “Del
 dans le même cahier, Georges Sorel et Charles Péguy, £
 Je forme une entreprise qui n'eut jamais d'exemple et dont
 l'exécution n'aura pas d'imitateur. Je vais montrer à mes
@@ -4263,7 +4082,6 @@ J'espère que ce livre, qui est plus qu'un beau livre, sera
 lu et apprécié comme il le mérite. Si les Universités populaires sont bonnes à quelque chose, qu'elles l'expliquent et
 en fassent ressortir les enseignements pratiques.
 
-|
 À Tout dans Jean Coste est sincère et vrai. Il serait vain de
 disputer si les misères de grand seigneur annoncées dans
 . les récitations de Corneille, sincères et vraies, sont pires
@@ -4301,7 +4119,6 @@ et les humbles. S'il y avait contrariété des personnages Ÿ
 à cornéliens aux hommes ordinaires, il nous serait impos- ?
 sible de nous retrouver en eux. Mais parce qu'ils sont nos 2
 4 représentants éminents, nous nous reconnaissOnS en eux, 4
-À et ils se reconnaissent en nous. é
 Ke Je n'opposerai donc pas la misère d'un Jean Coste aux
 
 misères cornéliennes, la misère misérable d'un Jean Coste de
@@ -4416,7 +4233,6 @@ semblait un aliment aussi indispensable à ma vie que le
 pain. — Aussi, combien fus-je troublé, en lisant chez celui
 que j'étais habitué à respecter et à croire, ces violentes
 
-Romain Rolland
 invectives contre l'immoralité de l'art! Je sentais bien 4
 pourtant que rien n'était plus pur que l'impression qui
 | vient de l'œuvre d'un grand artiste. Dans une symphonie
@@ -4457,7 +4273,6 @@ Oui, « Les produits de la vraie science et du vrai art sont
 les produits du sacrifice et non des avantages matériels ».
 
 124 5
-de
 
 — Et ce n'est pas seulement la morale, c'est l'art même qui :
 a intérêt à ce que l'art ne soit plus la propriété d'une <
@@ -4494,7 +4309,6 @@ somme de travail manuel, nécessaire à soutenir et à entretenir l'édifice soc
 assez écrasante pour empêcher les vrais artistes de faire
 leur art par surcroît ; mais elle suflirait à enlever aux faux
 
-Romain Rolland
 artistes tout désir de prendre sur leurs heures de loisir
 pour se livrer à une occupation intellectuelle, — Et combien l'art y gagnerait en santé !
 Goethe a dit quelque part : « À force d'écrire ou de lire
@@ -4644,7 +4458,6 @@ trouvera dans ces gaucheries mêmes quelque chose de
 voici bien longtemps que j'ai reçu cette lettre; mais j'en
 garde à celui qui l'écrivit, aussi vive qu'au premier jour, |
 ma reconnaissance de tout cœur pour sa bonté paternelle.
-, Romain Rolland
 Dixième cahier de la troisième série, un cahier jaune E
 de 48 pages, bon à tirer du jeudi 27 février 1902; il
 un franc F
@@ -4729,7 +4542,6 @@ lectuels répondent à cet appel. Ils vont au peuple sincè- n |!
 rement, sans arrière-pensée, parce que, eux aussi, Ont ]
 besoin de lui, parce qu'ils veulent lui confier ce qu'ils ont
 de plus précieux, les biens sans lesquels il ne vaudrait M |
-plus la peine de vivre. Ils voient ce qu'il y a d'absurde et 4}?
 - de monstrueux à entretenir de parti-pris, au sein d'une
 société, une armée de barbares qui peut l'emporter d'assaut dans un jour de fureur et d'ivresse. Pour sauver de la #
 civilisation ce qui pour eux vraiment la constitue, tout ce
@@ -4790,7 +4602,6 @@ l'idéal, s'il est vrai que l'idéal soit l'idée conçue dans son j
 rapport au possible, c'est-à-dire aux conditions qui per- É
 mettent de la réaliser. 3
 Le peuple ne demande pas aux intellectuels un idéal Er
-nouveau, il a un idéal, il y tient et il s'y tient; il leur ;
 demande une méthode et des moyens d'action. Grande “Æ
 serait l'illusion de ceux qui iraient lui parler du besoin de #
 croire et d'espérer : il croit et il espère. Mais il refuse de “
@@ -4814,4 +4625,3 @@ complir, la justice dans les rapports des hommes. Pour n |
 accomplir cette tâche, il n'a que faire de théologie, de n
 : métaphysique, de foi aveugle, il a besoin d'une intelligence & |
 lucide et d'une volonté ferme, des méthodes et des connais- |
-|

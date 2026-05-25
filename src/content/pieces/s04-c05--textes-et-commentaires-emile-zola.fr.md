@@ -17,12 +17,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 six cahiers de la deuxième et de la troisième série.
 Nous mettons ce cahier dans le commerce: nous le
 
-| ns PRE ACXAT CAN DAV À VAT OR UE
-FUEL ne ; à RAI
-#86 »: # iQ ; à » ê ir R al
-À S MERS DA et LT PRE À n RON
-y APE UN ec PH Lit à nl k V4 CNRS
-
 Pour paraitre en décembre '
 de l'Académie française
 Une plaquette petit in quarto carré, ornée de sept compositions de SreINLEN, dont un portrait d'Emile Zola,
@@ -37,14 +31,6 @@ au prix net de 20 francs
 
 12 collections d'épreuves d'artiste, signées, sur chine, au
 prix net de 15 francs
-
-di TUE i And EL EN mt 26 E RP : L'URT }} EU
-LENS De ane S 11 HAUTES
-ST ais rs Les È
-Fun LOC EN ne : “re
-+ TUE CE 4 Lit a fi +
-Ka 24 Hp RES ARS Des CCE dr er on
-| AMEN HAT EERE den TE AT A CES
 
 Émile Zola est mort le lundi 29 septembre 1902. +
 Ses funérailles ont eu lieu le dimanche 5 octobre au
@@ -606,7 +592,6 @@ de douleurs amassées. Je ne ferai pas à Zola le reproche, pudique ou perfide, 
 ses fresques. Trop osé, non. Pas assez plutôt, puisqu'il
 annonçait un cycle total. Après les flores du Paradou,
 les nourritures de Paris, les relents de l''Assommoir, les
-houiïlles de la Mine, le fumier de la Terre, le sang de la
 Débäâcle, et quoi encore? après ces orgies de nature
 épuisantes ou charmeresses, on souhaiterait une lu-,
 mière, un repos, je ne sais quelle porte entr'ouverte. Il
@@ -668,7 +653,6 @@ en elle il a mis tout l'espoir, toutes les chaleurs d'enthousiasme qu'il déniai
 beaucoup de gloire, et pour survivre dans le temps.
 Entin son effort, plus haut que son œuvre, commande la
 stupeur et le respect.
-# %
 
 Et nous arrivons à son Acte. Rien de plus logique, en
 un sens, que cette éclosion finale. Les études quotidiennes de Zola le prédisposaient à se passionner pour
@@ -726,8 +710,6 @@ toute action politique : il maintient les droits du solitaire, la sauvagerie de 
 sorte, nous en sommes tous restés debout. ;
 
 Et il en reste, lui, plus grand. C'est beaucoup, c'est
-
-di ie re EE e Lo La
 
 trop peu de dire que son œuvre impliquait un tel acte,
 qu'il n'a fait qu'appliquer sa méthode. Oui, certaine- ;
@@ -962,14 +944,10 @@ que Hugo ne fut jamais, un protagoniste. |
 
 Ces mêmes qualités nourrissent le roman, le poème
 
-; de Fécondite. |
-
 Le premier des Quatre Évangiles, le saint Évangile de
 Notre-Seigneur-Jésus-Christ selon saint Matthieu, com-
 
 (1) La revue blanche du 15 octobre 1899.
-
-#
 
 mence par le Livre de la génération de Jésus-Christ,
 fils de David, fils d'Abraham :
@@ -1059,8 +1037,6 @@ on est rigoureusement assuré que les enfants demanderont à la cité les moyens
 sait pas quel travail les enfants donneront à la cité. Il
 y a là évidemment un crédit accordé par la cité aux
 générations naissantes et croissantes.
-
-ni
 
 cinquième cahier de la quatrième série
 Zola n'a pas voulu, pour ainsi dire, que ce crédit fat
@@ -1195,7 +1171,6 @@ les germes, créait, enfantait, nourrissait. Et, pour l'éter- l
 nelle œuvre de vie, l'éternel fleuve de lait coulait par le |
 monde. » (3) Jamais sans doute un hymne aussi écla- |
 tant ne fut chanté à la gloire de Vénus perpétuelle, et |
-|
 
 près de cette ardente prière le Sacre de la Femme semblera un excellent exercice de bonne rhétorique. Pourquoi faut-il que les enfants nourris de ce lait, qui au
 commencement de ce livre bondissaient innocemment
@@ -1428,8 +1403,6 @@ motif ne consiste pas seulement en cette phrase fidèle, mais en
 tout un cortège de phrases ou identiques {A Chantebled, Mathieu et (
 Marianne fondaient, créaient, enfantaient.), ou apparentées.
 (2) Paul Brulat, dans Les Droits de l'Homme du dimanche 2 octobre. È
-|
-|
 
 poème, se sont ennuyés de ces recommencements.
 J'ai peur que ceux-là ne s'ennuient aussi des inévitables recommencements de la vie. « Deux ans se passèrent. »
@@ -1474,7 +1447,6 @@ qui serait la loi de la seule demande. Mathieu passe
 avec Séguin des contrats bourgeois, régis par la
 double loi de l'offre et de la demande. En bonne économie bourgeoise, et en bonne psychologie bourgeoise,
 le propriétaire ancien doit justement profiter de ce que
-à le nouveau propriétaire a de plus en plus le désir et le
 besoin de nouveaux morceaux pour faire monter de
 plus en plus ses prix. Commercialement, les territoires
 de chasse non achetés encore prennent de la valeur, |
@@ -1499,7 +1471,6 @@ décrire et à nous conter le malheur et le mal. Il excelle
 presque autant à nous décrire et à nous conter le bonheur et le bien. Mais presque partout dans son œuvre le
 bien et le mal, tous les genres du mal et tous les genres
 
-| du bien sont juxtaposés. Or ce qu'il y a de redoutable
 dans la réalité de la vie, ce n'est pas la constante
 juxtaposition du bien et du mal: c'est leur interpéné-
 tration, c'est leur mutuelle incorporation, leur nourriture mutuelle, et, parfois, leur étrange, leur mystérieuse
@@ -1574,8 +1545,6 @@ créateur a mis au monde plus de trois cents personnages, une arche immense où 
 peu, car je crois qu'on doit lire Fécondité sans aucune malice,
 finesse, ni symbole, et que « faire des enfants » y signifie simplement faire des enfants.
 
-où
-
 cinquième cahier de la quatrième série
 dable intensité de vie : hommes, femmes, enfants,
 bêtes et plantes. » J'avoue que cette postérité de Zola
@@ -1622,11 +1591,8 @@ Ayant acquis par son enseignement mélangé la notoriété puis la gloire litté
 dans des circonstances inoubliables, toute sa gloire et
 toute sa personne et toute sa force révolutionnaire et
 toute sa force de vérité, toute sa force de sincérité au
-service de la justice et de la vérité en danger. Alors il se
 
 (1) Il est intéressant de classer les romans de Zola d'après leur
-
-Son Excéllence Eugène Rougon. . . . . . 32.000
 
 cinquième cahier de la quatrième série
 produisit un phénomène extraordinaire et peut-être
@@ -1728,18 +1694,6 @@ et des conséquences que j'en espérais.
 
 (1) Lettre à la Jeunesse et Lettre à la France. é ‘
 
-|
-
-> CH ee £ ee Fe
-ALTO ete di PR LT Ni: En.
-VER j Î ke Pa ou PEN x RAT 4
-Le CRE là . Cyaiiee CARTE
-sa 2 F ALLO ce tas
-je ê AND 7AN NREEREZ 1
-1676 Per : je PER EE ARE
-FT NRA CM NE cn (Nes Das
-
-à M. FÉLIX FAURE, Président de la République
 Monsieur le Président,
 
 Me permettez-vous, dans ma gratitude pour le bienveillant accueil que vous m'avez fait un jour, d'avoir le
@@ -1860,7 +1814,6 @@ faire toucher du doigt comment l'erreur judiciaire a pu
 être possible, comment elle est née des machinations
 (4) La Vérité en marche porte : On ne saurait concevoir les expé-
 
-| LETTRE À M. FÉLIX FAURE
 du commandant du Paty de Clam, comment le général
 Mercier, les généraux de Boisdeffre et Gonse ont pu s'y
 laisser prendre, engager peu à peu leur responsabilité
@@ -1937,7 +1890,6 @@ Voilà donc, monsieur le Président, les faits qui expliquent comment une erreur
 et les preuves morales, la situation de fortune de
 Dreyfus, l'absence de motifs, son continuel cri d'innocence, achèvent de le montrer comme une victime des
 extraordinaires imaginations du commandant du Paty
-de Clam, du milieu clérical où il se trouvait, de la
 chasse aux « sales juifs », qui déshonore notre époque.
 
 Et nous arrivons à l'affaire Esterhazy. Trois ans se
@@ -2363,7 +2315,6 @@ Rome (106"° mille) un volume
 | Les œuvres de Zola paraissaient régulièrement en
 volumes de la Bibliothèque-Charpentier, aujourd'hui
 chez Fasquelle, éditeur; ces volumes sont uniformément
-|
 
 Histoire naturelle et sociale d'une famille sous
 le Second Empire
@@ -2433,7 +2384,6 @@ de tous iles crimes. Est-il bien nécessaire d'expliquer ici, en
 quelques lignes, mes intentions, d'écrivain? J'ai voulu
 peindre la déchéance fatale d'une famille ouvrière, dans le
 milieu empesté de nos faubourgs. Au bout de l'ivrognerie
-et de la fainéantise, il y a le relàchement des liens de la
 famille, les ordures de la promiscuité, l'oubli progressif
 des sentiments honnêtes, puis comme dénoùment, la honte
 et la mort. C'est de la morale en action, simplement.
@@ -2443,7 +2393,6 @@ Souvent j'ai dù toucher à des plaies autrement épouvantables. La forme seule 
 mots. Mon crime est d'avoir eu la curiosité littéraire de
 ramasser et de couler dans un moule très travaillé la langue
 du peuple. Ah! la forme, là est ie grand crime! Des dictionnaires de cette langue existent pourtant, des lettrés
-l'étudient et jouissent de sa verdeur, de l'imprévu et de la
 force de ses images. Elle est un régal pour les grammairiens fureteurs. N'importe, personne n'a entrevu que ma
 volonté était de faire un travail purement pbhilologique,
 que je crois d'un vif intérêt historique et social.
@@ -2541,8 +2490,6 @@ L'Argent, édition complète en un volume, 445 pages ;
 La Débâcle, édition complète, un volume, 636 pages ;
 Le docteur Pascal, édition complète en un volume,
 A la Mémoire
-de
-et à
 Je dédie ce roman
 qui est le résumé et la conclusion |
 de toute mon œuvre
@@ -2648,8 +2595,6 @@ misérable hystérique qui se plait à étaler des pornographies, » j'ai vainem
 s'oublier dans la pourriture humaine, mais qui s'y est
 oublié comme un médecin s'oublie dans un amphithéâtre. »
 
-où
-
 Remarquez que je ne demande nullement la sympathie de
 la presse pour une œuvre qui répugne, dit-elle, à ses sens
 délicats. Je n'ai point tant d'ambition. Je m'étonne seulement que mes confrères aient fait de moi une sorte
@@ -2684,8 +2629,6 @@ répondu cette parole profonde : « Vous avez un immense
 défaut qui vous fermera toutes les portes : vous ne pouvez
 causer deux minutes avec un imbécile sans lui faire comprendre qu'il est un imbécile. » Cela doit être, je sens le
 tort que je me fais auprès de la critique en laccusant |
-
-tue le He :
 
 d'inintelligence, et je ne puis pourtant m'empécher de
 témoigner le dédain que j'éprouve pour son horizon borné
@@ -2841,17 +2784,11 @@ Les Coquillages de M. Chabre;
 
 Contes à Ninon, édition complète en un volume,
 
-Ce volume contient :
-
 A Ninon, daté du premier octobre 1864 ;
 
 Le carnet de danse;
 
 Celle qui m'aime ;
-
-La Fée amoureuse ;
-
-Le Sang;
 
 Les Voleurs et l'Ane;
 
@@ -2861,26 +2798,15 @@ Aventures du grand Sidoine et du petit Médéric.
 
 un volume, 308 pages;
 
-Ce volume contient : |
 A Ninon, daté de Paris premier octobre 1874;
-Contes. — Un Bain;
-Les Fraises;
-Le grand Michu;
-Le Jeûne;
 Les épaules de la Marquise;
-Mon voisin Jacques; |
 Le Paradis des Chats; |
 La légende du Petit Manteau bleu de
 l'amour ;
-Le Forgeron;
-Le Chômage;
-Le Petit Village;
 Le capitaine Burle, édition complète en un volume,
 Ce volume contient, outre Le capitaine Burle :
 Comment on meurt ; ;
 Pour une nuit d'amour ;
-La Fête à Coqueville ;
-L' Inondation.
 Les Mystères de Marseille, édition complète en
 un volume, 448 pages;
 
@@ -2888,11 +2814,7 @@ Le Vœu d'une morte, édition complète en un
 
 Ce volume contient, outre le Vœu d'une morte :
 
-ESQUISSES PARISIENNES. — La Vierge au cirage ;
-
 Les Vieilles aux yeux
-
-Les Repoussoirs ;
 
 L'Amour sous les toits.
 
@@ -2908,30 +2830,19 @@ entre ces premières pages et celles que j'ai écrites plus tard.
 Mes Haines, Causeries littéraires et artistiques. —
 Mon Salon (1866). — Édouard Manet, étude biographique et critique, édition complète en un volume,
 
-Ce volume contient :
-
-Mes Hans. — Mes Haines ;
-
 Proudhon et Courbet ;
-Le Catholique hystérique ;
 La Littérature et la Gymnastique ;
 
 Les Chansons des rues et des bois;
-La Mère ;
 L'Égypte il y a trois mille ans;
 La Géologie et l'Histoire ;
-Les Moralistes français ; |
 Le Supplice d'une femme et les |
 Histoire de Jules César ;
 Mon SALON. — A mon ami Paul Cézanne;
-Le Jury ;
-Le moment artistique ;
 Les réalistes du salon ;
-Les chutes ;
 Adieux d'un critique d'art ;
 Épouarp MANET. — L'homme et l'artiste ;
 Les œuvres ; l
-Le public.
 Le Roman expérimental, édition complète en un k
 Cinq de ces études ont d'abord paru, traduites en russe,
 dans le Messager de l'Europe, une revue deSaint-Pétersbourg. t
@@ -2962,25 +2873,16 @@ prennent, peut-être trouvera-t-on là mes meilleures pages;
 car je suis plein de honte, lorsque je pense à l'énorme tas
 de rhétorique romantique, que j'ai déjà derrière moi.
 
-Ce volume contient :
-
 © Du Roman. — Le sens du réel;
-L'expression personnelle ;
 La formule critique appliquée au
 De la description ;
 
-IL. — Paul Alexis ;
-Les documents humains ; ;
 Les frères Zemganno.—1.La Préface;
-DE LA CRITIQUE. — I. — A M. Charles Bigot;
-IL. — A. M. Armand Sylvestre ;
-Le Réalisme ;
 Les chroniques de SainteBeuve :
 II. — Chaudes-Aigues et Balzac;
 UT. — Jules Janin et Balzac ; |
 Un Prix de Rome littéraire;
 La haine de la littérature ;
-La littérature obscène ;
 Les Romanciers naturalistes, édition complète en :
 un volume, 388 pages ;
 Ce sont encore ici des études qui ont paru d'abord en
@@ -2997,7 +2899,6 @@ son vrai sens, sa valeur exacte. Elle n'est, après les autres
 montravail complet. J'espère qu'on voudra bien comprendre.
 Il me reste à m'excuser de donner sur Balzac une étude
 
-# ,
 absolument indigne de lui. Ce n'est là qu'une compilation
 faite à l'aide de sa Correspondance. Je comptais reprendre
 ce travail, l'élargir en étudiant plus particulièrement en lui ,
@@ -3006,11 +2907,8 @@ manqué, comme d'autre part je ne puis décapiter mon
 livre en omettant Balzac, je me décide à publier les pages
 que j'ai sous la main, pour qu'elles marquent au moins, à
 notre tête, au sommet, la glorieuse place du père de notre
-Ce volume contient :
 
 Edmond et Jules de Goncourt :
-
-Les romanciers contemporains.
 
 Le Naturalisme au Théâtre, Les théories et les
 exemples, édition complète en un volume, 408 pages ;
@@ -3037,25 +2935,9 @@ théâtre, j'en accepte hautement la responsabilité,
 Comme mes articles étaient nombreux, j'ai dû les répartir
 en deux volumes. Le Naturalisme au Théâtre n'est donc
 qu'une première série. La seconde: Nos auteurs dramatiques,
-Ce volume contient :
-Les Taéorres. — Le Naturalisme;
-Les Jeunes ; |
-Les deux Morales ;
 La Critique et le Public ; |
-Des Subventions ; |
 Les Décors et les Accessoires ; |
-Le Costume ;
-Les Comédiens ; |
-Les ExempLes. — La Tragédie ;
-Le Drame ;
-Le Drame Historique ;
-Le Drame Patriotique ;
-Le Drame Scientifique ; /
-La Comédie;
-La Pantomime :
-Le Vaudeville ;
 La Féerie et l'Opérette ;
-Les Reprises.
 Nos Auteurs dramatiques, édition complète en un +
 Voulant réunir les articles de critique dramatique publiés ,
 par moi dans Le Bien public et dans le Voltaire, j'ai dù les )
@@ -3076,14 +2958,10 @@ en dehors de laquelle j'ai nié tout espoir de salut,
 
 Voici mes études. On les jugera.
 
-Ce volume contient :
-
 Alexandre Dumas fils ;
 Meilhac et Haléoy ;
 Théodore de Banville ;
 Edmond et Jules de Goncourt ;
-
-vu
 
 Documents littéraires, études et portraits, édition
 complète en un volume, 422 pages;
@@ -3097,11 +2975,8 @@ en Russie. D'ailleurs elles se tiennent, et même dans les
 plus lâchées au point de vue des documents et du style, |
 j'ai trouvé, en les relisant, des pages dont je désire affirmer
 les idées. |
-Ce volume contient : :
 Alfred de Musset ;
-Les Poètes contemporains;
 Dumas fils ;
-La critique contemporaine ;
 De la moralité dans la littérature.
 Une campagne, 4880-1881, édition complète en
 un volume, 408 pages ; à
@@ -3216,52 +3091,38 @@ le jeune écrivain qui nous sauvera de cette commère braillarde de la politique
 plantera dans les décombres le drapeau noble de la littérature, si rudement, que la France oubliera au moins pour un
 jour les torchons sales des partis !
 
-Ce volume contient :
 Un homme très fort. .
 Les trente-six Républiques.
 Le parti de l'indignation.
 
 L'encre et le sang.
 Impuissance de la critique. ;
-Un bourgeois.
 Une statue pour Balzac.
 Monsieur le comte.
-Le naturalisme.
 La fille au théâtre.
 Comment elles poussent.
 L'adultère dans la bourgeoisie.
 Le divorce et la littérature.
-Un cadavre récalcitrant.
 Edmond de Goncourt.
-La République en Russie.
-La politique expérimentale.
 Notre École Normale.
 Céard et Huysmans.
-Nos hommes d'esprit.
 Émile de Girardin.
 ï Hugo et Littré.
 Souveraineté des lettres.
 Alexis et Maupassant.
-Le suffrage universel.
 Pluie de couronnes.
 
-La démocratié.
 Nouvelle campagne, 1896, édition complète en un
 Tous les articles réunis dans ce volume ont paru dans le
 Figaro, excepté le dernier.
-Ce volume contient :
 L'Opportunisme de Léon XIII;
 La Vertu de la République ;
-Le Solitaire;
 A la Jeunesse;
-Le Crapaud;
 L'Amour des Bêtes;
 La Société des Gens de Lettres :
 Ce qu'elle est ;
 La Société des Gens de Lettres :
 Ce qu'elle devrait étre ;
-La Voyante;
-La Propriété littéraire;
 L'Élite et la Politique ;
 Pour les Juifs;
 Les Droiüs du Romancier ;
@@ -3341,7 +3202,6 @@ j'ai tenu à laisser le recueil à l'Histoire, à la Justice de
 
 Paris, le premier février 1901.
 
-Ce volume contient : ;
 M. Scheurer-Kestner, article paru dans le Figaro du
 Le Syndicat, dans le Figaro du premier décembre
 Procès-Verbal, dans le Figaro du 5 décembre 1897;
@@ -3406,7 +3266,6 @@ C'est pourquoi la lutte au théâtre est si difficile, si pleine
 de périls, lorsqu'on veut y apporter des idées neuves. La
 moindre blessure reçue devient mortelle. Une foule, toute
 une salle de quinze cents à deux mille spectateurs, vous
-ferme brutalement la bouche. Il n'y a qu'à s'incliner. On n'a
 pas à compter sur les réflexions du lendemain, la conquête lente des esprits, le mouvement de prosélytisme
 que détermine un livre original. Si l'on n'a pas du coup
 pris le public en masse, il faut renoncer à l'accoutumer, à
@@ -3421,7 +3280,6 @@ et de la critique à mon égard, c'est une appréciation plus
 nette et plus juste de ce que je suis et de ce que je veux.
 J'ai beaucoup d'entêtement et de patience. On a bien fini
 par lire mes romans, on finira par écouter mes pièces.
-Ce volume contient :
 pour la première fois à Paris, sur le théâtre de la Renaïssance, le 11 juillet 1873;
 Les Héritiers Rabourdin, comédie en trois actes,
 représentée pour la première fois, à Paris, sur le théâtre
@@ -3443,13 +3301,7 @@ donné tant de preuves. Notre seul souci a été d'aflirmer
 publiquement nos véritables amitiés et, en même temps,
 nos tendances littéraires.
 
-Ce volume contient :
-
 ÉmLE ZoLa. — L'Attaque du Moulin ;
-
-Guy pe MaupassanT. — Boule de Suif;
-
-Henry CéarD. — La Saignée ;
 
 Léon HENNIQUE. — L'afjaire du Grand 7;
 
@@ -3617,7 +3469,6 @@ Telles sont les œuvres de Zola publiées en volumes
 dans la Bibliothèque-Charpentier. Je ne veux pas faire
 des calculs puérils, mais nous devons compter, parce
 que ce compte avait beaucoup d'importance dans l'esprit
-de Zola, parce qu'il en a eu et qw'il en a beaucoup dans
 l'esprit du public, dans l'esprit de son public et de ses
 
 que la collection des œuvres de Zola dans la Bibliothèque-Charpentier se compose de quarante-sept
@@ -3636,11 +3487,8 @@ total de 164 francs 5o.
 Nous sommes en mesure d'envoyer les quarante-six
 ou à l'étranger pour la somme de 435 francs.
 
-| AUOT p ”
 Le catalogue de Fasquelle, février 1902, outre les
 mille que nous avons comptés, donne les millésimations
-Le Roman expérimental. . . . 7.000 —
-Les Personnages des RougonMACQuar ENT EE ete. (N 6:000
 Si nous ajoutons ce nouveau total de
 au premier total que nous avons obtenu de
 nous obtenons un total général de
@@ -3669,7 +3517,6 @@ Renée, pièce en cinq actes, représentée pour la première fois, sur le thé�
 dont une préface inédite de 32 pages, datée de Médan,
 mai 1887, Paris, G. Charpentier et Compagnie, éditeurs, 1887, deux francs cinquante
 Messidor, drame lyrique en quatre actes et cinq
-tableaux, poème de ÉmiLE ZoLA, musique de ALFRED
 BRUNEAU, représenté pour la première fois à Paris, sur
 la scène de l'Académie Nationale de Musique, le
 15 février 1897; le poème, un volume grand in-18 de
@@ -3693,7 +3540,6 @@ musique de ALFRED BRUNEAU, représenté, pour la première fois, à Paris, sur l
 Carvazno; le poème, un volume grand in-18 de
 66 pages, Paris, Fasquelle, 1894, un franc
 
-|
 À La République et la Littérature, une plaquette |
 in octavo de 40 pages, Paris, G. Charpentier, éditeur,
 13, rue de Grenelle-Saint-Germain, 1879, un franc
@@ -3708,7 +3554,6 @@ Humanité — Vérité — Justice. — L'affaire Dreyfus.
 — Lettre à M. Félix Faure, président de la Répu- |
 blique, une plaquette in octavo de 16 pages, Paris, |
 
-la u:5 1 fée
 Enfin le catalogue de Fasquelle, février 1902, porte les
 .
 sur papier du Japon, les deux volumes,
@@ -3756,24 +3601,6 @@ par Henry de Groux; cette lithographie se vend
 
 vingt francs; il y en « a une réduction, qui se vend
 
-a NE TLLTTE k CE ES UT niet OPEN Al
-# FROURS Ml FLE re PS are % e LE
-qe 6 RES ra il #}
-rr r'Yéden ta | + : y
-de AA À l Re on À AU ar
-AT AN Ut ESA : viu de
-
-17 Je it 1 Mt ER PAL fs A AE MINE lautY ñ DA
-Re vi LA EN CE ee 2
-£ Arts MRC # CE er a ete 1 FEU
-a LS Une ; LRU AS AR SEE HS du 7
-ARR". S du À DST IN DETTE ee fe LBÉTA SE
-vi RE LA A k VE RIAEES AE Ar MN Ur
-ME 2RATINUN Û k ee L'ART AIPOPRE AE ARQU AC ent 4
-AFTONT USE mr PURGE Ne Ù ï Û (22 ie vi Ÿ sé e
-À A A TAB MAN Ag) CNYAUETS See MA 20
-ke pr RS RE NN A AA Ne HE ‘RS ENER
-
 Discours de M-/Abel Hérmant. : .. .:... 08
 Gabriel Trarieux. — Émile Zola, homme d'action. . . . 92
 Émile Zola. — Lettre à M. Félix Faure, président de la
@@ -3784,10 +3611,6 @@ cinquième cahier le jeudi 4 décembre 1902
 à l'Imprimerie de Suresnes
 
 9, rue du Pont :
-
-ke RES 2 © de NAT
-| "À YOU LS : L NUS
-1e pet LE 0 PAL ul * :
 
 Vient de paraitre
 de l'Académie française
@@ -3805,7 +3628,6 @@ et sur chine;
 sur grand vélin des papeteries du Marais, contenant une
 aquarelle originale de lillustrateur, plus une: suite
 d'épreuves d'artiste signées, sur chine, au prix net
-de 500 francs
 °0 exemplaires — numéros 23 à 42 — sur chine fort, au |
 prix net de 225 francs -
 183 exemplaires — numéros 43 à 225 — sur vélin à la cuve
@@ -3817,7 +3639,6 @@ gravures, sur japon ancien, au prix net de 125 francs
 26 collections d'épreuves d'artiste, de toutes les gravures,
 sur chine, au prix net de 100 francs
 
-er ui, A on, LR
 Pour paraitre en décembre
 de l'Académie française
 Décoré de compositions en camaïeu et en noir
@@ -3834,7 +3655,6 @@ double collection d'épreuves d'artiste, sur japon et sur
 20 exemplaires — numéros 3 à 22 — sur japon ancien ou
 sur grand vélin, contenant une collection d'épreuves
 d'artiste, sur chine, de toutes les gravures, au prix net
-de 300 francs
 
 12 exemplaires —numéros 23 à 32 — sur chine fort, au prix
 net de 175 francs
@@ -3848,8 +3668,6 @@ Il sera tiré en outre :
 20 collections d'épreuves d'artiste de toutes les gravures,
 
 sur chine. ?
-
-ta
 
 à Nous avons reçu de M. Urbain Gohier, sur papier é
 _ libre, la rectification suivante : us DA
@@ -3921,7 +3739,6 @@ M. de Pressensé me faisait encore l'honneur de m'en
 assurer deux jours avant mon départ pour l'Amérique.
 
 Vous faites, d'autre part (page 55), un grief à
-M. de Pressensé de ce qu'il n'aurait « éliminé » de
 l''Aurore. Je ne puis croire qu'il ait trempé dans cette
 machination, pour la raison que voici.
 
@@ -3973,14 +3790,11 @@ reprendrais, avec l'approbation de mon loyal ami, f
 l'œuvre si nécessaire du nettoyage socialiste. Est-ce la }
 faute de mon loyal ami si je n'ai pas trouvé le filon ? l
 Veuillez agréer, monsieur, mes compliments les |
-6794 Le gérant : CHARLES PÉGUY À
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-NE AU pe ONE NO Va ie PTe TU
 Nous prions tous nos abonnés de vouloir bien acheter
 tous leurs livres à la librairie des cahiers. — Adresser ÿ
 les ordres et les mandats à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, Paris, d
-#
 
 Vient de paraître chez Fasquelle, en vente à la 1 h
 librairie des cahiers : ï
@@ -3993,7 +3807,6 @@ Table des matières : î
 l'île du Diable; À
 le petit bleu; à
 la double boucle;
-La collusion; \
 Appendice. — Henry et les cornets; {
 Boisdeffre et Picquart; 4
 Le testament de Picquart; à

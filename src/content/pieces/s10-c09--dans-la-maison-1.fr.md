@@ -9,7 +9,6 @@ wordCount: 58920
 ocrSource: "fr.wikisource.org — Dans la maison (Paul Ollendorff, 1908, Tome 3) 2026-05-25"
 translationNotes: "Full Wikisource Dans la maison; the original Cahiers de la Quinzaine serialized this volume across two issues (s10-c09 “. 1” and s10-c10 “. 2”). Stored here in full pending a future split at the historical part-break."
 ---
-
 J’ai un ami !… Douceur d’avoir trouvé une âme, où se blottir au milieu de la tourmente, un abri tendre et sûr où l’on respire enfin, attendant que s’apaisent les battements d’un cœur haletant ! N’être plus seul, ne devoir plus rester armé toujours, les yeux toujours ouverts et brûlés par les veilles, jusqu’à ce que la fatigue vous livre à l’ennemi ! Avoir le cher compagnon, entre les mains duquel on a remis tout son être, — qui a remis tout son être en vos mains. Goûter enfin le repos, dormir tandis qu’il veille, veiller tandis qu’il dort. Connaître la joie de protéger celui qu’on aime et qui se confie à vous, comme un petit enfant. Connaître la joie plus grande de s’abandonner à lui, de sentir qu’il tient tous vos secrets, qu’il dispose de vous. Vieilli, usé, lassé de porter depuis tant d’années la vie, renaître jeune et frais dans le corps de l’ami, voir avec ses yeux le monde renouvelé, étreindre avec ses sens les belles choses passagères, jouir avec son cœur de la splendeur de vivre… Souffrir même avec lui… Ah ! même la souffrance est joie, pourvu qu’on soit ensemble !
 
 J’ai un ami !… Loin de moi, près de moi, toujours en moi. Je l’ai, je suis à lui. Mon ami m’aime. Mon ami m’a. L’amour a nos âmes en une âme mêlées.
@@ -46,10 +45,6 @@ Puis, presque aussitôt :
 
 — Il faudra que vous ayez de bons yeux.
 
-Ils se regardèrent en souriant.
-
-Olivier reprit :
-
 — J’ai été sot, hier. Je craignais de vous avoir déplu. C’est une vraie maladie que ma timidité : je ne puis plus rien dire.
 
 — Ne vous plaignez pas. Il y a assez de gens qui parlent, dans votre pays ; on est trop heureux d’en rencontrer un qui se taise de temps en temps, fût-ce par timidité, c’est-à-dire malgré lui.
@@ -65,8 +60,6 @@ Christophe riait, enchanté de sa malice.
 — Cela, c’est mon affaire. Je ne suis pas long à faire mon choix. Quand je vois passer dans la vie un visage qui me plaît, je suis vite décidé : je me mets à sa poursuite ; il faut que je le rejoigne.
 
 — Il ne vous arrive jamais de vous tromper dans ces poursuites ?
-
-— Souvent.
 
 — Peut-être vous trompez-vous encore, cette fois.
 
@@ -91,14 +84,11 @@ Olivier le regarda avec sérieux, et répondit :
 Olivier rougit jusqu’aux oreilles. Immobilisé par la gêne, il ne trouva rien à répondre.
 
 Christophe promenait ses regards autour de
-lui.
 — Vous êtes bien mal logé. N’avez-vous pas d’autre chambre ?
 
 — Un cabinet de débarras.
 
 — Ouf ! on ne respire pas. Vous pouvez vivre ici ?
-
-— On s’y fait.
 
 — Je ne m’y ferais jamais.
 
@@ -141,21 +131,13 @@ Olivier regarda mélancoliquement ses poignets maigres, et dit :
 
 — Un cours de quoi ?
 
-— De Morale.
-
 — Quelle diable de sottise est-ce là ? On enseigne la morale dans vos écoles ?
-
-Olivier sourit :
-
-— Sans doute.
 
 — Et il y a de quoi parler pendant plus de dix minutes ?
 
 — J’ai douze heures de cours par semaine.
 
 — Vous leur apprenez donc à faire le mal ?
-
-— Pourquoi ?
 
 — Il ne faut pas tant parler pour savoir ce qu’est le bien.
 
@@ -188,8 +170,6 @@ Olivier se défendait toujours :
 — Mais pourquoi ? Pourquoi voulez-vous ?
 
 — Je vous le dirai tout à l’heure. Jouez.
-
-— Quoi ?
 
 — Tout ce que vous voudrez.
 
@@ -252,8 +232,6 @@ Christophe tressaillit. Le nom d’Antoinette fut un éclair pour lui.
 — Antoinette ? dit-il.
 
 — Ma sœur, dit Olivier.
-
-Christophe répétait :
 
 — Antoinette… Antoinette Jeannin… Elle était votre sœur ?… Mais, dit-il, en regardant la photographie qui était sur la table, elle était tout enfant, quand vous l’avez perdue ?
 
@@ -335,17 +313,11 @@ Les poètes, — les seuls qui méritassent ce beau nom, prodigué par la presse
 
 Peu à peu s’effaçait le grincement de l’essieu du monde, et le grondement sur les pavés du char lourd de l’action, qui se perdait dans le lointain. Et s’élevait le chant divin du silence,
 
-*
-
 Le bruit d’abeilles, le parfum de tilleul…
-
-Le vent,
 
 Avec ses lèvres d’or frôlant le sol des plaines…
 
 Le doux bruit de la pluie avec l’odeur des roses.
-
-*
 
 On entendait sonner le marteau des poètes, sculptant aux flancs du vase
 
@@ -361,15 +333,7 @@ la religieuse joie, la foi qui sourd comme une fontaine des âmes
 
 et la bonne douleur, qui vous berce et sourit,
 
-*
-
 De son visage austère, d’où descend
-
-Une clarté surnaturelle,…
-
-*
-
-et
 
 *La mort sereine aux grands yeux doux.*
 
@@ -385,13 +349,9 @@ Christophe, à son tour, lui fit signe de se taire. En dépit qu’il en eût, e
 
 Tandis que l’humanité,
 
-*
-
 Avec des aboiements d’épouvante et des plaintes,
 
 Tourne en rond dans un champ aride et ténébreux,
-
-*
 
 tandis que des millions d’êtres s’épuisent à s’arracher les uns aux autres des lambeaux sanglants de liberté, les sources et les bois répétaient :
 
@@ -405,15 +365,11 @@ C’était l’ouragan ivre,
 
 les forces tumultueuses, les épopées hallucinées de ceux qui chantent la fièvre des foules, les luttes entre les dieux humains, les travailleurs haletants,
 
-*
-
 Visages d’encre et d’or trouant l’ombre et la brume,
 
 Dos musculeux tendus ou ramassés, soudain,
 
 Autour de grands brasiers et d’énormes enclumes…
-
-*
 
 forgeant la Cité future.
 
@@ -427,13 +383,9 @@ Christophe, guidé par Olivier, se laissait pénétrer par la beauté pensive de
 
 Le même *odor di bellezza* montait de tout l’art français, comme une odeur de fraises et de framboises mûres monte des bois d’automne chauffés par le soleil. La musique était un de ces petits fraisiers, dissimulés dans l’herbe, mais dont l’haleine suffit à griser tout un bois. Christophe avait d’abord passé, sans le voir, habitué dans son pays à des buissons de musique, bien autrement touffus, aux baies plus éclatantes. Mais voici que le parfum délicat le faisait se retourner ; avec l’aide d’Olivier, il découvrait au milieu des pierres, des ronces, des feuilles mortes, qui usurpaient le nom de musique, l’art raffiné et ingénu d’une poignée de musiciens. Parmi les champs maraîchers et les fumées d’usines de la démocratie, au cœur de la Plaine-Saint-Denis, dans un petit bois sacré, des faunes insouciants dansaient. Christophe écoutait avec surprise leur chant de flûte, ironique et serein, qui ne ressemblait à rien de ce qu’il avait entendu :
 
-*
-
 Un petit roseau m’a suffi
 
 Pour faire frémir l’herbe haute
-
-* *
 
 Et tout le pré
 
@@ -444,8 +396,6 @@ Et le ruisseau qui chante aussi ;
 Un petit roseau m’a suffi
 
 À faire chanter la forêt…
-
-*
 
 Sous la grâce nonchalante et le dilettantisme apparent de ces petites pièces pour piano, de ces chansons, de cette musique française de chambre, sur laquelle l’art allemand ne daignait pas jeter les yeux, et dont Christophe lui-même avait jusque-là négligé la poétique virtuosité, il commençait à entrevoir la fièvre de renouvellement, l’inquiétude, — inconnue de l’autre côté du Rhin, — avec laquelle les musiciens français cherchaient dans les terrains incultes de leur art les germes qui pouvaient féconder l’avenir. Tandis que les musiciens allemands s’immobilisaient dans les campements de leurs pères, et prétendaient arrêter l’évolution du monde à la barrière de leurs victoires passées, le monde continuait de marcher ; et les Français en tête se lançaient à la découverte ; ils exploraient les lointains de l’art, les soleils éteints et les soleils qui s’allument, et la Grèce disparue et l’Extrême-Orient rouvrant à la lumière, après des siècles de sommeil, ses larges yeux fendus, pleins de rêves immenses. Dans la musique d’Occident, canalisée par le génie d’ordre et de raison classique, ils levaient les écluses des anciens modes ; ils faisaient dériver dans leurs bassins de Versailles toutes les eaux de l’univers : mélodies et rythmes populaires, gammes exotiques et antiques, genres d’intervalles nouveaux ou renouvelés. Comme, avant eux, leurs peintres impressionnistes avaient ouvert à l’œil un monde nouveau, — Christophes Colombs de la lumière, — leurs musiciens s’acharnaient à la conquête de l’univers des sons ; ils pénétraient plus avant dans les retraites mystérieuses de l’Ouïe ; ils découvraient des terres nouvelles dans cette mer intérieure. Plus que probablement, d’ailleurs, ils ne devaient rien faire de leurs conquêtes. Suivant leur habitude, ils étaient les fourriers du monde.
 
@@ -485,8 +435,6 @@ Mais Christophe, qui perdait pied dans cette liberté, en arrivait à regretter 
 
 Mais Olivier, railleur, rappela à Christophe la parole du vieux Pierre de l’Estoile :
 
-*
-
 Il est aussi peu en la puissance de toute la
 
 faculté terrienne d’engarder la liberté
@@ -499,17 +447,11 @@ ou l’enfermer
 
 dedans un
 
-trou.
-
-*
-
 Christophe s’habituait peu à peu à l’air de la liberté illimitée. Des sommets de la pensée française, où rêvent les esprits qui sont toute lumière, il regardait à ses pieds les pentes de la montagne, où l’élite héroïque qui lutte pour une foi vivante, quelle que soit cette foi, s’efforce éternellement de parvenir au faîte ; — ceux qui mènent la guerre sainte contre l’ignorance, la maladie, la misère ; la fièvre d’inventions, le délire raisonné des Prométhées et des Icares modernes, qui conquièrent la lumière et frayent les routes de l’air ; le combat gigantesque de la science contre la nature qu’elle dompte ; — plus bas, la petite troupe silencieuse, les hommes et les femmes de bonne volonté, les cœurs braves et humbles, qui, au prix de mille efforts, ont atteint à mi-côte, et ne peuvent aller plus haut, rivés à une vie médiocre et difficile, se brûlant en secret dans d’obscurs dévouements ; — plus bas, à la base de la montagne, dans l’étroit défilé entre les pentes escarpées, la bataille sans fin, les fanatiques d’idées abstraites, d’instincts aveugles, qui s’étreignent furieusement et ne se doutent point qu’il y a quelque chose au delà, au-dessus de la muraille de rochers qui les enserre ; — plus bas, les marécages et le bétail vautré dans son fumier. — Et partout, çà et là, le long des flancs de la montagne, les fraîches fleurs de l’art, les fraisiers parfumés de musique, le chant des sources et des oiseaux-poètes.
 
 Et Christophe demanda à Olivier :
 
 — Où est votre peuple ? Je ne vois que des élites, bonnes ou malfaisantes.
-
-Olivier répondit :
 
 — Le peuple ? Il cultive son jardin. Il ne s’inquiète pas de nous. Chaque groupe de l’élite essaie de l’accaparer. Il ne se soucie d’aucun. Naguère, il écoutait encore, au moins par distraction, le boniment des bateleurs politiques. À présent, il ne se dérange plus. Ils sont quelques millions qui n’usent même pas de leurs droits d’électeurs. Que les partis se cassent la tête entre eux, le peuple n’a cure de ce qui en arrivera, à moins qu’en se battant ils ne viennent à fouler ses champs : auquel cas il se fâche et étrille au hasard l’un et l’autre partis. Il n’agit pas, il réagit, peu importe dans quel sens, contre toutes les exagérations qui gênent son travail et son repos. Rois, empereurs, républiques, curés, francs-maçons, socialistes, quels que soient ses chefs, tout ce qu’il leur demande, c’est de le protéger contre les grands dangers communs : la guerre, le désordre, les épidémies, — et, pour le reste, de le laisser en paix cultiver son jardin. Au fond, il pense :
 
@@ -667,7 +609,6 @@ Le spectacle de la France cachée achevait de bouleverser toutes ses idées sur 
 
 — Dans la défaite. C’est vous, mon bon Christophe, qui nous avez reforgés. Ah ! ce n’a pas été sans douleur. Vous ne vous doutez pas de la sombre atmosphère, où nous avons grandi, dans une France humiliée et meurtrie, qui venait de voir la mort en face, et qui sentait toujours peser sur elle la menace meurtrière de la force. Notre vie, notre génie, notre civilisation française, la grandeur de dix siècles, — nous sentions qu’elle était dans la main d’un conquérant brutal, qui ne la comprenait point, qui la haïssait au fond, et qui, d’un moment à l’autre, pouvait achever de la broyer pour jamais. Et il fallait vivre pour ces destins ! Songes-tu à ces petits Français, nés dans des maisons en deuil, à l’ombre de la défaite, nourris de ces pensées découragées, élevés pour une revanche sanglante, fatale, et peut-être inutile : car, si petits qu’ils fussent, la première chose dont ils avaient pris conscience, c’était qu’il n’y a pas de justice, il n’y a pas de justice en ce monde : la force écrase le droit ! De pareilles découvertes laissent l’âme d’un enfant dégradée ou grandie pour jamais. Beaucoup s’abandonnèrent ; ils se dirent : « Puisque c’est ainsi, pourquoi lutter ? pourquoi agir ? Rien n’est rien. N’y pensons pas. Jouissons. » — Mais ceux qui ont résisté sont à l’épreuve du feu ; nulle désillusion ne peut atteindre leur foi : car, dès le premier jour, ils ont su que sa route n’avait rien de commun avec celle du bonheur, et que pourtant on n’a pas le choix, il faut la suivre : on étoufferait ailleurs. On n’arrive pas, du premier coup, à cette assurance. On ne peut pas l’attendre de petits garçons de quinze ans. Il y a bien des angoisses avant, bien des larmes versées. Mais cela est bien, ainsi. Il faut que cela soit ainsi…
 
-« *Ô Foi, vierge d’acier…*
 *Laboure de ta lance le cœur foulé des races !…* »
 
 Christophe serra en silence la main d’Olivier.
@@ -716,8 +657,6 @@ Olivier protestait. Il avait pour l’Ancien Testament une antipathie native. Ce
 
 — Les dieux de l’*Iliade* sont des hommes beaux, puissants, vicieux : je les comprends, dit Olivier, je les aime, ou je ne les aime pas ; même quand je ne les aime pas, je les aime encore ; je suis amoureux d’eux. J’ai baisé plus d’une fois, avec Patrocle, les beaux pieds d’Achille sanglant. Mais le Dieu de la Bible est un vieux Juif, maniaque et monomane, un fou furieux, qui passe son temps à gronder, menacer, hurler comme un loup enragé, délirer tout seul, enfermé dans son nuage. Je ne le comprends pas, je ne l’aime pas, ses imprécations éternelles me cassent la tête, et sa férocité me fait horreur :
 
-*
-
 Sentence contre Moab…
 
 Sentence contre Damas…
@@ -730,8 +669,6 @@ Sentence contre le désert de la mer…
 
 Sentence contre la vallée de la vision…
 
-*
-
 C’est un fou, qui se croit juge, accusateur public, et bourreau à lui tout seul, et qui prononce des arrêts de mort, dans la cour de sa prison, contre les fleurs et les cailloux. On est stupéfié de la ténacité de haine, qui remplit ce livre de ses cris de carnage… — « *le cri de la ruine,… le cri enveloppe la contrée de Moab ; son hurlement va jusqu’en Églazion ; son hurlement va jusqu’en Béer…* »
 
 De temps en temps, il se repose au milieu des massacres, des petits enfants écrasés, des femmes violées et éventrées ; et il rit, du rire d’un sous-officier de l’armée de Josué, à table, après le sac d’une ville :
@@ -741,8 +678,6 @@ De temps en temps, il se repose au milieu des massacres, des petits enfants écr
 Mais le pire, c’est la perfidie avec laquelle ce dieu envoie son prophète pour aveugler les hommes, afin d’avoir une raison après, pour les faire souffrir :
 
 « *Va, endurcis le cœur de ce peuple, bouche ses yeux et ses oreilles, de peur qu’il ne comprenne, qu’il ne se convertisse et ne recouvre la santé. — Jusques à quand, Seigneur ? — Jusqu’à ce qu’il n’y ait plus d’habitants dans les maisons, et que la terre soit plongée dans la désolation…* »
-
-Non, de ma vie, je n’ai vu un aussi méchant homme !…
 
 Je ne suis pas assez sot pour méconnaître la puissance du langage. Mais je ne puis séparer la pensée de la forme ; et si j’admire parfois ce dieu juif, c’est à la façon dont j’admire un tigre, ou un… (Je cherche en vain un monstre de Shakespeare à nommer ; je n’en trouve pas : Shakespeare lui-même n’a jamais réussi à enfanter un tel héros de la Haine, — de la Haine sainte et vertueuse.) Un tel livre est effrayant. Toute folie est contagieuse. Et il y a dans celle-ci un péril d’autant plus grand que son orgueil meurtrier a des prétentions purificatrices. L’Angleterre me fait trembler, quand je pense que, depuis des siècles, elle en fait sa pâture. J’aime à sentir entre elle et moi le fossé de la Manche. Je ne croirai jamais un peuple tout à fait civilisé, tant qu’il se nourrira de la Bible.
 
@@ -821,7 +756,6 @@ Le jour où Christophe, reconnaissant et irrité, remontait dans sa mansarde, ap
 Malgré leur mutuel amour, et l’intuition qu’il leur donnait de l’âme de l’ami, il y avait des choses que Christophe et Olivier n’arrivaient pas à bien comprendre en eux, et qui même les choquaient. Dans les premiers temps de l’amitié, où chacun fait instinctivement effort pour ne laisser subsister de lui que ce qui ressemble le plus à son ami, ils ne s’en aperçurent pas. Ce ne fut que peu à peu que l’image des deux races revint flotter à la surface, avec plus de netteté qu’avant : car, en se faisant contraste, elles s’accusaient l’une l’autre. Ils eurent de petits froissements, que leur tendresse ne réussissait pas toujours à éviter.
 
 Ils s’égaraient dans des malentendus. L’esprit d’Olivier était un mélange de foi, de liberté, de passion, d’ironie, de doute universel, dont Christophe ne parvenait pas à saisir la formule. Olivier, de son côté, était choqué du manque de psychologie de Christophe ; son aristocratie de vieille race intellectuelle souriait de la maladresse de cet esprit vigoureux, mais lourd et tout d’une pièce, qui ne savait pas s’analyser, et qui était la dupe des autres et de soi. La sentimentalité de Christophe, ses effusions bruyantes, sa facilité d’émotion, semblaient aussi à Olivier quelquefois agaçantes, et même légèrement ridicules. Sans parler d’un certain culte de la force, de cette conviction allemande dans l’excellence morale du poing, *Faustrecht*, dont Olivier et son peuple avaient de bonnes raisons pour n’être pas
-persuadés.
 
 Et Christophe ne pouvait souffrir l’ironie d’Olivier, qui l’irritait souvent jusqu’à la fureur ; il ne pouvait souffrir sa manie de raisonner, son analyse perpétuelle, je ne sais quelle immoralité intellectuelle, surprenante chez un homme aussi épris qu’Olivier de la pureté morale, et qui avait sa source dans la largeur même de son intelligence, ennemie de toute négation, — se plaisant au spectacle des pensées opposées. Olivier regardait les choses, d’un point de vue en quelque sorte historique, panoramique ; il avait un tel besoin de tout comprendre qu’il voyait à la fois le pour et le contre ; et il les soutenait tour à tour, suivant qu’on soutenait devant lui la thèse opposée ; il finissait par se perdre lui-même dans ses contradictions. À plus forte raison, déroutait-il Christophe. Cependant, ce n’était chez lui ni désir de contredire, ni penchant au paradoxe ; c’était une nécessité impérieuse de justice et de bon sens ; il était froissé par la sottise de tout parti pris ; et il lui fallait réagir. La façon crue dont Christophe jugeait les actes et les hommes immoraux, en voyant tout plus gros et plus brutal que dans la réalité, choquait Olivier, qui, bien qu’aussi moral, n’était pas du même acier inflexible, mais qui se laissait tenter, teinter, toucher par les influences extérieures. Il protestait contre les exagérations de Christophe, et il exagérait en sens inverse. Journellement, ce travers d’esprit le conduisait à soutenir contre ses amis la cause de ses adversaires. Christophe se fâchait. Il reprochait à Olivier ses sophismes, son indulgence pour les gens et les choses ennemies. Olivier souriait : il savait bien quelle absence d’illusions recouvrait son indulgence ; il savait bien que Christophe croyait à beaucoup plus de choses que lui, et qu’il les acceptait mieux ! Mais Christophe, sans regarder ni à droite ni à gauche, fonçait droit devant lui. Il en avait surtout à la « bonté » parisienne.
 
@@ -897,8 +831,6 @@ Prudemment, on lui faisait place. Au vestiaire, un domestique lui présenta un p
 
 — Tiens ! Tiens ! — fit-il, en les jetant sur le plateau, si violemment qu’une d’elles tomba à terre.
 
-Il sortit.
-
 Olivier n’était au courant de rien. Christophe avait pris pour témoins les premiers venus qui ne fussent pas pour lui tout à fait des étrangers : le critique musical Théophile Goujart, et un Allemand, le docteur Barth, privat-docent dans une université suisse, qu’il avait rencontré un soir dans une brasserie, et avec qui il avait lié connaissance, quoiqu’il eût peu de sympathie pour lui : mais ils pouvaient parler ensemble du pays. Après entente avec les témoins de Lucien Lévy-Cœur, l’arme choisie fut le pistolet. Christophe ignorait également toutes les armes, et Goujart lui dit qu’il ne ferait pas mal de venir avec lui à un tir pour prendre au moins quelques leçons ; mais Christophe s’y refusa ; et, en attendant le lendemain, il se remit au travail.
 
 Son esprit était distrait. Il entendait bourdonner, comme dans un mauvais sommeil, une idée fixe, dont il avait la conscience vague… « C’était désagréable, oui, désagréable… Quoi donc ? — Ah ! ce duel, demain… Plaisanterie ! On ne se touche jamais… Cela se pourrait pourtant… Eh bien, après ?… Après, mais justement, après… Un pressement de doigt de cet animal qui me hait peut m’effacer de la vie… Allons donc !… — Oui, demain, dans deux jours, je pourrai être couché dans cette terre nauséabonde de Paris… — Bah ! ici ou ailleurs !… Ah ! çà, est-ce que je serais lâche ? — Non, mais il serait infâme de perdre dans une niaiserie tout le monde de pensées, que je sens pousser en moi… Au diable, ces luttes d’aujourd’hui, où l’on prétend égaliser les chances des adversaires ! La belle égalité, que celle qui donne à la vie d’un drôle autant de prix qu’à la mienne ! Que ne nous met-on en présence avec nos poings et des bâtons ! Ce serait un plaisir. Mais cette froide fusillade !… Et naturellement, il sait tirer, et je n’ai jamais tenu un pistolet… Ils ont raison ; il faut que j’apprenne… Il veut me tuer ? C’est moi qui le tuerai. »
@@ -946,7 +878,6 @@ bras dessous, et ils reprirent à la gare voisine le
 train pour Paris.
 
 Olivier ignorait ce qui s’était passé. Il fut surpris
-de la tendresse de Christophe : il ne comprenait
 rien à tous ces revirements. Ce fut le lendemain
 seulement qu’il apprit par les journaux
 que Christophe s’était battu. Il en fut presque
@@ -971,10 +902,6 @@ des deux amis :
 *De fille oiseuse et languarde,*
 
 *De Juif patelin papelard,*
-
-*D’ami fardé,*
-
-*D’ennemi familier,*
 
 *Et de vin éventé,*
 
@@ -1106,15 +1033,11 @@ Sa saine nature répugnait, autant que celle de Christophe, à l’amitié amour
 
 Il lui demanda un jour ce qu’elle pouvait bien faire, certaines après-midi qu’il la voyait, au jardin, assise sur un banc, son ouvrage sur ses genoux, se gardant d’y toucher, immobile pendant des heures. Elle rougit, et protesta que ce n’était pas pendant des heures, mais quelques minutes de temps en temps, un bon petit quart d’heure, « pour continuer son histoire ».
 
-— « Quelle histoire ? »
-
 — « L’histoire qu’elle se contait. »
 
 — Vous vous contez des histoires ? Oh ! racontez-les-moi !
 
 Elle lui dit qu’il était trop curieux. Elle lui confia seulement que c’étaient des histoires, dont elle n’était pas l’héroïne.
-
-Il s’en étonna :
 
 — À tant faire que se raconter des histoires, il me semble qu’il serait plus naturel de se raconter sa propre histoire embellie, de se rêver dans une vie plus heureuse.
 
@@ -1175,10 +1098,6 @@ La robuste confiance qui émanait de Christophe pénétrait son interlocuteur, m
 Mais il en restait là. Il semblait, comme les autres, frappé d’une incapacité de vouloir et d’agir.
 
 Christophe avait entrepris le combat contre cette inertie, qu’il retrouvait chez la plupart de ses amis Français, bizarrement accouplée à une activité laborieuse et très souvent fiévreuse. Presque tous ceux qu’il voyait, dans les divers milieux bourgeois où il allait, étaient des mécontents. Presque tous avaient le même dégoût pour les maîtres du jour et pour leur pensée corrompue. Presque tous, la même conscience triste et fière de l’âme trahie de leur race. Et ce n’était pas le fait de rancunes personnelles, l’amertume d’hommes et de classes vaincus, évincés du pouvoir et de la vie active, fonctionnaires révoqués, énergies sans emploi, vieille aristocratie retirée sur ses terres et se cachant pour mourir, comme un lion blessé. C’était un sentiment de révolte morale, sourd, profond, général : on le rencontrait partout, à des degrés divers, dans l’armée, dans la magistrature, dans l’Université, dans les bureaux, dans tous les rouages vitaux de la machine gouvernementale. Mais ils n’agissaient pas. Ils étaient découragés d’avance ; ils répétaient :
-
-— Il n’y a rien à faire ;
-
-ou :
 
 — Tâchons de n’y plus penser.
 
@@ -1268,8 +1187,6 @@ Christophe lui nomma M. Weil, — (le commandant s’exclama), — et les Elsber
 
 — Quand vous étiez en Afrique, vous ne vous inquiétiez pas de savoir si c’était pour le Roi, ou pour la République, que vous vous battiez. J’imagine que beaucoup d’entre vous ne pensaient guère à la République.
 
-— Ils s’en foutaient.
-
 — Bon ! Et la France y trouvait son avantage. Vous conquériez pour elle, et aussi pour vous, pour l’honneur, pour la joie. Eh bien, que ne faites-vous de même, ici ! Élargissez le combat. Ne vous chicanez pas pour des futilités de politique ou de religion. Ce sont des niaiseries. Que votre race soit la fille aînée de l’Église, ou celle de la Raison, cela n’importe guère. Mais qu’elle vive ! Tout est bien, qui exalte la vie. Il n’y a qu’un ennemi, c’est l’égoïsme jouisseur, qui tarit et souille les sources de la vie. Exaltez la force, exaltez la lumière, exaltez l’amour fécond, la joie du sacrifice, l’action. Et ne déléguez jamais à d’autres le soin d’agir pour vous. Agissez, agissez, unissez-vous ! Allons !…
 
 Et il se mit, en riant, à taper sur le piano les premières mesures de la marche en *si bémol* de la *Symphonie avec chœurs*.
@@ -1291,8 +1208,6 @@ Christophe s’en attristait. Olivier lui dit :
 — Ne t’afflige pas. Un homme ne peut pas changer, d’un coup, tout un état d’esprit de toute une société. Ce serait trop beau ! Mais tu fais déjà beaucoup, sans t’en douter.
 
 — Qu’est-ce que je fais ? dit Christophe.
-
-— Tu es Christophe.
 
 — Quel bien en résulte-t-il pour les autres ?
 
@@ -1402,8 +1317,6 @@ Si angoissante que fût la question pour Christophe, elle l’était plus encore
 
 — Et si les autres ne marchent pas ?
 
-— Ils marcheront.
-
 — Avez-vous des traités, un plan tracé d’avance ?
 
 — Qu’est-il besoin de traités ? Notre force est supérieure à toutes les diplomaties.
@@ -1446,10 +1359,6 @@ Ils se turent ; et ni l’un ni l’autre n’osait aborder le sujet qui les tr
 
 — Dis-moi franchement, Christophe : tu allais partir ?
 
-Christophe répondit :
-
-— Oui.
-
 Olivier était sûr de la réponse. Et pourtant, il en eut un coup au cœur. Il dit :
 
 — Quoi, Christophe, tu aurais pu… ?
@@ -1467,8 +1376,6 @@ Olivier répétait douloureusement :
 — Mais dans ton cœur, tu avais pris parti ?
 
 Christophe dit :
-
-— Oui.
 
 — Contre moi ?
 
@@ -1491,8 +1398,6 @@ Christophe dit :
 — Vas-tu faire fi des siècles ? La vie tout entière est une affaire de jours et d’heures. Il faut être de sacrés diables d’abstracteurs, comme vous êtes, pour vous placer dans l’absolu, au lieu d’étreindre l’instant qui passe.
 
 — Que veux-tu ? La flamme brûle la torche. On ne peut pas être et avoir été, mon pauvre Christophe.
-
-— Il faut être.
 
 — C’est une grande chose d’avoir été quelque chose de grand.
 
@@ -1544,8 +1449,6 @@ C’était l’après-midi. Il était en train de se débarbouiller, en causant 
 
 « *Mon cher garçon, je ne vais pas très bien. Si ça t’était possible, je voudrais bien te voir encore une fois. Je t’embrasse.*
 
-*Maman.* »
-
 Christophe poussa un gémissement. Olivier, qui travaillait dans la chambre à côté, accourut, effrayé. Christophe, incapable de parler, lui montra la lettre sur la table. Il continuait de gémir, sans écouter ce que disait Olivier qui, d’un coup d’œil, avait lu la lettre, et essayait de le rassurer. Il courut à son lit, sur lequel il avait déposé son veston, se rhabilla précipitamment, et, sans attacher son faux-col, — (ses doigts tremblaient trop) — il sortit. Olivier le rattrapa sur l’escalier : que voulait-il faire ? Partir par le premier train ? Il n’y en avait pas avant le soir. Il valait mieux attendre ici qu’à la gare. Avait-il seulement l’argent nécessaire ? — Ils fouillèrent leurs poches, et, en réunissant tout ce qu’ils possédaient, ils ne trouvèrent qu’une trentaine de francs. On était en septembre. Hecht, les Arnaud, tous les amis, étaient hors de Paris. Personne à qui s’adresser. Christophe, hors de lui, parlait de faire une partie du chemin à pied. Olivier le pria d’attendre une heure, promettant de trouver la somme qu’il fallait. Christophe le laissa faire ; il était incapable d’avoir aucune idée. Olivier courut au mont-de-piété : c’était la première fois qu’il y allait ; pour lui-même, il eût mieux aimé souffrir du dénuement que mettre en gage un de ces objets, qui tous lui rappelaient quelque cher souvenir ; mais il s’agissait de Christophe, et il n’y avait pas de temps à perdre. Il déposa sa montre, sur laquelle on lui avança une somme bien inférieure à celle qu’il attendait. Il lui fallut remonter chez lui, prendre quelques-uns de ses livres, et les porter à un bouquiniste. C’était une chose douloureuse ; à peine s’il y songeait, en ce moment : le chagrin de Christophe absorbait toutes ses pensées. Il revint et retrouva Christophe, à la place où il l’avait laissé, assis devant sa table, dans un état de prostration. Jointe aux trente francs qu’ils avaient, la somme réunie par Olivier était plus que suffisante. Christophe était trop accablé pour songer à demander comment son ami se l’était procurée, ni s’il gardait assez d’argent pour vivre, en son absence, Olivier n’y pensait pas plus que lui ; il avait remis à Christophe tout ce qu’il avait. Il lui fallut s’occuper de Christophe, comme d’un enfant, jusqu’au départ. Il le conduisit à la gare, et ne le quitta qu’au moment où le train se mit en marche.
 
 Dans la nuit, où il s’enfonçait, Christophe, les yeux grands ouverts, regardait devant lui, et il pensait :
@@ -1572,8 +1475,6 @@ Depuis un moment, il la regardait, si changée, le visage à la fois tiré et bo
 
 Elle le vit. Elle ne fut pas étonnée. Elle sourit d’un sourire ineffable. Elle ne pouvait ni lui tendre les bras, ni dire une seule parole. Il se jeta à son cou, il l’embrassa, elle l’embrassa ; de grosses larmes coulaient sur ses joues. Elle dit tout bas :
 
-— Attends…
-
 Il vit qu’elle suffoquait.
 
 Ils ne faisaient aucun mouvement. Elle lui caressait la tête avec ses mains ; et ses larmes continuaient de couler. Il lui baisait les mains, sanglotant, la figure cachée dans les draps.
@@ -1594,8 +1495,6 @@ Ce fut un bienfait pour Christophe, que l’arrivée d’Olivier. Il avait pass�
 
 *Getrost ! Es ist der Schmerzen werth dies Leben,*
 
-*So lang…*
-
 So lang…… *mit uns ein treues Auge weint*.
 
 (« Courage ! Aussi longtemps que deux yeux fidèles pleurent avec nous, la vie vaut de souffrir. »)
@@ -1611,8 +1510,6 @@ Olivier resta jusqu’au lendemain matin, pour l’enterrement de Louisa. Le fr�
 Dans l’après-midi, Olivier retrouva Christophe à la station frontière, où ils s’étaient donné rendez-vous. Un village au milieu des collines boisées. Au lieu d’y attendre le train suivant pour Paris, ils décidèrent de faire à pied une partie de la route, jusqu’à la ville prochaine. Ils avaient besoin d’être seuls. Ils se mirent en marche à travers les bois silencieux, où retentissaient au loin les coups sourds de la cognée. Ils arrivèrent à une clairière, au sommet d’une colline. Au-dessous d’eux, dans un vallon étroit, encore en pays allemand, le toit rouge d’une maison forestière, un petit pré, comme un lac vert entre les bois. Tout autour, l’océan des forêts bleu sombre, enveloppées de vapeurs. Des brouillards se glissaient entre les branches des sapins. Un voile transparent amollissait les lignes, amortissait les couleurs. Tout était immobile. Ni bruit de pas, ni son de voix. Quelques gouttes de pluie sonnaient sur le cuivre doré des hêtres, que l’automne avait mûris. Entre les pierres tintait l’eau d’un petit ruisseau. Christophe et Olivier s’étaient arrêtés et ils ne bougeaient plus. Chacun songeait à ses deuils. Olivier pensait :
 
 — Antoinette, où es-tu ?
-
-Et Christophe :
 
 — Que me fait le succès, à présent qu’elle n’est plus ?
 

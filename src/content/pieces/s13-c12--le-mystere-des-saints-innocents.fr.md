@@ -8,20 +8,13 @@ isAvertissement: false
 wordCount: 40924
 ocrSource: "fr.wikisource.org — Œuvres complètes, Tome 6 (NRF 1919), 2026-05-25"
 ---
-
 *le mystère*
 
 *des saints Innocents*
 
-DELECTISSIMIS
-
-ININTIMOCORDE
-
 *cahier pour le dimanche des Rameaux*
 
 *et pour le dimanche de Pâques de la treizième série ;*
-
-*cahier préparatoire*
 
 *pour le quatre cent quatre-vingt-troisième anniversaire*
 
@@ -30,12 +23,6 @@ ININTIMOCORDE
 *anniversaire qui tombera*
 
 *le mercredi 8 mai de l’an 1912.*
-
-# LEMYSTÈRE
-
-DESSAINTSINNOCENTS
-
-Madame Gervaise
 
 Je suis, dit Dieu, Maître des Trois Vertus.
 
@@ -337,8 +324,6 @@ Et entre toutes je te glorifie et entre toutes tu me glorifies.
 
 Et tu me fais honneur et gloire
 
-Car tu obtiens quelquefois ce qu’il y a de plus difficile au monde,
-
 Le désistement de l’homme.
 
 L’abandonnement de l’homme entre mes mains.
@@ -405,8 +390,6 @@ Mais enfin il ne faut pas s’en torturer au point d’en perdre le sommeil.
 
 À cette heure-là la journée est faite, et bien faite ; il n’y a plus à la refaire.
 
-Il n’y a plus à y revenir.
-
 Ces péchés qui vous font tant de peine, mon garçon, eh bien c’était bien simple.
 
 Mon ami il ne fallait pas les commettre.
@@ -434,8 +417,6 @@ Celui qui est posé dans mon bras comme un nourrisson qui rit,
 Et qui ne s’occupe de rien,
 
 Et qui voit le monde dans les yeux de sa mère, et de sa nourrice,
-
-Et qui ne le voit et ne le regarde que là,
 
 Celui-là m’est agréable, dit Dieu.
 
@@ -611,8 +592,6 @@ A longtemps traîné dans la boue des chemins,
 
 Avant de passer le seuil de l’église il s’essuie soigneusement les pieds,
 
-Avant d’entrer,
-
 Parce qu’il est très propre.
 
 Et il ne faut pas que la boue des chemins souille les dalles de l’église.
@@ -629,8 +608,6 @@ Que pour cet autel où le corps de Jésus
 
 Et le souvenir et l’attente du corps de Jésus
 
-Brille éternellement.
-
 Il suffit que la boue des chemins n’ait point passé le seuil du temple.
 
 Il suffit qu’ils se soient bien essuyé les pieds une fois avant de passer le seuil du temple.
@@ -640,8 +617,6 @@ Bien soigneusement, bien proprement et n’en parlons plus.
 On ne parle pas toujours de la boue. Ce n’est pas propre.
 
 Transporter dans le temple la mémoire même et le souci de la boue
-
-Et la préoccupation et la pensée de la boue
 
 C’est encore transporter de la boue dans le temple.
 
@@ -763,8 +738,6 @@ C’est au moment de les passer qu’il faut voir que ce sont en effet des monta
 
 Vous êtes vertueux après. Soyez donc vertueux avant
 
-Et pendant.
-
 L’heure qui sonne est sonnée. Le jour qui passe est passé. Demain seul reste, et les après demains
 
 Et ils ne resteront pas longtemps.
@@ -821,15 +794,11 @@ La fidèle imitation de mon fils par les hommes.
 
 Et j’en ai connu et j’en connaîtrai des imitations si fidèles, dit Dieu,
 
-Et si approchées,
-
 Que moi-même j’en demeure saisi d’admiration et de respect.
 
 Mais enfin il ne faut pas oublier
 
 Que mon fils avait commencé par cette singulière imitation de l’homme.
-
-Singulièrement fidèle.
 
 Qui elle fut poussée jusqu’à l’identité parfaite.
 
@@ -927,27 +896,15 @@ Toute la malice que j’ai, c’est la malice de ma grâce, et la feinte et la r
 
 Qui séduit le pécheur ; pour le sauver. Mais croyez-vous. Croyez-vous que moi Dieu que je vais m’amuser à leur faire des misères et ce que ne ferait pas un honnête homme. Je suis bon chrétien, dit Dieu. Croyezvous que je vais m’amuser à les surprendre comme un assassin de nuit.
 
-Jeannette
-
 Il viendra comme un larron et comme un voleur de nuit.
-
-Madame Gervaise
 
 Et il prendra comme au filet. *Le royaume des cieux est* *encore semblable à une senne jetée dans la mer, et rassemblant de tout genre de poissons.*
 
-Jeannette
-
 *Laquelle, quand elle fut emplie, tirant de l’eau, et assis sur le bord du rivage, ils choisirent les bons pour leurs vaisseaux, mais jetèrent les mauvais dehors.*
-
-Madame Gervaise
 
 *Il en sera ainsi dans la consommation du siècle : les anges sortiront et sépareront les mauvais du milieu des justes.*
 
-Jeannette
-
 *Et répondant Jésus leur dit : Voyez que personne ne vous séduise.*
-
-Madame Gervaise
 
 *Mais de ce jour-là et de l’heure personne ne le sait, ni les anges des cieux, sinon le père seul.*
 
@@ -959,11 +916,7 @@ Madame Gervaise
 
 *Et ils ne connurent pas jusqu’à ce que vint le déluge, et les emporta tous :*
 
-Jeannette
-
 *Ainsi sera aussi l’avènement du Fils de l’homme.*
-
-Madame Gervaise
 
 Je suis leur père, dit Dieu. *Notre Père, qui êtes aux Cieux.* Mon fils le leur a assez dit, que je suis leur père.
 
@@ -982,8 +935,6 @@ Ils sont les frères de mon fils ; ils sont mes enfants ; je suis leur père.
 Qui a vécu parmi eux, qui était un comme eux.
 
 Qui allait comme eux, qui parlait comme eux, qui vivait comme eux.
-
-Qui souffrait.
 
 Qui souffrit comme eux, qui mourut comme eux.
 
@@ -1022,8 +973,6 @@ Et pour mon éternité, éternellement, dit Dieu,
 Par cette invention de mon Fils éternellement c’est ainsi qu’il faut que je les voie.
 
 (Et qu’il faut que je les juge. Comment voulez-vous, à présent, que je les juge.
-
-Après cela).
 
 *Notre Père qui êtes aux cieux*, mon fils a très bien su s’y prendre.
 
@@ -1090,10 +1039,6 @@ Non plus seulement dans son texte comme elle est devenue un texte.
 Mais dans son invention même et dans son sourcement et dans son forcement.
 
 Quand elle-même fut une naissance de prière, une incarnation et une naissance de prière. Une espérance.
-
-Une naissance d’espérance.
-
-Une parole naissante.
 
 Un rameau et un germe et un bourgeon et une feuille et une fleur et un fruit de parole.
 
@@ -1271,8 +1216,6 @@ C’est dans cette formation qu’ils m’attaquent. Je pense que vous m’avez 
 
 Comment voulez-vous que je me défende. Mon fils leur a tout dit. Et non seulement cela. Mais dans le temps il s’est mis à leur tête. Et ils sont comme une grande flotte antique, comme une flotte innombrable qui s’attaquerait au grand roi. Derrière le point, derrière l’extrême point de cette extrême pointe cette extrême pointe s’avance et derrière et se tenant serrée comme un faisceau que je ne puis rompre cette pointe elle-même et aussitôt derrière s’avancent effrontément ces lourdes trirèmes antiques et elles fendent, plus serrées que la phalange macédonienne, impudemment elles fendent le flot de ma colère, et de la colère de ma justice.
 
-(Et de la justice de ma colère).
-
 Liées comme un faisceau d’hommes à la guerre elles s’avancent lourdement portées sur leurs trois rangs de rames.
 
 Et cette flotte est plus innombrable que la flotte des Achéens.
@@ -1301,19 +1244,11 @@ Du haut de mon promontoire,
 
 Du promontoire de ma justice,
 
-Et du siège de ma colère.
-
-Et de la chaire de ma jurisprudence,
-
-*In cathedra jurisprudentiae*,
-
 Du trône de mon éternelle grandeur
 
 Je vois monter vers moi, du fond de l’horizon je vois venir
 
 Cette flotte qui m’assaille,
-
-La triangulaire flotte,
 
 Me présentant cette pointe que vous savez.
 
@@ -1349,8 +1284,6 @@ Et ils fendent ainsi le vent de ma colère et ils refoulent la force même des t
 
 Et le souffle de ma colère n"a plus aucune prise sur cette masse angulaire,
 
-Aux fuyantes ailes.
-
 Car ils me présentent cet angle et je ne puis les prendre que sous cet angle.
 
 Que sont ici les flottes grecques et les flottes persiques ;
@@ -1377,34 +1310,18 @@ Cuirassés comme des hoplites.
 
 C’est-à-dire comme des soldats pesamment armés
 
- DES SAINTS INNOCENTS
-
 Et ils se meuvent invinciblement portés sur leurs trois
 rangs de rames.
 
 Et le premier rang de rames est :
 Que votre nom soit sanctifié,
-Le vôtre ;
 
 Et le deuxième rang de rames est :
 Que votre règne arrive,
-Le vôtre ;
 
 Et le troisième rang de rames est la parole entre toutes
 
-insurmontable :
 Que votre volonté soit faite sur la terre comme au ciel,
-La vôtre.
-
-Sanctificetur nonien
-Tuum.
-
-Adveniat regnum
-Tuum.
-
-Fiat voluntas
-
-Tua
 
 Sicut in cœlo et in terra.
 
@@ -1414,7 +1331,6 @@ deuxième flotte, et c’est une flotte innombrable, car
 c’est la flotte aux blanches voiles, l’innombrable flotte
 des Ave Maria.
 
-51 L E M Y S T K R ! • :
 Et c’est une flotte de birèmes. Et le premier rang de
 
 rames est :
@@ -1432,7 +1348,6 @@ dans la main.
 Or ces douces colombes sous leurs ailes,
 
 Ces blanches colombes familières, ces colombes dans la
-main,
 
 Ces humbles colombes couchées au ras de la main,
 
@@ -1447,12 +1362,9 @@ devant le port.
 
 Telle est la deuxième flotte, ce sont les prières de la
 Vierge. Et la troisième flotte ce sont les autres innom-
-brables prières.
 
 Toutes. Celles qui se disent à la messe et aux vêpres.
-Et au salut.
 
-52 DES SAINTS INNOCENTS
 Et les prières des moines qui marquent toutes les
 
 heures du jour. Et les heures de la nuit.
@@ -1466,7 +1378,6 @@ dites, les paroles qui ne sont pas prononcées.
 
 Mais moi je les entends. Ces obscurs mouvements du
 cœur, les obscurs bons mouvements, les secrets bons
-mouvements.
 
 Qui jaillissent inconsciemment et qui naissent et incon-
 sciemment montent vers moi.
@@ -1488,19 +1399,14 @@ Ces prières secrètes dont un cœur est le siège, ces
 prières secrètes du cœur. Ces mouvements secrets.
 Et assailli aussi efl’rontément, assailli de prières et de
 
-larmes,
 Directement assailli, assailli en pleine face
 
-53 L i : M V S T È R II
-
 Après cela on veut que je les condamne. Gomme c’est
-commode.
 
 On veut que je les juge. On sait assez comment finissent
 tous ces jugements-là et toutes ces condamnations.
 
 Un homme avait deux fih. Ça finit toujours par des
-embrassements.
 
 (Et c’est encore le père qui pleure le plus).
 
@@ -1533,20 +1439,17 @@ sont tous les autres Notre Père
 
 Mais chacun précédé de sa propre pointe
 
-54 DES SAINTS INNOCENTS
 Qui est ces trois ou quatre mots.
 
 Et derrière seulement viennent les trois autres flottes.
 Et toutes ces quatre flottes sont sur voiles.
 Et ces Pater, qui sont des hommes, ont de fortes voiles
 
-brunes
 Pleines et rugueuses, au tissu serré.
 En toile bise, en toile écrue. Mais les Ave Maria
 Courent sous de souples et courbes voiles blanches. Et
 
 toutes ces quatre flottes
-S’avancent incurvées.
 Ainsi le coin fend le bois par la pointe.
 Ainsi quand des soldats veulent monter à Tassant,
 Quand ils vont monter au moment même ils font une
@@ -1565,7 +1468,6 @@ C’est un homme robuste, et la prière du Je vous salue
 Marie est comme une humble femme.
 Et les autres prières sont derrière eux comme des
 
-enfants.
 Et le Notre Père et le Je vous salue Marie sont comme
 
 l’homme et la femme.
@@ -1574,7 +1476,6 @@ Qui vont l’un derrière l’autre et qui fendent la foule qui
 est venue pour la procession.
 L’homme va devant et fend le flot de la foule,
 
-55 L K INI \ S T È R E
 La foule de ma colère,
 Et la femme suit derrière dans le sillage.
 Et Thomme a pris sur ses épaules à califourchon
@@ -1596,11 +1497,9 @@ J’ai souvent joué avec l’homme, mais Dieu c’était pour
 
 le sauver et j’ai assez tremblé de ne pas pouvoir le
 
-sauver,
 De ne pas réussir à le sauver. Je veux dire j’ai assez
 
 tremblé redoutant de ne pouvoir le sauver,
-Me demandant si je réussirais à le sauver.
 
 J’ai souvent joué avec l’homme, et je sais que ma grâce
 est insidieuse, et combien et comment elle se tourne
@@ -1611,7 +1510,6 @@ l’événement et c’est pour sauver l’homme et l’em-
 pêcher de pécher.
 
 Je joue souvent contre l’homme, dit Dieu, mais c’est
-56 DES SAINTS INNOCENTS
 lui qui veut perdre, l’imbécile, et c’est moi qui veux
 qu’il gagne.
 
@@ -1635,18 +1533,15 @@ plus secret).
 
 Celui qui a dit le soir son Notre Père peut dormir
 
-tranquille.
 Croyez-vous que je vais m’amuser à faire des misères à
 
 ces pauvres enfants.
 Suis-je pas leur père.
 Et que je vais m’amuser à leur faire des surprises comme
 
-on en fait à la guerre.
 Est-ce que je leur fais la guerre ?
 Oui je leur fais la guerre, mais sait bien pourquoi.
 
-57 LE MYSTÈRE
 C’est pour les empêcher de perdre la bataille.
 Je suis un honnête homme, dit Dieu.
 Croyez-vous que je vais m’amuser à les prendre dans
@@ -1655,12 +1550,10 @@ leur sommeil
 Comme un homme de guerre qui pi’end son ennemi.
 Croyez-vous que j’aie quelque goût à les prendre en
 
-défaut.
 Et que ça m’amuse, de condamner.
 Pauvres gens. Je vous le demande.
 Suis-je donc un bourreau d’Orient ?
 Sans doute il est arrivé quelquefois, —
-Rarement, —
 
 Que j’ai saisi un criminel tout endormi
 Dans la nuit qui précédait l’accomplissement,
@@ -1679,22 +1572,17 @@ De la nuit qui précédait l’accomplissement,
 La perpétration de leur forfait.
 Et ce que je n’ai pas fait pour ces trois là, et pour tant
 
-d’autres.
 Ce que j’ai fait à peine pour les rois d’Orient.
 Marie, Thecel, Phares vous voudriez que je le fasse.
 Pour un bon chrétien, pour un bon paysan de mes
 
-paroisses françaises.
 Qui a labouré tout le jour, qui a lrav ; iillé, comme c’est
-
-58 DES SAINTS INNOCENTS
 
 la loi, pour nourrir sa femme et ses trois enfants.
 Qui le soir a mangé une bonne assiettée de soupe et bu
 
 un malheureux verre de vin.
 El qui s’est couché dans son lit recru de fatigue,
-Rompu.
 Ce que je n’ai pas fait pour les rois d’Égypte et pour
 
 les rois de Babylonie.
@@ -1712,24 +1600,19 @@ Son Noire Père et son Je vous salue Marie,
 C’est bon signe ; son affaire est bonne.
 C’est signe qu’il était mûr pour paraître devant mon
 
-tribunal.
 Mûr dans le bon sens.
 Voilà les surprises que je fais. Je le jugerai comme un
 
 père.
 Un homme avait deux fils. Et l’on sait comment les
 
-pères jugent.
 Celui qui a fait sa prière peut lever l’ancre
 Pour la traversée de la nuit.
 nuit, dit Dieu, ma fille au grand manteau, ma fille au
 
-manteau d’argent.
 Par loi j’obtiens quelquefois le désistement de l’homme.
 Et le renoncement de l’homme.
 Et le déraidissement de l’homme.
-
-59 LE M Y S ï È U E
 
 Et qu’il se taise, surtout, qu’il se taise, il n’en finit pas
 de parler.
@@ -1745,7 +1628,6 @@ Celui qui a la tête comme un morceau de bois. Les
 idoles aussi étaient en bois.
 
 Celui qui dans un perpétuel raidissement roule une
-perpétuelle migraine.
 
 Je n’aime pas, dit Dieu, celui qui pense
 
@@ -1756,8 +1638,6 @@ Et qui roule une mig^raine perpétuelle
 Dans la barre du front et un mal de tète
 
 Dans le creux de la nuque dans le derrière de la tête.
-
-Au point d’inquiétude.
 
 Et qui a les sourcils froncés perpétuellement
 
@@ -1770,22 +1650,17 @@ Et aussi qui a les bords des paupières fripés
 A force de regarder le jour du lendemain.
 
 Ne suffît-il pas que moi je le regarde, le jour du lende-
-main.
 
 nuit tu obtiens quelquefois le désistement de ce mal-
-heureux.
 
 Et qu’il se détende. C’est tout ce que je leur demande.
 
 Qu’il ne roule point un flot perpétuel dans sa tête,
 
-L’n océan d’inquiétude.
-
 Qu’est-ce que je leur demande. Qu’ils ferment un peu
 les yeux.
 
 Qu’ayant fait leur prière ils se couchent dans leur lit en
-long. DES SAINTS INNOCENTS
 
 Les jambes au bout des pieds et le corps au bout des
 
@@ -1815,7 +1690,6 @@ Et que mon Paradis sera cela.
 Et que tout ce qu’ils voudront ce sera cela.
 Et qu’ils seront si fatigués de la vie, et qu’ils seront si
 
-ridés,
 Et qu’ils auront été si fripés par une telle existence,
 Par la vie de cette terre
 Qu’ils ne voudront entendre que cela.
@@ -1828,40 +1702,29 @@ seront.
 Et des fronts si ridés que jamais ils ne se dérideront.
 Et des yeux si voilés qu’ils ne se dévoileront jamais.
 
-61 L E M Y S T È R E
 Et des peaux si flétries que jamais elles ne redevien-
-dront fraîches.
 Et des peaux si fanées que jamais elles ne redevien-
-dront jeunes.
 
 Et des peaux si tannées que jamais elles ne redevien-
-dront neuves.
 
 Et des peaux si meurtries que jamais elles ne redevien-
-dront saines.
 
 Et des âmes si ilélries que jamais elles ne redeviendront
-pures.
 
 Et des mémoires si pleines que jamais elles ne redevien-
-dront vides.
 
 Et des boi-ds de paupière si ourlés que jamais ils ne
-redeviendront purs.
 
 Et des paupières si usées de travail que jamais elles ne
-redeviendront lisses.
 
 Et des voix si voilées que jamais elles ne redeviendront
 pures. Que jamais elles ne redeviendront jeunes.
 
 Et des regards si voilés que jamais ils ne redeviendront
-profonds.
 
 Et des voix si noyées de sanglots.
 
 Et des yeux si noyés de travail, et des yeux si noyés de
-larmes.
 
 Des yeux perdus, des voix perdues.
 
@@ -1869,7 +1732,6 @@ Et des mémoires si perdues de peines que jamais elles
 ne redeviendront neuves.
 
 Et des âmes si perdues de détresse que jamais elles ne
-redeviendront jeunes.
 
 Que jamais elles ne redeviendront enfants.
 
@@ -1878,17 +1740,13 @@ Et que les cheveux blancs jamais ne redeviendront
 Des cheveux bouclés de jeunesse.
 
 Et que ces pauvres créatures auront passé par de telles
-détresses.
 
-62 DES SAINTS I N N G I^] N T S
 Par de telles épreuves.
 Et qu’elles auront dans leurs mémoires des histoires
 
-telles.
 Qu’elles ne pourront les oublier jamais.
 Sera-t-il dit qu’il y a des plis qu’on ne pourra pas
 
-défaire.
 Avec un fer à repasser.
 Des traces que l’on ne pourra pas effacer.
 Laver au battoir à la rivière. Laver au lavoir.
@@ -1900,37 +1758,29 @@ Et qu’ils ne voudront rien savoir
 Et qu’ils ne voudront entendre à rien
 (Je joue toujours contre moi, dit Dieu.
 Sans doute il est arrivé quelquefois,
-Trop rarement,
 
 (Et je regrette bien de ne pas l’avoir fait plus souvent.
 Au moins quelquefois plus souvent)
 Que j’ai saisi un criminel tout chaud dans la nuit de son
 
-crime.
 Et que je lai pris par la peau du cou.
 Et que je l’ai traîné tout pantelant devant mon Tribunal.
 Gomme un chien crevé.
 Mais c’est qu’ils préparaient de telles horreurs et de
 
-telles monstruosités.
 Que moi Dieu j’en ai été épouvanté.
 Et que dans ma propre nuit j’en ai été saisi d’horreur.
 Et que je n’ai pas pu attendre au soir du jour qu’ils
 
-préparaient.
 Et que je n’ai pas même pu supporter l’idée.
 Que cela se ferait, que cela se passerait, que cela aurait
 
-lieu,
-
-63 L E M Y S T È R E
 Qu’ils préparaient.
 
 Et que j’ai perdu patience. Et pourtant je suis patient.
 Farce que je suis éternel.
 
 I- ! t je les ai saisis dans la préparation de l’accomplisse-
-ment.
 Mais je nai pas pu me retenir. C’était plus fort que moi.
 
 J’ai aussi ma face de colère.
@@ -1947,13 +1797,11 @@ Et pour les peuples de Babel.
 Et pour Nabuchodonosor et pour Téglath-Phalazar.
 Croyez-vous que je vais le faire à présent contre un
 
-pauvre laboureur.
 Pour qui me prenez-vous. Qui me faites-vous.
 Croyez-vous que je vais mobiliser la foudre et les éclairs.
 Et déranger le tonnerre de Dieu.
 Et tout le tremblement contre mes vieilles paroisses
 
-françaises.
 Non, non, bonnes gens, mangez votre soupe et dormez.
 Faites une bonne journée, (si vous pouvez), mangez
 votre soupe, une bonne platée de soupe, une pleine
@@ -1965,17 +1813,13 @@ Celui qui fait sa prière. Notre Père qui êtes aux deux,
 pose entre lui et moi
 Une barrière infranchissable à ma colère.
 
-64 DES SAINTS INNOCENTS
-
 Et peut s’abandonner au sommeil de la nuit.
 
 (O nuit, je t’ai créée la première). Que votre volonté soii
-faite.
 
 Or ce que je n"ai pas fait contre les races perdues.
 
 Vous voudriez que je le fasse contre mes paroisses
-françaises.
 
 Un événement s’est passé dans l’intervalle, un événe-
 ment est intervenu, un événement a fait barrière.
@@ -1983,10 +1827,8 @@ ment est intervenu, un événement a fait barrière.
 C’est que mon fils est venu.
 
 Et moi qu’est-ce que je serais sans mes vieilles paroisses
-françaises.
 
 Qu’est-ce que je deviendrais. C’est là que mon nom
-monte éternellement.
 
 Depuis quand le général décime-t-il ses meilleurs sol-
 dats. Ce sont mes meilleures troupes.
@@ -2015,37 +1857,30 @@ C’est même pour cela peut-être
 Que je sais ce que c’est que la perfection
 
 Et que je demande moins de perfection à ces pauvres
-gens.
 
 Je sais, moi, combien c’est difficile.
 
 Et combien de fois quand ils peinent tant dans leurs
-épreuves
 
-65 innocents. — 5 L E M Y S T È U E
 J’ai envie, je suis tenté de leur metlre la main sous le
 
-ventre
 Poui- les soutenir dans ma larg^e main
 Comme un père qui apprend à nager à son fils
 Dans le courant de la rivière
 Et qui est partagé entre deux sentiments.
 Car d’une part s’il le soutient toujours et s’il le soutient
 
-trop
 L’enfant s’y fiera et il n’appre’ndra jamais à nager.
 Mais aussi s’il ne le soutient pas juste au bon moment
 Cet enfant boira un mauvais coup.
 Ainsi moi quand je leur apprends à nager dans leurs
 
-épreuves
 Moi aussi je suis partagé entre ces deux sentiments.
 Car si je les soutiens toujours et je les soutiens trop
 Ils ne sauront jamais nager eux-mêmes.
 Mais si je ne les soutiens pas juste au bon moment
 Ces pauvres enfants boiraient peut-être un mauvais
 
-coup.
 Telle est la difficulté, elle est grande.
 Et telle la duplicité même, la double face du problème.
 D’une part il faut qu’ils fassent leur salut eux-mêmes.
@@ -2059,11 +1894,8 @@ et qu’ils gagnent eux-mêmes
 Leurs éperons de chevaliers.
 D’autre part il ne faut pas qu’ils boivent un mauvais
 
-coup
 .Ayant fait un plongeon dans l’ingratitude du péché.
 Tel est le mystère de la liberté de l’homme, dit Dieu,
-
-66 DES SAINTS INNOCENTS
 
 Et de mon gouvernement envers lui et envers sa liberté.
 
@@ -2105,7 +1937,6 @@ Cette liberté de cette créature est le plus beau rellet
 qu’il y ait dans le monde
 
 De la Liberté du Créateur. C’est pour cela que nous v
-attachons.
 
 Que nous y mettons un prix propre.
 
@@ -2145,7 +1976,6 @@ Mais dans ma création animée, dit Dieu, j’ai voulu
 mieux, j’ai voulu plus.
 
 Infiniment mieux. Infiniment plus. Car j’ai voulu cette
-liberté.
 
 J’ai créé cette liberté même. Il y a plusieurs degrés de
 mon trône.
@@ -2155,7 +1985,6 @@ soumissions n’ont plus aucun goût.
 
 Quand on a connu d’être aimé par des hommes libres,
 les prosternements d’esclaves ne vous disent plus
-rien.
 
 Quand on a vu saint Louis à genoux, on n’a plus envie
 de voir
@@ -2163,7 +1992,6 @@ de voir
 Ces esclaves d’Orient couchés par terre
 
 Tout de leur long à plat ventre par terre. Être aimé
-librement,
 
 Rien ne pèse ce poids, rien ne pèse ce prix.
 
@@ -2173,16 +2001,12 @@ Quand on a une fois goûté
 
 D’être aimé librement
 
- DES SAINTS INNOCENTS
-
 Tout le reste n’est plus que soumissions.
 C’est pour cela, dit Dieu, que nous aimons tant ces
-Français,
 Et que nous les aimons entre tous uniquement
 Et qu’ils seront toujours mes fils aînés.
 Ils ont la liberté dans le sang. Tout ce qu’ils font, ils le
 
-font librement.
 Ils sont moins esclaves et plus libres dans le péché même
 Que les autres ne le sont dans leurs exercices. Par eux
 
@@ -2217,22 +2041,17 @@ Je sais de quoi on parle. C’est un homme libre, c’est un
 
 libre baron de l’Ile de France. Quand saint Louis
 
-m’aime
 Je sais, je connais ce que c’est que d’être aimé.
 
-69 L K M ^ S T 1-] Il E
 (Or c’est tout’ ; . Sans doute il craint Dieu.
 Mais c’est d’une noble crainte, toute emplie, toute
 
-gonflée.
 Toute pleine d’amour, comme un fruit gonflé de jus.
 Nullement quelque lâche, quelque bassecrainte, quelque
 
-sale peur
 Qui prend dans le ventre. Mais une grande, mais une
 
 haute, mais une noble crainte,
-La peur de me déplaire, parce qu’il m’aime, et de me
 
 désobéir, parce qu’il m’aime,
 Et, parce qu’il m’aime, la peur
@@ -2242,12 +2061,10 @@ l’]t aimant et aimé sous mon regard. Nulle infiltration,
 dans cette noble crainte,
 D’une mauvaise peur et d’une pernicieuse et vile
 
-lâcheté.
 Et quand il m’aime, c’est vrai. Et quand il dit qu’il
 
 m’aime, c’est vrai. Et quand il dit qu’il aimerait
 
-mieux
 Être lépreux que de tomber en péché mortel (tant il
 
 m’aime), c’est vrai.
@@ -2259,7 +2076,6 @@ c’est vrai. Il ne dit pas ça pour que ça fasse bien.
 
 parce qu’on lui a dit de le dire. Il dit ça parce que ça
 
-est.
 Il m’aime à ce point. Il m’aime ainsi. Librement. La
 
 preuve que j’en ai dans la même race
@@ -2269,11 +2085,9 @@ même) qui est un autre baron français,
 Qui aimerait mieux au contraire avoir commis trente
 
 péchés mortels que de devenir lépreux,
-70 DES SAINTS INNOCENTS
 
 (Trente, le malheureux, comme il ne sait pas ce qu’il
 
-dit)
 Ne se gêne pas non plus pour dire ce qu’il pense
 C’est-à-dire pour dire le contraire
 En présence même d’un si g^rand roi
@@ -2286,14 +2100,12 @@ De celui qui ne veut pas risquer le coup
 D’être lépreux plutôt que de tomber en péché mortel
 Me garantit la liberté de parole de celui qui aime mieux
 
-être lépreux
 Que de tomber en péché mortel.
 
 Si l’un ditce qu’il pense, l’autre aussi ditce qu’il pense.
 L’un prouve l’autre.
 Ils n’ont pas peur de contrarier même le roi, même le
 
-saint.
 Mais aussi quand ils parlent, on sait qu’ils parlent
 
 comme ils sont.
@@ -2303,7 +2115,6 @@ qu’ils pensent. C’est tout un.
 Que ne ferait-on pas pour être aimé par de tels hommes.
 La servitude est un air que l’on respire dans une
 
-prison
 Et dans une chambre de malade. Mais la liberté
 Est ce grand air que l’on respire dans une belle vallée
 Et encore plus à flanc de coteau et encore plus sur un
@@ -2312,10 +2123,6 @@ large plateau bien aéré.
 Or il y a un certain goût de l’air pur et du grand air
 Qui fait les hommes forts, un certain goût de santé,
 D’une pleine santé, virile, qui fait paraître tout autre
-
-air
-
-71 LE MYSTÈRE
 
 Enfermé, malade, confiné.
 
@@ -2357,31 +2164,22 @@ Car c’est un reflet de ma propre Liberté
 
 Qui est le secret même et le mystère
 
-Et le centre et le cœur et le germe de ma Création,
-
-72 DES SAINTS INNOCENTS
-
 Comme j’ai créé Thomme à mon image et à ma ressem-
-blance,
 Ainsi j’ai créé la liberté de rhomme à l’image et à la
 
-ressemblance
 De ma propre, de mon originelle liberté. Aussi quand
 
 saint Louis tombe à genoux
 Sur les dalles de là Sainte-Chapelle, sur les dalles de
 
-Notre-Dame
 C’est un homme qui tombe à genoux, ce n’est pas une
 
 chiffe, ce n’est pas une loque
 Un tremblant esclave d’Orient
 C’est un homme et c’est un Français et quand saint
 
-Louis m’aime
 C’est un homme qui m’aime el quand saint Louis se
 
-donne
 ( -’est un homme qui se donne. Et quand saint Louis me
 
 donne son cœur
@@ -2391,25 +2189,20 @@ Et quand il m’estime mon prix
 C’est-à-dire quand il m’estime Dieu,
 C’est une têle d’homme qui m’estime, une saine tête de
 
-Français.
 (Et Joinville même, Joinville qu’il ne faut point
 
-oublier.
 Quand il m’aime (car il m’aime aussi).
 Quand il m’estime (car il m’estime aussi),
 Quand il se donne (car il se donne aussi) et quand il
 
 me donne son cœur,
 Il sait ce qu’il est, qui il est,
-1 ! sait ce qu’il vaut, il sait ce qu’il pèse, il sait ce qu’il
 
 donne, il sait ce qu’il apporte
 Et je le sais aussi.
 
-73 L K M Y S T K R E
 Quand Joinville même, et je ne dis pas seulement saint
 
-Louis,
 Quand Joinville tombe à g^enoux sur la dalle
 Dans la cathédrale de Reims
 
@@ -2417,14 +2210,12 @@ Ou dans la simple chapelle de son château de Joinville,
 Ce n’est pas un esclave d’Orient qui s’écroule,
 Dans la peur et dans quelque lâche et dans quelque
 
-sale tremblement
 Aux genoux et aux pieds de quelque potentat
 D’Orient. C’est un homme libre et un baron français,
 Joinville sire de Joinville,
 
 Qui donne, qui apporte et qui fait tombera genoux
 Librement et pour ainsi dire et en un certain sens gra-
-tuitement
 Et un homme libre et un baron français,
 Joinville sire de Joinville de la comté de Champagne,
 Jean, sire de Joinville, sénéchal de Champagne.
@@ -2434,15 +2225,10 @@ Jean, sire de Joinville, sénéchal de Champagne.
 11 me reprenait bien un peu moi-même
 Avec son histoire de la lèpre et des péchés mortels.
 Mais je leur en passe tant, je leur passe tout ce qu’ils
-veulent.
 
 Il ne faut pas oublier Joinville, dit Dieu. C’étaient de
-nobles hommes. « 
-
-74 DES SAINTS INNOCENTS
 
 Si l’on oubliait les pécheurs, il n’en resterait pas beau-
-coup.
 
 Peu de saints, beaucoup de pécheurs, comme partout.
 
@@ -2453,13 +2239,11 @@ aussi au sire de Joinville.
 
 Quelques saints marchent en tète. Et le grand cortège
 des pécheurs suit derrière. Ainsi est faite ma chré-
-tienté.
 
 C’est ainsi qu’on obtient les grandes processions.
 
 Quelques pasteurs marchent devant. Et le grand trou-
 peau suit derrière. Ainsi est fait le cortège de ma
-chrétienté.
 
 Comme leur liberté a été créée à l’image et à la ressem-
 blance de ma liberté, dit Dieu,
@@ -2467,7 +2251,6 @@ blance de ma liberté, dit Dieu,
 Comme leur liberté est le rellet de ma liberté.
 
 Ainsi j’aime à trouver en eux comme une certaine gra-
-tuité
 
 Qui soit comme un lellet de la gratuité de ma grâce,
 
@@ -2480,18 +2263,14 @@ mais comme gratuitement.
 J’aime qu’ils tombent à genoux non seulement libre-
 ment mais comme gratuitement.
 
-75 L E M Y S T È R E
-
 .l’aime qu’ils se donnent et qu’ils donnent leur cteur et
 qu’ils se remettent et qu’ils s’apportent et qu’ils
 estiment non seulement librement mais comme gra-
-tuitement.
 
 J’aime qu’ils aiment enfin, dit Dieu, non seulement
 librement mais comme gratuitement.
 
 Or pour cela, dit Dieu, avec mes Français je suis bien
-sei’vi.
 
 C’est un peuple qui est venu au monde la main ouverte
 et le C(i>ur libéral.
@@ -2506,7 +2285,6 @@ Il donne pour rien. .Autrement est-ce donner.
 Il aime pour rien. Autrement est-ce aimer.
 
 Il ne me propose point toujours des marchés générale-
-ment honteux.
 
 Peuple libre, peuple gratuit, et non plus seulement
 peuple jai’dinier.
@@ -2527,21 +2305,16 @@ Mais ces Français qui lèvent toujours la tête,
 
 Qui ont toujours la tête droite
 
-Et haute.
-
 Quand dans une église cent cinquante ou deux cents
 rangées de Français à genoux
 
 r>aissent la tête ensemble en même temps trois fois aux
-trois coups de la sonnette DES SAINTS INNOCENTS
 
 Pour l'offrande et l'offertoire
 
 Et pour la consécration et pour l'élévation du corps de mon fils,
 
 Ça se voit, qu’ils baissent la tête et tout le monde comprend
-
-Que ça en vaut la peine,
 
 Que c’est un instant solennel et le plus grand mystère
 
@@ -2570,8 +2343,6 @@ Il ne sait pas marchander. 11 ne marchande pas sur
 
 une prière.
 
-77 LE MYSTÈRE
-
 11 ne marchande pas sur un vœu. Quand il donne, il
 
 donne. Quand il demande, il demande.
@@ -2597,7 +2368,6 @@ même
 Par des sortes de vœux gratuits. Ils savent très bien
 Qu’ils ne m’apportent aucuns mérites et que ce que je
 
-fais,
 Je le fais pour les mérites et par les mérites de mon
 
 fils et des saints.
@@ -2609,10 +2379,7 @@ Et par une certaine gratuité du vœu même.
 Ils me répondent comme je demande. Or s’il en est
 ainsi du menu peuple et d’un baron français
 
-78 DES SAINTS INNOCENTS
-
 Que sera-ce d’un saint Louis, baron lui-même et roi des
-barons.
 
 Dans leur histoire de la lèpre et du péché mortel voici
 comme je calcule, dit Dieu.
@@ -2624,10 +2391,8 @@ Et quand saint Louis aime mieux être lépreux que de
 tomber en un seul péché mortel,
 
 Je n’en i^etiens pas, dit Dieu, que saint Louis m’aime
-ordinairement
 
 Et que Joinville m’aime trente fois moins qu’ordinaire-
-ment.
 
 Que saint Louis m’aime suivant la mesure, à la mesure,
 
@@ -2637,24 +2402,18 @@ Je compte au contraire, dit Dieu. Voici comme je cal-
 cule. Voici ce que je retiens.
 
 J’en retiens au contraire que Joinville m’aime ordinai-
-rement
 
 Honnêtement, comme un pauvre homme peut m’aimer.
 
-Doit m’aimer.
-
 Et que saint Louis au contraire m’aime trente fois plus
-qu’ordinairement.
 
 Trente fois plus qu’honnêtement.
 
 Que Joinville m’aime à la mesure.
 
 Et que saint Louis m’aime trente fois plus qu’à la
-mesure.
 
 Et si je l’ai mis dans mon ciel, celui-là, au moins je
-sais pourquoi).
 
 Voilà comme je compte, dit Dieu. Et alors mon compte
 est bon. Car cette lèpre dont il s’agissait,
@@ -2682,10 +2441,6 @@ Cette répugnante maladie de croûtes qui fait d’un homme
 L’horreur et la honte de l’homme.
 
 Cet ulcère, cette pourriture sèche, enfin cette définitive lèpre
-
-Qui ronge la peau et la face et le bras et la main,
-
-Et la cuisse et la jambe et le pied
 
 Et le ventre et la peau et les os et les nerfs et les veines.
 
@@ -2717,7 +2472,6 @@ Et que c’est m’aimer trente fois et que c’est trente fois
 de l’amour.
 
 Ah sans doute si Joinville avec les yeux de l’âme avait
-vu
 
 Ce que c’est que cette lèpre de l’âme
 
@@ -2726,7 +2480,6 @@ Que nous ne nommons pas en vain le péché mortel,
 Si avec les yeux de l’âme il avait vu
 
 Cette pourriture sèche de l’âme infiniment plus mau-
-vaise,
 
 Infiniment plus laide, infiniment plus pernicieuse,
 
@@ -2749,13 +2502,10 @@ un pécheur, il en faut dans la chrétienté.
 C’était un bon français, Jean, sire de Joinville, un baron
 de saint Louis. Au moins il disait ce qu’il pense.
 
-81 innocents. — 6 LE M ^’ S T È H 1^ :
-
 Ces gens-là font le gros de Tarmée. Il faut aussi des
 
 troupes. II ne suffît pas d’avoir des chefs qui marchent
 
-en tête.
 Ces gens-là partent fort honnêtement en croisade, au
 
 moins une fois sur les deux, et font très honnêtement
@@ -2767,19 +2517,13 @@ et gagnent le royaume du ciel
 Tout comme un autre.
 (Je veux dire comme un autre gagnerait le royaume du
 
-ciel.
 Ou je veux dire comme eux-mêmes ils gagneraient un
 
-autre royaume,
-Un royaume de la terre.) C’est ce qu’il y a de plus
-
-remarquable en eux.
 Ils s’en vont les uns comme les autres, en troupe, les
 
 uns derrière les autres.
 Sans se presser, sans s’étonner, sans faire des grands
 
-gestes,
 Très honnêtement, fort ordinairement.
 Sans faire un éclat et ils finissent tout de même
 Par conquérir le royaume du ciel.
@@ -2791,21 +2535,17 @@ Ils attaquent le royaume du ciel comme on attaque un
 royaume de la terre,
 A main foi^te et cela ne réussit déjà pas si mal. Violenli
 
-rapiunt.
 Us vous font d’ailleurs tout cela fort honnêtement,
 
 très communément, comme allant de soi.
 Gomme si ce fût la chose la plus naturelle du monde.
 Seulement ces malheureux ne veulent pas avoir la
 
-82 DES SAINTS INNOCENTS
-
 lèpre. Ils trouvent sans doute que ce n’est pas
 
 propre. Ils aimeraient mieux autre chose.
 Les malheureux, les sots, s’ils voyaient la lèpre de
 
-Tâme
 Et s’ils voyaient la saleté ou la propreté de Tâme.
 Mais voilà, ils se disent : Je n"ai qu’un corps (les sots,
 
@@ -2816,11 +2556,9 @@ leur éternité.
 Le corps de la résurrection des corps),
 Je n’ai qu’un corps, pensent-ils (ne pensant qu’à leur
 
-corps terrestre)
 Si cette sale lèpre me prend, je suis perdu
 (Ils veulent dire que leur corps temporel est temporel-
 
-lement perdu).
 C’est une maladie qui prend toujours et qui ne rend
 
 jamais.
@@ -2846,8 +2584,6 @@ C’est une gangrène irrévocable et qui ne retourne
 
 jamais en arrière.
 
-83 L E M Y S T È R 1- :
-
 Or ils y tiennent à leur corps. On dirait qu’ils croient
 
 qu’ils n’ont que ça.
@@ -2863,23 +2599,18 @@ sidèrent point qu’au bout de ce bout
 Commence le véritable commencement)
 Et alors ils aimeraient mieux avoir autre chose que hi
 
-lèpre.
 Je pense qu’ils aimeraient mieux attraper
 Lue maladie qui leur plairait. C’est toujours le même
 
-système.
 Ils veulent bien affronter les plus terribles épreuves
 Et m’ofîrir les plus redoutables exercices,
 Pourvu que ce soient eux qui les aient préalablement
 Choisis. Là-dessus les Pharisiens s’écrient et font des
 
-éclats
 Et poussent des cris et font des mines et ces exécrables
 
-Pharisiens
 Surtout prient disant : Seigneur nous vous rendons
 
-grâces
 De ce que vous ne nous avez point fait semblables à
 
 cet homme
@@ -2887,13 +2618,11 @@ Qui a peur d’attraper la lèpre. Or moi je dis au con-
 traire, dit Dieu,
 C’est moi qui dis : Ce n’est pas rien que d’attraper la
 
-lèpre.
 Je sais ce que c’est que la lèpre. C’est moi qui l’ai faite.
 Je la connais. Je dis : Ce n’est pas rieh que d’attraper
 
 la lèpre.
 
-84 DES SAINTS ! N N O G E N T S
 Et je n’ai jamais dilque les épreuves et les exercices de
 
 leur vie,
@@ -2911,7 +2640,6 @@ Les Pharisiens poussent des cris sur celui qui ne veut
 pas attraper la lèpre.
 Et ils sont scandalisés, ces vertueux.
 iMais moi qui ne suis pas vertueux,
-Dit Dieu,
 Je ne pousse pas des cris et je ne suis pas scandalisé.
 
 Je ne compte pas, je n’en retiens pas que ce Joinville
@@ -2925,18 +2653,15 @@ fois au dessus de l’ordinaire.
 Je ne compte pas, je n’en retiens pas
 Que Joinville est trente fois lâche.
 
-85 L E M ^’ S T K W E
 Mais au contraire j’en retiens et je compte
 Que c’est ce saint Louis qui est trente fois brave,
 ’l'rente fois brave au dessus de Tordinaire et plus que la
-mesure.
 
 .le ne compte pas, je n"en retiens pas
 Que Joinville est trente fois plus bas.
 Mais au contraire j’en retiens et je compte
 Que c’est ce saint Louis qui est trente fois haut,
 Trente fois haut au dessus de l’ordinaire et plus que la
-mesure.
 
 .le ne compte pas, je n’en retiens pas
 
@@ -2944,14 +2669,11 @@ Que Joinville est trente fois petit.
 
 Mais je sais seulement qu’il est homme.
 
-Et au contraire j’en retiens et je compte,
-
 Voici comme je compte,
 
 Et c’est ainsi.
 
 .l’en retiens et je compte que c’est ce saint Louis, roi de
-France,
 
 Qui est trente fois yrand, trente fois au dessus de l’ordi-
 naire et plus que la mesure
@@ -2962,7 +2684,6 @@ frère de mon fds.
 Les Pharisiens crient le haro sur celui qui ne veut pas
 attraper la lèpre.
 
-86 DES SAINTS INNOCENTS
 Mais le saint ne crie pas le haro et il n’est pas scandalisé.
 Il connaît trop la nature de l’homme et l’infirmité de
 
@@ -2980,8 +2701,6 @@ d’autant plus de certitude et plus d’assurance et plus
 de garantie qu’elle est plus douce.
 Les cœurs des pécheurs ne se prennent point par
 
-effraction.
-
 Ils ne sont pas assez purs. Le seul royaume du ciel se
 prend par effraction.
 
@@ -2989,7 +2708,6 @@ Les Pharisiens courent sus à l’homme qui ne veut pas
 attraper la lèpre.
 
 Voyez comme au contraire le Saint le reprend dou-
-cement.
 
 Le Saint est envahi d’une peine affreuse à cette parole
 du pécheur.
@@ -2998,8 +2716,6 @@ Mais il absorbe, il dévore sa peine et la souffre lui-
 même pour lui-même en lui-même.
 
 Et voyez comme il reprend doucement le pécheur.
-
-87 L E M ^’ S T 1- : R E
 
 Or moi, dit Dieu, je suis du côté des saints et aullemenl
 
@@ -3020,47 +2736,36 @@ soient seuls. 11 ne veut pas
 Faire un semblant d’affront à un baron français),
 // m’appela tout seul, et me fit seoir à ses pieds et me
 
-dit :
 « Comment me dites-vous hier ce ? »
 Et je lui disque encore lui disais-je.
 
 Et je, qui onques ne lui mentis ;
 
 Et je lui dis que encore lui disais-je ; en vérité, dit
-Dieu,
 
 Cette franchise de Joinville, qui ose répétercela au roi,
 
 Est précisément ce qui me g^arantit la franchise de
-saint Louis.
 
 Cette franchise de péché de Joinville et de cette cer-
-taine impiété
 
 Est justement ce qui me couvre, ce qui me garantit,
-
-88 DES SAINTS INNOCENTS
 
 Ce qui pour ainsi dire me contrebalance
 
 La franchise de sainteté de saint Louis. Et ce qui me la
-vérifie.
 
 Entendez-moi, dit Dieu, c’est la liberté de Joinville
 
 Qui me couvre, qui me garantit la liberté de saint
-Louis.
 
 C’est la g-raluité de Joinville
 
 Qui me couvre, qui me garantit la g-ratuité, la grâce de
-saint Louis.
 
 Entendez-moi c’est le péché de Joinville, ce bon chré-
-tien,
 
 Qui me couvre, qui me garanti l la sainteté même de
-saint Louis.
 
 Je, qui onques ne lui inenlis, c’est parce que Joinville
 ne mentit jamais à saint Louis,
@@ -3075,17 +2780,12 @@ Que saint Louis ne me ment jamais.
 Que son amour, que sa sainteté ne me ment pas,
 
 Que ce n’est point un amour, une sainteté de conven-
-tion,
-
-De complaisance, imaginaire,
 
 Mais que c’est un amour, une sainteté réelle,
 
 l’^’anche, terrienne,
 
 Teri’euse, une sainteté de race et de belle race,
-
-Libre, gratuite. L E M Y S T K R E
 
 Et il me dit : « Vous dîtes comme vif étourdi ;
 
@@ -3121,10 +2821,6 @@ armée de douceur.
 L’une enfermée dans l’autre, l’autre enfermée dans
 l’une, comme un double noyau dans un double fruit
 
-90 DES SAINTS I xN N G E N T S
-
-De fermeté.
-
 Une douceur d’autant mieux garantie par la fermeté,
 une fermeté d’autant mieux garantie par la douceur.
 
@@ -3136,7 +2832,6 @@ la fermeté,
 Vêtue de fermeté.
 
 Et il n’est point de véritable fermeté que vêtue de dou-
-ceur.
 
 Quelle douceur, quelle tendresse. Celui qui aime
 
@@ -3160,7 +2855,6 @@ Quelle attention, quelle dilection.
 
 Quel soin de ne pas donner même une apparence de
 
-tort.
 Quel soin de ne pas commettre la moindre offense.
 Lui le roi, parlant pour Dieu et pour lui-même
 Pour Dieu et pour le roi de France il parle humblement.
@@ -3168,12 +2862,8 @@ Il parle comme un tremblant solliciteur.
 C’est qu’il tremble en effet et c’est qu’il sollicite.
 Il tremble que son fidèle Joinville ne fasse pas son
 
-salut.
-
-91 L E M Y S T È R i :
 Va il demande à Joinville, il sollicite que le fidèle « Toi
 
-ville
 Fasse son salut. Veuille bien faire son salut. Quelle
 
 sollicitation. Il a soin de le prendre à part. Il attend
@@ -3203,12 +2893,10 @@ Entre incontinent dans le corps même et dans le texte
 de cette plaisante,
 De cette redoutable entrée. Vous dites comme hktis
 
-musars ;
 car vous devez savoir que nulle si laide lèpre
 nt’st comme d’être en péché mortel,
 pour ce que l’âme qui est en péché mortel est semblable
 
-au diable :
 par quoi nulle si laide lèpre ne peut être.
 
 92
@@ -3220,13 +2908,11 @@ Des plus grandes paroles de Jésus dans les Évangiles.
 Car en imitation de Jésus
 Il a été donné à des saints de pi’ononcer des paroles
 
-non indignes
 De Jésus, des paroles de Jésus,
 Comme en imitation et en l’honneur de Jésus
 Il a été donné à des martyrs de subir une mort
 Non indigne de la mort de Jésus. Ainsi ces paroles qui
 
-viennent
 Ne sont point indignes de la prédication de Jésus même.
 El bien est vrai que quand Vhomme meurt,
 
@@ -3236,7 +2922,6 @@ il est quéri de la lèpre du corps ;
 mon enfant, la même profondeur,
 La même résonance de la même voix dans la même
 
-profondeur)
 (c’est qu’aussi c’est la même sainteté. Jésus et les autres
 
 saints. La même commune éternelle sainteté,
@@ -3245,7 +2930,6 @@ La même communion des saints) ;
 mais quand l'homme qui a fait le péché mortel meurt,
 il ne sait pas ni n est certain que il ait eu en sa vie telle
 
-repentance
 que Dieu lui ait pardonné :
 
 par quoi grand peur doit avoir que cette lèpre lui dure
@@ -3257,7 +2941,6 @@ Des trois paraboles de l’Espérance.
 Elles sont le reflet, elles sont le report, elles sont le rappel
 Dans la même résonance et dans la même ligne
 
-93 L E M Y S T 1> R E
 Des trois paraboles de l’Espérance. Ihi homme avait
 
 deux fils. Un roi avait un baron.
@@ -3272,7 +2955,6 @@ Ainsi ces paroles de saint Louis qui viennent sont le
 cœur peut-être et sans doute et le couronnement
 Non seulement de saint Louis et de la sainteté de saint
 
-Louis.
 Mais de toute sainteté peut-être après les Evangiles,
 De toute sainteté issue des Évangiles. Car elle est le
 
@@ -3295,11 +2977,8 @@ i^otre cœur à ce,
 pour l’amour de Dieu et de moi,
 que vous aimassiez mieux que tout méchef avînt au
 
-corps,
 de lèpre et de toute maladie,
 que ce que le péché mortel vint à lame de vous.
-
-94 DES SAINTS INNOCENTS
 
 Quelle instance, quelle humble instance, quelle noble
 instance, quelle tendre instance.
@@ -3312,7 +2991,6 @@ N’a jamais été plus tendre au pécheur. C’est que le
 saint par lui-même sait
 
 Ce que c’est que d’être homme et ce qu’est la faiblesse
-humaine
 
 Et l’infirmité de l’homme
 
@@ -3337,7 +3015,6 @@ lui je tremble
 Pour leur salut. Comme lui je sollicite, hélas.
 Pour leur salut. Les Pharisiens veulent que les autres
 
-soient parfaits.
 Et ils exigent et ils réclament. Et ils ne parlent que de
 
 cela. Mais moi je ne suis pas si exigeant.
@@ -3346,9 +3023,6 @@ Parce que je sais ce que c’est que la perfection, je ne
 leur en demande pas tant.
 Parce que je suis parfait et il n’y a que moi qui est
 
-parfait.
-
-95 LE MYSTÈRE
 Je suis le Toul-Parfait. Aussi je suis moins difficile.
 Moins exigeant. Je suis le Saint des saints.
 Je sais ce que c’est. Je sais ce qu’il en coûte.
@@ -3361,13 +3035,10 @@ Mais le saint qui veut de la perfection pour lui-même
 En lui-même
 Et qui cherche et qui peine dans le labeur et dans les
 
-larmes
 Et qui obtient quelquefois quelque perfection.
 Le saint est moins difficile pour les autres.
 11 est moins exigeant pour les autres. Il sait ce que c’est.
 Il est exigeant pour soi, difticile pour soi. C’est plus
-
-difficile.
 
 Les Pharisiens trouvent toujours les autres indignes et
 
@@ -3391,7 +3062,6 @@ fois hors du commun, trente fois saint, trente fois
 
 hors de l’espèce ordinaire.
 
-96 DES SAINTS INNOCENTS
 Je trouve que ce Joinville n’est pas indigne et même
 
 qu’il est digne,
@@ -3401,8 +3071,6 @@ Contre mon épaule.
 
 D’ailleurs ce qu’il avait en en Égypte, dit Dieu,
 
-Et ce qu’il attrapa en Tunisie,
-
 Ce grand épuisement de tout son corps
 
 Et cet incoercible
@@ -3411,7 +3079,6 @@ Flux de ventre dont il mourut
 
 Ne valaient pas mieux que cette lèpre qu’il consentait
 
-d’avoir.
 Il n’y a point de maladie de bonne, dit Dieu. Je lésais,
 
 c’est moi qui les ai faites.
@@ -3429,16 +3096,12 @@ Sortent naturellement de la maladie les plus éclatantes,
 les plus tendres, les plus chères, les plus lleurissantes
 
 de toutes.
-Et qu’il y a manière de tourner la maladie et la mort
 
 par la maladie en martyre même.
 
 Pour moi, dit Dieu, quand je vois,
 
-97 innocents. — 7 LE MYSTÈRE
-
 Quand je considère cette maladie qu’est réellement la
-lèpre,
 
 Cette inexpiable maladie farineuse aux croûtes blanches,
 
@@ -3457,7 +3120,6 @@ C’est-à-dire dise réellement qu’il aimerait mieux attra-
 per cette maladie-là que de me déplaire,
 
 J’en suis saisi moi-même, dit Dieu, et je tremble
-d’admiration
 
 Devant tant d’amour et je suis honteux
 
@@ -3485,13 +3147,10 @@ homme comme ce saint Louis,
 (et tant d’au très saints et tant d’autres martyrs)
 Kl je suis confondu d’être tant aimé.
 
-98 DES SAINTS INNOCENTS
-
 Et il faut que ma grâce soit tellement grande.
 
 Et éternellement je serai en reste avec eux
 Car dans mon paradis même ils m’aimeront éternelle-
-ment autant.
 
 Je demeure tremblant, dit Dieu, je demeure confondu
 
@@ -3507,7 +3166,6 @@ Et qu’il y ait un homme qui ait dit cela non point
 
 comme un propos.
 Non point comme une lèpre de propos,
-De discours,
 
 Mais réellement d’une lèpre réelle,
 De la lèpre non point d’une lèpre de parole, d’une lèpre
@@ -3515,7 +3173,6 @@ De la lèpre non point d’une lèpre de parole, d’une lèpre
 de récit,
 Mais d’une lèpre toute prête, toute proposée.
 
-^9 LE MYSTÈRE
 Et qu’il n’ait pas dit cela, cette sorte d’énormité,
 Avec un grand geste, avec éclat,
 Mais qu’il ait dit cela simplement,
@@ -3535,43 +3192,24 @@ Leur ordre propre.
 
 Peuple à qui les plus grandes grandeurs
 
-Sont ordinaires.
-
 Je salue ici ta liberté, ta grâce,
-
-Ta courtoisie.
-
-Ta gracieuseté.
-Ta gratitude.
-Ta gratuité.
 
 Demandez à ce père si le meilleur moment
 N’est pas quand ses fils commencent à l’aimer comme
 des hommes,
 
-100 DES SAINTS INNOCENTS
 Lui-même comme un homme,
-librement,
-Gratuitement,
 j)eman(iez à ce père dont les enfants grandissent.
 
 Demandez à ce père s’il n’y a point une heure secrète.
-
-Un moment secret,
 
 Et si ce n’est pas
 
 Quand ses fils commencent à devenir des hommes,
 
-Libres,
-
 Et lui-même le traitent comme un homme,
 
-Libre,
-
 L’aiment comme un homme,
-
-Libre,
 
 Demandez à ce père dont les enfants grandissent.
 
@@ -3584,7 +3222,6 @@ Quand la soumission précisément cesse et quand ses
 fils devenus hommes
 L’aiment, (le traitent), pour ainsi dire en connaisseurs,
 D’homme à homme.
-Librement,
 
 Gratuitement. L’estiment ainsi.
 
@@ -3592,8 +3229,6 @@ Demandez à ce père s’il ne sait pas que rien ne vaut
 Un regard d’homme qui se croise avec un regard
 
 d’homme.
-
-101 L E M ^ S T È R E
 
 Or je suis leur père, dit Dieu, et je connais la condition
 
@@ -3620,18 +3255,12 @@ Pour un regard de saint Louis,
 Et même pour un regard de Joinville,
 Car Joinville est moins saint mais il n’est pas moins
 
-libre,
-
 (Et il n’est pas moins chrétien).
 Et il n’est pas moins gratuit.
-102 DES SAINTS INNOCENTS
 Et mon fils est mort aussi pour Joinville.
 A cette liberté, à cette gratuité j’ai tout sacrifié, dit
 
-Dieu,
 Ace goût que j’ai d’être aimé par des hommes libres,
-Librement,
-Gratuitement,
 
 Par de vrais hommes, virils, adultes, fermes.
 Nobles, tendres, mais d’une tendresse ferme.
@@ -3648,15 +3277,12 @@ Pour lui apprendre la liberté.
 Je n’ai pas trop de toute la Sagesse de ma Providence.
 
 Et de la duplicité même de ma Sagesse pour ce double
-enseignement.
 
 Quelle mesureil faut quejegarde,etcomment la calculer.
 
 Quel autre pourrait la calculer. Et comme il faut que je
-sois double
 
 Et comme il faut que je compose prudemment ce dou-
-blement,
 
 (\’oilà qui va encore scandaliser nos Pharisiens),
 
@@ -3666,14 +3292,11 @@ même.
 Quelle ne faut-il pas que soit ma prudence. Il faut créer,
 il faut enseigner cette liberté
 
-103 LE MYSTÈRE
-
 Sans exposeï’ leur salut. Car si je les soutiens trop
 Ils n’apprennent jamais à nag-er.
 Mais si je ne les soutiens pas juste au bon moment,
 Ils piquent du nez, ils boivent un mauvais bouillon, ils
 
-plongent
 Et il ne faut pas qu’ils sombrent
 IJans cet océan de turpitudes.
 
@@ -3682,7 +3305,6 @@ IJans cet océan de turpitudes.
 exactement la même,
 .le suis exactement comme ce roi, qui était je pense un
 
-roi d’Ang-leterre,
 Qui ne voulut point envoyer de secours, aucune aide
 A son fils engagé dans une mauvaise bataille,
 Parce qu’il voulait que l’enfant
@@ -3695,9 +3317,6 @@ Tel est l’ordre, tel est le secret, tel est le mystère. Or
 dans cet ordre, et dans ce secret, et dans ce mystère
 Nos Français sont avancés entre tous. Ils sont mes
 
-témoins.
-Préférés.
-
 Ce sont eux qui marchent le plus tout seuls.
 Ce sont eux qui marchent le plus eux-mêmes.
 Entre tous ils sont libres et entre tous ils sont gratuits.
@@ -3705,16 +3324,9 @@ Ils n’ont pas besoin qu’on leur explique vingt fois la
 
 même chose.
 Avant qu’on ait fini de parler, ils sont partis.
-Peuple intelligent.
 Avant qu’on ait fini de parler, ils ont compris.
 
-104 DES SAINTS INNOCENTS
-
-Peuple laborieux,
-
 Avant qu’on ait fini de parler, l’œuvre est faite.
-
-Peuple militaire,
 
 Avant qu’on ait fini de parler, la bataille est donnée.
 
@@ -3750,11 +3362,8 @@ dit Dieu,
 
 Et on est toujours loin du général.
 
-105 LE MYSTERE
-
 C’est embêtant, dit Dieu. Quand il n’y aura plus ces
 
-Français,
 Il y a des choses que je fais, il n’y aura plus personne
 
 pour les comprendre.
@@ -3771,13 +3380,11 @@ Tu es arrivé avant que les autres soient partis.
 
 Mais moi je t’ai pesé, dit Dieu, et je ne t’ai point trouvé
 
-léger.
 peuple inventeur de la cathédrale, je ne t’ai point
 
 trouvé léger en foi.
 peuple inventeur de la croisade je ne t’ai point trouvé
 
-léger en charité.
 Quant à l’espérance, il vaut mieux ne pas en parler, il
 
 n’y en a que pour eux.
@@ -3786,7 +3393,6 @@ Tels sont nos Français, dit Dieu. Ils ne sont pas sans
 
 défauts. Il s’en faut. Ils ont même beaucoup de
 
-défauts.
 Ils ont plus de défauts que les autres.
 Mais avec tous leurs défauts je les aime encore mieux
 
@@ -3796,8 +3402,6 @@ Je les aime comme ils sont. Il n’y a que moi, dit Dieu,
 qui suis sans défauts. (Mon fils et moi. Un Dieu avait
 
 un fils.
-
-106 DES SAINT^^ INNOCENTS
 
 Et comme créatures il n’y en a que trois qui aient été
 sans défauts.
@@ -3811,15 +3415,10 @@ Et c’est la Vierge temporellement et éternellement.
 Dans sa double éternité.
 
 Et deux femmes seulement ont été pures étant char-
-nelles.
 
 ICt ont été charnelles étant pures.
 
 Et c’est Eve et Marie.
-
-Eve jusqu’au péché.
-
-Marie éternellement.
 
 Nos Français sont comme tout le monde, dit Dieu. Peu
 
@@ -3836,7 +3435,6 @@ qui n’en a pas.
 rJe suis ainsi. Un homme avait deux fils.)
 Or ces Français, comme ils sont, ce sont mes meilleurs
 
-serviteurs.
 Ils ont été, ils seront toujours mes meilleurs soldats
 
 dans la croisade.
@@ -3846,15 +3444,12 @@ Enfin ils me plaisent. C’est tout dire. Ils ont du bon et
 du mauvais.
 Ils ont du pour et du contre. Je connais l’homme.
 
-107 LE MYSTÈRE
-
 .le sais trop ce qu’il faut demander à rhomme.
 
 Et surtout ce qu’il ne faut pas lui demander.
 (Si quelqu’un le sait, c’est moi.
 
 Depuis que l’ayant créé à mon image et à ma ressem-
-blance.
 
 Par le mystère de cette liberté ma créature
 
@@ -3887,7 +3482,6 @@ nom de nuit : et du soir et du matin se fit le premier
 jour.
 
 Sera-t-il dit qu’il y aura des regards si éteints, des
-regards si pâlis
 
 Que nulle étincelle ne les allumera plus.
 
@@ -3901,7 +3495,6 @@ D’épreuves, de détresse,
 
 De larmes, de prière, de travail,
 
-108 DES SAINTS INNOCENTS
 Et d’avoir vu ce qu’elles ont vu. Et d’avoir souffert ce
 
 qu’elles ont souffert.
@@ -3928,9 +3521,6 @@ Et de se coucher pour dormir.
 Dormir, dormir enfin.
 
 Et que tout ce qu’ils supporteront et que tout ce que je
-pourrai mettre
-
-Et apporter
 
 (Celui que je prends dans son sommeil de la terre est
 bien heureux, et c’est bon signe, mes enfants)
@@ -3953,11 +3543,8 @@ Et qu’ils n’auront (plus) aucun goût pour mon paradis
 Et pour ma vie éternelle.
 
 Et que tout ce que je pourrai mettre sur tant de bles-
-sures ;
 
 Sur tant de cicatrices et sur tant de sacrifices ;
-
-109 LE M Y S T È R E
 
 VA sur l’amertume de tant de calices ;
 Et sur les ingratitudes de tant de malices ;
@@ -3990,26 +3577,16 @@ Et tant de platitude et sur tant d’amertume.
 
 Et sur cette écume
 
-De sang.
+Et sur cette écume
 
 Et sur cette écume
 
-De haine.
-
 Et sur cette écume
-
-D’ingratitude.
-
-Et sur cette écume
-
-D’amour.
 
 Et sur tant de blessures sera-t-il dit.
 Que sur tant de blessures tout ce que je pourrai mettre.
 Et sur tant de flétrissures et sur tant de meurtrissures.
 Et sur tant d’éclaboussures et sur tant de morsures.
-
-110 DES SAINTS INNOCENTS
 
 Ce sera de faire descendre comme un baume du soir.
 Comme après la blessure d’un ardent midi la grande
@@ -4030,7 +3607,6 @@ Or il en serait ainsi, dit Dieu.
 
 Et tout ce que je pourrais mettre sur les bords des
 
-lèvres
 Des plaies des martyrs
 Ce serait le baume, et l’oubli, et la nuit.
 Et tout s’achèverait de lassitude,
@@ -4043,10 +3619,7 @@ Et que la Béatitude sera.
 Et que le Paradis sera. Et le ciel et tout.
 Car elle seule, comme elle seule dans les jours de cette
 
-terre
 D’une vieille veille fait jaillir un lendemain nouveau
-
-111 LE MYSTÈRE
 
 Ainsi elle seule des résidus du Jugemenl cl des ruines
 
@@ -4056,8 +3629,6 @@ Fera jaillir une éternité neuve.
 Je suis, dit Dieu, le Seigneur des vertus.
 
 La Foi est la lampe du sanctuaire.
-
-Qui brûle éternellement.
 
 La Charité est ce grand beau feu de bois
 
@@ -4079,17 +3650,14 @@ Et tendant leurs paumes à la chaleur du foyer.
 Mais mon espérance est la fleur et le fruit et la feuille
 
 et la branche.
-Et le rameau et le bourgeon et le germe et le bouton.
 Et elle est le bourgeon et le bouton de la fleur
 De l’éternité même.
 
 O mon peuple français, dit Dieu, tu es le seul qui ne
 fasses point des contorsions.
 
-112 DES SAINTS INNOCENTS
 Ni des contorsions de raideur, ni des contorsions de
 
-mollesse.
 Et dans ton péché même tu fais moins de contorsions
 Que les autres n’en font dans leurs exercices.
 Quand tu pries, agenouillé tu as le buste droit.
@@ -4097,7 +3665,6 @@ I^]t les jambes bien jointes bien droites au ras du sol.
 Et les deux pieds bien joints.
 Et les deux mains bien jointes bien appliquées bien
 
-droites.
 Et les deux regards des deux yeux bien parallèlement
 
 montants droit au ciel.
@@ -4116,19 +3683,15 @@ Sans manque et sans erreur.
 Bien pareils. Bien parallèlement.
 
 tes mains jointes, les corps joints et séparés parallèles,
-es regards joints.
 Les destinées jointes. Joints dans le jugement et dans
 
 l’éternité. J
 Et le noble lévrier bien aux pieds.
 
 Peuple, le seul qui pries et le seul qui pleures sans
-contorsion.
 
 Le seul qui ne verses que des larmes décentes.
 /Et des larmes perpendiculaires.
-
-113 innocents. — 8 LE MYSTÈRE
 
 Le seul qui ne fasses monter que des prières décentes
 { Et des prières et des vœux perpendiculaires)
@@ -4139,20 +3702,17 @@ Et il est plus tendre.
 
 Cette petite espérance qui sauterait à la corde dans les
 
-processions.
 Elle est dans la maison des vertus
 Comme était Benjamin dans la maison de Jacob.
 
 Un homme avait douze fils. Comme les quarante-six
 livres de l’Ancien Testament marchent devant les
 quatre Évangiles et les Actes et les Épîtres et l’Apo-
-calypse.
 
 Qui ferme la marche.
 
 Comme les quarante-six livres de l’Ancien Testament
 marchent devant les vingt-sept livres du Nouveau
-Testament.
 
 Ayant posé leurs quarante-six tentes dans le désert.
 
@@ -4168,8 +3728,6 @@ Qui est le deuxième Adam.
 Ainsi devant toute histoire et devant toute similitude
 du Nouveau Testament
 
-114 DES SAINTS INNOCENTS
-
 Marche une histoire de l’Ancien Testament qui est sa
 
 parallèle et qui est sa pareille.
@@ -4181,7 +3739,6 @@ S’avance une sœur juive qui est sa sœur aînée et qui
 l’annonce et qui va devant.
 Et qui a posé sa tente dans le désert. Et le puits de
 
-Rébecca
 Avait été creusé avant le puits de la Samaritaine.
 Or entre toutes une histoire a planté sa tente.
 Et avant l’histoire de l’homme qui avait deux fils
@@ -4191,10 +3748,8 @@ fils.
 Et comme était Benjamin dans la famille de cet homme,
 Ainsi est mon Espérance dans la famille des vertus.
 Parmi les trois Théologales et parmi les quatre Cardi-
-nales.
 Sans compter toutes les autres et notamment parmi
 
-celles,
 Parmi les sept qui s’opposent directement aux Capitaux.
 Et avant le fils qui fut retrouvé gardien de cochons,
 Marche le fils qui fut retrouvé roi,
@@ -4209,58 +3764,33 @@ plus que tous ses autres enfants, parce quil l’avait eu
 
 étant déjà vieux ^
 
-Jeannette
-
 Et il lui avait fait faire une robe de plusieurs couleurs.
-
-115 LE M Y S T ERE
-Madame Gervaise
 
 // Hrrii\% aussi que Joseph rapport ; ! k ses frères un
 songe quil avait eu, rjui fut la semence d’une plus
-grande haine.
-
-Jeannette
 
 Car il leur dit :
-
-Madame Gervaise
 
 Quel cœur juif, quel cœur chrétien n’a tressailli au lil
 de cette histoire. Quel cœur juif, quel cœur chrétien
 n’a tressailli à cette retrouvaiUe.
 
-Jeannette
-
 Car il leur dit : Écoutez le songe que j’ai eu.
 
-Madame Gervaise
-
 Juif, chrétien, qui n’a pleuré à cette reconnaissance.
-
-Jeannette
 
 // nie semblait c/ue je liais avec vous des gerbes dans le
 champ ; que ma gerbe se leva et se tint debout ; et que
 les vôtres étant autour de la mienne, Vadnraient.
-
-M
-
-adame uervaise
 
 Ses frères lui répondirent : Est-ce que vous serez notre
 Boi, et que nous serons soumis à votre puissance ?
 Ces songes et ces entretiens allumèrent donc encore
 davantage Venvie et la haine qu’ils avaient contre lui.
 
-116 DES SAINTS INNOCENTS
-Jeannette
-
 // est encore un autre songe quil raconta à ses frères
 en leur disant : J’ai cru voir en songe que le soleil el
 la lune, et onze étoiles ni adoraient.
-
-Madame Gervaise
 
 Lorsqu’il eut rapporté ce songe à son père et à ses
 frères, son père lui en fit réprimande, et lui dit :
@@ -4268,167 +3798,98 @@ Que voudrait dire ce songe que vous avez eu ? Est-ce
 que votre mère, vos frères et moi nous vous adorerons
 sur la terre ?
 
-Jeannette
-
 Ainsi ses frères étaient transportés d’envie contre lui :
 mais le père considérait tout ceci dans le silence.
-
-Madame Gervaise
 
 // arriva alors que les frères de Joseph s’arrêtèrent it
 Sichem où ils faisaient paître les troupeaux de leur
 père.
 
-Jeannette
-
 Et Israël dit à Joseph : Vos frères font paître nos
 brebis dans le pays de Sichem. Venez, et je vous
 enverrai vers eux.
 
-Madame Gervaise
-
 {Je suis tout prêt, lui dit Joseph). — Allez, et voyez si
 vos frères se portent bien, et si les troupeaux sont en
 
-117 LE M ^ S T 1> R E
 bon état ; et vous me rapporterez ce qui se passe. —
 Ayant (donc) été envoyé de la vallée d Héhron, il vint
-à Sichem ;
-
-Jeannette
 
 et un homme l’ayant trouvé errant dans un champ, lui
 demanda ce qu’il cherchait.
 
-Mad.^
-
-AME UERVAISE
-
 // lui répondit : Je cherche mes frères ; je vous prie de
 me dire où ils font paître leurs troupeaux.
-
-Jeannette
 
 Cet homme lui répondit : Ils se sont retirés de ce lieu ;
 et f ai entendu qu’ils se disaient : Allons vers Dothaïn.
 Joseph alla donc après ses frères ; et illes trouva dans
 [la plaine de) Dothaïn.
 
-Madame Gervaise
-
 Lorsqu’ils Veurent aperçu de loin, avant qu’il se jût
 approché d’eux, ils résolurent de le tuer ;
 
-Jeannette
-
 Et ils se disaient l’un à l’autre : Voici notre songeur
 qui vient.
-
-Madame Gervaise
 
 Allons, tuons-le, et le jetions dans cette vieille citerne :
 nous dirons quunehéte sauvage l’a dévoré ; et après
 cela on verra à quoi ses songes lui auront servi.
 
-118 DES SAINTS INNOCENTS
-
-Jeannette
-
 Buben les ayant entendu parler ainsi, tâchait de le tirer
 d’entre leurs mains, et il disait :
-
-Madame Gervaise
 
 Ne le tuez point, et ne répandez point son sang, mais
 jettez-le dans cette citerne qui est dans le désert, et
 conservez vos mains pures.
 
-Jeannette
-
 comme donnant un renseignement, pour qu’on n’aille
-point s’égarer :
 
 // disait ceci dans le dessein de le tirer de leurs mains,
 et de le rendre à son père.
 
-M
-
-ADAME IjERVAISE
-
 Aussitôt donc qu’il fut arrivé près de ses frères, ils lui
 ôtèrent sa robe de plusieurs couleurs qui le couvrait
-jusqu’en bas ;
-
-Jeannette
 
 Et ils le j citèrent dans cette vieille citerne qui était sans
-eau.
-
-Madame Gervaise
 
 S’étant ensuite assis pour manger, ils virent des
 Ismaélites qui passaient, et qui venant de Galaad
 portaient sur leurs chameaux des parfums, de la
 résine et de la myrrhe,…
 
-119 LE MYSTÈRE
-
-Jeannette
-
 Déjà l’or, déjà l’encens, déjà la myrrhe.
-
-Madame Ger\aise
 
 …et s’en allaient en Égypte.
 
-Jeannette
-
 Et ce fut la première fuite en Égypte.
-
-Madame Gervaise
 
 Alors Juda dit à ses frères : Que nous servira d’avoir
 tué notre frère, et d’avoir caché sa mort ?
 
 Il vaut mieux le vendre…
 
-Jeannette
-
 // vaut mieux le vendre à ces Ismaélites, et ne point
 souiller nos mains ; car il est notre frère et notre
-chair.
 
 comme condescendant :
 
 Ses frères consentirent à ce quil disait :
 
-Madame Gervaise
-
 L’ayant donc tiré de la citerne, et voyant ces marchands
 Madianiles qui passaient, ils le vendirent vingt
 pièces d’argent aux hmaëlites, qui le menèrent en
-Égypte.
-
-Jeannette
 
 Ils le vendirent vingt pièces d’argent. Un autre,
 Un autre fut vendu.
-
-120 DES SAINTS INNOCENTS
-
-Madame Geuvaisi :
 
 Un autre fut envoyé vers ses frères, pour savoir
 comment les brebis se portaient. Un autre fut
 dépouillé de sa robe et jeté dans cette vieille citerne
 qui était sans eau. Un autre fut vendu.
 
-Jeannette
-
 Un autre fut emmené en Égypte, dans la même, dans
 une autre Égypte. Un autre fut vendu.
-
-Madame Gervaise
 
 C’est une figure, mon enfant. C’est une histoire unique
 et elle fut jouée deux fois. Une fois en juiverie,
@@ -4436,32 +3897,19 @@ une fois en chrétiennerie. Et pour celui qui regarde
 les deux fois se voient en transparence Tune sur
 l’autre.
 
-Jeannette
-
 Un autre fut lié, un autre fut vendu.
 
-Madame Gekvaise
-
 Un autre fut vendu esclave.
-
-Jeannette
 
 Un autre aussi fut retrouvé. Un autre aussi fut reconnu.
 Un autre aussi se dévoila. Je suis Jésus^ voire frère.
 
-Madame Gervaise
-
 Un autre se manifesta dans sa gloire, et dans le minis-
 tère et dans le gouvernement du royaume.
 
-121 LE M V S T E R E
-
-Jeannette
 Dans le gouvernement d’une Égypte éternelle. Ruben
 étant retourné à la citerne, et n’y ayant point trouvé
 l’enfant.
-
-Madame Gervaise
 
 Un autre a rompu le sceau de son secret. Un autre est
 apparu dans sa gloire. Un autre est apparu à la
@@ -4469,14 +3917,11 @@ droite. Un autre est apparu dans le gouvernement.
 Un autre est apparu sur les degrés du trône. Un
 autre est apparu dans son ascension.
 
-Jeannette
-
 Et c’était Jésus notre frère. Je suis Jésus,
 
 Je suis Jésus votre frère.
 
 Et nous autres nous sommes ces gerbes et ces onze
-étoiles.
 
 Un homme avait douze fils. Et nous autres nous som-
 mes ces frères ingrats,
@@ -4485,270 +3930,152 @@ les onze ou enfin les dix ou enfin les neuf mauvais fils
 de Jacob. Ruben étant retourné à la citerne, et ny
 ayant point retrouvé l’enfant.
 
-M
-
-ADAME ItERVAISE
-
 déchira ses vêtements, et vint dire à ses frères ; L’enfant
 ne paraît plus, et que deviendrai-je ?
 
 Après cela ils prirent la robe…
 
-Jeannette
 Une autre robe fut ravie. Après cela ils prirent la robe
 
-122 DES SAINTS INNOCENTS
 de Joseph, et Vayant trempée dans le sang d*un *
 chevreau qu’ils avaient tué,
-
-Madame Gervaise
 
 ils renvoyèrent au père, lui faisant dire par ceux qui
 la lui portaient : Voici une robe que nous avons
 trouvée, voyez si cest celle de votre fils, ou non.
 
-Jeannette
-
 Le père Vayanl reconnue, dit : C’est la robe de mon
 fils, une héte cruelle Va dévoré, une bêle a dévoré
-Joseph.
-
-M
-
-ADAME LrERVAISE
 
 Et ayant déchiré ses vêtements, il se couvrit d’un
 cilice, pleurant son fils fort longtemps.
-
-Jeannette
 
 Alors tous ses enfants s’assemblèrent, pour tâcher de
 soulager leur père dans sa douleur : mais il ne voulut
 point recevoir de consolation, et il dit : Je pleurerai
 toujours jusqu’à ce que je descende avec mon fils au
 fond de la terre. Ainsi il continua toujours de
-pleurer.
-
-Madame Gervaise
 
 Cependant les Madianiies vendirent Joseph en Égypte.
 
 Un homme avait douze fils. Or celui qu’il aimait plus
 que tous les autres [Israël aimait Joseph plus que
 
-123 L K M \ S 1’ È H K
 tous ses autres enfants, parce quil lavAiL eu étant
 déjà vieux, et il lui avait fait faire une robe de plu-
 sieurs couleurs) celui-là même était esclave en Kgypte
 et il croyait qu’il était mort.
 
 Or c’est pour cela même quil eut plus tard cette
-grande joie.
 
 Qu’il ne pouvait pas en avoir autrement.
-
-Jeannette
 
 …et je n aurai au-dessus de vous que le Iràne et la
 qualité de Roi.
 
-Madame Gervaise
-
 Pharaon dit encore à Joseph : Je vous établis aujour-
 d’hui pour commander à toute l’Égypte.
-
-Jeannette
 
 Ensemble il ôtason anneau de sa main et le mit en celle
 de Joseph ’ il le fit revêtir d’une robe de fin lin, et lui
 mit au cou un collier d’or.
 
-Madame Gervaise
-
 // le fil monter sur Vun de ses chars, qui était le second
 après le sien, et fil crier par un Héraut, que tout le
 monde fléchit le genou devant lui, et que tous recon-
 nussent qu’il avait été établi pour commander à toute
-r Égypte.
-
-124 DES SAINTS INNOCENTS
-
-Jeannette
 
 Le Roi dit encore à Joseph : Je suis Pharaon ; nul ne
 remuera ni le pied ni la main dans toute l’Égypte
 que par votre commandement.
 
-M
-
-A.DAME UERVAISE
-
 // changea aussi son nom, et il l’appela en langue
-Egyptienne…
 
-Jeannette
 …le Sauveur du Monde.
-
-Madame Gervaise
 
 Les sept années de fertilité vinrent donc ;
 et le blé ayant été mis en gerbes,
 fut serré ensuite dans les greniers de V Égypte.
-
-Jeannette
 
 Trente et trois années de fertilité vinrent donc ;
 et le blé ayant été mis en gerbes,
 fut serré ensuite dans les greniers
 d’une Égypte éternelle.
 
-Madame Gervaise
-
 On mit aussi en réserve dans toutes les villes
 cette grande abondance de grains.
 
-125 L E M \ S T E R E
-
-Jeannette
-
 On mit aussi en réserve dans tout le ciel
 cette grande abondance de grâces.
-
-Madame Gervaise
 
 Car il y eut si grande quantité de froment,
 quelle égalait le sable de la mer,
 et quelle ne pouvait pas même se mesurer.
 
-Jeannette
-
 Car il y eut une si grande quantité de grâces,
 qu’elle égalait le sable de la mer,
 et qu’elle ne pouvait pas même se mesurer.
 
-Madame Gervaise
-Ces sept années…
-
-Jeannette
-
 Il avait lié les sacs de blé pour les greniers à blé. Un
 
-autre
 Un autre lia les sacs de grâces pour les greniers à
 
-grâces.
 Un autre lia les sacs de grâces pour les greniers du ciel.
 Un autre lia les sacs de grâces pour les greniers
-Éternels.
-
-Madame Gervaise
-Ces sept années. . .
-
-126 DES SAINTS INNOCENTS
-
-Jeannette
 
 Dans les sept années grasses il avait lié les sacs de
 
 blé pour les greniei’s à blé du pays
-D’Égypte. Un autre
 
 Dans les trente-trois années grasses un autre
 Lia les sacs de vertus, les sacs de mérites, les sacs de
 
-grâces
 Pour les greniers à blé du pays éternel.
 
-Madame Gervaisb
-
 Ces sept années de fertilité d’Égypte étant donc
-passées.
-
-Jeannette
 
 Ces trente-trois années de fertilité du cœur étant donc
-passées,
-
-Madame Gervaisb
 
 Les sept années de stérilité vinrent ensuite,
 selon la prédiction de Joseph :
 
-Jeannette
-
 Les innombrables années de la stérilité du cœur
-
-Vinrent ensuite.
 
 Selon la prédiction de Jésus :
 
-Madame Gervaisb
-Une grande famine survint dans tout le monde ;
-127 1. E M Y S T È R E
-
-Jeannette
-
 Une grande famine survint dans tout le monde ;
 
-Madame Gervaise
+Une grande famine survint dans tout le monde ;
 
 Mais il y avait du blé dans toute l’Égypte.
 
-Jeannette
-
 Mais il y a du blé dans toute cette Kfi’ypte
-Éternelle.
-
-Madame Gervaise
 
 Le peuple étant pressé à la famine,
-cria a Pharaon,
 et lui demanda de quoi vivre.
 
-Jeannette
-Et aujourd’hui.
 Et à présent c’est nous ce peuple qui est pressé de la
 
-famine.
 Et nous crions vers Dieu,
 Lui demandant de quoi vivre.
-
-M
-
-ADAME UERVAISE
 
 Mais il leur dit : Allez trouver Joseph,
 Et faites tout ce quil vous dira.
 
-IEAN NETTE
-
 Mais il nous dit : Allez trouver Jésu«
 Et faites tout ce qu’il vous dira.
-
-128 DES SAINTS INNOCENTS
-
-Madame Gervaise
 
 Cependant la famine croissait tous les jours dans toute
 la terre :
 
-Jeannette
-et Jésus. . .
-
-Madame Gervaise
 et Joseph ouvrant tous les greniers,
 
-Jeannette
 vendait du blé aux Egyptiens,
 
-Madame Gervaise
 parce qu ils étaient tourmentés eux-mêmes de la famine.
 
 Et on venait de toutes les provinces en Égypte pour
 acheter de quoi vivre, et pour trouver quelquesoula-
-gement
-
-Jeannette
 
 dans la rigueur de cette famine.
 
@@ -4757,50 +4084,34 @@ Cependant Jacoh ayant oui dire quon vendait du hlé en
 
 fai appris qu on vend du hlé en Égypte : allez-y acheter
 
-129 innocents. — 9 I. E M Y S T È R E
-
 ce qui nous est nécessaire, afin que nous puissions
 vivre et que nous ne mourions pas de faim.
 
-Madame Gervaise
-
 Les dix frères de Joseph allèrent donc en Égypte pour
-y acheter du h lé ;
-
-Jeannette
 
 Jacob retint Benjamin avec lui, ayant dit à ses frères
 qu’il craignait
 
 qu’il ne lui arrivât quelque accident dans le chemin.
 
-Madame Gervaise
-
 Ils entrèrent dans l’Égypte avec les autres qui y
 allaient pour y acheter ;
 
 parce que la famine était dans le pays de Chanaan.
 
-Jeannette
 Joseph commandait dans toute l’Égypte,
-
-Madame Gervaise
 
 et le hlé ne se vendent aux peuples que par son ordre.
 Ses frères l’ayant donc adoré,
 
-130 DES SAINTS INNOCENTS
 il les reconnut : et leur parlant assez rudement, comme
 à des étrangers, il leur dit :
 
-Jeannette
 faisant un peu la grosse voix
 D’où venez-vous ?
 
-Madame Gervaise
 Ils lui répondirent :
 
-Jeannette
 faisant un peu la petite voix
 Du pays de Chanaan pour acheter ici de quoi vivre.
 
@@ -4809,58 +4120,38 @@ néanmoins connu d’eux.
 
 Alors se souvenant des songes qu’il avait eus autrefois.
 
-Madame Gervaise
-
 il leur dit : Vous êtes des espions, et vous êtes venus ici
 pour considérer les endroits les plus faibles de
 l’Égypte.
 
-Jeannette
-
 Ils répondirent : Seigneur, cela n’est pas ainsi ’ mais
 vos serviteurs sont venus ici pour acheter du blé.
 
-131 L E MYSTÈRE
-
-Madamk Gervaise
 A^ou5 sommes tous enfants d’un seul homme,
 
-Jeannette
 Nous sommes tous enfants d’un seul Dieu.
-
-Madame Gervaise
 
 Nous sommes tous enfants d’un seul homme, nous
 venons avec des pensées de paix,
 
-Jeannette
 Et paix sur la terre aux hommes de bonne volonté.
 
-Madame Gervaise
 el vos serviteurs nont aucun mauvais dessein.
 
 Leur répondit : Non cela n’est pas ; mais vous êtes venus
 pour remarquer ce qu’il y a de moins fortifié dans
-V Égypte.
 
 Ils luidirent : Nous sommes douze frères, enfants d’un
 même homme dans le pays de Chanaan, et vos servi-
 teurs. Le dernier est avec notre père, et l’autre nest
 plus.
 
-Jeannette
-
 Comme était Benjamin dans la maison de Jacob, le
 
-13-2 DES SAINTS INNOCENTS
 dernier est avec notre père, ainsi est l’espérance dans
 la maison des vertus.
 
-Madame Gervaise
-
 Voilà, dit Joseph, ce que je disais : Vous êtes des espions
-
-Jeannette
 
 faisant la grosse voix et s’adoucissant peu à peu
 
@@ -4872,15 +4163,12 @@ tendresse grandissante, si grande qu’en même temps on s’en
 défend constamment jusqu’à l’éclatement final]
 
 Je m’en vais éprouver si vous dites la vérité. Vive
-Pharaon,
 
 [c’est surtout ce Vive Pharaon qui les amuse. Elles le font dans
 une très grosse voix]
 
 Vive Pharaon, vous ne sortirez point d’ici jusquk ce
 que le dernier de vos frères y soit venu.
-
-Madame Gervaise
 
 Envoyez l’un de vous pour Vy amener : cependant vous
 demeurerez en prison jusqu’à ce que j’aye reconnu si
@@ -4891,14 +4179,11 @@ Il les fit donc mettre en prison pour trois jours.
 
 Et le troisième jour il les fît sortir de prison, et leur
 
-133 L E M ^’ S T I> R E
 dit. : Faites ce que je vous dis, et vous vivrez : car Je
-crains Dieu.
 
 Si vous venez ici dans un esprit de paix, que /’un de vos
 frères demeure lié dans la prison ; et allez-vous-en
 vous ; emportez en votre pays le blé que vous avez
-acheté,
 
 et amenez-moi le dernier de vos frères, afin que Je
 puisse reconnaître si ce que vous dites est véritable,
@@ -4910,25 +4195,16 @@ nous souffrons tout ceci, parce que nous avons péché
 contre notre frère, et que voyant la douleur de son
 âme lorsquilnoas priait, nous ne V écoutâmes point :
 cest pour cela que nous sommes tombés dans cette
-affliction.
-
-Madame Gervaise
 
 Ruben l’un d’entre eux leur disait : Ne vous dis-Je pas :
 Ne commettez point un si grand crime contre cet
 enfant ? El vous ne m’ écoutâtes point. C’est son sang
 maintenant que l’on redemande.
 
-Jeannette
-
 Ils ne savaient pas que Joseph les entendit, parce qu’il
 leur parlait par un truchement.
 
-134 DES SAINTS INNOCENTS
 Mais il se retira pour un peu de temps, et versa des
-larmes.
-
-Madame Gervaise
 
 Et étant revenu il leur parla.
 
@@ -4943,7 +4219,6 @@ hlé sur leurs ânes.
 
 Et l’un d’eux ayant ouvert son sac dans l’hôtellerie pour
 donner à manger à son âne, vit son argent à l’entrée
-du sac,
 
 et il dit à ses frères : On m’a rendu mon argent ; le
 voici dans mon sac. Ils furent tous saisis d’étonne-
@@ -4952,25 +4227,17 @@ cette conduite de Dieu sur nous ?
 
 Lorsqu’ils furent arrivés chez Jacob leur père au pays
 de Chanaan, ils lui racontèrent tout ce qui leur était
-arrivé, en disant :
 
 Le Seigneur de ce pays-là nous a parlé rudement, et il
 nous a pris pour des espions qui venaient observer le
-royaume.
 
-135 LE MYSTÈRE
 Nous lui avons répondu : Nous sommes gens paisibles,
 et très éloignés d’avoir aucun niauvms dessein.
 
 Xous élions douze frères enfants d’un même père.
 
-Jeannette
-
 Nous étions douze frères enfants d’un même père. L’un
 n est plus, le plus jeune est avec notre père au pays de
-Chanaan.
-
-M.ADAME GeRVAISE
 
 Il nous a répondu : Je veux éprouver s’il est vrai que
 vous n’ayez que des pensées de paix. Laissez-moi donc
@@ -4987,33 +4254,20 @@ Après avoir ainsi parlé, comme ils jetaient leur hlé
 hors de leurs sacs, ils trouvèrent chacun leur argent
 lié à l’entrée du sac, et ils en furent tous épouvantés.
 
-Jeannette
-
 Alors Jacob, leur père, leur dit :
 
 Vous m’avez réduit à être sans enfants. Joseph n’est
-136 DES SAINTS INNOCENTS
 plus au monde, Siméon est en prison, et vous voulez
 ni enlever Benjamin. Tous ces maux sont retombés
 sur moi.
 
-Madame Gervaise
-
 Ruben lui répondit : Faites mourir mes deux enfants,
 si je ne vous le ramène. Confiez-le moi, et je vous le
-rendrai.
-
-Jeannette
 
 Non, dit Jacob., mon fils nira point avec vous. Son frère
 est mort, et il est demeuré seul. S’il lui arrive quelque
 malheur au pays où vous allez, vous accablerez ma
 vieillesse d’une douleur qui m’emportera dans le
-tombeau.
-
-M.
-
-\DAME LiERVAISE
 
 Cependant la famine désolait exlraordinairement tout
 le pays ;
@@ -5023,7 +4277,6 @@ d’Égypte étant consumé, Jacob leur dit :
 
 Retournez pour nous acheter un peu de blé.
 
-137 I. K M Y S T È R E
 Juda lui répondit : Celui qui commande en ce pays-là
 nous a déclaré sa volonté avec serment, en disant :
 Vous ne verrez point mon visage à moins que vous
@@ -5031,7 +4284,6 @@ n’ameniez avec vous le plus jeune de vos frères.
 
 Si vous voulez donc l’envoyer avec nous, nous irons
 ensemble, et nous achèterons ce qui vous est néces-
-saire.
 
 Que si vous ne le voulez pas, nous n irons point : car
 cet homme, comme nous l’avons dit plusieurs fois,
@@ -5049,13 +4301,10 @@ vions-nous deviner qu’il nous dirait : Amenez avec
 vous votre frère ?
 
 Juda dit encore à son père.Envoyez l’enfant avec moi,
-138 DES SAINTS INNOCENTS
 afin que nous puissions partir et avoir de quoi vivre,
 et que nous ne mourions pas nous et nos petits
-enfants.
 
 Je me charge de cet enfant, et c’est à moiàqui vous en
-demanderez compte. Si je ne le ramène, et si je ne
 vous le rends, je consens que vous ne me pardonniez
 jamais cette faute.
 
@@ -5068,11 +4317,6 @@ excellents fruits de ce pays-ci, pour en faire présent
 à celui qui commande ; un peu de résine, de miel, de
 storax, de myrrhe, de térébenthine et d’amandes.
 
-Jeannette
-De l’or, de l’eucens, de la myrrhe.
-
-Madame Gervaise
-
 Portez aussi deux fois autant d’argent qu’au premier
 voyage, et reportez celui que vous avez trouvé dans
 vos sacs, de peur que ce ne soit une méprise.
@@ -5080,29 +4324,19 @@ vos sacs, de peur que ce ne soit une méprise.
 Enfin menez votre frère avec vous, et allez vers cet
 homme.
 
-139 LE M ^’ S T K R E
-
-Jeannette
-
 Je prie mon Dieu le tout-puissant de 7)ous le rendre
 favorable, qu’il renvoyé avec vous votre frère qu’il
 tient prisonnier, et Benjamin : cependant Je demeu-
 rerai seul, comme si fêtais sans enfants.
 
-Madame Gervaise
-
 Ils prirent donc avec eux les présents, et le double de
 l’argent, avec Benjamin ; et étantparlis ils arrivèrent
 en Égypte, où ils se présentèrent devant Joseph.
-
-Jeannette
 
 Joseph les ayant vus, et Benjamin avec eux, dit à son
 Intendant : Faites entrer ces personnes chez moi ;
 tuez des victimes, etpréparez un festin : parce qu’ils
 mangeront à midi avec moi.
-
-Madame Gervaise
 
 L’Intendant exécuta ce qui lui avait été commandé, et
 il les fit entrer dans la maison.
@@ -5116,10 +4350,8 @@ réduisant en servitude, nous et nos ânes.
 C’est pourquoi étant encore à la porte, ils s’appro-
 chèrent de l’Intendant de Joseph,
 
-140 DES SAINTS INNOCENTS
 et lui dirent : Seigneur, nous vous supplions de nous
 écouter. Nous sommes déjà venus une fois acheter
-du blé :
 
 et après l’avoir acheté, lorsque nous fûmes arrivés à
 rhôtellerie, en ouvrant nos sacs, nous y trouvâmes
@@ -5129,98 +4361,63 @@ au même poids.
 Et nous vous en rapportons encore d’autre, pour acheter
 ce qui nous est nécessaire : mais nous ne savons en
 aucune sorte qui a pu remettre cet argent dans nof<
-sacs.
-
-Jeannette
 
 L’Intendant leur répondit : Ayez l’esprit en repos ; ne
 craignez point. Votre Dieu et le Dieu de votre père
 vous H donné des trésors dans vos sacs : car pour moi
 j’ai reçu Varqentque vous m’avez donné, et j’ensuis
 content. Il fit sortir aussi Siméon, et il le leur
-amena.
-
-Madame Gervaise
 
 Après les avoir fait entrer en la maison, il leur apporta
 de l’eau, ils se lavèrent les pieds, et il donna à manger
-à leurs ânes.
-
-Jeannette
 
 Cependant ils tinrent leurs présents tout prêts, atten-
 dant que Joseph entrât sur le midi, parce qu’on leur
 avait dit qu’ils devaient manger en ce lieu-là.
 
-141 I. i^ : M V s T i> H 1^ :
-
-Madame Gervaise
-
 Joseph étant donc entré dans sa maison, ils lui offrirent
 leurs présents qu’ils tenaient en leurs mains, et ils
 V adorèrent en se baissant jusqu en terre.
-
-Jeannette
 
 // les salua aussi, en leur faisant bon visage, et il leur
 demanda : Votre père, ce vieillard dont vous m’aviez
 parlé, vit-il encore ? Se porte-t-il bien ?
 
-Madame Gervaise
-
 Ils lui répondirent : Notre père votre serviteur est
 encore en vie, et il se porte bien : et en se baissant
 profondément, ils t adorèrent.
-
-Jeannette
 
 Joseph levant les yeux vit Benjamin son frère, fils de
 Rachel sa mère, et leur dit : Est-ce la le plus jeune
 de vos frères dont vous m’aviez parlé ? Mon fils,
 ajouta-t-il, je prie Dieu quil vous soit toujours
-favorable.
-
-Madame Gervaise
 
 Et il se hâta, parce que ses entrailles avaient été émues
 en voyant son frère, et qu’il ne pouvait plus retenir
 ses larmes. Passant donc dans une chambre, il
-pleura.
-
-142 DES SAINTS INNOCENTS
-
-Jeannette
 
 El après s’être lavé le visage il revint^ se faisant
 violence, et il dit : Servez à manger.
-
-Madame Gervaise
 
 On servit Joseph h part, et ses frères k part, et les Egyp-
 tiens qui mangeaient avec lui à part : {car il n est pas
 permis aux Egyptiens de manger avec les Hébreux,
 et ils croient qu’un festin de cette sorte serait profane).
 
-Jeannette
-
 Ils s’assirent donc en présence de Joseph, Vaine le pre-
 mier selon son rang, et le plus jeune selon son âge.
 Et ils furent extrêmement surpris,
-
-Madame Gervaise
 
 en voyant les parts qu’il leur avait données, de ce que
 la part la plus grande était venue à Benjamin ; car
 elle était cinq fois plus grande que celle des autres.
 Ils burent ainsi avec Joseph, et ils firent grande
-chère.
 
 Or Joseph donna cet ordre à i Intendant de sa maison,
 et lui dit : Mettez dans les sacs de ces personnes
 autant de blé quils en pourront tenir, et l’argent de
 chacun à l’entrée du sac ;
 
-143 L E M Y S T È R E
 et mettez ma coupe d’argent à l’entrée du sac du plus
 jeune, avec l’argent quil a donné pour le blé. Cet
 ordre fut donc exécuté.
@@ -5241,68 +4438,40 @@ L’Intendant fit ce qui lui avait été commandé ; et les
 ayant arrêtés, il leur dit tout ce qu’il lui avait été
 ordonné de leur dire.
 
-Jeannette
-
 Ils lui répondirent : Pourquoi mon seigneur parle-t-il
 ainsi à ses serviteurs, et les croit-il capables d’une
-action si honteuse ?
-
-Madame Gervaise
 
 Nous vous avons rapporté du pays de Chanaan l’argent
 que nous trouvâmes à l’entrée de nos sacs. Comment
 donc se pourrait-il faire que nous eussions dérobé de
 la maison de votre Seigneur de Vor ou de l’argent ?
 
-144 DES SAINTS INNOCENTS
-
-Jeannette
-
 Que celui de vos serviteurs,. . .
-
-Madame Gervaise •
 
 quel qu’il puisse être, à qui l’on trouvera ce que vous
 cherchez, meure ; et nous serons esclaves de mon
-seigneur.
-
-Jeannette
 
 Illeur dit : Oui, que ce que vous prononcez soit exécuté.
 Quiconque se trouvera avoir pris ce que je cherche,
 sera mon esclave, et vous en serez innocents.
 
-Madame Gervaise
-
 Jls déchargèrent donc aussitôt leurs sacs à terre, et
 chacun ouvrit le sien.
-
-Jeannette
 
 Les ayant fouillés, du plus grand au plus petit, on
 trouva la coupe dans le sac de Benjamin.
 
-Madame Gervaise
-
 Alors ayant déchiré leurs vêtements et déchargé leurs
 ânes, ils revinrent à la ville.
 
-Jeannette
 Juda se présenta le premier avec ses frères devant
-
-1-lD innocents. — 10 L E M Y S ï ÈRE
 
 Joseph, (fui n était pas encore sorti du lieu où il était :
 et ils se prosternèrent tous ensemble à terre devant
-lui.
-
-Mj
 
 Joseph leur dit : Pourquoi avez-vous agi ainsi ? Ignorez-
 vous quil ny a personne qui ni égale dans la science
 de deviner les choses cachées ?
-
-Jeannette
 
 Juda lui dit : Que répondrons-nous à mon Seigneur ?
 Que lui dirons-nous, et que pouvons-nous lui repré-
@@ -5311,23 +4480,15 @@ défense ? Dieu a trouvé V iniquité de vos serviteurs.
 Nous sommes tous les esclaves de mon Seigneur, nous
 et celui à qui on a trouvé la coupe.
 
-Madame Gervaise
-
 Joseph répondit : Dieu me garde d’agir de la sorte. Que
 celui qui a pris ma coupe soit mon esclave ; et pour
 vous autres, allez en liberté retrouver votre père.
-
-Jeannette
 
 Juda Rapprochant alors plus près de Joseph lui dit avec
 assurance : Mon Seigneur, permettez, je vous prie, à
 votre serviteur de vous adresser sa parole, et ne vous
 mettez pas en colère contre votre esclave : car après
 Pharaon, c’est vous qui êtes
-
-146 DES SAINTS INNOCENTS
-
-MADAME IJERVAISE
 
 mon Seigneur. Vous avez demandé d’ abord à vos servi-
 teurs : Avez-vous encore votre père ou quelque autre
@@ -5344,7 +4505,6 @@ serai bien aise de le voir.
 
 Mais nous vous répondîmes, mon Seigneur : Cet enfant
 ne peut quitter son père, car s’il le quitte, il le fera
-mourir.
 
 Vous dites à vos serviteurs : Si le dernier de vos frères
 ne vient avec vous, vous ne verrez plus mon visage.
@@ -5359,7 +4519,6 @@ acheter un peu de blé :
 nous lui répondîmes : A’ous ne pouvons y aller. Si
 notre jeune frère y vient avec nous, nous irons
 
-147 1. E MYSTÈRE
 ensemble : mais àmoins qu’Une vienne^ nous n’osons
 nous présenter devant celui qui commande.
 
@@ -5373,7 +4532,6 @@ cette heure.
 Si vous emmenez encore celui-ci, et quil lui arrive
 quelque accident dans lecheniin, vous accablerez ma
 vieillesse d’une a/fiiction qui la conduira dans le
-tombeau.
 
 Si je me présente donc à mon père votre serviteur, et
 que l’enfant n y soit pas, comme sa vie dépend de celle
@@ -5393,56 +4551,39 @@ Ainsi je demeurerai votre esclave, et servirai mon
 Seigneur en la place de l’enfant, afin qu’il retourne
 avec ses frères.
 
-148 DES SAINTS INNOCENTS
 Ca.r je ne puis pas retourner vers mon père sans que
 l’enfant soit avec nous, de peur que je ne sois moi-
 même témoin de Vextrême affliction qui accablera
 notre père.
 
-Jeannette
-
 elle va au devant de la rccilation.
 
 Joseph ne pouvait plus se retenir ;
 
-Madame Gervaise
-
 Joseph ne pouvait plus se retenir ; et parce quil était
 environné de plusieurs personnes,
 
-Jeannetti ;
-
 ne se retenant plus ellé-niéme et saisissant d’autorité la
-récitation.
-
-il commanda. . .
 
 elle recommence pour avoir la reconnaissance dans son
-plein.
 
 Joseph ne pouvait plus se retenir ; et parce quil était
 environné de plusieurs personnes, il commanda que
 Von fît sortir lout le monde, afin que nul étranger
 ne fût présent lorsqu’il se ferait connaître à ses
-frères,
 
 Alors les larmes lui tombant des yeux, il éleva sa voix,
 qui fut entendue des Égyptiens, et de toute la maison
 de Pharaon.
 
-149 1, K M Y S T K R E
 Et il dit H ses frères : Je suis Joseph. Mon père vil-il
 encore ?
 
 Je suis Joseph ; je suis Joseph ; je suis Jésus voire frère.
 Qu’attendez-vous ? Mon père vif-il encore ?
 
-Madame (ihrvaise
-
 Mais ses frères ne purent point lui répondre, tant ils
 étaient saisis de frayeur.
-
-EANNETTE
 
 // leur parla avec douceur., et leur dit : Approchez-vous
 de moi. Et s’ étant approchés de lui, il ajouta : Je suis
@@ -5458,18 +4599,14 @@ ne pourra ni labourer ni recueillir.
 
 Dieu nia fait venir ici avant vous, pour vous conserver
 la vie, et afin que vous puissiez avoir des vivres pour
-subsister.
 
-150 DES SAINTS INNOCENTS
 Ce n’est point par votre conseil que fai été envoyé ici,
 mais par la volonté de Dieu, qui m’a rendu comme
-le père de Pharaon, le maître de sa maison, et le
 prince de toute l’Égypte.
 
 Hàtez-vous d’aller trouver mon père, et dites- lu i : Voici
 ce que vous mande votre fils Joseph : Dieu m’a rendu
 le maître de toute l Égypte. Venez me trouver, ne
-digérez point ;
 
 vous demeurerez dans la terre de Gessen, vous serez
 près de moi vous et vos enfants ; et les enfants de vos
@@ -5483,7 +4620,6 @@ vous.
 
 Vous voyez de vos yeux, vous et mon frère Benjamin,
 que c’est moi-même qui vous parle de ma propre
-bouche.
 
 Annoncez à mon père quelle est cette gloire, et tout ce
 que vous avez vu dans l’Égypte. Hâtez-vous de me
@@ -5493,7 +4629,6 @@ Et s’ étant jeté au cou de Benjamin son frère pour
 l’embrasser, il pleura ; et Benjamin pleura aussi en
 le tenant embrassé.
 
-151 LE M Y S T È R I« :
 Joseph embrassa aussi tous ses frères, il pleura sur
 chacun d’eux ; et après cela ils se rassurèrent pour
 lui parler.
@@ -5507,7 +4642,6 @@ Chargez vos ânes de blé, retournez en Chanaan ;
 
 amenez de là votre père et toute votre famille, et venez
 me trouver. Je vous donnerai tous les biens de
-V Égypte, et vous serez nourris de ce qu’il y a de
 meilleur dans cette terre.
 
 Ordonnez-leur aussi d’emmener des chariots de
@@ -5518,18 +4652,9 @@ hâtez-vous de revenir le plus tôt que vous pourrez.
 sans rien laisser de ce qui est dans vos maisons, parce
 que toutes les richesses de l’Égypte seront à vous.
 
-Les enfants d’Israël. . .
-
-Madame Gervaise
-
 Les enfants d’Israël firent ce qui leur avait été ordonné.
 Et Joseph leur fit donner des chariots, selon l’ordre
 qu’il en avait reçu de Pharaon, et des vivres pour le
-chemin.
-
-152 DES SAINTS INNOCENTS
-
-Jeannette
 
 // commanda, aussi que ion donnai deux robes à chacun
 de ses frères ; mais il en donna cinq des plus belles à
@@ -5539,8 +4664,6 @@ Il envoya autant d’argent et de robes pour son père,
 avec dix ânes chargés de tout ce qu’il y avait déplus
 précieux dans i Égypte, et autant d’ânesses qui por-
 taient du blé et du pain pour le chemin.
-
-Madame Gervaise
 
 // renvoya donc ses frères, et leur dit en partant : Ne
 vous mettez point en colère pendant le chemin.
@@ -5554,25 +4677,14 @@ Ce que Jacob ayant entendu, il se réveilla comme
 d’un profond sommeil, et cependant il ne pouvait
 croire ce qu’ils lui disaient.
 
-Madame Gervaise
-
 Ses enfants insistaient au contraire, en lui rapportant
 comment toute la chose s’était passée. Enfin ayant vu
-
-153 LE MYSTÈRE
 
 les chariots^ et tout ce que Joseph lui envoyait^ il
 reprit ses esprits ;
 
-Jeannette
-
 et il dit : Je n’ai plus rien à souhaiter, puisque mon fils
 Joseph vit encore. J’irai et je le verrai avant que je
-meure.
-
-M
-
-ADAME (jERVAlSE
 
 Israël partit donc avec tout ce qu’il avait, et vint au
 Puits du jurement, et ayant immolé en ce lieu des
@@ -5580,23 +4692,18 @@ victimes au Dieu de son père Isaac^
 
 il Ventendit dans une vision pendant la nuit, qui l’appe-
 lait, et qui lui disait : Jacoh, Jacob. Il lui répimdit :
-Me voici.
 
 Et Dieu ajouta : Je suis le Dieu très puissant de votre
 père, ne craignez point, allez en Égypte, parce que
 je vous y rendrai le chef d’un grand peuple.
 
 .rirai là avec vous, et je vous en ramènerai lorsque vous
-en reviendrez.
 
-Jeannette
 Joseph aussi vous fermera les yeux de ses mains.
-Madame Gervaise
 
 Jacob étant donc parti du Puits du jurement, ses enfants
 l’amenèrent avec ses petits enfants et leurs femmes,
 
-154 DES SAINTS INNOCENTS
 dans les chariots que Pharaon avait envoyés pour
 faire venir ce vieillard,
 
@@ -5604,7 +4711,6 @@ avec tout ce qu’il possédait au pays de Chanaan ; et il
 arriva en Eqypte avec toute sa race ;
 
 ses fils, ses petits-fils, ses filles, et tout ce qui était né
-de lui.
 
 Tous ceux qui vinrent en Égypte avec Jacoh, et qui
 étaient sortis de lui, sans compter les femmes de ses
@@ -5615,8 +4721,6 @@ Plus les deux enfants de Joseph qui lui étaient nés en
 Jacoh qui vinrent en Égypte, furent au nombre de
 soixante et dix.
 
-Jeannette
-
 Or Jacob envoya Juda devant lui vers Joseph pour
 l’avertir de sa venue, afin quil vint au-devant de lui
 en la terre de Gessen.
@@ -5624,14 +4728,10 @@ en la terre de Gessen.
 Quand Jacoh y fut arrivé, Joseph fit mettre les chevaux
 à son chariot, et vint au même lieu au-devant de son
 père : et le voyant il se jeta à son cou, et l’embrassa
-en pleurant.
 
-155 L E M Y S ï È R E
 Jacob dit à Joseph : Je mourrai maintenant avec Joie,
 puisque j’ai vu votre visage, et que Je vous laisse
 après moi.
-
-Madame Gervaise
 
 Joseph dit à ses frères, et à toute la maison de son
 père : Je m’en vais dire à Pharaon, que mes frères
@@ -5650,12 +4750,10 @@ leur enfance Jusqu’à présent, et nos pères l’ont tou-
 jours été comme nous. Vous direz ceci pour pouvoir
 demeurer dans la terre de Gessen ’ parce que les
 Eqyptiens ont en abomination tous les pasteurs de
-brebis.
 
 Joseph étant donc allé trouver Pharaon, lui dit : Mon
 père et mes frères sont venus du pays de Chanaan,
 
-156 DES SAINTS INNOCENTS
 avec leurs brebis, leurs troupeaux, et tout ce qu’ils
 possèdent, et ils se sont arrêtés en la terre de Gessen.
 
@@ -5672,12 +4770,8 @@ troupeaux de vos serviteurs. Et nous vous supplions
 d’agréer que vos serviteurs demeurent dans la terre
 de Gessen.
 
-Jeanisette
-
 Le Roi dit donc à Joseph : Votre père et vos frères vous
 sont venus trouver.
-
-Madame Gervaise
 
 Vous pouvez choisir dans toute l’Égypte ; faites-les
 demeurer dans l’endroit du pays qui vous paraîtra le
@@ -5689,19 +4783,12 @@ Joseph introduisit ensuite son père devant le Roi, et il
 le lui présenta. Jacob salua Pharaon, et luisouhaita
 toute sorte de prospérité.
 
-157 LE M ^’ S T K K L- :
 Le Roi lui ayant demandé quel âçfe il avait :
-
-lEANNETTE
 
 il lui répondit : Il y a cent trente ans que je suis voya-
 geur, et ce petit nombre d’années, qui n’est pas venu
 jusqu’à égaler celui des années de mes pères, a été
 traversé de beaucoup de maux.
-
-M
-
-ADAME IjERVAISE
 
 Et après avoir souhaité toute sorte de bonheur au Roi,
 il se retira.
@@ -5712,17 +4799,14 @@ pays le plus fertile de l’Égypte.
 
 Et il les nourrissait avec toute la maison de son père,
 donnant à chacun ce qui lui était nécessaire pour
-vivre.
 
 Car le pain manquait dans tout le monde, et la famine
 affligeait toute la terre ; mais principalement l’Égypte
 et le pays de Chanaan.
 
 Israël demeura donc en Égypte, c est-à-dire, dans la
-158 DES SAINTS INNOCENTS
 terre de Gessen, dont il jouit comme de son bien
 propre, et où sa famille s’accrut et se multiplia
-extraordinairement.
 
 Il y vécut dix-sept ans ; et tout le temps de sa vie fut de
 cent quarante-sept ans.
@@ -5747,20 +4831,15 @@ Après cela on vint dire un jour à Joseph que son pè
 était malade : alors prenant avec lui ses deux fil
 Manassé, et Ephra’ùn, il Valla
 
-re
 voir.
 
-159 LE MYSTÈRE
 On dit donc à Jacoh : Voici votre fils Joseph qui vient
 vous rendre visite. Jacoh reprenant ses forces se mit
 sur son séant dans son lit.
 
-Et
-
 Il leur fit aussi ce commandement, et leur dit : Je vais
 être réuni à mon peuple ; ensevelissez-moi avec mes
 pères dans la caverne double qui est dans le champ
-d’Ephron Hethéen.
 
 qui regarde Mambré au pays de Chanaan, et qu Abra-
 ham acheta d’Ephron Hethéen, avec tout le champ où
@@ -5776,8 +4855,6 @@ mourut ; et il fut réuni avec son peuple.
 
 In homme avait douze fils. Telle lut, mon entant,
 Ce fut la preniière fois qu’un enfant s’est perdu.
-
-160 DES SAINTS INNOCENTS
 
 Ce fut la première fois qu’une brebis s’est perdue.
 Ce fut la première fois qu’une drachme s’est perdue.
@@ -5795,7 +4872,6 @@ Gouvernant la maison de Pharaon
 Et ravitaillant tout le royaume d’Égypte.
 
 Et celui de Jésus au contraire, (c’est toujours le
-contraire),
 
 Celui de Jésus, l’enfant perdu par Jésus,
 
@@ -5807,20 +4883,16 @@ un troupeau de porcs.
 Et je pense que ses trente ou quarante cochons,
 
 Il les ravitaillait de glands et peut-être de quelque sale
-pâtée.
 
 C’est ainsi, mon enfant. Ainsi est l’ancien, ainsi est le
-nouveau testament.
 
 Dans l’ancien testament il est plus souvent question du
-trône.
 
 Et dans le nouveau testament il est plus souvent ques-
 tion de garder les cochons.
 
 (Et les autres animaux, qui ne sont pas moins nobles).
 
-161 innocents. LE MYSTÈRE
 Dans Tancien testament il y a toujours une vue, une
 
 pensée vers le commandement.
@@ -5851,11 +4923,8 @@ d’un royaume d’Égypte.
 Et dans le nouveau testament il n’y a de pensée que
 pour un royaume qui n’est pas de ce monde.
 
-162 DES SAINTS INNOCENTS
-
 Dans l’ancien testament il y a toujours une pensée vers
 les richesses, vers les trésors d’Égypte et de Baby-
-lonie,
 
 Vers les talents d’or et d’argent.
 
@@ -5877,7 +4946,6 @@ Qui est toujours présentée,
 Qui est le faîte et le couronnement.
 
 C’est elle qui est la dame et la très chère et la très
-sainte pauvreté.
 
 Dans l’ancien testament on redoute toujours, il y a tou-
 jours une pensée
@@ -5886,22 +4954,18 @@ Dans le nouveau testament on redoute toujours
 Une autre faim inapaisée.
 Il y a toujours une pensée
 
-163 L E M Y S T K R E
 De redoutement vers une autre famine d’une autre
 
-faim.
 Car c’est une spirituelle famine.
 D’une faim spirituelle.
 
 Ainsi marche l’ancien testament devant le nouveau tes-
-tament.
 Ainsi les histoires marchent devant les similitudes.
 Et les hymnes et les prières et les psaumes
 Devant les hymnes et les prières et les oraisons
 Et la lente et la longue lignée des prophètes
 Devant les bataillons serrés,
 Devant les bataillons carrés
-Des saints.
 
 Ainsi marche le gouvernement des biens de ce monde
 Avant le gouvernement des biens qui ne sont pas de ce
@@ -5911,8 +4975,6 @@ Ainsi marche le commandement charnel
 Avant le commandement spirituel.
 
 Ainsi le royaume temporel
-
-164 DES SAINTS INNOCENTS
 
 Marche avant le royaume éternel.
 
@@ -5931,28 +4993,21 @@ une pensée sur les sacs de blé.
 Et après ça il s’agit, (dans l’ancien testament),
 Ces sacs pleins il s’agit de les empiler dans les greniers
 
-à blé.
 Mais dans le nouveau testament il s’agit de bien autres
 
 sacs et de bien autres greniers.
 Car il s’agit, dans le nouveau testament il s’agit, ce sont
 Des sacs de misère, des sacs d’épreuves, des sacs de
 
-misères.
 Et des sacs à mettre les vertus et les mérites et les
 
-grâces
-Que l’on a récoltées comme on a pu
 Pour les années de disette
 Et ce sont enfin
-Les greniers éternels
 
-165 L E M Y S T K R E
 Et dans rancieii testament c’est le père qui finit pai
 
 venir trouver son fils
 Et qui le retrouve plein de gloire
-Tout vêtu.
 
 Mais dans le nouveau testament c’est le fils tout nud
 Qui finit par venir trouver son père
@@ -5960,7 +5015,6 @@ Qui finit par venir trouver son père
 Ainsi l’ancien testament est l’appariteur et le fourrier
 
 Et le préparateur et l’annonciateur du nouveau testa-
-ment.
 
 C’est lui qui lui prépare les voies, c’est lui qui lui fait
 sa maison.
@@ -5970,8 +5024,6 @@ C’est l’ancien testament qui fait dans le désert
 La longue voie temporelle.
 
 C’est l’ancien testament qui patiemment bâtit
-
-La maison temporelle.
 
 Voici, f envoie mon ange devant la face, qui préparera
 ton chemin devant toi.
@@ -5985,16 +5037,11 @@ et en même temps il est à l’envers.
 Il est contraire. Ainsi est l’histoire sainte.
 Le testament charnel est une histoire, une image du
 
-testament spirituel.
 L’ancien testament temporel est une image du nouveau
 
-testament éternel.
-
-166 DES SAINTS INNOCENTS
 Et dans le nouveau testament s’il s’agit de gloire,
 Il s’agit d’une gloire qui ne se ramasse guère sur les
 
-trônes,
 (Excepté saint Louis et le trône de F’rance).
 
 Tout l’ancien testament est une ligure, une image d’en-
@@ -6005,7 +5052,6 @@ Très fidèle, très exacte,
 (Mais fidèlement inverse, exactement inverse).
 
 Du nouveau testament dans son ensemble et dans son
-détail.
 
 Dans l’ancien testament la création est au seuil.
 
@@ -6014,13 +5060,10 @@ Au commencement qui est le commencement du monde.
 Et dans le nouveau testament le jugement est à la fin.
 
 Le jugement qui est proprement le contraire de la
-création.
 
 Le pied opposé, qui est proprement une contre-création.
 
 Car dans la création j’ai fait le monde,
-
-(Temporel)
 
 p]t dans le jugement je le défais.
 
@@ -6028,15 +5071,12 @@ Ainsi le jugement est proprement le contraire et ce qui
 balance la création.
 
 Ce que l’on peut mettre, ce qui est en face de la
-création.
 
 J’ai découpé le temps dans l’éternité, dit Dieu.
 Le temps et le monde du temps.
 
-167 L E MYSTÈRE
 La création l’ut le commencement et le jugement sera
 
-la fin.
 (Du temps) (Du monde du temps).
 C’est exactement une symétrie, un balancement.
 Ce que j’ai ouvert, je le fermerai.
@@ -6044,11 +5084,9 @@ Le jour de la création (les six jours) jai ouvert un
 
 certain monde
 (On le connaît de reste)
-(On le sait, on en a assez parlé)
 Enfin la première heure du premier des six jours de la
 
 création j’ai commencé une certaine histoire,
-Et le jour du jugement je la fermerai.
 Or tout l’ancien testariient part de ce jugement que je
 
 fis de créer.
@@ -6060,13 +5098,11 @@ Et (contre) balance le nouveau.
 Et tout l’ancien testament part de cette création.
 Et tout le nouveau testament va vers ce jugement
 Et dans l’ancien testament le Paradis est au commen-
-cement.
 Et c’est un Paradis terrestre.
 
 Mais dans le nouveau testament le Paradis est à la fin.
 Et je vous le dis c’est un Paradis
 
-céleste.
 Et tout l’ancien testament va vers Jean le Baptiste et
 
 vers Jésus.
@@ -6075,10 +5111,6 @@ C’est comme une belle voûte qui monte des deux côtés
 
 vers la clef de voûte.
 Et Jésus est la clef de voûte. Ainsi est la voûte de cette
-
-nef.
-
-168 DES SAINTS INNOCENTS
 
 Et la pierre qui monte suivant la courbe de cette nef,
 
@@ -6115,7 +5147,6 @@ et le tout.
 Et la dernière pierre avant la clef est Jean le Baptiste.
 
 Mais la première pierre après la clef est Pierre le
-fondateur.
 
 Tu es Pierre et sur cette pierre.
 
@@ -6128,14 +5159,11 @@ Et comme la pierre est quadrangulaire,
 Il y a les quatre angles et les quatre lignes du carré.
 
 Et l’on dit selon Matthieu, selon Marc, selon Luc, selon
-Jean,
 
 C’est-à-dire ensuivant la ligne de Matthieu, en suivant
 la ligne de Marc, en suivant la ligne de Luc,
 
 Et en suivant la ligne de Jean.
-
-169 LE MYSTÈRE
 
 Et aux quatre coins sont assis le jeune homme, le lion,
 le taureau et l’aigle.
@@ -6143,9 +5171,6 @@ le taureau et l’aigle.
 Car l’Église est quadrangulaire,
 
 Comme elle est lapidaire étant fondée sur la quadran-
-gulaire
-
-Pierre,
 
 Et encore l’ancien testament est tout linéaire.
 
@@ -6164,24 +5189,20 @@ avenue de peupliers.
 
 sur la plaine.
 Cette longue avenue, cette longue lignée lidèle
-(Sans largeur).
 Les peupliers y sont placés l’un après l’autre, les
 
 prophètes y sont placés l’un après l’autre.
 Sur la rangée double.
 Venante, sortie, venue des profondeurs de l’horizon la
 
-noble allée,
 La fidèle, la directe allée droite linéaire
 Droite l’avenue s’avance sur la plaine droite.
 Car elle sait où elle va.
 Et elle ne va pas moins que.
 Directement elle va droit au seuil du château.
 
-170 DES SAINTS INNOCENTS
 El elle conduit, et elle amène, et elle introduit le reg^ard
 
-et le pas.
 Elle seule conduit au seuil mais elle ne franchit pas le
 
 seuil, elle ne passe pas le pas de la porte.
@@ -6192,10 +5213,8 @@ S’ouvre à ce seuil et la longue allée de peupliers ne s’y
 continue pas.
 Mais la cour d’honneur s’y ouvre, et les bâtiments du
 
-château.
 Et le beau perron pour monter et les quadrangulaires
 
-murailles.
 El ainsi le nouveau testament a une dimension de plus.
 Car l’ancien testament est une ligne
 Mais le nouveau couvre une surface.
@@ -6217,8 +5236,6 @@ Et qui couvre toute la surface.
 Ou encore l’ancien testament est cette voûte qui monte
 en une seule arête,
 
-171 LE MYSTÈRE
-
 En une seule nervure et le nouveau testament
 
 C’est la même voûte qui retombe,
@@ -6227,37 +5244,24 @@ Qui redescend en toute une nappe.
 
 Et Tarête qui monte part de la terre et c’est une arête
 
-charnelle.
 Mais cette nappe qui redescend vient de l’esprit
 Et c’est une nappe spirituelle.
 Et l’arête et la nervure qui monte part du temps et est
 
 une temporelle arête.
 Mais la nappe qui redescend vient de l’éternité et c’est
-Une éternelle nappe.
 
 Et la clef de cette mystique voûte.
 
 La clef elle-même
 
-Charnelle, spirituelle,
-
-Temporelle, éternelle,
-
 C’est Jésus,
-
-Homme,
-
-Dieu.
 
 Et la création fut une sorte d’ouverture du temps et de
 
 fermeture en quelque sorte de l’éternité.
 Or le jugement sera proprement la fermeture du temps
-Et la totale et la définitive
 Réouverture de l’éternité.
-
-172 DES SAINTS INNOCENTS
 
 Ou encore l’ancien testantient est le lac profond qui
 
@@ -6265,7 +5269,6 @@ reflète la haute forêt.
 Et la forêt est toute dans le lac mais elle n’y est pas.
 Et le lac sombre et le lac profond est enfoncé dans la
 
-terre.
 Et dans le lac le ciel est au fond.
 Mais vers le haut la haute forêt.
 Partant du bord du lac. La haute forêt réelle.
@@ -6287,9 +5290,6 @@ El non pas une école d’hommes.
 
 On croit que les enfants ne savent rien.
 Et que les parents et que les grandes personnes savent
-quelque chose.
-
-173 L E M \ S r E H E
 
 Or je vous le dis, c’est le contraire.
 
@@ -6299,7 +5299,6 @@ Ce sont les parents, ce sont les grandes personnes qui
 
 ne savent rien.
 Et ce sont les enfants qui savent
-Tout.
 
 Car ils savent Tinnocence première.
 Qui est tout.
@@ -6320,8 +5319,6 @@ Sans aucun détour et sans aucune atténuation.
 
 Car il parlait net et ferme.
 
-Et clair.
-
 Heureux non pas même, non pas seulement celui
 
 Qui serait comme un enfant, qui resterait comme un
@@ -6332,9 +5329,6 @@ Mais proprement heureux celui qui est (un) enfant, qui
 reste un enfant.
 Proprement, précisément l’enfant même qu’il a été.
 Puis(iue justement il a été donné à tout homme
-
-174 DES SAINTS INNOCENTS
-D’être.
 
 Puisqu’il est donné à tout homme d’avoir été
 Un jeune enfant laiteux.
@@ -6361,17 +5355,13 @@ disant.Qui, penses-tu, est plus grand dans le royaume
 des deux ?
 
 Et appelant Jésus unpetit enfant, le plaça au milieu
-d’eux,
 
 Et dit : En vérité je vous le dis, si vous ne vous conver-
 tissez point, et ne vous rendez point comme ces petits
 enfants, vous n’entrerez pas dans le royaume des
-cieux.
 
-175 LE MYSTERE
 Quiconque donc se sera humilié comme ce petit enfant,
 voilà celui qui est plus grand dans le royaume des
-deux.
 
 Et celui qui reçoit un tel enfant en mon nom., me reçoit.
 
@@ -6381,7 +5371,6 @@ pende au cou une meule d’âne^ et qu’on le jette au
 profond de la mer.
 
 On a des écoles, dit Dieu. Je pense que c’est pour
-désapprendre
 
 Le peu que l’on sait.
 
@@ -6395,7 +5384,6 @@ C’est une usure perpétuelle, une constante, une crois-
 sante flétrissure. On descend tout le temps.
 
 Heureux celui qui peut rester tel que le jour de son
-baptême
 
 Et de sa première communion. La vie commence au
 baptême, dit Dieu.
@@ -6404,11 +5392,8 @@ Sera-t-il dit qu’elle finit à la première.
 
 Et non point à la dernière communion.
 
-176 DES SAINTS INNOCENTS
-
 Sera-t-ildit que l’homme finit à sa première communion.
 Et non point au viatique, qui est sa dernière commu-
-nion.
 
 Ils s’emplissent d’expérience, disent-ils ; ils gagnent de
 l’expérience ; ils apprennent la vie ; de jour en jour ils
@@ -6429,7 +5414,6 @@ Vous entasserez des sacs vides
 D’une Égypte vide.
 
 Vous accroissez le trésor de vos peines et de vos
-misères.
 
 Et les sacs de vos soucis et de vos petitesses.
 
@@ -6447,8 +5431,6 @@ Et vous ne remonterez jamais cette pente.
 Ce que vous nommez l’expérience, votre expérience,
 moi je le nomme
 
-177 innocents. — 12 LE M Y S T È R E
-
 La déperdition, la diminution, le décroissement, la perte
 de l’espérance.
 
@@ -6462,28 +5444,20 @@ Or c’est l’innocence qui est pleine et c’est l’expérience
 qui est vide.
 C’est l’innocence qui gagne et c’est l’expérience qui
 
-perd.
-
 C’est l’innocence qui est jeune et c’est l’expérience qui
 
 est vieille.
 C’est l’innocence qui croît et c’est l’expérience qui
 
-décroît.
-
 C’est l’innocence qui naît et c’est l’expérience qui
 
-meurt.
 C’est l’innocence qui sait et c’est l’expérience qui ne
 
 sait pas.
 
 C’est l’enfant qui est plein et c’est l’homme qui est
-vide.
 
-178 DES SAINTS INNOCENTS
 Vide comme une courge vide et comme un tonneau
-vide :
 
 Voilà, dit Dieu, ce que j’en fais, de votre expérience.
 
@@ -6491,16 +5465,10 @@ Allez, mes enfants, allez à lécole.
 
 Et vous, hommes, allez à l’école de la vie.
 
-Allez apprendre
-
-A désapprendre.
-
 Toute histoire s’est jouée deux fois, dit Dieu. Une fois
 
-en juiverie.
 Et une fois en chrétiennerie. L’enfant (Jésus) s’est joué
 
-deux fois.
 Une fois en Benjamin et une fois dans l’enfant Jésus.
 Et l’enfant perdu et la brebis perdue et la drachme
 
@@ -6510,14 +5478,9 @@ Et la première fois ce fut dans Joseph, je suis Joseph
 voire frère.
 Il fallait que cela fût joué, dit Dieu. Et deux fois plutôt
 
-qu’une.
-
-179 LE MYSTÈRE
 Car il y a dans l’enfant, car il y a dans l’enfance une
 
-grâce unique.
 Une enlièreté, une premièreté
-Totale.
 
 Une origine, un secret, une source, un point d’origine.
 Un commencement pour ainsi dire absolu.
@@ -6547,18 +5510,12 @@ Elles viennent directement et proprement de moi
 
 Je ne connais rien d’aussi beau dans toiit le monde, dit
 
-Dieu.
 Qu’un petit joufflu d’enfant, hardi comme un page,
 Timide comme un ancre,
 
-180 DES SAINTS INNOCENTS
-
 Qui dit vingt fois bonjour, vingt fois bonsoir en sautant.
 
-Et en riant et en (se) jouant.
-
 Une fois ne lui suffît pas. Il s’en faut. Il n’y a pas de
-danger.
 
 Il leur en faut, de dire bonjour et bonsoir. Ils n’en ont
 jamais assez.
@@ -6586,7 +5543,6 @@ J’ai vu des millions et des millions d’astres rouler sous
 
 mes pieds comme les sables de la mer.
 
-181 I. E M V S T È H E
 J’ai vu des journées ardentes comme des flammes.
 Des jours d’été de juin, de juillet et d’août,
 .l’ai vu des soirs d’hiver posés comme un manteau.
@@ -6603,10 +5559,8 @@ mes propres palais et mes propres châteaux.
 Si beaux que je les g-arderai dans le ciel.
 J’ai vu la capitale du royaume et Rome capitale de
 
-chrétienté.
 J’ai entendu chanter la messe et les triomphantes
 
-vêpres.
 Et j’ai vu ces plaines et ces vallonnements de France.
 Qui sont plus beaux que tout.
 J’ai vu la profonde mer, et la forêt profonde, et le cœur
@@ -6620,9 +5574,6 @@ J’ai vu des martyrs si animés de foi
 Tenir comme un roc sur le chevalet
 Sous les dents de fer.
 (Comme un soldat qui tiendrait bon tout seul toute une
-
-vie
-Par foi
 
 Pour son général (apparemment) absent).
 J’ai vu des martyrs flamber comme des torches
@@ -6645,8 +5596,6 @@ Perdus de charité
 Qui brilleront éternellement dans les nuits et les nuits.
 
 Et j’ai vu des vies tout entières de la naissance à la mort,
-
-Du baptême au viatique,
 
 Se dérouler comme un bel écheveau de laine.
 
@@ -6676,11 +5625,8 @@ Que cet enfant qui s’endort en faisant sa prière
 
 Et qui mélange son *Notre Père* avec son *Je vous salue Marie*.
 
- L K M V S T i’] R E
-
 Rien n’est aussi beau et c’est même un point
 Où la sainte Vierge est de mon avis.
-Là-dessus.
 Et je peux bien dire que c’est le seul point où nous
 
 soyons du même avis. Car g-énéralement nous
@@ -6697,19 +5643,14 @@ vulos. Laissez venir.
 Sinite parvulos venire ad me. Laissez les lout petits
 venir à moi.-
 
-Les petits enfants.
-
 Alors lui furent offerts des tout petits pour quil leur
 imposât les mains, et priât. Or les disciples les
-rabrouaient.
 
 Mais Jésus leur dit : Laissez les lout petits, et ne les
 empêchez point de venir à moi : talium est enim
 regnum cœlorum. De tels en effet est le royaume des
 deux. Aux tels, aux comme eux appartient le
 royaume des cieux.
-
-184 DES SAINTS INNOCENTS
 
 Et quand il leur eut imposé les mains^ il s’en alla.
 
@@ -6723,7 +5664,6 @@ Vous ne pouvez pas même les retenir. Quand un mot
 d’enfant éclate parnù vous
 Vous vous récriez, vous éclatez vous-mêmes d’une
 
-admiration
 Sincère et profonde et qui vous rachèterait et à laquelle
 
 je rends justice.
@@ -6731,7 +5671,6 @@ Et vous dites, de partout vous dites,
 Vous dites des yeux, vous dites de la voi.x,
 Vous riez, vous dites en vous-mêmes et vous dites tout
 
-haut à table :
 Il est bon, celui-là, je le retiens. Et vous vous jurez
 D’en faire part à vos amis, de le dix’e à tout le monde,
 Tant vous avez d’orgueil pour vos enfants (je ne vous
@@ -6743,7 +5682,6 @@ qui vous rachèterait).
 Vous croyez que vous allez facilement le rapporter.
 Mais quand vous allez tout flambants pour le rapporter,
 
-185 LE M ^ S T K R E
 Vous vous apercevez que vous ne le savez plus.
 Et non seulement cela, mais que vous ne pourrez plus
 
@@ -6761,7 +5699,6 @@ Qu’il était là, qu’il occupait cette certaine place, qu’il
 
 avait un certain volume. Mais vous avez la sensation
 
-nette
 Qu’il est parti ou plutôt qu’il est reparti et qu’il ne
 
 reviendra jamais plus.
@@ -6776,17 +5713,13 @@ Parce que c’est d’une tout autre qualité d’âme.
 Et vous le sentez bien, que c’est ainsi, que c’est juste,
 et que rien n’y reviendra, et que rien n’y fera plus.
 Et que c’est votre ancienne âme,
-ô hommes,
 qui a pas.sé,
-
-186 DES SAINTS INNOCENTS
 
 Hommes malins alors vous ne faites plus le malin.
 
 Hommes savants alors vous ne faites plus le savant.
 
 Hommes qui avez été à l’école alors vous ne savez plus
-rien
 
 Et vous n’avez plus qu’à courber le front
 
@@ -6796,8 +5729,6 @@ cette justice)
 Quand un mot d’enfant passe dans le cercle de famille,
 
 Quand un mot d’enfant
-
-Tombe
 
 Dans le fatras quotidien,
 
@@ -6818,37 +5749,24 @@ Quand un mot d’enfant tombe
 Comme une source, comme un rire,
 Comme une larme dans un lac.
 
-187 LE M Y S T E R E
-
 hommes et femmes assis à cette table soudain cour-
 bant le front, l’œil fixe, et les doigts immobiles et
 arrêtés et légèrement tremblants sur le morceau de
-pain,
 
 Les doigts agités d’un léger tremblement, la respiration
 
-arrêtée,
 Vous écoutez passer
 Votre ancienne âme.
 
 Une voix est venue,
 
-Hommes à table.
-
 Comme d’une autre création même.
 
 Une voix est montée,
 
-Hommes à table,
-
 Une voix est venue.
 
 C’est d’un monde où vous étiez.
-
-Une source a jailli,
-
-188 DES SAINTS INNOCENTS
-Hommes à table,
 
 C’est la source de votre première âme.
 Vous aussi vous avez ainsi parlé.
@@ -6862,7 +5780,6 @@ Allez donc à présent faire des mots d’enfants.
 
 Un mot est passé, un mot est monté, un mot est venu,
 
-hommes à table.
 Un mot est tombé dans le silence de votre table.
 Et soudain vous avez reconnu.
 Et soudain vous avez salué.
@@ -6872,13 +5789,7 @@ Un mot a jailli étourdi.
 
 Un mot a volé étourneau.
 
-Hastis musurs.
-
 Et frémissants vous avez senti passer
-
-Toute la jeunesse LE M Y S T i : R E
-Du vieux
-Dieu.
 
 Ils sont le lait et le miel, dit Dieu, une innocence dont
 on n’a pas idée. (Et les hommes sont le pain et le vin).
@@ -6893,11 +5804,9 @@ plus tendre, ils sont le lait même et le miel.
 
 Et l’homme, Hommes à la sainte Table, Hommes à la
 
-Table éternelle,
 L’Homme est le Pain et le Vin
 L’Homme est une nourriture plus forte, une nourriture
 
-virile.
 Mais l’enfant est une blanche nourriture, une pure
 
 nourriture, une nourriture plus tendre.
@@ -6909,7 +5818,6 @@ Et ce Vin venait de cette Grappe. Mais ce lait, et ce
 miel venaient des ruisseaux mêmes.
 Et étant allés jusqu’au Torrenl-de-la-grappe de raisin,
 
-190 DES SAINTS INNOCENTS
 ils coupèrent une branche de vigne avec sa grappe,
 que deux hommes portèrent sur un levier. Ils prirent
 aussi des grenades et des figues de ce lieu-là,
@@ -6936,13 +5844,8 @@ Mais ce n’est pas seulement le mot de mon fils. C’est
 mon mot.
 Quel engagement, l’Église, ma fille l’Église me le fait
 
-reprendre
-
-191 I. E M V S T È R E
-
 Et me le fait dire (or je ne démentirai jamais une
 
-liturgie.
 Une prière, une oraison de ma fille l’Église).
 Par l’Église, par le ministère du prêtre j’ai repris
 
@@ -6963,22 +5866,15 @@ Tout au centre, tout au cœur est réalisé, tout est
 consommé par mon fils.
 Tout est consommé, tout est célébré par ma liturgie
 
-romaine.
-
 Le prophète juif prédit.
 Mon fils dit.
 Et moi je redis.
 
 Et on me fait redire.
 
-Et il y a un rappel, un écho, un report et comme un
-
 retour, qui est saint Louis,
-.le veux dire : Il y a un rappel, un écho, un report et
 
 comme un retour qui sont les saints.
-
-192 DES SAINTS INNOCENTS
 
 y a un reflet.
 
@@ -6987,28 +5883,21 @@ lumière, un reflet après.
 
 On a été trois fois en Ég^ypte, dit Dieu. Et une fois c’est
 
-Joseph.
 Et une fois c’est Jésus.
 Et une fois c’est saint Louis.
 
 On a été trois fois en Égypte et c’est une terre singu-
-lière.
 
 Et une fois c’était Joseph conduisant Jacob c’est-à-dire
-Israël.
 
 Et une fois ce fut le Joseph conduisant Jésus.
 
 Et une fois ce fut saint Louis conduisant Joinville
 
 Et le menu peuple de France et les autres barons fran-
-çais.
-
-19.’î innocents. — Ki L K i\I Y S T E 1^ 1 ::
 
 Singulière Égypte, dit Dieu, singulière destinée de cette
 
-Égypte temporelle.
 Haute et triple destinée. On y fit trois voyages.
 Une fuite. Une fuite. Une croisade.
 Une entrée. Une retraite. Une croisade.
@@ -7023,7 +5912,6 @@ relle, en vérité cette lerre a été fort honorée.
 
 Les pas ont marché dans les pas, dit Dieu, le talon
 juste dans le talon et les pieds ont retrouvé leur
-propre trace.
 
 C’est un pays de désert, dit Dieu, du moins on ledit.
 
@@ -7035,9 +5923,6 @@ Mais sur ce sable les traces ne se sont point effacées et
 les pieds ont retrouvé la trace des pieds.
 
 Les pieds nouveaux sont retombés juste dans les pieds
-antiques.
-
-194 DES SAINTS I.\ N G E X T S
 
 O terre antique, de loin en loin par le désert, par la
 mer le voyageur est venu.
@@ -7047,13 +5932,11 @@ tervalle, et tout paraissait oublié.
 
 Mais après des siècles d’intervalle par le désert, par la
 mer ton roi revenait, ô terre antique, ton roi voya-
-geur.
 
 Et les pieds n’hésitaient point pour se poser dans la
 trace des pieds.
 
 Ton roi est venu trois fois, ô terre antique, ô terre
-destinée.
 
 La première fois c’était un petit garçon vendu esclave
 
@@ -7063,7 +5946,6 @@ Et tu en fis le ministre de ton roi.
 
 La deuxième fois c’était un petit garçon qu’on faisait
 
-fuir à dos d’âne.
 Et un jour tu le renvoyas pour devenir le Roi des rois.
 
 Soyez parfaits comme voire Père céleste est parfait. Et
@@ -7072,30 +5954,24 @@ la troisième fois c’était
 
 le roi de France,
 Récemment débarqué de ses royales
-Galères.
 
 Des siècles et des siècles passaient, ô terre d’Égypte,
 
 des siècles dintervalle,
 Et tout paraissait oublié.
 
-195 L E MYSTERE
-
 Mais toujours ton roi est revenu
 Au rendez- vous.
 
 Terre antique, au cœur fertile, au front couronné de
 
-sables,
 Nul sable jamais n’a effacé,
 Terre antique nul sable n’effacera
 La trace de ces pas.
 
 Terre antique entourée, terre antique cernée d’un infran-
-chissable
 
 Sable, désert aux plis infranchissables tu as été franchi
-trois fois.
 
 Terre antique trois fois ton roi
 
@@ -7103,13 +5979,10 @@ A trouvé le chemin de ton cœur.
 
 Terre antique entre toutes, antique sur toutes tu t’endors
 dans un long- sommeil mais tu as été réveillée trois
-fois.
 
 Et une fois c’était un petit juif.
 Et une fois c’était un petit juif.
 Et une fois c’était un baron français.
-
-196 DES SAINTS INNOCENTS
 
 Et la première fois c’était le Prophète.
 Et la première fois c’était le Saint.
@@ -7124,7 +5997,6 @@ Presque au commencement de l’ancienne loi.
 
 Et la deuxième fois ; et la troisième fois c’était sous la
 
-loi nouvelle,
 Dans la floraison de la loi nouvelle.
 
 Mais la deuxième fois qu’est-ce que c’était,
@@ -7134,8 +6006,6 @@ Sinon sous cet achèvement, sous ce couronnement de
 l’ancienne loi
 Que fut cette naissance et cette enfance et ce commen-
 cement de la loi nouvelle.
-
-197 LE MYSTÈRE
 
 lerre antique, terre d’Éj^ypte tu parais dormir
 tu as été visitée trois fois.
@@ -7148,7 +6018,6 @@ Juste et le Saint.
 
 O terre antique, terre d’Égypte, terre à la longue
 mémoire tu parais dormir mais tu as été foulée
-trois fois.
 
 Et la première fois c’était le roi des Juifs.
 
@@ -7163,8 +6032,6 @@ Terre antique, terre d’I'^gypte tu parais endormie, mais
 
 ton sommeil a été troublé trois fois
 Par les pas qui venaient. •
-
-198 DES SAINTS INNOCENTS
 
 Terre tu as été bénie trois fois et toi désert stérile tu as
 
@@ -7186,18 +6053,14 @@ Terre oubliée trois fois remémorée
 
 Ainsi, dit Dieu, tout se joue trois fois. Le prophète
 
-parle avant.
 Mon fils parle pendant.
 Le saint parle après.
 
 Et moi je parle toujours.
 
-199 L E M ^- S T È R E
-
 Et c’est là que Ton voit que mon lils est le centre et le
 
 cœur et la voûte et la clei"
-Et la nef et le croisement de l’axe,
 Et le point de l’articulation.
 Et le gond qui fait tourner la porte.
 Le prince des prophètes et le prince des saints.
@@ -7221,13 +6084,9 @@ qui réellement veilles,
 Je m’engage autant dans les commandements de
 l’Église que dansmes propres
 
-(Commandements.
-
-200 DES SAINTS INNOCENTS
 Je m’engage autant dans les enseignements de l’Église
 
 que dans mes propres
-Enseignements.
 Je m’engage autant dans une liturgie que je me suis
 
 engagé avec Moïse
@@ -7238,12 +6097,10 @@ venire ad me, — laissez les petits venir à moi, — je
 
 le redis, on me le fait redire toutes les fois (quel
 
-engagement).
 Et mon fils l’avait dit de quelques enfants qui jouaient,
 
 et qui, aussitôt bénis, le quittèrent pour retourner
 
-jouer.
 Mais moi je le dis, on me le fait dire à chaque enfant
 
 qui ne retournera plus jouer,
@@ -7268,7 +6125,6 @@ dans la paroisse jusqu’à la Maison de son père.
 
 Jusqu’au seuil de la maison de son père.
 
-201 LE MYSTÈRE
 El la Croix même marche portée au-devant de cet
 
 enfant qui est mort dans la paroisse.
@@ -7294,7 +6150,6 @@ Sera-t-il dit, dit Dieu, que de tant de saints et de tant
 
 de martyrs.
 Les seuls qui seront réellement blancs.
-Réellement purs.
 
 Les seuls qui seront réellement sans tache ce seront
 Ces malheureux enfants que les soldats d’Hérode
@@ -7302,12 +6157,7 @@ Massacrèrent au bras de leur mère.
 saints Innocents serez-vous donc les seuls.
 Saints Innocents serez-vous donc les purs.
 
-•202 DES SAINTS INNOCENTS
-
 Saints Innocents serez-vous donc les blancs et les sans
-
-tache.
-Beati immacu la l i in v ia.
 
 Bienheureux les innocents, les sans tache dans la voie.
 Ego suni via, veritas et vila.
@@ -7315,7 +6165,6 @@ Je suis la voie, la vérité et la vie.
 saints innocents sera-t-il dit que vous serez et que
 
 vous êtes
-Les seuls innocents.
 Et que François même mon serviteur auprès de vous
 
 n’est point pauvre.
@@ -7325,8 +6174,6 @@ Sera-t-il dit qu’il y a dans la vie, et dans l’existence de
 
 cette terre, une telle amertume, une telle lassitude.
 Une telle inj^^ratitude.
-Une telle flétrissure.
-Un tel voilement.
 
 Un tel irrévocable vieillissement de l’âme et du corps.
 Une telle marque, de telles rides inellaçables.
@@ -7346,7 +6193,6 @@ les corps sans blessure
 De ces g-rands saints et de ces grands martyrs qui ne
 
 quittèrent le sein de leur mère
-203 LE M Y S T f : R E
 
 Que pour entrer dans le royaume des cieux.
 
@@ -7361,32 +6207,24 @@ Les seuls des chrétiens assurément qui sur terre n’aient
 jamais entendu parler d’Hérode.
 Et à qui le nom d’Hérode sur terre n’ait jamais rien
 
-dit.
 Sera-t-il dit que les plus grandes saintetés du monde
 Des vies entières de sainteté
 
 N’auront pas déplié, n’auront pas déridé les âmes.
 Et que le chevalet même n’aura point acquis aux martyrs
 Une certaine blancheur, une certaine premièreté,
-Une certaine entièreté
 De la toute première
-Innocente enfance.
 Et que ce qui est regagné, défendu pied à pied, repris,
 
-gagné,
 N’est point le même que ce qui n’a jamais été perdu.
 El qu’un papier blanchi n’est point un papier blanc.
 Et qu’un tissu blanchi n’est point une blanche toile.
 Et qu’une âme blanchie n’est point une âme blanche.
 Et que les plus près de moi ce seront ces blancs enfants
 
-laiteux
 Qui n’ont jamais rien su de la vie et rien fait de l’exis-
-tence
 Que de recevoir un bon coup de sabre,
 Je veux dire placé au bon moment.
-
-204 DES SAINTS INNOCENTS
 
 Ence temps-là, VAmje du Seigneur apparut en songe
 à Joseph, disant : Lève-toi, et prends ton enfant, etsa
@@ -7411,8 +6249,6 @@ grand hululement : Raîchel pleurant ses fils, et elle ne
 voulut pas être consolée, — quia non sunl, — parce
 qu’ils ne sont pas.
 
-205 L E M Y S T I- : R E
-
 J’ai vu, dit Jean,
 
 En ces jours-là : J’ai vu sur la montagne de Sien
@@ -7434,7 +6270,6 @@ et devant les quatre animaux, et les vieillards :
 et nemo poterat dicere canticum,
 
 et personne ne pouvait dire ce cantique,
-•206 DES SAINTS INNOCENTS
 
 nisi illacenlum quadraginta quatuor millia,
 
@@ -7454,17 +6289,11 @@ Mais tout le monde est enlevé de la terre trop tard,
 quand déjà la terre a pris sur lui.
 
 Tout le monde est enlevé de la terre quand il est déjà
-terreux.
 
 Quand sa mémoire est terreuse et quand son àme est
-terreuse.
 
 Quand la terre s’est collée à lui et quand elle a laissé
 sur lui
-
-207 LE M Y S T E K K
-
-Une ineffaçable marque.
 
 Mais eux, eux seuls, empli sunl Je terra, littéralement
 
@@ -7476,17 +6305,13 @@ Empli sunl de terra. La terre ne les prit point, ne les
 
 eut point. La terre n’eut point commandement sur
 
-eux.
 Ne les nourrit point. N’imprima point sur eux cette
 
-empreinte.
 Cette marque indélébile.
 Ils furent enlevés de la terre, c’est-à-dire de cette
 
-ingratitude terreuse.
 Et de cette amertume terrienne et de ce vieillissement
 
-terrien.
 Ils furent enlevés de la terre, non pas y ayant été,
 
 comme nous, comme tout le monde.
@@ -7503,9 +6328,7 @@ D’avoir été enlevé au commencement,
 A l’origine, au point d’origine de cette vie terrestre.
 De n’avoir pas ce pli et ce g-oût d’une ingratitude.
 D’une amertume.
-Terreuse.
 
-208 DES SAINTS INiNOCENTS
 Beati ac sancli. Heureux et saints ces saints
 Innocents. Ceux-ci, dit Jean,
 
@@ -7531,14 +6354,10 @@ et dans leur bouche,
 et sur leur lèvre ne fut point trouvé le mensonge :
 
 Le mensonge d’homme, le mensonge adulte, le men-
-songe terrestre.
-Le mensonge teiTien.
-Le mesonge terreux).
 
 sine macula enim sunt ante thronum Dei.
 
 sans tache ils sont en effet devant le trône de Dieu.
-209 innocents — 14 L E M Y S T E R P :
 
 Tel est, dit Dieu, ce secret de tendresse et de grâce
 Qui est dans l’enfance même, au point d’origine de
@@ -7546,7 +6365,6 @@ Qui est dans l’enfance même, au point d’origine de
 l’enfant.
 Telle est cette innocence, cette blancheur, cet incom-
 
-mencemenl.
 Tel est ce secret, cette faveur de ma grâce,
 (Cette justice injustifiable),
 Qu’il y a ceux qui ont trempé dans la terre et ceux qui
@@ -7559,12 +6377,10 @@ Et qu’il n’y en a que pour ceux qui n’ont pas trempé
 
 dans la terre et qui ne sont pas éclaboussés de la
 
-terre.
 Ce sont eux, dit l’Apôtre, qui sur le mont de Sion entou-
 rent l’Ag’neau debout.
 Ils sont cent quarante-quatre mille et ce sont eux qui
 
-ont
 Mon nom et le nom de mon Fils écrit sur le front.
 Et l’apôtre entendit une voix du ciel.
 Comme une voix de beaucoup d’eaux.
@@ -7576,8 +6392,6 @@ Et attention ils ne chantaient pas seulement un cantique.
 Mais ils chantaient comme un ca.niique nouveau devant
 
 le siège.
-
-210 DES SAINTS INNOCENTS
 
 Et devant les quatre animaux, et les vieillards :
 
@@ -7591,19 +6405,14 @@ Cette renaissante, cette perpétuellement renaissante,
 cette éternellement renaissante nouveauté.
 
 Et ce cantique nouveau vient de cette nouveauté même.
-Il en sort. Il en naît.
 
 Or tel est leur privilège. Et il n’y en a point de plus
-grand :
 
 Personne, (c’est-à-dire les plus grands saints et les mar-
-tyrs mêmes,
 
 Des siècles et des vies d’épreuves et de sainteté,
 
 D’exercices, de prières,
-
-De travail.
 
 De sang, de larmes ;
 
@@ -7618,19 +6427,15 @@ Matthieu, et Marc, et Luc, et Jean ;
 et le jeune homme, et le lion, et le taureau, et l’aigle ;
 
 Nemo, personne, c’est-à-dire pas même Pierre le Fon-
-dateur ;
 
 Et pas même ceux qui trouvèrent la mort combattant
 pour la délivrance du Saint-Sépulcre ;
-
-211 LE M Y S T È R E
 
 Nemo poterat dicere canticum, personne ne pouvait dire
 
 ce cantique.
 (Tel est leur exorbitant privilège et la grande faveur
 
-injuste
 De ma grâce éternellement juste).
 
 nisi illa centiim quadraginla quatuor millia, qui empli
@@ -7652,7 +6457,6 @@ Ce cri du témoignage, de ce témoignage que nous
 nommons le martyre.
 Proféré sur un tel théâtre et dans une telle, dans une si
 
-dure condition,
 Aux plus grands martyrs n’a point ouvert ce singulier,
 
 cet éminent privilège.
@@ -7666,7 +6470,6 @@ N’ont eu qu’à naître, et rien de plus. Tels sont les
 
 mystères, tels sont les secrets.
 
-212 DES SAINTS INNOCENTS
 Tels sont les jeux, telles sont les inégalités de ma grâce.
 Et le secret apparentement, la secrète accointance
 De ma grâce avec la tendresse et le lait. Tant d’autres.
@@ -7674,21 +6477,17 @@ Tant d’autres ont témoigné sous la serre et le bec
 p]t sous l’onglet
 Sous la dent des lions et sous la lanière et sous la
 
-tenaille ardente
-(Car il y en a eu de toutes sortes)
 Et sous les huées des nations et sous la ruée du peuple
 
 et sous la clameur du peuple.
 Et sous l’interrogatoire du préteur.
 
 Et à tous ces témoins et à tous ces martyrs. Tant
-d’autres.
 
 Tant d’autres sont morts sur des routes perdues dans
 
 des plaines perdues marchant à la délivrance du
 
-Saint-Sépulcre.
 Les reins brisés, gisant par terre, crevant de fatigue.
 Crevant de faim, crevant de soif, crevant de sable.
 Les côtes rompues, couchés par terre, à dix-huit cents
@@ -7701,8 +6500,6 @@ des outres percées,
 
 buvait, et qui se perdait dans le sable,
 Pour jusqu’à la résurrection des corps). Tant d’autres.
-
-213 J. E M V S T 1- : H ! • :
 
 Tant d’autres sont partis, tant d’autres sont morts.
 Crevés de bataille, crevés de misère, crevés de lèpre.
@@ -7717,7 +6514,6 @@ A tant d’autres. A tous ces autres témoins, à tous ces
 autres martyrs il ne fut pas donné.
 Éternellement il n’est pas donné de chanter ce cantique
 
-nouveau.
 Tel est mon ordre, tel est le secret de ma hiérarchie.
 Une vie entière d’exercice et de prière.
 Une vie d’épreuve, une vie d’humilité n’y suffit pas.
@@ -7730,7 +6526,6 @@ Car ce qu’il y faut précisément c’est une vie qui ne soit
 pas entière.
 Qui soit même exactement tout le contraire d’être
 
-entière.
 Qui soit le moins vécue, qui soit à peine commencée.
 Qui soit le moins commencée possible. Et nemo paierai
 
@@ -7739,14 +6534,11 @@ Qui seuls pouvaient chanter ce cantique nouveau,
 
 ([u’est-ce qu’ils avaient fait ?
 
-214 DES SAINTS INNOCENTS
-
 Admirez ici Tordre de ma grâce. Ils avaient fait ceci
 Qu’ils étaient venus au monde. Un point, c’est tout. Ou
 
 si vous préférez,
 Ils avaient fait ceci qu’ils étaient des petits nouveau-
-nés,
 (^’étaient des espèces de petits nourrissons juifs. Des
 
 garçons et des filles.
@@ -7778,7 +6570,6 @@ nom de mon Fils.
 In nomine Patris, et Filii, et Spiritus Sancti.
 Tant d’autres sont morts pour sauver l’honneur
 Du Nom de mon fils. Et eux.
-Qui seuls portent ce nom écrit sur le front LE M ^ S T i : R E
 Et seuls peuvent chanter ce cantique nouveau,
 Ils sont les seuls aussi assurément qui sur terre
 Aient jamais ignoré totalement le nom de mon fils. Tel
@@ -7786,7 +6577,6 @@ Aient jamais ignoré totalement le nom de mon fils. Tel
 est mon décret.
 Ce nom pour lequel ils sont morts, ils ne le connaissaient
 
-pas.
 Ils ne l’ont jamais connu sur terre. Voilà ce que j’aime,
 
 dit Dieu.
@@ -7803,7 +6593,6 @@ Ov ils pleuraient, et ils riaient, et ils tétaient, et ils
 criaient, et ils dormaient.
 C’était leur grande, c’était leur plus sérieuse occupation.
 Et un jour vint.
-Que.
 Un jour (ils ne connaissaient pas plus le nom d’Hérode
 
 que le nom de Jésus)
@@ -7819,10 +6608,8 @@ Antagonistes allaient tout simplement leur procurer
 La gloire de mon paradis.
 Le royaume des cieux et la gloire éternelle. Un jour
 
-vint
 Qu’une horde de brutes soldats, qui faisaient leur
 
-métier, ^^^ DES SAINTS INNOCENTS
 (Mais qui le dépassaient peut-être un peu)
 Une ruée de brutes passa, des espèces de {gendarmes,
 
@@ -7830,11 +6617,9 @@ des ogres comme dans les contes de fées, des Gro-
 
 quemilaines pour les enfants.
 Portant des sabres qui étaient comme des grands cou-
-telas.
 Et c’étaient les soldats d’Hérode.
 Une ruée, un tumulte. Un fracas, des bras retroussés.
 
-Une clameur.
 Des cris. Des dents. Des regards luisants.
 Des femmes qui fuyaient, des femmes qui mordaient
 Gomme elles mordent toujours quand elles ne sont pas
@@ -7846,28 +6631,21 @@ Un cimetière de poupons et de jeunes femmes juives.
 \’ous savez, dit Dieu, ce que nous en avons fait.
 Gesyeux qui s’étaient à peine ouverts à la lumière du
 
-soleil charnel.
 Pour éternellement furent clos à la lumière du soleil
 
-charnel
 Gesyeux qui s’étaient à peine ouverts à la lumière du
 
-soleil terrestre
 Pour éternellement furent clos à la lumière du soleil
 
-terrestre,
 (^es yeux qui s’étaient à peine ouverts à la lumière du
 
-soleil temporel
 Pour éternellement furent clos à la lumière du soleil
 
-temporel.
 Ges regards qui étaient à peine montés vers le jour et
 
 vers le soleil du temps
 Pour éternellement furent clos à ces passagères,
 
-•217 L E M Y S T É R E
 A ces périssables lumières.
 Ces voix, ces lèvres qui n’avaient jamais chanté les
 
@@ -7878,7 +6656,6 @@ téter. (Mais il me plaît ainsi, dit Dieu).
 Sont ainsi les seules, sont aujourd’hui les seules,
 Sont aussi les seules qui puissent chanter ce cantique
 
-nouveau.
 Qui empli sunl de terra. Vous voyez ce que nous en
 
 avons fait, dit Dieu.
@@ -7886,13 +6663,10 @@ Aux Innocents les mains pleines. C’est le cas de le dire.
 
 Ces Innocents avaient simplement ramassé dans la
 
-bagarre
 Le royaume de Dieu et la vie éternelle. Qu’importe
 
-aujourd’hui
 Leurs membres blancs rompus dans tous les bourgs de
 
-Judée.
 Et leurs petits bras potelés coupés comme par des
 
 hommes qui émondent.
@@ -7906,7 +6680,6 @@ les renfonçant, s’enfonçant dans la gorge comme un
 bouchon. Comme un tampon.
 El le jeune sang jaillissant du cœur. Qu’importent les
 
-membres coupés.
 Les cuisses blanches comme de la viande de chevreau
 
 et comme des cuisses tendres de petits cochons de lait.
@@ -7916,8 +6689,6 @@ mordaient les soldats ; iu poignet. Comme dans une
 
 bataille, après la bataille
 Les rôdeurs, les voleurs viennent dépouiller les blessés
-
-218 DES SAINTS INNOCENTS
 
 et les morts et les mourants et emporter et dérober
 
@@ -7934,7 +6705,6 @@ Dans la galopade affolée, dans la poursuite effrénée,
 
 dans les femmes par teri-e ils ont ramassé tout ce qui
 
-compte.
 Ils ont dérobé tout ce qui vaut quelque chose car ils ont
 
 fait main basse
@@ -7961,20 +6731,15 @@ Et d’une amertume qui ne sera jamais rassasiée. Or si
 nous avons fait d’eux ce que vous voyez, dit Dieu,
 Il yen a sept raisons que je veux bien vous dire.
 
-•219 I. E MYSTÈRE
-
 La première, c’est que je les aime, dit Dieu, et celle-là
 
-suffît.
 Telle est la hiérarchie de ma grâce.
 
 La deuxième, c’est qu’ils me plaisent, dit Dieu, et celle-là
 
-suffit.
 Telle est la hiérarchie de ma grrâce.
 
 La troisième, c’est qu’il me plaît ainsi, dit Dieu, et celle-
-là suffit.
 
 Telle est la hiéi’archie, tel est l’ordre, telle est l’ordon-
 nance de ma j^^râce.
@@ -7985,14 +6750,10 @@ C’est précisément qu’ils n’ont point aux commissures
 des lèvres
 Ce pli d’ingratitude et d’amertume, cette blessure de
 
-vieillissement.
-
-220 DES SAINTS INNOCENTS
 Ce pli d’avertissement, ce pli de mémoire que nous
 voyons à toutes les lèvres.
 
 La cinquième, dit Dieu, c’est que par une sorte d’équi-
-valence,
 
 Par une sorte de balancement ces innocents ont payé
 pour mon fils.
@@ -8006,7 +6767,6 @@ que des agneaux et des chevreaux et des cochonneaux.
 (Car les agneaux et les chevreaux et les cochonneaux
 
 Sont très considérés par le boucher et par le consom-
-mateur)
 
 Abandonnés sur les corps de leurs mères
 
@@ -8056,7 +6816,6 @@ Ces gamins, ces moins que gamins se procuraient ainsi
 Une créance sur nous. Monté sur un âne avec sa mère
 (Comme trente ans plus tard monté sur l’ânon d’une
 
-ânesse
 11 devait entrer à Jérusalem)
 Trente ans plus tôt monté sur un âne avec sa mère mou
 
@@ -8074,8 +6833,6 @@ I^a sixième raison, dit Dieu, (je crois que c’est la sixième),
 (c’est une très bonne affaire que d’être pris pour mon fils
 et ça rapporte),
 
-222 DES SAINTS INNOCENTS
-
 la sixième raison, c’est qu’ils étaient contemporains de
 
 mon fils.
@@ -8083,7 +6840,6 @@ Du même âge et nés dans le même temps.
 Juste à ce point du temps.
 
 Nous aussi nous favorisons nos camarades de promo-
-tion.
 Telle est la fortune que nous avons faite au temps.
 C’est une grande fortune ou une grande infortune pour
 
@@ -8093,10 +6849,8 @@ Que de naître ou de ne pas naître à tel moment du
 temps.
 C’est une fortune ou une infortune sur laquelle rien ne
 
-prévaut.
 Sur laquelle on ne revient pas, sur laquelle rien ne
 
-revient.
 Et c’est un des plus grands mystères de ma grâce que
 
 cette part de fortune,
@@ -8106,7 +6860,6 @@ Que nous avons laissée aux biens de fortune devant les
 biens qui ne sont pas de fortune ;
 Au charnel devant et dans le spirituel ;
 Au temporel devant et dans l’éternel, c’est-à-dire
-A la matière dans la création, et à la créature, et à la
 
 création, et à la matière même de la création devant
 
@@ -8115,7 +6868,6 @@ le Créateur.
 A ce point, dit Dieu, que nous-mêmes nous ne sommes
 pas indifférents à la date ; au temps ;
 
-223 L E MYSTÈRE
 A la prise de date et que nous aimons secrètement ces
 
 cent quarante-quatre mille
@@ -8132,7 +6884,6 @@ A la même date.
 Enfin parce qu’ils faisaient ensemble une promotion.
 Non plus seulement une promotion de Juifs mais une
 
-promotion d’hommes.
 (Telle était la nouvelle loi)
 La promotion de Jésus-Christ.
 Et indéniablement ils étaient
@@ -8152,15 +6903,12 @@ Et lui était semblable à eux.
 une promotion c’est comme une belle longue vague
 qui s’avance d’un bout à l’autre sur un même front
 
-•224 DES SAINTS INNOCENTS
-
 et qui d’un seul coup sur un même front d’un bout à
 
 l’autre
 toute ensemble déferle sur le rivaçe de la mer.
 ainsi une génération, une promotion est une vague
 
-d’hommes,
 toute ensemble elle s’avance sur un même front,
 et toute ensemble sur un même front elle s’écroule
 
@@ -8168,7 +6916,6 @@ comme une muraille d’eau
 quand elle touche au rivage éternel).
 Mon fils était tendre comme eux et comme eux il était
 
-nouveau.
 Il était assez inconnu. Comme eux.
 Cette grande adoration double, qui (sans cela) l’avait
 
@@ -8177,8 +6924,6 @@ La grande adoration double des bergers et des mage
 
 était déjà un peu oubliée.
 Il était redevenu assez inconnu. Et les mages s’étaient
-
-moqués d’Hérode.
 
 Il n’avait pas deux ans, il était comme eux.
 C’était un bel enfant, et sa mère le disait.
@@ -8192,13 +6937,10 @@ le pli de l’amertume et de l’ingratitude.
 Il n’avait point encore aux commissures des paupières
 sa ride, le pli des larmes et d’en avoir trop vu.
 
-225 innocents — 15
-
 11 n’avait point encore aux commissures de
 le pli de ne pouvoir point oublier.
 
 Il ignorait encore, comme homme il ignorait les vicis-
-situdes.
 11 ignorait, comme homme il ignorait ce qui laissera
 
 une éternelle trace,
@@ -8221,19 +6963,14 @@ entre tous ils sont les témoins de mon fils.
 Ils me montrent, ils sont comme il était, si seulement
 Il n’eût point changé. De toutes les imitations de
 
-Jésus-Christ
 C’est la première et c’est la toute neuve ; et c’est la
 
-seule
 Qui ne soit à aucun degré
 Qui ne soit pas même pour un atome
 Une imitation de quelque flétrissure et de quelque
 
 meurtrissure et de quelque blessure de l’âme de Jésus.
 C’est une ignorance totale de l’avanie et de l’affront.
-Et de l’injure et de l’offense.
-
-226 DES SAINTS INNOCENTS
 
 Ils ne connaissent que le meurtre, et d’avoir été tués, ce
 qui ne serait rien.
@@ -8249,29 +6986,23 @@ nus des hommes.
 Des agneaux qui ne sont jamais devenus des boucs.
 
 Ni des brebis. [Et ceux-ci suivent l’agneau partout où il
-ira).
 
 Des enfants Jésus qui ne vieillirent jamais. Qui ne
 
 — grandirent point. Or le mien profitait
 
-en sagesse^ et en âge, et en grâce
-
 auprès de Dieu et auprès des hommes.
 
 Je les aime innocemment, dit Dieu. Et c’est la septième
 
-raison.
 (C’est ainsi qu’il faut aimer ces innocents)
 Comme un père de famille aime les camarades de son
 
-fds
 Qui vont à l’école avec lui.
 
 Mais eux ils n’ont point bougé depuis ce temps-là.
 
 Ils sont les imitations éternelles
-227 LE MYSTÈRE
 De ce que Jésus fut pendant un temps très court
 Car il profitait, lui. Il croissait
 pour cette énorme aventure.
@@ -8280,13 +7011,10 @@ Et la septuple raison, dit Dieu, c’est qu’ils sont ainsi
 
 comme David les voulait.
 Immaculati in via. Ainsi est l’ordre, dit Dieu.
-Le prophète prédit.
 Mon fils dit.
 Et moi je redis.
 
 Ou encore :
-
-Le prophète prédit.
 
 Mon fils dit.
 
@@ -8297,25 +7025,20 @@ Et consacre et commémore.
 
 Ainsi l’Apôtre les reprend du Prophète et Jean les
 reprend de David. Et comme David avait voulu qu’ils
-fussent
 
 Immaculés dans la voie ainsi Jean les a vus
 
 Sur la montagne de Sion
 
-228 DES SAINTS INNOCENTS
 Autour de V Agneau debout. Il n’y en a que pour eux.
 
 Ceux-ci suivent V Agneau partout oii il ira.
 (Les plus grands saints ne le suivent apparemment pas
 
-partout).
-
 Ceux-ci ont été enlevés des hommes :
 
 [d’entre les hommes, de parmi les hommes, d’être des
 
-hommes)
 Les plus grands saints ont été des hommes, n’ont point
 
 été enlevés d’être des hommes).
@@ -8333,17 +7056,14 @@ De la promesse même de la saison.
 
 Et suivant l’Apôtre l’Église répète : Innocentes pro
 
-Christo
 infantes occisi sunt,
 
 les Innocents pour le Christ
-229 LE MYSTÈRE
 enfants furent massacrés,
 
 (infantes, tout jeunes enfants, tout petit enfant ne par-
 lant pas encore)
 
-ah iniquo rege
 lactentes inierfecti siint :
 
 par un inique Roi
@@ -8374,17 +7094,14 @@ L’Église les invoque et les nomme
 230
 
 *fleurs des Martyrs.
-*
 
 Entendant littéralement par là que les autres martyrs sont les fruits mais que ceux-ci, parmi les martyrs,
 
 sont les fleurs mêmes.
 
 Salvete *flores Martyrum,
-*
 
 Salut FLEURS des *Martyrs.
-*
 
 Couchés sur le chevalet, liés au chevalet comme des fruits liés à l’espalier
 
@@ -8414,15 +7131,11 @@ Au plein avril, au fin commencement de mai ils sont la blanche fleur du poirier.
 
 Au plein mai ils sont la rouge fleur du pommier.
 
- LE MYSTÈRE
-
 Blanche et rouge.
 Ils sont la fleur même et le bouton de la fleur et le coton
 
 du bouton.
-Ils sont le bourgeon du rameau et le bourgeon de la
 
-fleur.
 Ils sont l’honneur d’avril et la douce espérance.
 Ils sont rhonneur et des bois et des mois.
 Ils sont la jeune enfance.
@@ -8431,10 +7144,8 @@ Le dimanche de Beminiscere n’est que pour eux, parce
 qu’ils se rappellent.
 Le dimanche à’Oculi n’est que pour eux, parce qu’ils
 
-voient.
 Le dimanche de Laelare n’est que pour eux, parce qu’ils
 
-se réjouissent.
 Le dimanche de la Passion n’est que pour eux, parce
 
 qu’ils furent la première Passion.
@@ -8446,21 +7157,17 @@ Et le dimanche du jour de Pâques n’est que pour eux,
 parce qu’ils sont ressuscites.
 Ils sont la fleur de l’aubépine qui fleurit pendant la
 
-semaine sainte
 Et la fleur de l’avant-courrière épine noire, qui fleurit
 
 cinq semaines plus tôt
 Ils sont la fleur de toutes ces plantes et de tous ces
 
-arbres rosacés.
 Promesse de tant de martyrs ils sont les boutons de
 
-rose
 De cette rosée de sang.
 Salvete flores Martyrnm,
 Salut fleurs des Martyrs,
 
-232 DES SAINTS INNOCENTS
 quos, lacis ipso in limine,
 Christi insecutor sustulit,
 
@@ -8468,7 +7175,6 @@ ceu lurbo nascenles rosas.
 
 que, sur le seuil même de la, lumière,
 le persécuteur du Christ enleva,
-(emporta)
 
 ceu turbo nascentes rosas.
 
@@ -8490,8 +7196,6 @@ les couronnes. Avec votre palme et vos couronnes.
 
 —233 Tel est mon paradis, dit Dieu. Mon paradis est tout ce
 
-qu’il y a de plus simple.
-
 Rien n’est aussi dépouillé que mon paradis.
 
 Aram sub ipsam au pied de l’autel même
@@ -8508,12 +7212,8 @@ Avec une palme et des couronnes de martyrs.
 
 Je pense qu’ils jouent au cerceau, dit Dieu, et peut-être
 
-aux grâces
-
 (du moins je le pense, car ne croyez point
 
 qu’on me demande jamais la permission)
 
 Et la palme toujours verte leur sert apparemment de
-
-bâtonnet.

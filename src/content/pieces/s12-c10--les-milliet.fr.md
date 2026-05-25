@@ -9,27 +9,9 @@ ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 translationNotes: FR text is the whole-cahier OCR; per-piece split pending.
 wordCount: 41747
 ---
-[leaf 0462 — half-title]
-
 les Milliet
 
-[leaf 0463 — blank]
-
-[leaf 0464 — series half-title]
-
-[leaf 0465 — blank verso]
-
-[leaf 0466 — date page]
-
 1862-1867
-
-[leaf 0467 — blank verso]
-
-[leaf 0468 — chapter half-title]
-
-[leaf 0469 — blank verso]
-
-[leaf 0470]
 
 L'affaire Jecker. — La plus grande pensée du règne. —
 Catholicisme et monarchie. — L'avenir des races latines.
@@ -54,8 +36,6 @@ dut céder la place à Comonfort, et le mois suivant, à Zuloaga. En
 Juarez, à la tête des Libéraux, établit un second gouvernement
 à la Vera-Cruz et fut reconnu seul Président en janvier 1861.
 
-[leaf 0471]
-
 Le général Miramon, se trouvant à bout de res-
 sources, émit un emprunt de 15 millions de piastres
 (près de 80 millions de francs). Mais il ne pouvait pas
@@ -70,7 +50,6 @@ La créance de Jecker semblait bien
 compromise, quand l'habile homme eut l'idée de se faire naturaliser
 français (le 26 mars 1862). Il soudoya quelques person-
 nages influents et peu scrupuleux dans l'entourage de
-Napoléon III, M. de Saligny en particulier et le duc de
 Morny, auquel il promit pour sa part une vingtaine de
 
 M. de Saligny menaçait le Gouvernement mexicain
@@ -91,8 +70,6 @@ cette affaire M. le duc de Morny, qui s'était engagé, moyennant
 30 o/o des bénéfices de cette affaire, à la faire respecter et payer
 par le Gouvernement mexicain. » (Niox, *Expédition du Mexique*,
 (3) Du Barail. *Mes Souvenirs*. Plon-Nourrit éditeur, 1896.
-
-[leaf 0472]
 
 Il fallait colorer cette escroquerie et trouver des pré-
 textes plus avouables : les catholiques mexicains réfu-
@@ -127,8 +104,6 @@ On ne tarda pas à mettre en avant les indemnités récla-
 mées par les commerçants, qu'en octobre 1861, l'Angle-
 terre, la France et l'Espagne convinrent d'envoyer leurs
 
-[leaf 0473]
-
 flottes pour appuyer ces réclamations. — Partis de la
 Havane, les Espagnols s'emparèrent les premiers de la
 Vera-Cruz, où les troupes françaises ne débarquèrent
@@ -162,8 +137,6 @@ avait l'intention d'offrir le trône du Mexique à l'archiduc Maxi-
 (2) De leur côté MM. Wyke et Prim désapprouvèrent la rupture
 des négociations.
 
-[leaf 0474]
-
 s'emparer du fort de Guadalupe (5 mai 1862). Elle dut
 
 C'est pour réparer cet échec que le général Forey
@@ -179,15 +152,7 @@ cause qu'il défend, celle de la nationalité et de l'indépen-
 dance du Mexique. Le pays sortira avec avantage d'une
 lutte injuste, à laquelle il a été provoqué à son corps
 
-[leaf 0475 — blank verso]
-
-[leaf 0476 — chapter half-title]
-
 1862-1863
-
-[leaf 0477 — blank verso]
-
-[leaf 0478]
 
 1862-1863
 
@@ -215,12 +180,6 @@ Le vaisseau longea les côtes d'Espagne et, le 13 sep-
 tembre, il voguait déjà en plein Océan. Mais la brise
 étant tombée, la marche se ralentit. L'existence à bord
 n'était pas folâtre.
-
-[leaf 0479 — duplicate/retake of p. 21, blurry; cleaner copy at leaf 0482; skipped]
-
-[leaf 0480 — duplicate/retake of p. 20, blurry; cleaner copy at leaf 0481; skipped]
-
-[leaf 0481]
 
 A la table du commandant,
 écrit M. du Barail,
@@ -256,9 +215,6 @@ sauver son régiment du désastre de Sedan.
 M. de Tucé une sincère et durable amitié. J'en trouve le témoi-
 gnage dans le volumineuse correspondance que je mettrai plus
 d'une fois à contribution. J'aurai recours aussi au très beau livre
-de M. du Barail. (*Mes souvenirs*)
-
-[leaf 0482]
 
 1862-1863
 
@@ -296,14 +252,11 @@ Fort-de-France, 10 octobre 62.
 Nous sommes à la Martinique depuis trois jours. Notre
 voyage a été charmant dans la Méditerranée ; nous avons
 
-[leaf 0483]
-
 passé le détroit de Gibraltar de jour et par un très beau
 temps. Cette heureuse traversée s'est prolongée jusqu'à l'île
 de Ténériffe, où les temps brumeux nous a empêchés de
 bien voir le pic. Santa Cruz est une ville espagnole, bâtie
 au bord de la mer. La campagne est triste, ce sont des
-rochers volcaniques, de la lave. Là où il y a un peu de
 terre, on cultive le nopal pour l'élève de la cochenille. Le
 vin des Canaries a une certaine réputation. Personne n'a
 été malade à bord, et pour moi je m'y trouve très bien,
@@ -341,8 +294,6 @@ notre vaisseau a besoin de grandes réparations, qui ne
 seront pas terminées avant une dizaine de jours.
 
 Je compte aller faire quelques promenades à cheval,
-
-[leaf 0484]
 
 malgré les serpents qui pullulent dans cette île et sont fort
 
@@ -385,15 +336,12 @@ n'étions plus maîtres de nos hommes ; j'ai été obligé de me
 (1) Je place ici cette lettre malgré sa date postérieure. Fernand
 ne partit pour le Mexique qu'après avoir passé par l'école de
 
-[leaf 0485]
-
 flanquer des coups de poings avec quelques-uns. Les autres
 sous-officiers de même. Enfin, heureusement, ils n'ont pas
 commis de grandes bêtises.
 
 Nos chevaux sont dans un état admirable, nous n'en
 avons perdu que trois. On parle beaucoup des serpents de
-la Martinique, je n'en ai pas vu un seul. J'ai goûté à tous
 les fruits du pays, le coco, la banane, la goyave, l'arbre à
 pain, l'ananas, la sapotille, la canne à sucre, mais franche-
 ment tout cela ne vaut pas une pomme. Le tabac est détes-
@@ -427,8 +375,6 @@ décomposition de ces matières qu'est due l'insalubrité du
 pays : la fièvre jaune y règne une grande partie de l'année ;
 heureusement, nous sommes arrivés lorsqu'elle était à son
 déclin ; nous n'avons perdu qu'un homme, mais notre
-
-[leaf 0486]
 
 1862-1863
 séjour sous la tente est assez pénible dans ces parages
@@ -477,8 +423,6 @@ science et une application extrême. — Du BARAIL.
 nous rongées jusqu'à l'âme, sans qu'on puisse leur imprimer le
 moindre choc sans crainte qu'on les voie tomber en poussière. — Du BARAIL.
 
-[leaf 0487]
-
 ... Nous n'avons pas trouvé d'ennemis à Vera-Cruz autres
 que des insectes, reptiles, bêtes de toute espèce qui ne nous
 laissent aucun repos. Nous avons établi dans nos tentes un
@@ -518,8 +462,6 @@ l'on tuait à coups de fusil pour la soupe du soir ; et toujours
 (1) « On se croirait dans une volière sans limites... Les oiseaux
 mangent les insectes, les insectes mangent l'homme, et tout le
 monde est content, sauf l'homme. » — Du BARAIL.
-
-[leaf 0488]
 
 1862-1863
 
@@ -565,8 +507,6 @@ malades. Cependant un de nos pharmaciens, M. Dauzats, parvint
 à engourdir les larves au moyen du chloroforme, puis il les tuait
 par des injections phéniquées.
 
-[leaf 0489]
-
 Nous avons traversé, sans être inquiétés par l'ennemi, les
 dangereux défilés des Cumbres, et nous voici à la hauteur
 du mont Saint-Bernard. Enfin, nous respirons. L'air pur et
@@ -609,8 +549,6 @@ costume mexicain qui ne ressemble en rien à celui des
 (1) La culture de cet arbre, si précieux pour l'alimentation, ne
 demande presque aucun travail. On dit qu'un hectare planté de
 bananes suffit pour nourrir cent personnes.
-
-[leaf 0490]
 
 1862-1863
 çons de café, quelquefois en peau de cerf ou en velours
@@ -656,8 +594,6 @@ spinaient une couleur soufre devenant juslâtre. Le chef d'escadrons de
 Tucé, solide et au courant du service, mettait à son une con-
 science et une application extrême. »
 
-[leaf 0491]
-
 détestable. (1) Les provisions que l'on se procure sont très
 chères ; un œuf coûte un medio (six sous), un poulet une
 piastre (5 fr. 35) et le reste à l'avenant ; aussi a-t-on jugé
@@ -669,7 +605,6 @@ porterons probablement sur Puebla, où se tient presque
 toute l'armée mexicaine et où on nous assure qu'ils veulent
 faire sérieuse résistance.
 
-Je ne te dis rien de la politique du pays ni de la guerre
 que nous faisons, pour plusieurs raisons : La première
 c'est que je n'y comprends pas grand'chose ; la seconde
 c'est qu'on nous assure que nos lettres sont décachetées.
@@ -677,8 +612,6 @@ Je pense que l'honorable Monsieur qui remplit ces fonc-
 tions et auquel je présente mes civilités, voudra bien laisser
 passer celle-ci, en raison de ma discrétion, et qu'elle t'arri-
 vera avec toutes mes amitiés pour ton mari et tes parents.
-
-Ton oncle d'Amérique,
 
 5
 
@@ -699,8 +632,6 @@ On coupe le cœur de la plante et l'on recueille la sève qui vient
 remplir l'espace laissé vide par cette mutilation. En général, les
 Mexicains ne sont pas ivrognes, mais le pulque grise comme
 l'eau-de-vie.
-
-[leaf 0492]
 
 1862-1863
 vivres et de munitions, ou à faire des reconnaissances. Les
@@ -747,8 +678,6 @@ Nous vivons toujours assez difficilement : pas de vin, du
 pain de maïs... L'essentiel est qu'on a porte bien. Nous
 avons reçu pour nous remonter quelques chevaux mexi-
 
-[leaf 0493]
-
 cains. Quoi qu'en disent les romans, ce sont d'affreuses
 biques sans force et sans vitesse. Le moindre de nos che-
 vaux arabes vaut mieux que les *mustangs* les plus vantés.
@@ -774,13 +703,7 @@ camarades et le consoler un peu de n'être pas avec moi.
 
 Adieu, mes bons amis, je vous aime et vous embrasse
 
-[leaf 0494 — chapter half-title]
-
 1863
-
-[leaf 0495 — blank verso]
-
-[leaf 0496]
 
 1863
 
@@ -808,8 +731,6 @@ attribuait la rédaction de ces conseils trop souvent
 oubliés. Je crois y reconnaître le cœur d'un honnête
 homme égaré dans l'entourage impérial.
 
-[leaf 0497]
-
 Le général Forey était un homme de très haute taille
 à l'aspect martial, mais la rudesse de ses manières
 cachait une nature faible. Ses lenteurs et ses hésita-
@@ -832,7 +753,6 @@ reusement beaucoup d'entre vous laisseront leurs cendres
 ici, et pourquoi, pour qui ? Pour les réclamations injustes
 de vils agioteurs, qui ne sont pas même Français, pour
 rétablir ce que vous avez renversé dans votre immortelle
-Révolution de 1789.
 
 2
 
@@ -847,8 +767,6 @@ Notre régiment est campé au Sud-Ouest de la ville, à
 environ six kilomètres, sur un beau plateau, d'où nous
 découvrons toute la ville et tous les accidents du siège.
 Nous ne sommes pas oisifs ; nous montons tous les jours à
-
-[leaf 0498]
 
 1863
 cheval pour protéger des convois et nous opposer à une
@@ -891,8 +809,6 @@ beau seuils escadrons de Chasseurs d'Afrique mirent dans la plus com-
 plète déroute. Le terrain était jonché de morts. Nous n'avions
 fait cent prisonniers, et parmi eux, le colonel des Lanciers rouges
 de Durango, réputés les plus braves du pays. » — Du BARAIL.
-
-[leaf 0499]
 
 démonté, avec lequel j'ai continué la charge. Je n'ai retrouvé
 le mien qu'après le ralliement.
@@ -1019,8 +935,6 @@ A cette occasion, M. de Tucé reçut de M. du Barail une lettre qui honore celui
 Le colonel du Barail au commandant de Tucé
 
 Cholula, le 17 avril 1863.
-
-*Mon cher Commandant,*
 
 *J'ai lu avec le plus grand intérêt et le plus vif plaisir le rapport que vous m'avez adressé sur le brillant combat que vous avez livré à la cavalerie mexicaine près d'Atlixco. Je vous renouvelle encore toutes mes chaleureuses félicitations, et je vous prie de les transmettre aux escadrons sous vos ordres, et surtout au 5e qui a eu la plus grosse part dans le succès que vous avez obtenu.*
 
@@ -1414,8 +1328,6 @@ Lorsqu'on demanda dans l'armée française des soldats de bonne volonté pour fo
 « Dans cette guérilla, toutes les nations du monde semblent s'être donné rendez-vous : négriers, écumeurs de mer, chercheurs d'or, chasseurs de bisons... Cette bande d'aventuriers ignorait la discipline. Officiers et soldats se grisaient sous la même tente ; les coups de revolver sonnaient souvent le réveil. »
 De tels hommes valaient-ils mieux que les brigands qu'ils étaient chargés de combattre ? On peut en douter. « Cette bande, écrit M. Allenet, (1) avait pleins pouvoirs pour fusiller, pendre, incendier tout ce qui cherchait à défendre l'indépendance nationale. Aujourd'hui on brûle les villages, on fusille, un à un et de demi-heure en demi-heure, les notables d'une ville, jusqu'à ce que la rançon exigée soit payée ; demain on fouette des femmes ; on accroche aux réverbères des chapelets de pendus grimaçants, dont les cadavres se balancent aux bras des lanternes sous le souffle de la brise de mer. » C'est la prose de M. de Kératry que nous citons textuellement.
 
-(1) *La Jeune France.*
-
 1864-1866
 
 1864-1866
@@ -1446,7 +1358,6 @@ forte d'environ 40.000 hommes, était presque partout victorieuse. Cependant Jua
 
 *M. de Tucé à madame Payen*
 
-Ma chère Alix,
 ... Je suis toujours à Guadalajara et je m'y trouve bien, aussi bien qu'on peut l'être à trois mille et quelques cents lieues de sa famille et de ses amis. Je suis logé chez de fort braves gens, la famille est nombreuse, comme presque toutes les familles mexicaines ; il y a huit enfants, et ce n'est pas fini. Quoiqu'ils ne soient pas très partisans de l'intervention française, je suis bien traité, tout gênant que je suis, avec mes huit chevaux et trois quatre domestiques ; ils ne reçoivent aucune indemnité et ils ne sont pas riches. La mère est une femme bien élevée et d'un grand bon sens ; je parle espagnol avec elle et avec son mari qui ne m'a tire pas trop mal maintenant. Les filles aînées ont 17 et 16 ans, je voudrais reconnaître les soins de ces braves gens en donnant à ces deux demoiselles deux beaux colliers que tu choisiras ; je ne demande pas les perles de Golconde, mais ce qu'on soit joli et de bon goût ; demande superflue, puisque cela sortira de la maison Payen.
 J'ai aperçu ces jours derniers une dame en chapeau ; je n'en avais pas vu depuis que je suis au Mexique. La pauvre dame était suivie et regardée comme tu peux le penser, d'autant plus que cette mode est affreuse. Est-ce que tu portes un cabriolet semblable ? Enfin cette pauvre dame est allée à l'Église ; là le curé, ému du brouhaha que causait cet événement, a sans approuvé d'elle et lui a dit qu'il était inconvenant de se présenter dans une église avec une machine comme celle-là sur la tête, ouvrage de l'inventeur le Bon Dieu, et il a mise à la porte. — Les dames sortent toujours la tête nue, avec les cheveux pendant en deux tresses sur les épaules. A l'église, elles s'enveloppent la tête dans une écharpe ou *reboso* qui encadre fort bien la figure. Il n'y a pas de chaises ni de bancs dans les églises, toutes
 
@@ -1477,8 +1388,6 @@ ajoute M. du Barail,
 
 ... Je n'avais pas encore fait de marches aussi pénibles et par des chemins aussi affreux. Nous sommes à la poursuite de l'armée d'Arteaga et il nous fait faire du chemin. Heureusement on dit qu'une de nos colonnes vient de l'atteindre et l'a tué avec trois autres de ses généraux. (1)
 J'ai reçu ici votre lettre, et une du général du Barail. Il voit tout en beau depuis qu'il a passé la mer et croit que
-
-(1) Voir chapitre VII.
 
 l'expédition approche de sa fin. Il est plus éclairé que tous ceux qui sont ici. Il est difficile de deviner quand et comment nous pourrons quitter ce pays, il n'est pas encore le plus avancé qu'après la prise de Puebla.
 Nous allons quitter Guadalajara, passer dans l'État de Michoacan et nous établir dans sa capitale Morelia. C'est une grande ville, offrant des ressources, et qui a l'avantage d'être seulement à 70 lieues de Mexico.
@@ -1736,8 +1645,6 @@ Il avait été convenu que l'effectif de l'armée française au Mexique serait r
 
 « *Notre situation militaire est des plus mauvaises ; Guanajato et Guadalajara sont menacés. La ville de Morelia est entourée d'ennemis ; Acapulco est perdu. Oajaca est presque dégarni ; San Luis Potosi est en danger. On a perdu un temps précieux, on a ruiné le Trésor public, on a ébranlé la confiance, et tout cela parce qu'on a fait croire à Paris que la guerre est glorieusement finie.* »
 
-Et le 18 juillet :
-
 « *Je ne me plains pas contre les Français auxquels le Mexique doit tant de reconnaissance, mais je me plains amèrement et directement contre quelques Français… qui font toutes les intrigues pour contrecarrer la formation d'une armée nationale ; qui renvoient des troupes sans la permission de leur souverain et contre les traités les plus sacrés, qui permettent et autorisent le vol et le saccage, qui démoralisent une belle et glorieuse armée.*
 
 1865-1867
@@ -1838,8 +1745,6 @@ Le ministre autrichien Lego estime que 40.000 Mexicains furent exécutés en con
 
 Les généraux Arteaga et Salazar, les colonels Diaz et Villagomez, et le commandant Gonzalès, appartenant à l'armée régulière du Mexique, furent impitoyablement fusillés.
 
-(1) De Montluc, page 220.
-
 Avant de mourir, les condamnés écrivirent à leurs mères des lettres qu'on ne peut lire sans une douloureuse émotion. Voici un passage de la lettre de Salazar :
 
 *Mère adorée, il est sept heures du soir, et le général Arteaga, le colonel Villagomez, trois autres chefs et moi-même, nous venons d'être condamnés. Ma conscience est tranquille. Je vais descendre dans la tombe à trente-trois ans, sans tache dans ma carrière militaire, sans souillure sur mon nom. Ne pleurez pas, mais prenez courage, car le seul crime de votre fils est d'avoir défendu une cause sainte, l'indépendance de son pays. C'est pour cela que je vais être fusillé. Je n'ai pas d'argent, car je n'ai jamais rien mis de côté ; je vous laisse sans fortune, mais Dieu vous aidera, vous et mes enfants, qui seront fiers de porter mon nom…*
@@ -1851,8 +1756,6 @@ Le Père Fischer, confesseur de Maximilien, parvint à faire rappeler les féroc
 Faut-il rendre notre armée responsable de toutes ces barbaries ? Non assurément.
 
 « Esclaves de la discipline, les soldats du Mexique
-
-(1) A. Allenet. *La Jeune France*, 1ᵉʳ juin 1883.
 
 1865-1867
 
@@ -1960,8 +1863,6 @@ VII. — Adrien de Tucé. — cinq ans au Mexique ..    5
 
 *Nous avons donné le bon à tirer après corrections pour dix-sept cents exemplaires de ce dixième cahier et pour quatorze exemplaires sur whatman le mardi 20 juin 1911.*
 
-Le gérant : CHARLES PÉGUY
-
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 5854
@@ -2009,7 +1910,6 @@ portrait, par Pierre Laurens.
 
 II. — philosophie et méthode ;
 
-  10. — Sur la guerre. — Qu'il y a une première et
         une deuxième loyauté de la guerre ;
 
   11. — Sur l'art. — De l'initiation à la connaissance
@@ -2024,11 +1924,8 @@ II. — philosophie et méthode ;
         sation morte ; et sur ce point le témoignage
         personnel de Duclaux ;
 
-  13. — De l'autorité de commandement et qu'il y a
         un langage politique parlementaire propre d'où
         viennent, pour ainsi dire, tous nos malentendus ;
-
-  14. — De la séparation de la métaphysique et de
 
   15. — Que nous aurons un jour, comme les Madé-
         casses, une métaphysique d'État ;
@@ -2040,7 +1937,6 @@ II. — philosophie et méthode ;
         celles que nous font les savants modernes, sont
         des métaphysiques tout de même ;
 
-  18. — Qu'il y a un point de discernement d'où le
         philosophe remonte et d'où tous les autres
         ensemble, notamment l'historien, descendent ;
 
@@ -2089,8 +1985,6 @@ III. — la chronique et l'histoire ;
   28. — Qu'il y a une politique juive, mais aussi qu'il
         y a une mystique d'Israël ;
 
-  29. — Qu'il y a eu un héroïsme républicain ;
-
   30. — O soldats de l'an deux ! ô guerres ! épopées !
 
   31. — Qu'il y a dans le monde moderne une hypo-
@@ -2119,21 +2013,13 @@ IV. — les tragiques ;
   37. — Qu'il y a dans le tragique une représentation
         des caractères ;
 
-  38. — Les suppliants parallèles ;
-
   39. — Des vers et du rite de l'intercession dans
 
   40. — De la triple promotion des tragédies
 
-V. — la mort. — la misère. — le mystère de la
      charité de Jeanne d'Arc ;
 
   41. — De la mort, premiers propos ;
-
-  42. — De la misère ;
-
-  43. — Le mystère de la charité de Jeanne d'Arc. —
-        Une prière ;
 
 *Amicus et auctor,* dans le plein sens latin de ce mot.
 *Hujus libri auctor et permultorum aliorum.* —
@@ -2256,7 +2142,6 @@ regarder en littéraires les œuvres du dessin nous n'y
 voyons que des sornettes.
 
 Et vous au moins, quand on parle de Ingres, on sait
-ce qu'on dit.
 
 Au moment où je parle pour la première fois dans
 les cahiers de ce livre, je dois, je veux remercier mes
@@ -2621,12 +2506,8 @@ table analytique très sommaire de notre septième
 VIII-2. — ROMAIN ROLLAND. — *Vies des hommes
 illustres* — la vie de Michel-Ange. — I. — *l'adolescence*.. 2 »
 
-VIII-3. — CHARLES PÉGUY. — de la situation faite à
 l'histoire et à la sociologie dans les temps modernes... 2 »
 
-VIII-4. — ROMAIN ROLLAND. — *Jean-Christophe*. —
-
-VIII-6. — CHARLES PÉGUY. — de la situation faite
 au parti intellectuel dans le monde moderne. —
 
 VIII-7. — CHARLES-MARIE GARNIER. — les sonnets
@@ -2634,20 +2515,14 @@ de Shakespeare, — *essai d'une interprétation en vers
 
 VIII-8. — JEAN BONNEROT. — le livre des livres, —
 
-VIII-9. — ROMAIN ROLLAND. — *Jean-Christophe*. —
-
-VIII-10. — EDMOND BERNUS. — Polonais et Prus-
 siens, — *de la résistance du peuple polonais aux
 exactions de la germanisation prussienne*. — I....... 2 »
 
-VIII-11. — JÉRÔME et JEAN THARAUD. — Bar-Coche-
 bas, — *notre honneur*. — CHARLES PÉGUY. — *Cahiers
 
-VIII-12. — EDMOND BERNUS. — Polonais et Prus-
 siens, — *de la résistance du peuple polonais aux
 exactions de la germanisation prussienne*. — II..... 2 »
 
-VIII-14. — EDMOND BERNUS. — Polonais et Prus-
 siens, — *de la résistance du peuple polonais aux
 exactions de la germanisation prussienne*. — III.... 2 »
 
@@ -2665,10 +2540,6 @@ Nous mettons le présent cahier dans le commerce ;
 dixième cahier de la douzième série ; un cahier grand
 de 180 pages ; in-18 grand jésus ; nous le vendons
 
-[leaf 648 = University of Toronto library card pocket — not transcribed]
-[leaf 649 = cloth binding — not transcribed]
-
-# END OF CAHIER s12-c10
 # Note: no traditional "Le gérant : CHARLES PÉGUY / JULIEN CRÉMIEU imprimeur"
 # colophon appears in this scan. The cahier's text closes at leaf 637 (p. 174)
 # with Péguy's bibliography remarks. Leaf 645 is the back-cover catalog

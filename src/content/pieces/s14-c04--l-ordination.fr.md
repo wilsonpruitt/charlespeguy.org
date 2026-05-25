@@ -8,18 +8,9 @@ isAvertissement: false
 wordCount: 10312
 ocrSource: "Replacement: existing charlespeguy.com vision OCR (raw/s14-c04-ocr.txt) — overwrote prior Tesseract-garbage migration body 2026-05-25"
 ---
-
-L'ORDINATION — II
-
-LA CHUTE
-
 Tant que tu ne mourras pas
 à tout amour créé, tu ne me
 connaîtras pas.
-
-(Imitation, III, XLII)
-
-I
 
 — Monsieur ne regarde même pas comme Suzanne a fait un beau tunnel, dit la nurse indignée.
 
@@ -76,15 +67,11 @@ Et maintenant, debout devant sa cheminée, parcourant du regard ces livres, ces 
 
 Il jeta une bûche dans le feu & se rua au travail... Et ils ne l'inquiétaient guère, ceux qui dormaient là-bas.
 
-II
-
 C'est un dimanche matin, en revenant du Bois, que Suzanne se plaignit pour la première fois d'un peu de mal à la hanche : ça lui faisait un peu mal quand elle courait trop fort, quand elle montait trop vite, quand elle restait debout trop longtemps. Oh! pas bien mal... Elle se plaignit encore le lendemain... Un peu de faiblesse au genou. Par acquit de conscience on fit venir un médecin. Il examina, palpa, interrogea..., puis dit que ce n'était rien, une fatigue de croissance très fréquente à cet âge-là, conseilla qu'elle s'abstînt toutefois de trop courir pour l'instant, qu'elle restât étendue quelques heures par jour, pendant quelques jours...
 
 Elle s'étendait deux heures après le déjeuner. Puis vers la fin du jour. Très sage, très raisonnable, elle quittait ses jeux... On lui lisait de belles histoires, on regardait des images... Des petites amies venaient la voir...
 
 Félix venait vers cinq heures, prendre le thé avec elles. Puis il rentrait dans son cabinet, non sans goûter qu'on fît moins de bruit dans les couloirs.
-
-**
 
 ... Félix avait enfin rendu nettement distinctes ces deux idées de mouvement qu'il voyait partout confondues. Maintenant il s'appliquait à l'histoire de cette confusion, à montrer les diverses formes qu'elle avait prises chez les principaux penseurs...
 
@@ -121,8 +108,6 @@ Et il restait là, attendant le jour, essayant de penser que c'était un mauvais
 
 Et il restait là, la tête baissée, tremblant dans l'impuissance à comprendre qui il était... Il comprenait ceux qui dans de telles nuits tombent à genoux aux pieds de Celui qui sait...
 
-**
-
 Le jour parut. Il courut chez les médecins... La coxalgie! Il était fou de croire ça... C'est d'un diagnostic très simple... On le lui aurait dit tout de suite... Mais non, c'était une fatigue d'enfant qui grandit vite...
 
 Il rentra. Elles étaient à table... Il expliquait comme il pouvait son retard, pourquoi il était sorti de si bonne heure, s'asseyait entre elles deux...
@@ -138,8 +123,6 @@ côté, sur cette chaise longue où était la chair de sa chair... Et il marchai
 
 ... Ce jour-là, des petits amis étaient venus jouer & tout le monde courait. Puis c'avait été l'heure pour Suzanne de s'étendre. On l'avait arrêtée au plus joyeux de sa course; & ils continuaient de courir, les autres, les petits cruels. Et elle les regardait, triste & sage... Oh! quel amour le pénétrait, quelle furie de communion, quel immense accroissement d'arrachement à lui-même, d'impuissance de l'esprit!...
 
-**
-
 Le mal s'accrut. Les médecins s'assemblèrent... Des hommes vinrent avec des bandes, des cordes & du plâtre, qui emprisonnèrent les membres de l'enfant dans une affreuse enveloppe, cependant que, déchirés, horriblement légers, ses parents l'amusaient, la trompaient — « ce n'est que pour quelques jours, dimanche Suzanne courra » — & qu'elle élevait vers eux de grands yeux étonnés & confiants... Et les hommes partirent. Et elle restait là, crucifiée, résignée, affreusement humaine...
 
 Alors, furieusement arraché à sa pensée, le malheureux se sentit précipiter dans l'amour le plus éperdu, dans la dévotion la plus riche, dans la débauche du cœur la plus totale qu'il eût jamais connue. Qu'était-ce que la confusion à un être souffrant qu'il avait connue autrefois & qu'il avait crue violente, auprès de sa confusion d'aujourd'hui à cet être qui était son être, son sang, sa volonté devenue chair et souffrance! C'était par l'intérieur cette fois, par le prolongement de sa propre nature, & non par une cause survenue du dehors, que son âme devenait l'âme d'une autre; c'était le plus profond de lui, le plus proprement lui, qui cette fois le jetait hors de lui, l'attachait à une autre, & avec quelle perfection d'ajustement, quelle puissance d'adhésion, quelle plénitude d'aliénation. Ah! il savait maintenant ce que c'est que d'adhérer à une âme, au plus secret de cette âme, où jamais l'on n'eût cru qu'un autre eût pu atteindre, de ne plus connaître un seul point de la conscience qui soit vous-même, vous seul, vous et non pas un autre... Et maintenant tout sombrait, tout sombrait : toute action de l'esprit, toute puissance de prendre, de comprendre. Et il se débattait : il essayait de se soulever au-dessus de cet océan d'amour, d'étreindre encore sa
@@ -154,8 +137,6 @@ Et c'était l'amour de sa chair meurtrie... Oh! cet amour du seul meurtri, du se
 (1) « Christum ait fuisse summum philosophum. » (Tschirnhaus, sur Spinoza.)
 
 jeunes filles? Pourquoi, par quel sadisme, — & je ne dis pas seulement vous autres, affreux histrions modernes, exploiteurs du pantelant, exhibiteurs de Sébastien ou d'Amfortas, mais vous, sévères docteurs des âges décents : « ô sang qui découlez soit de la tête percée, soit des yeux meurtris, soit de tout le corps déchiré! ô sang précieux, que je vous recueille... » (1). — par quel sadisme communiez-vous au seul meurtri?... Et il l'avait, comme les autres, ce sadisme. Est-ce qu'il avait communié à son enfant quand elle courait dans les jardins, quand elle était heureuse? Est-ce qu'il s'était senti semblable à elle, alors? Est-ce que ce n'était pas, lui aussi, à l'humain douloureux qu'il avait compati?... La tête basse, il pensait : « Qui sera assez humain pour compatir au bonheur! »
-
-(1) Bossuet.
 
 Et c'était l'amour d'une chair meurtrie par lui. Car il se découvrait des sentiments hideux : un attachement pour cette souffrance parce qu'elle était son œuvre, parce qu'elle était la preuve de son pouvoir à créer de la
 souffrance... L'affreux amour de l'homme pour son pouvoir de cruauté... Et soudain lui apparut le sens du Christianisme : l'amour des hommes pour Celui qui a souffert non pour eux mais par eux, qui n'aurait point souffert s'ils n'avaient point péché...
@@ -194,15 +175,11 @@ Mais il savait bien qu'il l'avait mérité, cet abandonnement. Qu'il avait fait 
 
 Et devant cet Eden qu'il perdait par son cœur, il soupirait : « Qui nous rachètera de la charité! »
 
-**
-
 ... Il songeait à celle qu'il avait fait souffrir dans sa jeunesse, qui l'avait tant aimé... Il osa lui écrire. Plusieurs soirs il erra autour de sa maison... :
 
 — Madeleine... Pardon!... J'ai voulu vous revoir... Un seul instant... Je suis très malheureux... J'ai un enfant malade... J'ai compris maintenant tout le mal que je vous ai fait...
 
 Elle l'écoutait, silencieuse & fermée... Elle se rappelait l'effondrement du rêve qu'elle avait fait près de lui, & dans l'amertume de son cœur il n'y avait pas de place pour
-
-(1) Dante, Purgatorio, XXXI, 55.
 
 plaindre les autres... Elle dit quelques paroles banales, & rompant l'entretien, marcha vers sa maison, qui elle au moins ne l'avait point trahie...
 
@@ -220,16 +197,12 @@ découvre son ordre, qu'on découvre sa loi; & que ces mouvements du cœur, qu'e
 
 Et il courait vers sa maison, ivre d'amour, de haine, de déchéance...
 
-**
-
 Et des surcroîts d'amour l'attendaient qu'il n'avait pas prévus, qui ne devaient que grandir : l'enfant de jour en jour devenait plus humaine, plus proprement une âme, s'évadant du simple sentir, s'élevant à la souffrance morale; & plus cette petite chose devenait une chose humaine, plus profondément elle touchait son cœur, plus puissamment elle le tirait à elle... Cependant qu'il pleurait sur cette précoce humanité...
 
 ... Ils étaient au jardin. Le soleil descendait sur la mer immobile & la nuit peu à peu enveloppait la terre comme d'un grand suaire d'ombre. On entendait au loin le bruit pâle des vagues qui venaient doucement mourir au pied de la dune, comme fatiguées des feux du jour. Sur la route les troupeaux rentraient, lassés d'une longue chaleur, enclins à l'ombre & au repos... Tout s'inclinait, vaincu : les bruits, les parfums, les couleurs... Oh! comme elle s'associait à cette mort du jour, à cette abjuration des choses... Comme elle la sentait, cette nature languissante, qui elle au moins ne l'humiliait pas... Avec quelle évidence ses grands yeux fixés dans l'espace ignoraient l'amusement des formes, allaient droit & profond s'unir à l'âme des choses... Et lui, près d'elle, dans l'ombre, avec quelle puissance
 d'âme il épousait cette âme, si gravement une âme, dans quelle oblation plénière, dans quelle pureté votive...
 
 Ce soir-là, Clémence s'était mise au piano. On avait rapproché la civière & l'enfant écoutait, dans le bras de son père... Clémence parcourut quelques pièces romantiques, puis elle ouvrit un cahier de Beethoven & commença le largo de la quatrième sonate... Félix regardait l'enfant. Comme elle écoutait gravement! Comme elle était indifférente aux mouvements des doigts, au déplacement des mains, aux choses qui se voient, & aux éclats subits, & aux notes d'ornement. Comme elle était indifférente aux sons, toute à l'âme qu'ils expriment! Et ces grandes périodes, dont l'amplitude excède l'attention de tant d'adultes, comme son cœur les suivait, comme il en désirait l'entier accomplissement, le profond développement, la calme retombée... Maintenant Clémence arrivait à une sorte d'élévation; elle jouait par cœur, en pleine expression... L'enfant ne regardait plus rien, n'entendait pas ces dissonances, affreusement intérieure, comme épandue dans l'âme qui avait trouvé ces sons, qui avait dit la douleur des mutilations... Puis il la vit, à travers ces ruptures de rythme, ces halètements, ces interrogations, ces changements de registre qui eussent dû la distraire, il la vit suivre l'âme de ces pages, & s'unir dans une larme au sentiment suprême : la consolation par la vie intérieure... Alors, penché sur elle, il se fondait à cette âme, si tragiquement humaine, dans une soif de se nier qu'il n'avait point connue encore...
-
-**
 
 Il y avait près d'un an que l'enfant gisait dans cette entrave... Ce jour-là les médecins devaient venir, voir s'ils pouvaient la délivrer... On la délia, on la mit debout, on la fit marcher. Tout près l'un de l'autre, les deux parents attachaient leurs yeux sur les yeux des médecins. Les serviteurs ne se retiraient pas... Les médecins examinaient, très sérieux, & tout le monde tremblait de ce qu'ils n'eussent pas déjà dit oui... Ils échangèrent quelques mots à voix basse... Félix comprit : la cause était perdue... « Encore un peu de patience »... D'affreux encouragements... On replaça l'enfant... Tout le monde se taisait...
 
@@ -287,8 +260,6 @@ Il l'écoutait, fondu à elle... Ce qu'elle disait, c'était la ruine de tout ce
 — Moi, je ne suis pas comme ça... Je prends sa vie tout humblement, sans me demander ce qu'elle est... Je tâche chaque jour de lui apporter un peu de bonheur, à la chère petite... Et le lendemain, si je peux, je recommence... Crois-moi, aidons-la au lieu de la juger... Tiens, hier j'ai vu qu'il y avait un jouet qui lui ferait plaisir... J'ai été dans Paris & je l'ai acheté... Viens, nous allons le mettre sur son lit, pour qu'elle sourie en s'éveillant... Demain, nous trouverons autre chose...
 
 Elle l'entraîna vers sa chambre. Il la suivait comme un homme ivre, sentant confusément l'immensité de sa chute, qu'il sombrait au réel..., à l'étroit au familial... Elle sortit d'un carton un grand ours en peluche... Ils allaient par le couloir maintenant..., s'approchaient du lit... Elle le tenait par la main, comme pour le soutenir dans cette affrontation du simple amour, non protégé d'orgueil... Ils restaient là, penchés... L'enfant ouvrit les yeux, aperçut le jouet, & eux devant elle, serrés l'un contre l'autre, qui la regardaient, suppliants, implorants... Elle leur souriait, leur pardonnait...
-
-**
 
 À partir de ce jour, il cessa de lutter. Il devint tout amour, délaissa tout penser, toute action de l'esprit...
 

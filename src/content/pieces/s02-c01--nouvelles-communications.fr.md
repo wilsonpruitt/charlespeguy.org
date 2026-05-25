@@ -118,7 +118,6 @@ qu'un commencement d'enquête ait prouvé qu'il méritait une telle épithète. 
 
 J'ai eu vraiment un très grand bonheur quand j'ai vu
 que nos amis revenaient aux méthodes saines. Je suis
-vos JEAN TERRIER
 
 Vous, et les amis dont vous vous plaisez à rapporter
 les propos, avez tous un souci évident de la propriété du
@@ -167,7 +166,6 @@ les mettre à la portée de tous. Ah ! cela est bien difficile.
 su le faire. J'ai songé à cela bien souvent, et vos cahiers
 
 m'ont fait penser : Voilà qui est fait pour quelques-uns,
-il n'y a qu'à transposer pour le peuple. Il se trouvera,
 j'espère, quelqu'un pour transposer. Ah ! qu'il est urgent
 de remplacer par cette propagande sérieuse la mauvaise propagande des journaux, j'entends des journaux
 même les meilleurs.
@@ -201,8 +199,6 @@ forcément rester sans effet et que vous vous occupez d'affaires
 qui n'ont pas d'intérêt immédiat pour votre pays — n'y
 
 Si vous désirez tant la liberté des races opprimées, commencez done par donner l'exemple vous-même et évacuez
-1° L'Algérie
-2° Le Tonkin
 trois possessions où vous n'avez réussi qu'à implanter des
 douaniers, des fonctionnaires et des dévoyés, lie de votre
 Je vous salue bien.
@@ -323,7 +319,6 @@ Demi-Volupté, d'Ernest La Jeunesse, devient donc toute
 volupté, volupté infinie, grâce à l'objectif un tantinet
 polisson. L'auteur ne peut hélas ! compter que pour moitié
 dans le succès du roman, bien qu'il n'ait pas ménagé les
-grâces de son esprit... et il en a, ce coquin de La Jeunesse!
 Mais une bonne pose plastique vaut plus qu'un beau chapitre, de même qu'un sonnet vaut un long poème.
 
 En résumé, la tentative des frères Ollenstadt est
@@ -473,7 +468,6 @@ collaboré à l'Aurore en lui fournissant un nombre assez
 considérable de points de suspension. Je ne sais si
 M. Octave Mirbeau est ami de l'Aurore.Je me demande
 en quoi ceroman, qui n'est pas un livre, est courageux :
-M. Mirbeau ne risque là ni sa fortune bourgeoise, ni si
 aucune situation, ni aucune estime, — car il y a long-
 temps que le Jardin des Supplices lui avait enlevé
 l'estime des honnêtes gens. 11 y gagne sans doute assez
@@ -551,7 +545,6 @@ candidat malheureux à l'agrégation, je ferais des ro-
 
 mans comme {le Journal d'une femme de chambre et je
 les ferais vendre sur les boulevards pour deux sous.
-DANIEL DE LA TARGE, 45, rue d'Ulm,
 
 Bien entendu on reparle de Flaubert, on va reparler
 de Maupassant, on reparle de Rabelais. Je sais que les
@@ -598,7 +591,6 @@ dinaire perspicacité pour 's'en apercevoir.
 Il est tartuffe et basile de nommer d'avance hypo- Ë
 crites et farceurs les bonnes gens qui auront trouvé que ‘À
 ce roman est ignoble et qui Le diront.
-Je continue : à
 Mirbeau devait s'attendre à cela. Pareille explosion de
 pudibonderie, même déchaînement de colères simulées
 avaient accueilli son Jardin des supplices, où notre collabo- k
@@ -622,7 +614,6 @@ Notre collaborateur M. B. Guinaudeau n'est pas
 dégoûté. Mais enfin c'est son affaire. Charme puissant
 et haute pensée ne sont ici que de grosses bêtises de
 
-Je continue
 vrai dire, Les Mémoires d'une femme de chambre vont
 pas été composés spécialement pour les petites filles qui
 mangent la confiture en tartines, ni pour les lecteurs du
@@ -675,7 +666,6 @@ Quand on fait de la pathologie, on fait aussi de l'antisepsie.
 
 Je passe œuvres — fortes — enseignements — jaillissent — ligne — en toute sincérité : ce sont les inévitables politesses du pauvre journaliste au grand
 seigneur de lettres.
-Je continue
 Car, en ces Mémoires d'une femme de chambre, Mirbeau,
 Surmontant tous les dégoüts — tel le chirurgien de quelque
 sombre Saint-Lazare — a mis patiemment à nu la plus
@@ -752,7 +742,6 @@ Bauer, Clovis Hugues, Lucien Descaves, et de madame
 Séverine, pour ne citer que ceux qui nous intéressent.
 J'oubliais : si j'étais candidat à la dictature, ou
 simple soldat de l'antisémitisme, je ferais aussi distribuer sur les boulevards des bouteilles d'absinthe
-deux sous. DANIEL DE LA TARGE
 L'abondance des matières nous force à remettre à un
 prochain cahier les communications qui nous sont parvenues pendant et depuis les vacances.
 

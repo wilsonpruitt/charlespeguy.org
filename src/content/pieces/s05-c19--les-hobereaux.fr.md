@@ -7,7 +7,6 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 16466
 ---
-| ENFANCE ‘à
 Quand la ville, à Noël, agenouillée autour
 4 Des églises carrant debout leur haute tour,
 4 Attend qu'au ciel feutré de brumes minuit sonne,
@@ -41,17 +40,7 @@ Puis longtemps nous marchons dans l'ombre, et dans ta main
 Ma main tremble, et derrière nous, sur le chemin,
 Les traces de nos pas dans la neige vont l'une
 Après l'autre rejoindre, au bord du ciel, la lune.
-|
-|
-|
 
-Vég et 3 RS L * à
-SES nr?
-
-La Se AS ee ess KR: FE je SRRAN RESTE
-, INA As AN E ja nr} une)
-
-| |
 - O ces rêves dans mes cigarettes, souvent!
 . Images, au plafond, de peupliers, de vignes
 ; Et de prés par Avril inondés, jusqu'aux lignes
@@ -67,22 +56,6 @@ Et d'être seul, ce soir, dans ma chambre? ou, là-bas,
 Dans l'insomnie, un cœur prudent n'aurait-il pas
 ‘Tremblé pour moi? Sait-on, parfois, pourquoi l'on pleure?
 
-ne BLUE ANR lAUeE i ATEN Ron DA REA AUS PAS pa ce) Ÿ
-ne. FA NES AR DNS k nt MALTE ANNE KL" AMEN ‘XGA (CR
-NES it VAS (on
-: ANNE Ÿ 4 ' Y'A \reS nie de
-ai, TT (40 re Ÿ 11e AUTO NE! ht e
-| L5/\ AMEN pe) $ Î pit MAO j k Fo
-PAR QR MONA ) HN RUE pre
-
-N L PA FR Le L += : À } ar: ï tir a HALL 8 ES
-MR R de A De
-1500 à G. de Soria
-
-&) NE SA NAS RE A AE Ni FE pane Gus
-JE A Vanne l * f 3 APE) LE re
-, NH it PES AE Rat Er LE \;
-
 Province, soleil d'août, maisons blanches et mortes,
 Pots de fleurs sur les fenêtres, chats somnolents,
 Vieillards rasant les murs l'un vers l'autre, très lents,
@@ -96,7 +69,6 @@ Province, langueur des cloches dominicales.
 G Derrière les rideaux d'une croisée, on voit
 —_ Des jeunes filles souriant, le buste droit
 …_ Sur leur chaise. O récréations monacales!
-# Il
 
 Ainsi vous souriiez, en nos après-midis,
 4 Lorsque j'avais douze ans, ma cousine, et vous seize, !
@@ -119,13 +91,6 @@ Le merveilleux trésor de belle imagerie,
 Et la Province aux vitres pleure, endolorie… |
 Puissent ces vers aller jusqu'à son cœur brisé. l
 
-ne. L'AUTRE NUIOSS
-
-PE Re il # Der Pess De:
-| N'ONMO M FTKS | LORIE
-ON RPM NE ee F
-
-db" CRETE RE OU ET 2
 L'Autre avait des cheveux d'or farouche, un brasier, En (A
 Du bien, éparse au vent, la flamme d'une torche! 12
 Et des bras souples et cruels, comme un rosier 214
@@ -137,7 +102,6 @@ que les fonds ont des lueurs d'écaille blonde. DE
 b dans ces yeux, d'eau pure alors, que n'ai-je pas, 7
 squ'à douter si leur traîtrise était un songe, “sé
 
-NA A SAS RC Se RE UN ns fée
 _ Entrevu d'innocence enfantine, là-bas, NOUS 71 j
 1 Dans cette profondeur marine où l'âme plonge! Re
 10 Mais non. L'orage couve, accroupi sur les flots, Hi:
@@ -151,10 +115,6 @@ L: Immensément striée et livide se plombe.. 1
 nn Douce lumière entre ses cils baignant sa joue, ,
 nu: Puis tempête, remous d'eau lépreuse et de boue! j
 
-| * 1
-à un
-
-| à 5 £ Bu
 _ Mes dix-huit ans, ah! folle année! amour tremblant, : 1 400
 _ Avril dans le verger trempé de pluie et blanc T5
 . De cette neige des pommiers, amour timide 154
@@ -180,20 +140,6 @@ Et les yeux, leur extase et leur enchantement ! |
 Les yeux comme un filet sur la maîtresse nue! |
 Les yeux changés, déjà plus graves, de l'amant |
 Qui maintenant est tien, 6 douleur tôt venue ! |
-|
-|
-|
-|
-|
-|
-|
-|
-|
-|
-|
-|
-
-|
 
 : Pourtant quelle câlinerie à nos réveils, ;
 … Une lenteur de plante à vivre, et combien vagues
@@ -223,14 +169,6 @@ Rien qu'à la retrouver femme par ses façons
 D'aiguiser longuement ses ongles, et sa grâce
 A piquer vite son chapeau devant la glace...
 
-|
-
-PRET TA | (Ne rer Le QT HN RL ART RER LE ONE Eire LEA
-| DERRIÈRE LA PORTE 14
-
-es ou {1/1 URSS
-
-DERRIÈRE LA PORTE ir
 _ La maison pleure dans sa gouttière, ' à
 _ Dans l'âtre brüle un feu de charbon, TM
 Ë Le thé, par le bec de la théière, Me
@@ -238,7 +176,6 @@ _ Dans l'âtre brüle un feu de charbon, TM
 _ Et je rêve d'amours anciennes, de.
 3 _ Le cigare aux lèvres. le temps fuit. ni
 _ Soudain, aux fentes des persiennes, por.
-à à Un éclair luit ! oh
 _ Un bec de gaz au bout de la rue à
 _ File un chant aigu, flûté, plaintif... jIER
 ps È Dans le silence de l'heure indue De
@@ -253,17 +190,6 @@ A Quelle soif donc survit à sa bouche NON
 it | Quel désir d'amour, autre et farouche, 458 ra
 15 Peut tourmenter un corps qui n'est plus? Su ENS
 Le 4 je Va-t-en, retourne au pays des âmes, : PAU ts
-in: J'ai peur du baiser que tu réclames ! à $ ne É
-te je AL A !
-
-Le dei Fe Fe Le DA À A PAS je ë
-nn Je ES
-LE rt
-Tnt j ‘#% la
-
-UM UONRS ie Le A AA onda EEE
-
-‘1 A AE $ } LA A AT ISNEES A ae ne
 
 a chambre de malade est comme un temple où règne E
 me compassion qui chuchote tout bas. i
@@ -278,11 +204,8 @@ qu attend donc le lit en son calme profond ? à
 Fa Fi Dans un fauteuil on est moins mourante peut tai \
 NÉE Et tu voulus broder de tes doigts amaigriss Ti
 210 Mais l'aiguille a tremblé sur la fleur dessinée
-5 ‘ER Et la frêle batiste a glissé de ta main. Mr à à
 20088 Pourquoi vouloir aussi tromper la destinée? # AR |
 RE fi bi Endormons-nous tous deux dans l'oubli de demain
-
-| SV 4 ï ! EE 5 (
 
 Pose ta chère tête sur ma poitrine où Fe
 Mon cœur s'entend qui bat la berloque, le fou ! 4
@@ -305,16 +228,6 @@ Pour la messe de l'aube, en quelque nonnerie,
 Et toujours, ponctuels, durs réveille-matin,
 Ges marteaux forgeant des chaînes à nos destins.
 
-AU ne rs "
-Nous” À
-
-FO NES HR on Hit A CEA TO SA ET QE VAE NES FÉEE
-
-FAR RAR EURE PE ES A OUR se iprt get AT A EME NE ee
-
-‘Y'a ‘UNE (CRETE af) AAA AU! Wir, Pt ALPAE ri FAT AU V
-AS EU RTE TR REA SEE TU au RUN EE APS }
-
 Rayon du petit jour, mince, pareil au fil
 D'un couteau de justice au-dessus de leurs têtes, |
 Et, faiblesse ou remords, leurs nuques déjà prêtes
@@ -334,7 +247,6 @@ $ A vouloir briser tout et fuir pour être libre ?
 
 Dont l'âme dans l'ardeur des nuits blanches s'exalte ?
 
-ny [4 + FAURE CAN CANARD STE A Cr LA ue da DE TR
 Pauvre orgueil que l'air froid du matin a suffi
 A rabattre et jeter morfondu sur l'asphalte
 
@@ -348,11 +260,6 @@ Des lumières, le son, comme du fond de l'eau, ?
 Des cornes rauques de tramways perçant la brume,
 Emportés dans la foule, et rien de plus qu'un pleur
 Anonyme perdu dans le flot de douleur.
-
-ti ht Pod PR mr: A 1 Du PE LE L° 00e
-DITES (ie Nu [4 RICE Le
-
-‘ie s i Lt. te LA EL MINES
 
 Quand tu partis, à la pointe du jour, gris perle
 
@@ -375,7 +282,6 @@ Qui t''emportait le long des dunes que l'eau lèche, |
 Tirant à hue, à dia, de cahot en cahot,
 
 Tantôt dressant son coffre et ses rosses en haut ;
-| 53 / |
 
 D'un mamelon, tantôt dans un repli cachée, )
 Ici presque tombant à droite et là penchée ; É
@@ -401,8 +307,6 @@ Et vois mon orgueil à terre qui s'humilie !
 Pardonne, ou mieux encor, fais ce miracle, oublie!
 Et que des vieux griefs rien ne reste entre nous,
 Que du silence avec mon front sur tes genoux!
-
->à
 
 | Reviens dans ma maison dont ta robe de femme |
 Et tes yeux qui rêvaient aux vitres étaient l'âme ! É
@@ -437,7 +341,6 @@ Sa paire de chevaux efllanqués dont les côtes é ;
 V Saillaient sous le poil jaune et qui bronchaïient aux côtes, :
 
 d Loin, si loin, dans les flaques de boue et les rais FA RAS
-14 De lumière et l'odeur de résine et de gomme FES SERRE
 Des taillis ruisselants, la patache fantôme PARUS
 s Où, pâle et le mouchoir aux lèvres, tu pleurais, Re.
 5 _ Cahin-caha, là-bas, butaïit le long des routes. à
@@ -447,24 +350,8 @@ __ Quand crépite la pluie en bulles sur la mer, À
 
 Mon âme dans le vent qui souflle est aux écoutes. : 4
 
-|
-
-| / ds 4
-
-ge AR TRE F8 L'ART ù 5. 1e “es
-LE rh FÉES
-#4 ca TS € L' 7 PAIN
 “HÉRUE à madame Simone Le Bargy : 10
 
-OUAIS ET RH A NA PS Pa PNR ONE se TA DST
-En nl ? AM FFE Y FLOU L'APNTRUES
-| TAGS x \ pt: Fe HA Fe {
-}'RRREEER L DS pee TARN i
-‘L'ANPE A TRE NT (re MAFIA Ar CNE ni no Seal Eu
-
-de na
-
-Art er Fe" AE : - Le XY 2
 _ C'était je ne sais quel matin, frais et nacré { sh
 Comme le poisson vif aux gluantes écailles 730
 
@@ -475,7 +362,6 @@ _ De ceux où l'on s'en va sur ses jambes, à l'aise, ÿ ; ‘4
 _  J'errais sur les récifs que découvre la mer, 2e
 . Et qu'à son tour, à nu, l'aurore épouse et baise, FE
 - Les varechs pustuleux craquaient, les crabes verts 318
-# : à PUS.
 _ Grattant la vase se terraient à mon approche, PL:
 Ou, plus souvent, surpris dans l'amour, de travers non.
 _ S'esquivaient, emportant dans des fentes de roches À £ sh
@@ -500,11 +386,6 @@ Qui m'était fait du monde en cette matinée,
 Content de tout, de rien, du seul bruit de mes pas,
 M'écoutant respirer et ne comprenant pas,
 Et des lèvres cherchant ta bouche, à Destinée!
-|
-|
-|
-
-| PROMENADES
 
 Après ces plages de sable, où le mica
 - Étincelle comme le silex qu'on frotte,
@@ -522,7 +403,6 @@ Et ce soleil grêlant sur la mer, la grotte
 
 Le Et l'eau froide où ma main trempe est aussi v raie Rd
 ESS Qu'il est vrai le rocher que mon ongle raie, CEE
-Ee Et, derrière moi, du côté de la mer, è DATE
 160 Dont les échos sourds, quand le vent du large entre, 14
 730 ù Roulent en coups de tonnerre au fond de l'antre, PURE
 à & Comme le ciel à perte de vue est clair!
@@ -535,13 +415,11 @@ F 4 De son flanc blessé son sang coule. Elle a dû
 457 Comme une méduse, à fleur d'eau, vers l'azur
 20 Émergeait son ventre lumineux et pur. È
 nes. Quelque steamer, peut-être, d'un coup d'hélice… %
-# mn.
 
 3 38
 _ Ah! l'automne et ses fins de jour, au vieux village, :
 _ Et ses squelettes noirs, sur le ciel encor clair, pr
 _ D'arbres brûlés qui frissonnent au vent de mer, :11e
-| “E)
 _ Et l'éboulement sourd des flots gris sur la plage. ‘1
 _ Voici le petit port et son âcre parfum A: #
 _ De saumure, et la barque fantôme qui rentre, 4
@@ -552,7 +430,6 @@ Où, strident, suraigu, vibre le cri d'adieu 1
 Des dernières hirondelles dans le soir bleu, 5e
 Tandis qu'un peu de jour persiste au front des vierges. 4
 
-ps ce 2 FO TONNES
 Ensuite, c'est la nuit, les vieilles au fagot, |
 \ C'est la male aventure assise à la fontaine, 4
 Le choc, au puits, d'un seau qu'on accroche à la chaine,
@@ -572,9 +449,6 @@ Et le port aux bateaux errants tend ses jetées |
 Comme un vieux père ouvre ses bras au fils prodigue. |
 Il est là. Chaque soir, des bouches invisibles |
 Ont pareillement soufflé ses lampes paisibles. |
-|
-|
-|
 
 Une voix, un soir d'été, venue
 Du fond d'un jardin noir de villa.
@@ -598,12 +472,6 @@ __ Amour, ta triste furie, Ô sang! PRES no
 +8 Qui suit les siestes impures d'août, { es a
 #0 Et toujours ce cri déchirant : vivre! | AA ENS
 
-> fTHERSEEE È ' RO ! © LR PO ENRESE
-
-SA à Pa LE du Ê Lt
-
-nue à AR ne,
-
 Tout le jour, à travers plaines, moissons, prés verts,
 Rouges labours, damier qui tournoie, à travers
 La panique des peupliers, et des passages
@@ -616,7 +484,6 @@ O cauchemar ! rouler, courir, toujours plus loin !
 _ Affolement des trains surpris par la male heure,
 Et toi, dodelinant tes rêves, dans ton coin,
 Le front cherchant le frais sur la vitre qui pleure,
-| 69 :
 
 D'où cette fièvre qui t'agite? est-ce de voir, ;
 
@@ -675,7 +542,6 @@ Où se détend, Ô masque, l'orgueil que tu joues, À
 Fronts ravagés, vieillis, tout à coup, de dix ans,
 Plis des bouches, las de plaisirs ou méprisants,
 Et ce désordre des cheveux, ces pattes-d'oie,
-Flétrissures de la douleur et de la joie.
 Compagnons ballottés dans vos manteaux, pressés
 D'arriver j'ignore où, venant d'où je ne sais, à
 Vous que transperce, à chaque sursaut des voitures,
@@ -699,17 +565,7 @@ Pour tout de bon, vraiment, un soir comme aujourd'hui,
 S'en aller, planter là son âme sédentaire, ;
 Avec son pauvre fond de phrases et d'ennui, |
 Et, dieu sait où, vagabonder... Grande est la terre!
-#
 
-PS 5 ti te, L : Ê cExr
-RAT: L ke a " Liu IE GERS
-| ÉCRIRE 4 FH Re
-Del VIE TT ECO
-
-pis 3 FL LE et
-Dit x FA Lee £
-
-| DES SOIRS be
 _ L'hiver, dans les soirs gris de quatre heures, j'écoute, RES
 
 ; Je sens en moi répercutée, immense et toute, à
@@ -758,9 +614,7 @@ Sur les têtes, et sous le toit vibrant de vitres 4
 | Que font en s'allumant les lampes.
 ‘à O doux son ;
 
-ki De la cloche disant la fin de la journée, ù
 | Le pain gagné, la rue, au loin, illuminée, 4
-Par où l'on s'en revient hâtif à la maison. 4
 j Après ces poêles, ces poussières, l'odeur rance ,
 Des machines glissant dans l'huile, la souffrance 4
 Du revers de la main essuyée, Ô l'instant 1
@@ -772,10 +626,6 @@ Fourmillant de lumières derrière sa grille, Ÿ
 Qui donc n'a pas rêvé que c'est, là-bas, l'espoir, à
 Je ne sais quel, l'espoir innombrable qui brille ? &
 | 4
-
-4 LS Bee RARES LS rl RECRUE ES PSE LE RC NAT RES
-
-| III F.
 
 _ Le jour baisse. La pluie, à la clarté des lampes, 1; 2e
 _ Scintille en longues larmes vertes aux carreaux. ne:
@@ -845,15 +695,6 @@ On veut croire, malgré qu'ils nous mentent, hélas! 4
 Oh! que de fois, au coin d'un carrefour qui gronde, !
 Les démons, ils m'ont pris, bousculé dans leur ronde! l
 
-| rt MISE Vas Lo PO Ne NEA NE Mn
-* F4 * CRE Fos ei < Le # the
-# FRS <; AR UE k à er ÿ
-4 Ma TE. er REX X AC 4 Fat s (Q x RS A)
-
-Ko Rae ARS ES ED SU NE AL AUS PENSE A ER ee 27 AAC OR OS OR
-
-A RENTE EST EN Tes FAP PS AN ATSREN FUAL TT +? MR LL art en
-
 Dites, quels souvenirs de doux compagnonnage |
 Nos promenades par la ville, aux jours brülants,
 Silencieux tous deux, mais sans gêne, et tout blancs e
@@ -889,12 +730,6 @@ Son âme sur les bouches vole, et sa couronne Ÿ
 Est ailleurs. Mais, des mains d'une enfant simple et bonne
 Ces roses de faubourg, il dut aimer cela. il
 
-#1)
-
-EE on uni $ nu es FA ÉD
-
-We É Notre amitié +4
-| < 4 #4
 _ Notre amitié, quand j'y pense, je nous revois, : 200
 
 _ Le soir, tard, parmi vos livres, et votre voix LS
@@ -905,8 +740,6 @@ A vous, et je remets entre vos mains viriles ten)
 Mon cœur et la souffrance des heures stériles, 478
 Et je cache parfois mes yeux de larmes pleins. HITS
 
-xt L'AT RE
-
 À Les six étages dorment dans l'ombre. Personne 22
 Ne veille plus, que nous et, peut-être, ceux-là, Ù à
 Invisibles, dont le nom seul nous consola À
@@ -915,14 +748,10 @@ Si souvent! Puis je pars et notre pas résonne. 1
 Rideaux de nuit qui s'écartent devant la lampe, A
 u Jusqu'au puits noir de l'escalier où, sur la rampe |
 Penchés et parlant bas, nous faisons halte encor. (
-|
-|
 Enfin, l'adieu dans le courant d'air de la porte. |
 Il gèle, la lune éclaire le sol durci. |
 Mais redouble l'hiver, souffle le vent, merci |
 Pour ce cœur réchauffé par vous que je remporte! |
-|
-|
 
 _ Vous quitté, je reviens à pas lents. C'est la nuit,
 ._ Enété. Devant moi, la rue obscure fuit, :
@@ -963,15 +792,6 @@ Qu'en paroles, et qu'on rêve bonne, en dormant...
 
 “4 à Jérôme et Jean Tharaud “te
 
-tr Mt le NES NAS GS PES PTE Er PRE SO E
-HF URSS ANR SR INIMER RÉRATE LS ep La
-11 2 Riu UN ei AS ke CAT RS ed EN OA se Le
-| | à Eu 1 ; ra
-| le NT L
-| | DU Le - Je
-L SAUT pe BE
-| , ÿ er HMS
-
 ; Au-dessus des toits, une lueur lactée
 4 Point et, dans la vasque en bronze réfractée, 1
 _ Glace d'azur les nympbhes, glisse un éclair k
@@ -1002,16 +822,8 @@ De rustiques odeurs embaument les brumes,
 Et dans l'aurore, au coin d'une rue, un four |
 De boulanger fume pour le pain du jour.
 
-Le Pen en Le VDS RU, 7 DUT IN RER SPA PER CE:
 Rire % ne
-de DIT CESR
 
-| : | LT GE PES A
-| à 1 x Ut À
-
-vit SE 2 pd (RSR AN QE CE HR LUS SE Ghda a)
-
-_ Tu me plais, si timide et si gauche et si blanche, j
 - Avec tes mains sans bagues, ton col fin qui penche, £
 Tes cheveux relevés qui découvrent ton front, 7
 
@@ -1045,7 +857,6 @@ Ne soit, pour l'essaim clair de tes songes ravis,
 
 \ Pour tout ce cher bonheur qui te rend si vermeille,
 La fumée étouffante où meurent les abeilles.
-|
 
 Écoute, je voudrais, comme j'ai changé d'âme, |
 
@@ -1074,8 +885,6 @@ La trame irréelle du givre... Il leur faudrait
 
 Ce qui tremble d'azur, d'odeurs, d'hymen secret
 
-|
-
 . Da as un jardin d'avril scintillant de rosée, <
 _ Les pâmoisons des étamines, les douleurs à
 _ Des roses et La joie humide déposée Fr
@@ -1089,20 +898,7 @@ _ Si tu n'étais que moi dédoublé dans la glace, ! \ 7
 _ Si tu n'étais... si tu n'étais qu'un lieu commun Es
 De poète, une métaphore sans parfum. À
 
-RAR ne ne
 4 740
-Wa LE PR pe
-
-FRA CON RC RC ROME MCE “ ar us ON MS ee À RU LS
-ASE PNEU A Far E ee CERN SANS Fe M AA Fr:
-De à Henry Goussé +4 he
-ou L TER
-: L ENRRE ere à
-
-N. RME A D ki LA de
-THE PR ANNE HR DIS ANR Pate LPS EL et + PO
-TND ' Mur. Seul Attal CARPE SUR
-il 1 . net NEA ANA RE
 
 + Pitié pour les pauvres désirs traînant la jambe
 - De rue en rue, en ce long soir de juin qui flambe,
@@ -1129,29 +925,10 @@ Puis, dans la rue on croit à des hasards, on croit
 Raccrocher l'espérance à force d'aller droit
 Devant soi, loin. La rue est bourrue et rudoie… |
 Tout de même, l'amour y passe, on le coudoie. |
-|
-|
-|
-|
-|
-|
-|
-|
-il
 
-| à LR OR SAVE AE PARC AL LUNA LU PA RENE
-| ATNTRNES TES
-LES 0 tue
-ne a LÉ gs ang BELLE AR
-
-ht ANT UNE RAS L'ete
-al QUE À on AE Fa tA
-
-Eu de pe!
 . Le fiacre roule. En quelle rue, on ne sait trop. Ft
 On sent battre en dedans, sous son crâne, le trot SR
 . Du cheval. On se penche endormi vers la glace : 140
-# Ce
 Des becs de gaz éteints, des arbres, une place, 17
 Jusqu'à ce pont, en pleine lune, large et bleu. De
 
@@ -1198,20 +975,6 @@ L'éclat cruel. La rue est nette, unie, exacte |
 
 ; Comme une décision prise et comme un acte. |
 
-|
-
-|
-
-|
-
-|
-
-|
-
-| NUITS
-
-|
-
 - Couple silencieux, ils vont, l'été, s'asseoir
 
 + Dans les coins d'ombre des jardins et, tout un soir,
@@ -1240,15 +1003,6 @@ Glissent entre les arbres noirs, le long des grilles.
 
 # Que savent-ils? Longtemps ils ont dans la tristesse,
 : Côte à côte, longtemps cheminé.. Quand était-ce?
-il
-
-| s VIH »
-
-LPS MAR LA RAC À Abe NICE à 47 on ;
-call et QUE HEB4 HSE TAUR ARE PARSDITE US AA |
-
-+ et TT EËS LA LEE DA ESS ER NUE PAT Der Ce
-#19 5 7 E ô :
 
 De hautes maisons neuves, de vagues espaces, :
 Des masures, plus loin, en embuscade, basses. <
@@ -1290,14 +1044,6 @@ _ Notre amour, comme l'arbre, aux douleurs de la terre $ KE
 _ Se mêlait, cramponnait sa tige solitaire. CAS
 _ Nous restions sans parler, mes mains cherchaient tes mains. À
 
-# ANA
-
-7 VA EUR TPE \ te HE » vu
-
-|
-
-il
-
 Un dimanche de feuilles claires, de fleurs blanches, |
 
 Dans la foule d'un parc de barrière, éventré |
@@ -1335,17 +1081,6 @@ Et j'entends des clameurs si hautes dans ses cris.
 
 Et c'est comme un autre printemps bien plus terrible.
 
-6 AE AE UN ANSE OA LT ES CA eu
-Vel à RUN CE
-tu (SCENE
-
-RO Ne EU Pi BA Car LA UE LU OR
-FLE - DE Aÿe
-
-ar APE RARE La A ARC QU AT A AA A ONE OT
-
-> it ! s : A TN RENNES
-
 h La cour n'a pas changé depuis toi. La marmaille :
 4 Dans le ruisseau d'eau sale y joue et se chamaille.
 É Des fûts vides, en tas, des charrettes à bras
@@ -1373,10 +1108,6 @@ Monstrueuse, effrénée, et ces soirs où tu grilles 4
 Du désir d'aller vers le fou rire des filles!
 Et quels sanglots, alors, dans le silence, à fendre À
 L'âme, que le voisin écoute sans comprendre. |
-
-|
-
-_ POUR VERLAINE ; fs
 
 Passant du soir, viens avec moi, fendons le flot “4
 À Des voitures, suis-moi, prends garde à cette roue,
@@ -1407,8 +1138,6 @@ Jardins où, seul errant, je respire ta bouche, |
 O disparue ! Et vous, cette ombre qui me touche |
 Comme une main l'épaule, et douce me conduit,
 O maître, n'est-ce pas votre âme dans la nuit ?
-
-| POUR VERLAINE
 
 1 C'est un soir, aux heures de fièvre, quand les rues
 
@@ -1450,65 +1179,21 @@ Fait-il donc regretter la rue aux vagabonds ? 1
 Mais tu fuis.. dans le vent flotte ton foulard rouge. 1
 Plus rien, que ce reflet dans l'eau grise qui bouge...
 
-AH L Man
-on ‘ RARE
-its | si: (CET
-
-# tt . DT:
 D Chaque jour, 0e OUTRE
-pue ; à G. de Soria M:
-; HAUTE RL ee. Ai Le eee Ua nt:
 
-a A SR DT Ton ASE TEA dis |
-Départ Ne TOME RENAN MT ent ner Me “Br 4
 se à madame Simone Le Bargy ñ F'ial
-Fes DV UE PARA Ne PEAR RES FA
-Hi Routes D MCE UNE AA NUE EN UE NES 3
-MT Des soirs ON. LL eee CES vs
 C ADres-midi. ent eMPeNSEENPE ne
-| ; Revenir.) ENeReRESeEES D.
-jé Anbe: de Juillet: 2 10e TS ES ARE L.
 Ù à Jérôme et Jean Tharaud 4
 
-Verlaine NE al NT Er 320
-mn TES
 4 Nous avons donné le bon à tirer après corrections BU
 pour deux mille exemplaires de ce dix-septième cahier 1200
 le mardi 7 juin 1904. LHETAN
-ù Le Gérant : CHARLES PÉGUY URES
 1 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués DA
-éEt IMPRIMERIE DE SURESNES (ED. GRENIER, directeur), 9, rue du Pont. — 8981 ti d
-
-LAINE TS JR | AIMONS ses
-
-SNS V5, Ë nt sa ot ce
-
-re Da tt| '# DAT de A
-
-rs , du INDE LI AN
-
-FR ENS + ab, MARNE LE
 
 l 1 Fin d'imprimer deux mille exemplaires de ce
 ns  dix-septième cahier le jeudi 9 juin 1904
-SERRE à l'Imprimerie de Suresnes ; 1e
-FATRE VS 9, rue du Pont Re
-
-PR INR il PR OA HS PANNES pe Qu CARRE AN AT Le
-Rs": | ae de d HS We
-
-ren Le L LÉ IE
-* js LEP RE) Éntin F : ET à
-, à EX LA CRAVAITT LISTES AREA Pi es PATENT ne na , d fi À 4
-
-À À ne
-HA rat à} pur L
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sor-
 
 bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-
-et Et e PURE RE PROS PU RE M AU
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
@@ -1541,10 +1226,6 @@ J poste ; la recommandation postale, comportant une
 | transmission de signature, garantit le destinataire .
 
 157,
-
-an ta Marat MAP Ro Ps PME AS cs AE FO ; AU
-| ORNE E NN Un
-#0 4 TE
 
 4 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit

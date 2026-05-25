@@ -28,44 +28,24 @@ _ mourut à Tréguier dans les derniers jours de mars 1845. Cf. Souve- UT
 RL irs, page 306, note : « Sa famille me fit rendre, après sa mort, les , LA
 : Je tres que je lui avais écrites; je les ai toutes. » Elles sont encore Pa
 
-| M CNE 1 a DAS Le géhler EN AN
-RE or HSE SES AO 3
-Mes TT NA
-Le ALITE 4 er 34 F tr NET VAR ES
-
-| DRE " PE s 4 à ; TL ET 10
 f Inauguration du monument de Renan à Tréguier le
 ERNEST RENAN. — La prière sur l'Acropole . . .... 3
 k Prière que je fis sur l'Acropole quand je fus arrivé à
 en comprendre la parfaite beauté. :
 M. Paul Guieysse, député du Morbihan, président des
 Bleus de Bretagne, fait remise du monument au
-ane de Trépguier. 2. 2 I ES MIO ONE
 . - M. Guillerm, maire de Tréguier, répond. . . . . . .. 15
 Discours de M. Chaumié, ministre de l'instruction
-| Dablique.,.. 57.10 2200 NN MERE
-| Discours de M. BERTHELOT . .. : 1.7.4, , !) 0e
 ; M. Psichari, gendre d'Ernest Renan, parle au nom de
 4 Cahiers de la Quinsaine.
 René LirALtex. — La crise religieuse de Renan . . . . 64
 
-| ‘143
-de
-
-L Nr PA RER ph CELL TE CORAN DRE ON EAU
 di Nous avons donné le bon à tirer après corrections à
 pour deux mille exemplaires de ce troisième cahier le
-DM Le Gérant : CHArRLEs PÉGUY 348
 à ; Ce cahier a été composé et tiré au tarif des ouvriers sndique ‘4
-PPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8128 Te y
-
-Fee tit HE LES AE AUTANT A AL nt “LS Fe
-LPS JE 2 es rer UPS
-Le 3, à Ut US RS CAMES Let CARRE CROSS
 
 suelles régulières et par des souscriptions extraordi- Fnaires ; la souscription ne confère aucune autorité sur de:
 la rédaction ni sur l'administration : ces fo actions
-Nous servons : PEN
 des abonnements de souscription à cent francs ; ds A |
 , des abonnements ordinaires à vingt francs ; A je 3
 et des abonnements de propagande à douze francs. 24
@@ -124,13 +104,8 @@ c * 8, rue de la Sorbonne, Paris, la correspondance de
  nistration adressée à M. Péguy peut entraîner pour la
 réponse un retard considérable.
 
-# RCOPE ARR ER nt EAU NN OT ET HITEA TS +51 MNT
-ER Ce V'UMRRAE FRS RUE 41 PE Gueité ri ‘ RE
-
-TS UN en UP in 1 NE F5 RENE
 Lea Nous avons fait tirer à cinq mille exemplaires sur
 | deux pages pour ce troisième cahier un vient de paraître
-un VS PR ENTRE .
 _ constitué par la table des matières, par l'introduction s
 pe et par la conclusion du travail de M. Litalien.
 Nous empruntons à l'Action, journal de la démagogie
@@ -145,7 +120,6 @@ théâtres et de la Musique de la Flotte. — Prix des places: Ë
 sous la présidence de M. CHAumIé, ministre de l'Instruc- … ES
 tion publique et des Beaux-Arts, suivie d'un défilé des 4
 troupes devant la statue. æ FE
-A midi. — BANQUET DÉMOCRATIQUE de 2.000 couverts, À
 offert par les républicains bretons à M. Comsss, ministre NE à
 de l'Intérieur, président du Conseil des ministres. — Prix à À
 de la souscription : 3 francs. : “ER :
@@ -159,9 +133,6 @@ A 2 heures. — Grandes luttes bretonnes. — 200 francs de
 prix. — Attractions et prix divers. FSU
 Le À 4 heures. — Grandes courses vélocipédiques : 1° Interna- “
 
-A 8 heures et demie. — Bal à grand orchestre et à la |
-
-| QUATRIÈME CAHIER DE LA CINQUIÈME SÉRIE
 le Théâtre du Peuple
 
 le Théâtre du Peuple
@@ -176,15 +147,10 @@ suffit d'envoyer un mandat de trois francs cinquan À
 ; 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième #
 arrondissement. On recevra en spécimens six ca iers « de la deuxième, de la troisième et de la quatrième FA
 ; _ Nous mettons ce cahier dans le commerce; nous le
-| EU È
-| LENS
 ec Nous avons fait tirer à dix mille exemplaires sur |
 KA huit pages pour ce quatrième cahier un vient de
 ; paraître constitué par l'avertissement, La table détaillée
 des matières et La fin de la conclusion. 558 ï
-
-ni Rép. Mr
-# LS: ? te. eux
 
 af UE Sur les œuvres et les travaux de Romain Rolland
 publiés dans les éditions des cahiers antérieures à la …
@@ -200,29 +166,10 @@ F” Rolland publiés dans la quatrième série de nos cahiers.
 
 _ le théâtre du peuple "UN
 
-Lie ne “ te
-#00 "IS
-VE pi ONE de
 LC Le nouveau est venu, l'ancien a passé. fé
 
-3% ME RUE + Lee tu ET ARTS SAS Re
-SE LE AQU PRE EN en LAPO RURTE RASE G
-rh VOES À v a FRET Re Le.
-NE ef ax à LS 'EPRRES ;
-de ANT EEE k ; qe ‘ÈUA #
-
-er x ne
-
 l'AS _ premier fondateur en France 2.
-l'E 5 du Théâtre du Peuple LR
 
-er sr LA TER | e 173% CNE
-
-#1 Fes # DES 4 + CASE
-
-| 11 ETS : 55e NISRES
-
-F Ex Lire RUE pe 2. UE Es FM LÉ ne TT A CET ARE Pr
 | Au moment où paraît ce cahier, se font les premiers
 ë ne: efforts sérieux pour fonder à Paris le Théâtre du
 _ Peuple. Déjà, depuis septembre, un Théâtre Populaire
@@ -244,8 +191,6 @@ sa machine de guerre contre une société caduque et
 k. _ déchue. Les années qui viennent seront décisives pour le
 _ Théâtre du Peuple de Paris. Non que rien puisse
 
-Ru, de
-Romain Rolland + 4
 l'empêcher maintenant de s'établir. Il est nécessaire, ,
 et il sera. Mais il ne faut point d'équivoque. Il ne
 
@@ -258,28 +203,13 @@ le titre seul est neuf, des théâtres bourgeois qui tâchent
 d'élever le Théâtre par et pour le Peuple. IL s'agit
 
 de fonder un art nouveau pour un monde nouveau.
-Romain Rolland
 
-PARA RAR RE AR ARE LG 7, Gate UT CON NE RENE eee
-BON NET on DRE PO EEE 2 Re an nt, 2 De ce COMEDIE De SOS
-AL 0 Le” *, PS EC BR) CAE PRE ee LE. li: af: A SALE
-Lt COR fe MAS CES DR NL A NES
-
-es QUE ; LÉSESR
-
-| PAPE) 5 LA EN EE
-
-> Le Et YEN *
-DANS RE TS DE A DNS EN Mot re WT EN UNS
-
-SUR ke W
 porn s'est produit un fait remarquable depuis dix ans. |
 
 _ L'art français, le plus aristocratique de tous les arts, es
 ÿ3 s'est aperçu que le Peuple existait. — Il le connaissait NE
 
 _ bien comme matière à discours, à roman, à drame, ou y
-| à tableau... 72
 none  « Admirablé sujet à mettre en vers latins! »... RU
 à N Mais il ne comptait pas avec lui, comme avecun être À
 vivant, un public et un juge. (1) Les progrès du socia- 4 L
@@ -300,7 +230,6 @@ Re: (1) Alors le poëte belge Rodenbach écrivait : « L'art n'est pas tu
 _ Jait pour le peuple. Pour qu'il soit compris par le peuple, il fau- ‘4
 _ drait labaisser à son niveau, » +
 
-Romain Rolland AO VE
 duits. Les auteurs y veulent introduire leurs its Ni
 l'État son répertoire, ses acteurs, et ses fonctionnaires. 72108
 
@@ -382,7 +311,6 @@ K: n'y a guère à compter sur cette élite pour l'avenir.
 
 43 13
 
-Romain Rolland Ce + RE
 ne peut créer la société ni l'art nouveau: elle dispaLa vie ne peut être liée à la mort. Or, l'art du passé
 est plus qu'aux trois quarts mort. Ce n'est pas là un +
 fait particulier à notre art français. C'est un fait at
@@ -390,7 +318,6 @@ général. Un art passé ne suffit jamais à la vie; et 1
 souvent il risque de lui nuire. La condition nécessaire
 d'une vie saine et normale, c'est la production d'un ex
 art incessamment renouvelé, au fur et à mesure de À
-la vie. à
 Je ne sais si la société qui s'élève créera son art nou- 1
 veau comme elle. Mais ce que je sais, c'est que si cet À
 art n'est pas, iln'y a plus d'art vivant, il n'y a plus #
@@ -414,7 +341,6 @@ strueuses et blessantes. Un des dangers de l'art signalés M
 par Tolstoy vient peut-être de ce que ces forces du
 passé, détournées de leur emploi, transportées dans un - à |
 
-n. we. à De Re: Dee ré PRE ae 3 Ne
 ‘3 milieu auquel elles ne sont pas accommodées, causent
 _ de graves désordres. Ce n'est pas seulement en morale
 + qu'« un méridien décide de la vérité », et qu' « une
@@ -444,7 +370,6 @@ _ Nous ne tenons pas à étendre la clientèle des théâtres
 #4 actuels : ce n'est pas pour eux que nous travaillons;
 _ nous n'avons à prendre en considération que le bien de
 
-Romain Rolland
 l'art ou le bien du peuple. Il faudrait un fier optimisme
 pour croire que l'un ou l'autre soit intéressé à la diffusion de notre culture artistique, prise dans son L
 
@@ -454,18 +379,6 @@ franchement s'il y a rien pour le peuple dans le bagage
 dramatique du passé. — Et s'il n'y a rien, disons-le,
 sans souci des préjugés.
 
-|
-
-EAP chute L'YTRERMEN a 20 pee EU AMIE: PME 0:
-CAMERA ET. r F FA sr
-LR ARAR à je : à Did
-
-MR 4 Pas: : FL ste RES
-PRE és F4 OL et, LT
-
-ne Lu ir si NS UN |
-
-|. 10 TH
 . - . .
 Je commencerai par convenir qu'il semble que nous ;
 F: ayons les éléments d'un théâtre comique populaire : A
@@ -486,12 +399,10 @@ _ etne ménage ni l'âge, ni les infirmités, ni tout ce qu'il
 À (1) L'échec tout récent du Bourgeois gentilhomme, à la représen_ tation de gala donnée à l'Opéra, en octobre dernier, pour le roi
 _ et la reine d'Italie, en est un indice frappant.
 
-le théâtre du passé Rp na È
 y a de pitoyable dans la nature humaine. Le Grand Roi. A
 riait aux éclats, quand Lulli, costumé en mufti, sautait QE
 par dessus la rampe, et enfonçait un clavecin à coups a.
 de pied et à coups de poing. Saint-Simon raconte de :
-Versailles et de l'entourage de la duchesse de Bour- F te
 gogne des farces énormes et méchantes, qui montrent 1
 la sauvagerie de la Cour. Les comédies de Molière À ”
 sont accordées au diapason de son temps. Aujourd'hui, 4
@@ -599,9 +510,7 @@ puissante gaieté. L'observation va d'un côté, et la verve
 __ de l'autre; à leur suite, le public se divise; et Part 2
 s'étiole, ou se dégrade. J'aurai l'occasion de dire plus
 loin ce que je pense de notre comédie moderne. ‘ta
-(1) Le Temps, 24 novembre 1902. Ps Pa pen L
 
-is LA TRAGÉDIE CLASSIQUE
 Ki La comédie de Molière peut, à la rigueur, pourvoir
 aux premiers besoins d'un théâtre populaire; elle ne
 peut lui suffire. D'une façon générale, ce n'est pas
@@ -614,7 +523,6 @@ elle y règne en maîtresse, mais elle n'en sort guère. Il
 n'est rien d'aussi précieux que le bon sens; et ce n'est
 pas en un temps qui en semble si dépourvu, qu'il
 faudrait dire le contraire; le bon sens peut mener à
-AE tout, même à l'héroïsme : — on l'a vu. — Mais un j
 L peuple est femme; il ne se conduit pas seulement par
 ns sa raison : davantage par ses instincts et ses passions;
 -_ illes faut nourrir et diriger. Les émotions du grand
@@ -629,7 +537,6 @@ ses passions et de sa volonté ?
 On a fait grand bruit du succès récent d'Andro4 maque à Ba-ta-clan. C'est de là que M. Bernheim et ses
 | amis sont partis pour affirmer que la tragédie clasL 23
 
-le théâtre du passé je APE AA
 sique était un genre populaire. Examinons donc ce "0
 succès. — « L'épreuve tentée à Ba-ta-clan, écrivait 4
 naguère M. Larroumet, champion de M. Bernheim, a sr
@@ -640,7 +547,6 @@ Oui, l'élégance de Racine, son choix de mots, sa généra- |
 lité de termes, le fondu de sa couleur, il a saisi et senti É
 les nuances de tout cela. » (1)
 Je vois mal, pour ma part, « le peuple (3.000 spectateurs) » appréciant « le choix des mots » et « le fondu
-de la couleur » de Racine, à la façon d'un professeur de
 rhétorique. Qui veut trop prouver ne prouve rien. —
 Soyons plus méfiants, et voyons dans quelles conditions
 eut lieu la représentation. Pour cetie fois, ce ne fut pas
@@ -659,8 +565,6 @@ pas, et qui aime une autre femme, en faisant tuer cet VA
 homme par un homme dont elle est aimée, qu'elle
 n'aime pas et auquel elle se promet. Maître Decori n'a |
 eu qu'à prendre dans ses souvenirs de la barre pour
-
-Den “e | LA TRAGÉDIE CLASSIQUE HU ORE
 
 y trouver une histoire exactement semblable, dont les ES
 héros étaient un boucher, sa femme, leur garçon et une
@@ -710,7 +614,6 @@ car il n'a pas existé jusqu'à présent : (2) — étant admis
 
 PL. (2) Journal des Débats, 20 juillet 1903.
 
-le théâtre du passé LE 746 PAR
 « Vous êtes-vous avisés, demande-t-il, d'envisager
 Andromaque en mélodrame? Si vous vous en êtes avisés,
 vous vous êtes aperçus qu'elle peut très bien être prise
@@ -741,7 +644,6 @@ Phèdre, Athalie, devant un public très populaire, res- M
 pectueusement, mais froidement. Dans Phèdre, onne « s'intéressait qu'à l'innocent persécuté, à Hippolyte...
 On n'était véritablement remué qu'à la scène de dis- |
 
-en ; LA TRAGÉDIE CLASSIQUE
 _ cussion d'Hippolyte avec Thésée, au quatrième acte, et
 # à celle du récit de Théramène. — Pour Afhalie, c'était
 _ bien autre chose. L'effet produit par Athalie était un
@@ -772,7 +674,6 @@ _ extrêmement différentes ; et pour ce qui est de l'intérêt à
 - fait qui ne prouve ni contre le peuple, ni contre Racine.
 À (1) Journal des Débats, même article.
 
-| Re
 le théâtre du passé
 Ce sont deux mondes différents : il n'y a aucun intérêt A
 les vouloir rapprocher. Le grand art de Racine est és À
@@ -801,8 +702,6 @@ avoir saisi, et qui vous étourdit de sa faconde violente. É:
 Mais la foule aime qu'on lui commande. Elle n'a point M
 avec Corneille ce malaise qu'elle éprouve inconsciem- Fe
 
-TES F'épl AR A re A TON D sé F3'S ke at
-| 2 RS _ LA TRAGÉDIE CLASSIQUE , FU
 ment aux pièces de Racine : d'être étrangère à ce qui - Æ
 de se passe sur la scène, d'assister du dehors à des drames '
 _ intimes. Corneille la jette dans l'action. Il réalise cette
@@ -836,7 +735,6 @@ Elle est morte, et ce cœur devient sujet fidelle ;
 , 00 L'ardeur de vous servir succède à sa fureur. »
 1.40
 
-: le théâtre du passé LAS NN RNENE
 s'appuie moins sur l'observation de la nature, elle est
 plus subjective, plus individuelle; elle reçoit davantage
 l'empreinte du poète, du temps, de la nation. L'imagination poétique se nourrit de l'atmosphère du siècle, ba
@@ -868,7 +766,6 @@ l'esprit, est de le combattre résolument, en ne
 présentant rien au peuple qu'il ne puisse comprendre. |
 D'autre part, le système dramatique de Corneille est
 
-D PA à LA TRAGÉDIE CLASSIQUE ere
 3 Ne _ fait pour rebuter un auditoire populaire. Il ne lui offre
 4 qu'un minimum de plaisir. Peu de personnages ; peu
 4 d'événements; point de mise en scène; point d'action
@@ -899,7 +796,6 @@ J démodée. L'äme même de cet art est à peu près ;
 4 en pensée, parfois en action, essayant de toutes les à
 102 () Gustave Lanson. — Histoire de la littérature française.
 
-le théâtre du passé Po), AE
 - formes politiques, et raisonnant sur toutes, contribuë 7
 rent à l'élaboration de la puissante machine politique 4
 du dix-septième siècle. A eux s'adressent les discus
@@ -911,7 +807,6 @@ Corneille, est un temps de politique, äprement attaché ‘à
 sociale, à trouver une formule nouvelle qüi satisfasse +4
 nos exigences intellectuelles et morales. Mais les 4
 questions qui nous occupent sont différentes de celles |
-d'il y a deux cents ans; et en politique, on ne s'intéresse 2x 3
 qu'aux questions présentes. Les raisons de Cinna et de LC
 Maxime n'ont pas perdu leur prix ; mais ce sont (comme |
 presque toujours chez Corneille) discours d'aristocrates, b
@@ -982,7 +877,6 @@ plus minutieuse qu'elle est moins sûre. En fait de pen- L
 ‘ sée, c'est un arlequin bigarré d'idéologies contra- |
 dictoires. où le ton dominant est un naturisme 1
 assez plat, venu des Encyclopédistes, sur lequel les |
-() IL va de soi qu'on ne parle ici ni de l''admirable théâtre de :4
 Musset, rêve d'aristocratique adolescent, ni des quelques drames 4
 d'Alfred de Vigny, d'ailleurs inférieurs à leur renommée, froids et A
 antipopulaires. Quant à Hugo, il est juste de reconnaître qu'ilma
@@ -996,7 +890,6 @@ __ du romantisme allemand ont déposé leur vernis. Riche
 Hi de bruit, d'éloquence, d'airs de bravoure, d'images
 k éclatantes, de fausse science et de fausse pensée, ce
 bi théâtre est le capitan matamore de l'art français. Il ne
-F se donne la peine, ni de penser, ni d'apprendre, ni
 F d'observer; il n'a ni vérité, ni honnêteté; il bluffe avec
 À maëstria. C'est bien un mélodrame qui exploite son
 | public, qui le prend par sa niaiserie, dupe des mots
@@ -1054,7 +947,6 @@ morne sous son fracas, blafard dans son éclat. L
 Dans ces dernières années, M. Rostand a ramené “e
 délibérément le théâtre au romantisme de Hugo et de 4
 
-ne LE DRAME ROMANTIQUE RTS
 #4 Dumas père, en le rajeunissant par une pointe d'argot +
 _ à la mode. Mais ce poète brillant et funambulesque, ce
 k gavroche” du romantisme, — malgré ses retentissants
@@ -1100,7 +992,6 @@ pas se passer de vérité. Nous ne lui demandons pas
 de respecter et d'admirer ce qu'il ne comprend pas :
 cela sert à former un peuple de fonctionnaires pliés au
 ‘despotisme. Nous lui demandons de ne rien admettre
-_ qu'il ne comprenne, de ne rien admirer qu'il ne sente. É
 Qu'importe qu'il soit injuste d'abord pour quelques
 grandes œuvres ? Il est plus près d'elles en les niant, 4
 que les snobs en les applaudissant; et il garde intacte
@@ -1133,8 +1024,6 @@ Ne Diderot, à représenter les tragédies privées et les
 ñ problèmes de morale domestique et sociale, posés
 { et non résolus par la société nouvelle. Il est naturel
 Ë que de telles œuvres aient passionné leur époque ;
-
-le théâtre du passé DE a
 
 mais il est naturel aussi que ces œuvres passent avec
 leur époque, si elles valent par la thèse et non par la
@@ -1179,7 +1068,6 @@ fe: Je ne parle pas de la Comédie moderne. Elle ne
 4 manque pas de talent. Mais subtile et fade, senti-
 | mentale et corrompue, elle sent son public : une
 | bourgeoisie oisive et dégénérée, qui n'a plus la force
-Ÿ ni d'aimer, ni de haïr, ni de juger, ni de vouloir quoi
 | que ce soit. Elle flotte indécise entre les berquinades et
 | la pornographie, et parfois unit les deux en un mélange
 écœurant et niais. Ce théâtre n'a jamais représenté la
@@ -1210,9 +1098,6 @@ qui veut le respect. L'instinct de la conservation est
 une force trop puissante: un peuple sain ne se laisse |
 pas détruire de gaieté de cœur, comme quelques
 
-|
-
-| V
 < Reste le répertoire étranger. De très grands hommes,
 les plus grands de l'art dramatique: Sophocle, Sha-
 | kespeare, Lope, Calderon, Schiller, ont été populaires,
@@ -1269,7 +1154,6 @@ nous, en France, nous résigner à ces profanations. Sans
 actuel de certains côtés de l'œuvre de Shakespeare, de
 F ses instincts et de ses actes tumultueux et violents ;
 3 mais combien plus loin encore de la pensée profonde
-| . . DES . .
 _ aux mille replis! (1) — Il est misérable d'ajuster un
 1 grand homme à la mesure de la multitude.
 | On serait contraint aussi de mutiler les grands 1y__  riques allemands du commencement du siècle. Parmi
@@ -1302,16 +1186,13 @@ comprendre l'esprit d'un autre âge et d'une autre race.
 théâtre du passé
 gne l'honnête génie de la bourgeoisie
 roïiq lution, c'est une pièce excellemment |
-I s pays allemands. J'en ai eu la preuve,
 prises, par les représentations d'Altorf :
-s us par la bourgeoisie et le peuple
 : tout entier concourt au spectacle,
 fait écho aux paroles de liberté.
 rs que l'art populaire n'a pas créé
 gure que celle de Tell, hercule aller, aux résolutions lentes, à l'énorme
 dorment les pensées et les émoac majestueux, dont les vents ont |
 sante masse, mais qui, une fois
-à la mer. — Mais ce qu'il y a dans
 lement germanique, le flegme, la
 nte, la sentimentalité, la naïveté
 apperait pas sans doute auxmeiseaux |
@@ -1328,7 +1209,6 @@ deuil écrasant pussent rester au ré e d'un peuple #
 sorti de l'esclavage. Ce sont des hemars qu'on
 doit souhaiter qu'il rejette de lui, le pis tôt possible
 avec horreur, — Quant à Anzengr (x) il semble
-qu'il ait eu conscience du théâtre pc re, et qu'il en
 ait donné quelques types assez heu Une partie de
 | ses œuvres serait même d'actualité ance, par leur
 4 constante protestation contre l'esprit cal; mais elles |
@@ -1347,7 +1227,6 @@ d'impérissables figures; il a créé dé os populaires
 E : familiers et surhumains, comme ceu antiques épo- ». () Voir sur Anzengruber d'intéressants s de M guste
 “ hrhard, parus dans la Revue d'art dramatiq let-ac 897).
 2 47
-| x
 
 le théâtre du passé
 sant et lourd, où règne l'honnête génie de la bourgeoisie
@@ -1378,7 +1257,6 @@ cris de misère, ou de lugubres récits, dont la menace et ;
 populaires, comme Terje Vigen, est le plus aristocratique des pen- à
 seurs, et dont l''Ennemi du peuple n'a pu devenir... l'ami du peuple,
 que par la plus ironique des méprises et l'aveuglement de l'esprit Ë
-de parti. £.
 On nous dit qu'un autre grand poëte aristocrate, Gabriele L
 d'Annunzio, travaille, en ce moment même, à une pièce populaire.
 
@@ -1401,7 +1279,6 @@ des observations locales le caractère universel. Il
 ; nous est du moins un exemple intéressant d'un théâtre
 moyen, parlant au peuple sans flatterie et sans dédain,
 et lui présentant avec clarté le spectacle de sa propre
-vie.
 Enfin se présente à nous, au terme du siècle qui vient
 : de finir, le nom grandiose du tout-puissant Wagner.
 : Cet homme qui fut le plus souverain créateur en
@@ -1444,7 +1321,6 @@ de la métaphysique du Walhalla, du Désir de Tristan
 () A plus forte raison, avant Meyerbeer et Adolphe Adam, chers :
 aux Trente ans de Théâtre de M. Bernheim. 2
 
-4 ie LE RÉPERTOIRE ÉTRANGER UE
 _ qui souffle la mort, et des tourments mystico-charnels PA
 _ des chevaliers du Graal? Cela est sorti d'une élite infec- ;
 _ tée de subtilités néo-chrétiennes, ou néo-bouddhiques,
@@ -1455,7 +1331,6 @@ _ mousses sur des arbres pourris. Au nom du ciel, ne
 _ complaisance que nous trouvions à les cultiver en
 _ nous. Tâchons de faire une race plus saine, et qui
 _ vaille mieux que nous. :
-# ; %
 
 Nous sommes arrivés au terme de cette course à tra- ;
 vers le passé. Que nous reste-t-il dans les mains de |
@@ -1590,7 +1465,6 @@ et l'on ne peut que rendre hommage à l'activité qu'il |
 
 54 3
 
-| L'ŒUVRE DES TRENTE ANS DE THÉATRE
 & a mise au service de cette cause ; l'homme qui agit,
 É même quand il se trompe, a toujours une supériorité
 È sur ceux qui se contentent de parler, fût-ce admirable-
@@ -1602,7 +1476,6 @@ sa première séance le 30 décembre 1901, débuta en mai
 | 1902 par cinq représentations aux théâtres de Mont-
 | parnasse, de Grenelle, des Gobelins, de Saint-Denis, et
 au Concert Européen de la rue Biot. C'étaient des spectacles coupés, où il y avait de tout : du classique, du
-romantique, de l'opérette, de la chansonnette, de la
 danse, mademoiselle Moreno, Fugère, les sœurs Mante,
 Paulette Darty, Polin, sans parler des conférenciers,
 dont nos divertissements à la mode ne saurâäient plus
@@ -1629,8 +1502,6 @@ penser des représentations d'Andromaque et de Tartuffe. Je prendrai comme type,
 gala populaire, donné au théâtre Trianon, le jeudi
 
 Le tarif des places était le suivant:
-
-Première galerie 725 DANCE NE.
 
 Et je ne prétends pas que ces prix soient exagérés ;
 mais je rappelle, en passant, que les dernières places,
@@ -1719,7 +1590,6 @@ telle œuvre sur le peuple; mais de peuple, point. A son
 
 défaut, j'observai « l'aristocratie » du quartier. Elle
 
-de L'ŒUVRE DES TRENTE ANS DE THÉATRE
 écouta avec une grande attention, avec intelligence,
 même avec intérêt, mais sans beaucoup de plaisir. Au
 reste, j'eus l'impression très nette que le public se surKe veillait et ne montrait pas le fond de sa pensée. Il me
@@ -1819,7 +1689,6 @@ N Meyerbeer, des opéras-comiques d'Adam, etc., c'est-à-dire des
 $ œuvres sans conscience, sans sincérité et sans style. Il y a de quoi
 
 tuer pour jamais l'esprit musical, déjà si faible, de notre peuple. -
-| 1V
 
 le théâtre du passé
 
@@ -1913,12 +1782,6 @@ le : nous n'en voulons pas. « Le nouveau est venu; ;
 
 l'ancien a passé. » À
 
-a ss és Nes OPEL Gent DE due MS
-
-ice Ÿ Se PERS Ee te Le LON TOC ENS
-es : CNE LEUR
-> CRÉES
-
 Les premiers qui semblent avoir eu l'intuition d'un
 art dramatique nouveau pour la société nouvelle, d'un
 4 Théâtre du Peuple pour le Peuple souverain, sont cer-
@@ -1940,7 +1803,6 @@ avec l'impitoyable clairvoyance d'un Tolstoy, ne conclut pourtant pas contre le 
 envisage la possibilité d'une régénération de l'art dramatique, en lui donnant un caractère national et populaire, à l'exemple des Grecs :
 
 Je ne vois qu'un remède,
-dit-il,
 
 à tant d'inconvénients, c'est
 que nous composions nous-mêmes les drames de notre
@@ -1973,7 +1835,6 @@ A la même époque, le grand Diderot, le plus libre -
 des génies du dix-huitième siècle, et le plus fécond
 peut-être, moins soucieux que Rousseau des fins éduca-
 
-ER I RAR DS UE ed ein Re er ne nee CD aura UE SSSR
 _ trices du théâtre, et bien plus de ses fins esthétiques,
 3 disait dans son Paradoxe sur le comédien : « La vraie
 F _ tragédie est encore à trouver. » Et il ajoutait dans son
@@ -2047,7 +1908,6 @@ F- concitoyens ». Prêchant d'exemple, il écrivit des drames
 3 historiques, politiques et sociaux : Jean Hennuyer,
 ; évêque de Lisieux, où il montrait un apôtre de la
 ù tolérance, à l'époque de la Saint-Barthélemy ; a mort
-à de Louis XI, roi de France: la Destruction de la
 A la suite de Mercier, d'autres écrivains français
 4 reprirent l'idée d'un théâtre national, c'est-à-dire
 s'adressant à toute la nation. Bernardin de SaintPierre, dans sa Treizième Étude de la Nature, appelle de
@@ -2120,8 +1980,6 @@ L liberté en lutte avec le despotisme, les chaînes de la
 À ébranlés ; une nation qui réclame les droits de
 û l'homme ; les vertus républicaines mises en pratique. »; (1) — le sublime poète de l'Ode à la Joie
 (1785), ivre de liberté, d'héroïsme et d'amour fra-
-| ternel. (2)
-#
 D: « Le théâtre, avait dit Mercier, est le moyen le plus
 É actif et le plus prompt d'armer invinciblement les
 4 forces de la raison humaine, et de jeter tout à coup
@@ -2255,7 +2113,6 @@ d'instruction et de plaisirs. Ainsi vous formerez à votre gré
 le caractère national.
 
 Toutes ces idées d'un théâtre éducateur de la nation
-aboutirent le 20 ventôse an II, — 10 mars 1794, — à un
 arrêté du comité de Salut public, qui est la véritable
 charte de fondation du Théâtre du Peuple.
 
@@ -2399,11 +2256,8 @@ b Pour moi, je le comprends. Tout l'héroïsme de la
 
 (1) Histoire littéraire de la Convention.
 
-(2) Le Vandalisme révolutionnaire.
-
 J (3) D'après un écrit du trop illustre Hervé, l'auteur de Chilpérie
 
-j et de l'Œil crevé, la création de l'opérette daterait même de 1792, et
 le premier exemple connu en serait le Petit Orphée, représenté le
 13 juin 1792, sur le théâtre des Variétés; les auteurs en étaient
 Roubhier-Deschamps pour le poème, Deshayes pour la musique, et
@@ -2777,7 +2631,6 @@ direction de M. Henri Dargel, se développe rapide- |
 ment, et qui, du jour où il aura trouvé un local plus
 ouvert au grand public, — il le cherche actuellement, —
 séra dans les meilleures conditions pour réussir. (1)
-#
 
 Mais il y a plus; et déjà, depuis septembre 1903,
 un Théâtre populaire régulier est ouvert, au cœur du
@@ -2962,7 +2815,6 @@ croit au théâtre en soi, et à la foule en soi. « Plus il y a
 de théâtres, plus c'est bien. Plus il y a de monde, plus
 c'est bien. Je ne regarde pas à la qualité, mais à la
 quantité. » (1) Et pour moi, au contraire, je ne regarde
-qu'à la qualité, et point à la quantité. Je ne crois au
 théâtre que s'il a un idéal. Je ne me soucierais plus du
 peuple, s'il devait devenir une seconde bourgeoisie,
 aussi grossière dans ses jouissances, aussi hypocrite
@@ -3195,7 +3047,6 @@ qui ont parlé le plus librement et dédaigneusement de la morale : À
 besoin ni de morale, ni de droit naturel, ni de métaphysique |
 politique : vous auriez pu ajouter qu'elle n'a même pas besoin de
 s'appuyer sur la divinité ni sur l'immortalité. »
-« J'ai senti de nouveau tout ce qu'il y a de vide dans ce qu'on
 appelle la moralité. » ;
 « Hier, avec tes sermons, Zmeskall, tu m'as rendu tout triste. |
 Que le diable te torde le cou, je ne veux rien avoir à faire avec
@@ -3509,7 +3360,6 @@ compte tant de professionnels sans emploi ? On n'aboutirait guère
 qu'à produire des acteurs médiocres, et à grossir le nombre des
 cabotins. » {Le Théâtre du Peuple, — Revue des Deux Mondes, premier
 
-|
 - le théâtre nouveau
 caché derrière la porte, épiant par le trou de la
 serrure les gestes de ses maitres, avec une mauvaise curiosité, narquoise et craintive. Qu'il assiste,
@@ -3526,11 +3376,7 @@ En un mot, que tout lui soit offert en spectacle, mais à
 condition qu'il se retrouve dans tout, et qu'à travers le 3
 présent et le passé, il se solidarise avec l'univers, — 3
 afin que toutes les énergies humaines viennent confluer
-en lui. É
-|
 
-#
-|
 (1) Que le poète soit « l'homme de l'univers », disait déjà Louis- |
 Sébastien Mercier dans son livre: Du théâtre, ou nouvel essai sur ‘æ
 l'art dramatique (1791). 7%
@@ -3663,8 +3509,6 @@ voir la pièce, et non, comme l'élite, pour voir la salle, :
 — pour avoir des émotions tragiques, et non pour para- “
 der, médire et flirter. |
 
-| Nr
-
 Des deux publics, lequel a le vrai souci de l'art, — et
 qu'y a-til dans ces règles qui ne soit légitime, vivant et
 humain? Il ne s'agit que de les appliquer avec honné-
@@ -3680,7 +3524,6 @@ rentrer le souci de la vérité, de l'art et de la langue
 française. Ils n'y gagneront pas moins que le peuple;
 car cet effort leur permettra d'échapper à la mode qui
 passe, et d'atteindre au fond universel et durable de la
-vie.
 
 Au reste, il n'y a rien de plus difficile et de plus haut
 que le grand mélodrame poétique : c'est proprement
@@ -3736,7 +3579,6 @@ du roi Jean au roi Henry VIII, parmi les fanfares triomphales d'Azincourt et les
 
 L''Épopée nationale est toute neuve pour nous. Nos
 dramaturges ont négligé le drame du peuple de France.
-Il y a là un trésor de pensées et de passions, dont il
 faut ouvrir l'accès aux artistes et à la foule, qui ne le
 connaissent point ou qui le connaissent mal. Notre
 peuple a peut-être la plus héroïque histoire du monde,
@@ -3796,7 +3638,6 @@ d'action. » (1) — « Le théâtre de nos jours, écrivait
 Schiller, est obligé de lutter contre l'inertie, la torpeur,
 l'absence de caractère, la vulgarité intellectuelle de
 ... l'esprit de l'époque; il doit donc montrer du caractère
-et de la force: il doit chercher à ébranler le cœur et à
 l'élever. La beauté pure est réservée aux nations heureuses; quand on s'adresse à des générations malades
 (ou troublées), il faut les secouer par des émotions
 
@@ -3932,7 +3773,6 @@ nouvelle. L'Histoire héroïque, telle que je l'imagine,
 n'est pas une lanterne à l'arrière d'un train, dont la
 lueur tremblotante éclaire confusément la route parcourue. C'est un phare au milieu de l'océan, qui montre
 d'un seul jet de flamme la place du navire au milieu de
-l'océan, d'où il vient, où il est, où il va. Le présent n'a
 pas de consistance, séparé du passé. Le passé n'a pas
 de réalité, séparé du présent. Que tout concoure à
 l'œuvre unique : la vie. Que la vie de tous les temps ne
@@ -3941,7 +3781,6 @@ en mouvement, un seul Être qui vit par des millions de
 poitrines, et, par des millions de voies, monte de toutes
 parts à l'assaut de l'univers, qu'un jour il dominera.
 
-|
 J'ai insisté sur l'Epopée historique par préférence
 personnelle, — il n'est pas interdit de parler de ce qu'on |
 connaît le mieux, — et parce qu'il était nécessaire de :
@@ -3964,8 +3803,6 @@ intégrante de l'action. Certains lui en font un reproche,
 comme s'éloignant ainsi de l'idéal désintéressé de l'art.
 Pour moi, je l'en loue, et j'en ai déjà dit mes raisons. L
 Heureuses, les époques et les œuvres sereines. Mais
-
-li un tete REC ” Lies 4 de lb AE
 
 quand l'époque est troublée, et que la nation combat,
 c'est le devoir de l'art de combattre à ses côtés, de
@@ -4022,7 +3859,6 @@ lâme. Faisons au corps sa place dans notre art, et que
 
 (1) Voir plus loin, pages 146 et 147, note. s
 
-i Per et CT L
 cette place soit large. Notre théâtre doit être un théâtre
 d'hommes, et non pas d'écrivains.
 
@@ -4084,13 +3920,6 @@ Caractères, fin et grêle reflet d'une époque épuisée :
 dit encore pour la société nouvelle. Tout est à dire.
 Tout est à faire. À l'œuvre! ;
 
-: ss ca À pt. LES AIRIS ANR CURE
-ir FE ke L Er
-
-VS 3 CÉSAR ce
-
-#1 - LR CRÈTE
-
 Si riche que soit le champ ouvert au Théâtre du
 Peuple, il n'est encore qu'une forme restreinte du spectacle populaire; et j'en rêve une plus vivante et plus
 humaine. J'aime le Théâtre, pour la communion fraternelle qu'il offre aux hommes dans de mêmes émotions,
@@ -4116,8 +3945,6 @@ Préparons pour le Peuple à venir des Fêtes du
 
 Rousseau le réclamait déjà. Après ses âpres critiques
 du théâtre, :
-
-dit-il,
 
 ne faut-il donc aucun spectacle dans une répu- :
 blique? Au contraire, il en faut beaucoup. C'est dans la
@@ -4172,7 +3999,6 @@ Le sceptique Talleyrand lui-même traça, dans un
 rapport, un programme de « Fêtes nationales ».
 
 Toutes ces fêtes auront pour objet direct,
-dit-il, :
 
 des événe-
 
@@ -4214,8 +4040,6 @@ x ration des fêtes et de l'art; et peut-être y a-tilen elles
 une originalité plus féconde que dans tout le théâtre …
 français du dix-huitième siècle. — J'en cite des
 fragments dans les Documents de la fin. (1) E
-
-(1) Documents, numéro Il. À
 
 Marie-Joseph Chénier, qui ne cessa de s'opposer aux
 projets de David, par bon sens et peut-être aussi par ?
@@ -4387,7 +4211,6 @@ qu'il se mêlât aux chants et aux danses de la fin, que
 le Peuple devint acteur lui-même dans la fête du
 Peuple. » (1) — Mais ceci est encore du théâtre ; et si le
 grand mouvement social qui nous emporte s'achève,
-si le peuple atteint enfin à la souveraineté, il y a
 mieux à faire pour lui que des théâtres. Embellis-
 
 () Le 14 Juillet. — Scène Finale (Fête du Peuple).
@@ -4498,8 +4321,6 @@ l'un des plaisirs les plus sains à tout point de vue, elle est
 un grand excitant à la gaîté et ne dégénère guère en vice.
 — Mais le peuple ne sait plus danser? Il faut donc lui
 
-#
-
 « Est-ce donc à ce bel objet que doit aboutir l'effort
 grandiose de notre civilisation ? », diront dédaigneuse- |
 
@@ -4552,7 +4373,6 @@ dans la crainte de les perdre. Regardez moins derrière
 vous, et davantage devant. Tout passe. Qu'importe ?
 Ayons le courage de vivre et de mourir, et de laisser
 
-| TT
 au delà du théâtre :
 les choses vivre et mourir comme nous, autour de
 nous, sans vouloir immortaliser les choses mortelles,
@@ -4574,7 +4394,6 @@ Mais pour que cet art populaire triomphe, ce n'est
 pas assez des seuls efforts de l'art. — « Un jour, »
 raconte Mazzini, — il était tout jeune encore, et voulait |
 se consacrer aux lettres, — « un jour, je pensai que pour
-qu'il y eût un art, il fallait qu'il y eût un peuple; et
 l'Italie d'alors n'en était pas un. Sans patrie et sans
 liberté, nous ne pouvions pas avoir d'art. Il fallait
 donc se vouer d'abord au problème : Aurons-nous une 3
@@ -4583,27 +4402,12 @@ rirait sur nos tombes. » — A notre tour, nous disons : 1
 Vous voulez un art du peuple? Commencez par avoir 3
 un peuple, un peuple qui ait l'esprit assez libre pour 4
 
-|: Je CONCLUSION ESS
 en jouir, un peuple qui ait des loisirs, que n'écrase
 pas la misère, le travail sans répit, un peuple que 2
 ‘ n'abrutissent pas toutes les superstitions, les fana- Re.
 ñ tismes de droite et de gauche, un peuple maître de Er
 ; soi, et vainqueur du combat qui se livre aujourd'hui.
 ; Au commencement, est l'Action.
-
-PT: IEC TOIS DRTORRIRES ni El ce ù
-, RAA SO Le jenr Ter, SRE
-
-Lpfie NE ETNT à ECO NRC
-
-sie hé M Énbie Rir RS 2, PEER Lui © med "
-
-See LS RAS RÉ ON OR 0 S
-rer ; : re e Les? QUES
-HR A x Fr EE LA Om tie nt
-
-Le À ne = 2 dr ar re j +
-re ; f L Lite DAS g
 
 Séance de la Convention nationale du 2 août 1793 è
 
@@ -4731,11 +4535,9 @@ Républicair de la Foire Saint-Germain. . . . 2.800
 Gratis. — En réjouissance de l'anniversaire de la mort du
 2 actes ; l'Offrande à la Liberté; le Siège de Thionville.
 Réruscique, rue de la Loi, — Le nouveau réveil d'Épi- :
-DE LA RUE FEYDEAU. — Incessamment, la Prise de Toulon.
 NariowaAL, rue de la Loi, — Incessamment, Manlius Torqualus.
 Des SANs-CuLOTTESs, ci-devant Molière. — La Reprise de
 
-LYRIQUE DES AMIS DE LA PATRIE, Ci-devant Louvois. —
 Le Corps de garde patriotique ; Toulon reconquis, ou la fête
 du Port de la Montagne.
 
@@ -4744,8 +4546,6 @@ ou l'ouverture du Parlement d'Angleterre; Le Vous et le Tu.
 
 Lycée pes Arts. — L'École du Républicain ; Le Devin du
 village ; le Mariage aux frais de la nation.
-
-DE LA MONTAGNE, au Jardin de l'Égalité. — La Sainte
 
 Comité de Salut public; — 20 ventôse an II, — 10 mars 179,4.
 
@@ -4797,7 +4597,6 @@ concours sera ouvert pendant un mois, à compter du
 les artistes qui sont dans les départements.
 
 (De la main de Barère)
-| Signé: BARÈRE, BiLLAUD, CARNOT, CoLLOT, PRIEUR.
 Séance de la Convention nationale, du 18 floréal an II
 
 Discours de Robespierre sur les rapports des idées religieuses el morales avec les principes républicains et sur
@@ -4807,7 +4606,6 @@ Citoyens, c'est dans la prospérité que les peuples, ainsi
 
 - que les particuliers, doivent pour ainsi dire se recueillir
 
-|
 pour écouter, dans le silence des passions, la voix de la
 sagesse. Le moment où le bruit de nos victoires retentit |
 dans l'univers est done celui où les législateurs de la répu- |
@@ -4834,12 +4632,9 @@ de détester la mauvaise foi et la tyrannie, de punir les
 tyrans et les traîtres, de secourir les malheureux, de respecter les faibles, de défendre les opprimés, de faire aux
 autres tout le bien qu'on peut, et de n'être injuste envers
 ARTICLE IV. — Il sera institué des fêtes pour rappeler
-l'homme à la pensée de la Divinité et à la dignité de son
 (1) Nous ne citons que les premières et les dernières lignes de cé
 très beau discours, qui est fort long, et dont on trouvera le texte
 dans les Œuvres de Robespierre, recueillies et annotées par Vermorel, 1866
-
-|
 
 ARTICLE V. — Elles emprunteront leurs noms des événements glorieux de notre Révolution, des vertus les plus
 chères et les plus utiles à l'homme, des plus grands bienfaits de la nature.
@@ -4849,16 +4644,13 @@ ARTICLE VII. — Elle célébrera aux jours de décadis les
 fêtes dont l'énumération suit :
 A l'Ëtre Suprème et à la Nature. — Au Genre humain. —
 Au Peuple français. — Aux Bienfaiteurs de l'humanité. —
-Aux Martyrs de la liberté. — A la Liberté et à l'Égalité.
 — A la République. — À la Liberté du monde. — À l'Amour
 de la patrie. — À la Haine des tyrans et des traitres. — A
-la Vérité. — À la Justice. — À la Pudeur. — A la Gloire et
 à l''Immortalité. — À l'Amitié., — À la Frugalité. — Au Courage.— À la Bonne Foi. — A l'Héroisme. — Au Désintéressement. — Au Stoicisme.— A l'Amour.— À la Foi conjugale.
 — À l'Amour paternel. — À la Tendresse maternelle. — À la
 " Piété filiale. — À l'Enfance. — A la Jeunesse. — A l'Age
 | viril. — A la Vieillesse. — Au Malheur. — A l'Agriculture.
 | — À l'Industrie. — A nos Aïeux. — À la Postérilé. — Au
-| Bonheur.
 : ARTICLE VIII. — Les Comités de Salut public et d'instruc-
 | tion publique sont chargés de présenter un plan d'organi-
 « M sation de ces fêtes.
@@ -4896,7 +4688,6 @@ de détester la mauvaise foi et la tyrannie, de punir les |
 tyrans et les traîtres, de secourir les malheureux, de respecter les faibles, de défendre les opprimés, de faire aux
 autres tout le bien qu'on peut, et de n'être injuste envers D
 ARTICLE IV. — Il sera institué des fêtes pour rappeler
-3 l'homme à la pensée de la Divinité et à la dignité de son
 () Nous ne citons que les premières et les dernières lignes de ce …
 très beau discours, qui est fort long, et dont on trouvera le texte
 6 dans les Œuvres de Robespierre, recueillies et annotées par Vermo- « rel, 1866. 5
@@ -4913,10 +4704,8 @@ fêtes dont l'énumération suit :
 
 A l'Étre Suprème et à la Nature. — Au Genre humain. —
 Au Peuple français. — Aux Bienfaiteurs de l'humanité. —
-Aux Martyrs de la liberté. — A la Liberté et à l'Égalité.
 — À la République. — A la Liberté du monde. — À l'Amour
 de la patrie. — A la Haine des tyrans et des traîtres. — A
-la Vérité. — À la Justice. — À la Pudeur. — A la Gloire et
 à l'Immortalité. — À l'Amitié. — À la Frugalité. — Au Courage. — À la Bonne Foi. — A l'Héroïsme. — Au Désintéressement. — Au Stoicisme.— À l'Amour.— À la Foi conjugale.
 — À l'Amour paternel. — À la Tendresse maternelle. — A la
 Piété filiale. — A l'Enfance. — A la Jeunesse. — A l'Age
@@ -4977,7 +4766,6 @@ Comité de Salut public ; — 18 prairial an II, —6 juin 4794.
 
 Le Comité de Salut public arrête :
 
-ARTICLE PREMIER. — La commission de l'instruction
 publique est exclusivement chargée, en vertu de la loi du
 12 germinal, de tout ce qui concerne la régénération de l'art
 dramatique et la police morale des spectacles, qui fait partie
@@ -4999,8 +4787,6 @@ de cette administration.
 
 (De la main de Barère)
 
-| |
-Du 5 messidor, an second de la République à
 française, une et indivisible. 4
 Le gouvernement républicain est le centre où toutes nos
 Jusqu'à présent, les théâtres abandonnés aux spéculations É
@@ -5107,7 +4893,6 @@ nos braves républicains aient ouvert la tranchée. ê
 
 Dans ces échos des idées reçues, ne cherchez pas celles ?
 
-DT VOA TR pre 2.7 ‘4 … PCR EU “ RE de rt
 qu'il eût fallu faire recevoir : ce qui plaît prend à leurs
 yeux le caractère de l'utile.
 
@@ -5253,7 +5038,6 @@ et indivisible.
 Les membres de la Commission de l'instruction publique :
 Le Comité de Salut public approuve la mesure adoptée
 par la Commission de l'instruction publique.
-Pour extrait :
 Rapport et projet d'arrêté au Comité de Salut public
 pour la fête du 26 messidor, époque anniversaire du
 La fête du 14 Juillet est la fête du peuple.
@@ -5264,7 +5048,6 @@ annuaire la mémoire de cet événement. F
 d'un spectacle qui rappelât au peuple son triomphe; mais
 ce sera au moins marquer le but moral du Comité de Salut
 public, que de signaler ce jour comme un des jours chers
-à la patrie. |
 172 3
 
 En conséquence, la Commission lui propose d'arrêter
@@ -5278,8 +5061,6 @@ Après les spectacles, au soir, le Jardin national sera
 illuminé. L'Institut de musique y exécutera un concert...
 
 Il commencera à neuf heures du soir.
-
-Vu et approuvé, le 21 messidor an II, — 9 juillet :
 
 Rapport et décret sur la fête de la réunion républicaine du 10 août, présenté à la Convention nationale,
 .… Ne vous étonnez pas, citoyens, si dans ce rapport |
@@ -5298,12 +5079,6 @@ de rèle, dans la même coupe, « au son de la caisse et de la
 trompe ». Après quoi, « ils se donneront le baiser fraternel ». |
 Ils se mettront en marche. En tête, les Sociétés populaires |
 
-|
-|
-|
-| L
-| PLANS DES FÊTES DE DAVID
-|
 | avec une bannière, « sur laquelle sera peint l'œil de la sur-
 | veillance pénétrant un épais nuage ». Puis, la Convention,
 | chacun des membres portant un bouquet d'épis de blés et
@@ -5334,7 +5109,6 @@ malheur de la société humaine ».
 # l triomphe, les héroïnes des 5 et 6 octobre 1789, seront assises
 st 1 { sur leurs canons, des branches d'arbre à la main. Le pré-
 | sident de la Convention leur remettra une branche de
-| laurier.
 Troisième station. Place de la Révolution. On fera l'inauguration d'une statue de la Liberté, entourée d'une masse
 
 Rapport et décret sur la fête de la réunion républicaine du 10 août, présenté à la Convention nationale,
@@ -5351,7 +5125,6 @@ nel. Amour de l'humanité, liberté, égalité, animez mes
 Les Français réunis pour célébrer la fête de l'unité et 4
 de l'indivisibilité, se lèveront avant l'aurore; la scène tou- 3
 chante de leur réunion sera éclairée par les premiers rayons
-du soleil... F
 
 Première station et ordre du cortège. Sur l'emplacement
 de la Bastille, devant la fontaine de la Régénération, repré- :
@@ -5404,7 +5177,6 @@ gradins au pourtour. On y brülera les imposteurs attributs -
 de la royauté. Les 86 commissaires, une torche à la main,
 mettront le feu. Et aussitôt après, « des milliers d'oiseaux
 rendus à la liberté, portant à leur col de légères banderolles, porteront au ciel le témoignage de la liberté rendue à
-la terre ».
 
 Quatrième station. Place des Invalides. Une figure
 colossale s'élèvera sur une montagne : c'est « le Peuple
@@ -5468,7 +5240,6 @@ téjà les sons d'une
 il enchanteur. À
 et colore La nature,
 brer La fète de la
-teurs La chevelure É
 nfunt à la mamelle » belle parure; le 1
 armes, il ne veut
 le son pére; le
@@ -5477,9 +5248,6 @@ cependant l'airein
 ettes. elle restent » répablicaines : le k
 rs, parés des ;
 animé dont les
-touehante. — Les
-er nouvelle. Les
-ves. Les mères |
 rtent à leur main
 foivent jamais ;
 s bras de leurs ;
@@ -5492,7 +5260,6 @@ l'Athéisme est
 e, et la fausse
 
 entrevoir les ornement à 1
-royauté ». Sur leur f e f
 l'Étranger ». — Le prés € ;
 feu avec un flambeau Sag 17
 sons d'un chant simy À
@@ -5507,10 +5274,7 @@ vieillesse de pampres
 taureaux couverts de f
 char, sur lequel es
 métiers, et des prod
-On arrive enfin :
 une montagne. Au s
-Les hommes se grouf
-La musique commer nt
 ennemis de la Répu
 est chantée par les f e
 tout entier. « Tout s'ér £
@@ -5522,9 +5286,6 @@ leur bénédiction pater
 [Mais cet insupportal a g S
 suivi d'un Détail des
 dans la fête, qui est bea 5 5 "
-J'y note l'ordre de la m
-
-|
 
 L'aurore annonce à peine le jour, et déjà les sons d'une
 musique guerrière retentissent de toutes parts, et font
@@ -5644,8 +5405,6 @@ fait, ces plans furent exécutés avec succès. Ce qui fut beau, c'est que
 « le peuple y joua le principal rôle », comme dit David. Il en eut le
 sentiment d'instinct, et il le joua bien. +
 
-ne:
-
 Rapport sur la fête de Bara et Viala; — 23 messidor an LI
 
 [Ce rapport est également précédé d'un discours d'une
@@ -5681,8 +5440,6 @@ forment des danses funèbres qui retracent la plus profonde
 tristesse; elles répandent des cyprès sur les urnes. » Des 3
 chants s'élèvent contre le fanatisme. — Il se fait un
 
-| XI
-
 nouveau silence. Le président embrasse les urnes, et
 proclame l'immortalité pour Bara et pour Viala. Les
 portes du Panthéon s'ouvrent. « Tout change. Allégresse.
@@ -5714,7 +5471,6 @@ labes, rimant le premier avec le quatrième, le second avec
 
 À le troisième. Ces stances sont chantées sur une sorte de cantilène perpétuelle, lente, uniforme, avec quelques trilles et
 passages de bravoure. Ce sont des airs traditionnels, qui
-se reproduisent souvent, de Mai en Mai.
 
 Les sujets des Mai sont héroïques ou religieux. On n'en
 connaît qu'un seul qui soit emprunté à l'histoire moderne.
@@ -5815,8 +5571,6 @@ Le Théâtre du Peuple {Renaissance et destinée du théâtre
 populaire), 1899, — et son article du premier juillet 1903, à |
 la Revue des Deux Mondes.
 
-UT lee HE ‘4 due 2 f € Ce Dre dé
-
 Projet de circulaire rédigé en mars-avril 1899, pour pro-
 
 voquer la réunion d'un Congrès international de théâtre
@@ -5844,7 +5598,6 @@ d'action de l'humanité. Loin d'en écarter aucune, nous
 
 | 187
 
-| documents
 cherchons à les grouper et à les fondre, L'art d'aujourd'hui j
 est anarchique ; tout y est confus, émietté, sans lien. La vie
 est d'un côté, et l'intelligence de l'autre. Ici la poésie, là
@@ -5947,7 +5700,6 @@ théâtres populaires de Bussang, de Suisse, des campagnes
 
 c. Quel mode d'administration ? Collectif ou unitaire ? Un
 directeur, ou un Comité ? (Quels seraient les pouvoirs de !
-l'un ou de l'autre, ou de l'un et de l'autre ?) 4
 
 d. À quelles ressources convient-il de s'adresser de pré- 4
 férence pour fonder le théâtre populaire de Paris? Souseription nationale, capitaux, ou protection de l'Etat? -
@@ -5956,7 +5708,6 @@ a. Quel répertoire convient au théâtre populaire de 4
 Paris ? Existe-t-il un répertoire dans le passé ? Lequel? —
 
 190 4
-et:
 
 Comment en constituer un nouveau? — Examiner les dif-
 
@@ -6030,10 +5781,6 @@ dit ailleurs ce qu'il fallait penser de ces parodies officielles
 du Théâtre Populaire, ad usum Delphini, à l'usage de 4
 l'État. — Les travaux de la Revue d'art dramatique d
 devaient porter leurs fruits plus tard.] 54
-
-ARE UD ee PILES Dire Le ï Mrs,
-LT TR R+ A as Rue # ne L à SE 4
-LA LS Tee
 
 Depuis que les pages précédentes sont écrites, nous
 avons pu suivre les premiers essais des Théâtres

@@ -7,54 +7,12 @@ author: andre-suares
 isAvertissement: false
 wordCount: 29151
 ---
-|A : a
-ji ET
-> 1
 —
-LP AT COR de
-RTL, pre 2 PR PA th mer L'
-
-Vs L | nettes RS
-y \ Le CENT RRE lin Lies
-
-es {SR ne ee
-| ARE Ven AUPONLINSRE NRA Vo Mn
-te EU G k de rs TER ï "Ye
-' C: LIEN Ne pt PURE RS Re vi
-
-\) RS FA (M É 1 ne ITR date Poe:
-“re CA à ni , u ù ps all A ©! re Ù
-
-Mae as ts LE NEC eR TRS AE L'EXOTER
 
 périodique paraissant tous les deux dimanches
-| PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-IT AES Le LE AR ED Le vd PTS "APE SAC POSTEUR ce
-# AN 4 sig FRANS : à % AUS 2e *# de BAS. À #4
-ME Le À " Les : à a fl : HT ERRSSSE 4 Ar F Vict:
-Nos. “1 À Tà & ILAATS eo 4:
-
-PET LA) Lg ie tn A 4 { M, e
-#54 A: D
 50 -
-#4 … . . ge SA ,
-
-NET e OO Et SAM PE PR: ASE voice
-RTS — M Pete à TPE Dre VE CEE LL CES EX 34 PR
-ES Ke o QE + Lai pa Æ LA DCR AS LA PAF L, 5
-DRE en | Re ne are
-ed Pan iar ; de
-QE s HA ue LE SENTE
-AP LR ER ns 2 gr CR ON dar 3 Ë; He à de SE a x À
-D RE RL ne GT, TT ee Pi, sir RC RES
-
-CAR be
-
-| 16, D de . w
-
-_ aux CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne :
 
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'Electre, 1 volume grand in-18, 1905. Ar
@@ -72,34 +30,11 @@ Lais et Sônes, 1 volume grand in-16, 1909. k
 ne CALMANN-LÉVY, éditeur : ;
 L livre de l'émeraude, 1 volume in-18, 1901.
 4 36 .
-Æ. ÉD. CORNÉLY, 101, rue de Vaugirard :
 Suntla vie; Essais, tome I, 1 volume grand in-16, 1909.
 
 — Sur la vie: Essais, tome 11, 1 volume grand in-16, 1910.
 
 Voyage du Condottière, tome I, 1 volume grand in-16, 1910. A
-_ Le poète tragique
-ANS nn L
-
-AR SSSR ENS RS EE" ARS LT CE LEA Fed 3
-MEME EE EST TS ER ACTE re +
-ER y L Asso LonNRE LS ES
-#2 à = P DER rt ‘ e SperLe
-D + È FE de + Er PE ie xls À
-ne k ETAT E FORRRE RAA RON
-MES: Que : ï * MS MORE me”: 2
-LEE (AS d À FERA oh | VÉRTKe LA
-LL LAINE ‘ ae L$.: LÉRRESSS + CARNET
-LAVER ne Ve + THAT TER Fe ER AU A A
-sn Ti L ‘HAE ire TE ait
-FE -] 8 à r sh À Les
-RE ÉTAPE re TA et < NT RÉRRTENRS
-
-j ee) LATE ee 4 h UE < s ESP ER SAR Le
-f Fig FA) # ET ati cry
-UE de EX me l'E sie
-| ARS TES FRANS
-- VF Rue UM S Pr RE PAR
 
 _ Né à Moscou, le 12 octobre 1821. Mort à
 Pétersbourg, le 28 janvier 1881. Il perd sa mère
@@ -117,7 +52,6 @@ arrêté en mars 1849, condamné à mort, le
 travaux forcés et à la déportation, il part pour la
 Sibérie, le 25 décembre 1849.
 
-Il vit au bagne, de 1850 à 1854 ; il en sort
 le 2 mars 1854. Il est incorporé, comme simple
 soldat, dans un régiment sibérien; il y sert deux
 ans; et libéré en 1856, sans aucunes ressources,
@@ -140,7 +74,6 @@ ressources, et peut faire des voyages à l'étranger,
 1862-63. Mais sa santé est de plus en plus maupaise : atteint d'épilepsie, depuis 1849, les accès
 se multiplient lamentablement; et sa femme ne
 cesse plus d'être malade. Enfin, il joue et perd
-au jeu tout ce qu'il a.
 
 En 1863 triple désastre : sa femme et son frère
 meurent; sa repue est supprimée, pour raison |
@@ -157,8 +90,6 @@ Le 15 février 1867, il épouse une jeune fille de
 22 ans, Anna Grigorievna Svitkine. Il a eu quatre
 
 _ enfants, deux morts en bas âge, deux qui sur-
-
-| pivent.
 
 _ De 1867 à 1877, il passe près de cinq ans à
 l'étranger, chassé de Russie par la terreur de la
@@ -197,11 +128,8 @@ soudain, sa gloire. Le Journal d'un Écrivain obtient
 
 … stance, il parle désormais pour la nation : à propos
 
-_ de Pouchkine ou de Nékrassov, au sujet de la
 _ guerre contre les Turcs, aux étudiants, aux juges.
 Il a pour lui le peuple et les lettrés.
-
-ce"
 
 MA 0 LUFn 1880) 1ldonne les Frères Karamazov. FA
 1 Il meurt le 28 janvier 1881. On lui fatds
@@ -212,21 +140,6 @@ LR _ longueur d'une lieue. JUS ER
 Fe +2 Quinze ans plus tard, Tolstoi condamnant tous
 4 les livres et les siens mêmes, n'excepte dans l'art
 moderne que les œuvres de Dostoïevski. LE 4
-
-RO Cr MAT és ON
-L “Le ANUS % sr et FA IN . FR
-
-# CLR cv L
-
-MANS LT HT sg 0e PUS ART LT dE RP TUE Eux
-ROSE TT RER és RTE. LS be à ARS Et
-EST SÉès Air AT EC MER Ses se FRET vas 3 7 SR
-LE rs ENTRE MES Le De Ag Et RAS RS
-UE ne ; 4 SR EP te CRE à ‘ LE : Mi
-Er RE à AS vi : 2, TOR NT OU MU TE ee /E
-LÉ SAGE L 1 D RENNES ' Der
-LRO RIRES HAN TL IN Ce. APE re Le
-LES - # Re Ce À UE jh: ÉTELN ares Er Es he
 
 À Jusqu'ici, je n'ai point nommé Dostoïevski.
 4 _ Je n'ai jamais laissé voir le visage de Fédor
@@ -283,17 +196,6 @@ Le rien ne lasse, un cœur aimant, un élan vers la
 EX lumière, une volonté qui tend sans relâche à
 4 la rédemption.
 
-ue LA De k r Des LÉ RES
-NE I à se AA À] : > ês Ne, re ep
-MR or. à É ; RCE CPE ne
-a 5 Es Ve ARTS ST MESSE de
-AT du “ OT mire ! MAS NE né ” #
-
-DA ET - STE FE re PACRIFANTARRE $ d
-LT ONE PORN ne MERE: “MP SRE UE SRE
-RL en) PL. RCE LE RE TS
-
-| Et.
 <a Il est né en automne. Il est mort en hiver.
 _ Îla vu le jour dans une chambre triste, au fond d'un
 _ hôpital où son père était médecin. Un soir de brouillard
@@ -378,7 +280,6 @@ _ signe qu'il se préfère à autrui; mais, comme il ne 4
 +0 .. ment des autres : il redoute en eux la fausse note; il ( » pressent l'erreur à son endroit; il devance l'injustice
 _ qui l'afllige. Sa défiance est toujours dans l'ordre du » sentiment : enfin, il veut qu'on l'aime ! Le risque de À
 
-| :
 À chaudement. Une pitié ardente était la flamme de la
 à maison. Le père, grand lecteur des Écritures; la mère,
 £ humble et maladive, toujours prête à l'oraison : tous
@@ -407,7 +308,6 @@ lan Ne ce QUE i Les sœurs plus jeunes, un peu à l'écart, les deux fils
 PAT Aer è aînés, Fédor et son frère Michel, toujours ensemble,
 RSR SU Î liés comme le pouce et l'index, sont voués aux mêmes
 CR. A | études, et, jusqu'à vingt-quatre ou vingt-cinq ans, ne
-a A Î se quittent pas
 Date a ; Le jeune Dostoïevski est élevé dans l'intimité pro- |
 
 fonde de la famille, où le lien religieux fait un nœud si
@@ -458,8 +358,6 @@ Plus il tâche à vivre en société, et moins il est
 Plus il aspire à l'amour, moins il se croit digne d'être
 aimé. Il ne peut se faire à l'idée d'être tout pour les ;
 
-“Atoe! ns 1S4E TES -
-4 re SUR SA VIE
 L…._ ‘autres; et moins d'être tout pour eux, il ne veut pourF tant rien être. Voilà le tourment des cœurs passionnés.
 { Un besoin d'amour toujours déçu. Il pressent, il sait
 trop qu'il pèse cruellement à ceux qu'il aime.
@@ -487,7 +385,6 @@ vif; la volupté le détraque, la jouissance l'atterre. S'il
 4 sort de privation. La ville ne lui vaut rien, et il est con-
 . damné à y vivre. « Pétersbourg est un enfer pour moi. »
 La gêne et même la misère l'ont tourmenté sans
-# at
 
 répit. Le malheur l'accable, à tous les âges. Entre les
 deux extrémités de la douleur matérielle et de la
@@ -518,7 +415,6 @@ gémissement. Il pleure famine. Il appelle au secours. Il Él
 n'a plus de vêtements, il ne sait où trouver de quoi {
 payer son terme. « Il s'agit de payer toutes mes dettes j
 
-D ri a DURE. Er Le sf Po HAE te a: UÉ
 avec mon prochain roman. Si l'affaire ne réussit pas, il |
 _ est possible que je me pende. » (1) Un quart de siècle 2
 |. ensuite, ayant femme et enfant, il crie : « Il m'a fallu J
@@ -580,8 +476,6 @@ Il lui faut toucher au tombeau pour avoir enfin quelque
 relâche. Les cinq dernières années, où il rencontre
 la gloire et une sorte d'aisance, sont la place au soleil,
 
-| (r) Lettre d'octobre 1869.
-
 _ qui sépare de la fosse celui qui fait halte. Pour venir
 …_ jusque là, un chemin affreux dans les orties et les
 tourments. Et, une fois sur la terrasse, qu'elle est vite
@@ -610,11 +504,9 @@ ne. Dostoïevski n'est pas de loisir. Dostoïevski n'est pas
 mène, comme elle, à la potence. On ne lui fait grâce
 _ que de la vie. Il échappe au gibet ; mais on le réserve
 _ à la suite infinie des supplices. Or, il ne s'y dérobe pas.
-l I ne prêche ni la soumission au mal, ni la révolte. Il
 h: ose se prononcer pour l'usage héroïque de la souffrance.
 … Jose faire choix de l'exercice puissant que le mal proTR 25 Suarès. — à
 
-FAR Té CRT A TES E, ag "te Lie de PTE SNS
 pose à notre âme, celui qu'on nous fait et celui que nous
 sommes tentés de faire. Pour lui et pour toute sa race, .
 il embrasse le parti de l'amour souffrant, lequel, selon
@@ -645,9 +537,6 @@ a plus grandement agi pour sa race ? C'est dans Dostoïevski, enfin, que la Russ
 se manifeste une réserve pour l'avenir, une ressource r
 pour le genre humain.
 
-| LE À o
-
-#f IMAGE ;
 — Nerveux et saccadé, il y avait de l'inquiétude en tous
 
 ses gestes, une sorte d'attente fébrile. Ou bien, l'action
@@ -785,14 +674,6 @@ tout temps, beaucoup lu la Bible; mais il n'avait pas
 … semble du rêve. Il faut y consentir, pour bien l'entendre; |
 2 e cet accord ne se fait pas du premier coup, ni même É
 
-- EE GE" HMEAT SE GNAEIe Nos ÉNET at FER
-Re ne TI $ 5} + È "cite NEA: LU Me:
-er: Ÿ ke : De PRE qe PTS ENS FESSES
-or ACER Dee +. PS Ne Le RPPAS, PAS TN CE
-DR Vor" ET Re PIRE Là DEAN RE à
-Root ‘es *S ME FA Ve des LEE SE ME xd SR SCA PARLES
-
-° Dès le début, il sait où est sa force. Et même s'il ne »
 # le montre pas encore dans ses œuvres, il pressent quelle
 4 .… sorte de génie il y fera plus tard paraitre.
 — Je suis original, dit-il à peu près, en ce que mon
@@ -914,7 +795,6 @@ Le w 4 plus l'unité est nécessaire. Jl en est de tous les détails
 1e Dostoïevski est d'un prodigieux désordre, quand il ne
 _ réussit pas à trouver son ordre.
 “#4 _ Mais son ordre est un prodige, quand il l'atteint.
-#4 à Rien n'y trahit la symétrie, ni ce qu'on appelle la
 n composition, d'un mot grossier qui peint l'œuvre gros-
 . sière. Dans l'ordre de Dostoïevski, tout est organes, et
 D. _ relations d'organes. Tout est produit par la nécessité
@@ -957,10 +837,6 @@ aussi, tu t'es mise au-dessus de la règle : tu as détruit :
 une vie, la tienne : cela revient au même. » (4) — Et LE
 encore : « J'ai voulu oser : j'ai tué. Et c'est moi que j'ai Ÿ
 
-(4) Crime et Châtiment, IV, 4; V, 4. > j
-
-|
-
 4 tué. » (1) — Ou ces traits dignes de l'oraison : « Le
 | Christ est avec les bêtes avant d'être avec nous. » (2) —
 _ « Si le juge était juste, peut-être le criminel ne serait
@@ -977,7 +853,6 @@ funèbres hypocrites baisent aux lèvres des rebelles
 4 le de son fumier l'innocence subtile; où la luxure est un |
 _ raisin à pépins de remords, et où les vierges ont une
 _ odeur qui tente le péché.
-Es | Un monde à part. Ê
 _ Dans l'œuvre de Dostoïevski, il y a une société com- K
 | F . plète, à savoir une société religieuse. Car tous les porte- k
 _  totems de la terre n'y feront rien, et leur étymologie
@@ -1019,7 +894,6 @@ métier, elles font nombre, comme les fourmis. Elles M
 Car, chiffres et mesure ne révèlent que le monde de la #
 FE quantité. La qualité est la règle suprême, ainsi que le À
 
-“a 5 SES 2AdRr ï pes TR de Loue
 … lieu de tous les sentiments et de tous les actes en relation avec la conscience.
 mn A Le monde de la profonde conscience fait figure du |
 — rêve; et même de la folie, quand il arrive, avec Dos
@@ -1090,16 +964,6 @@ A charrue, non pas le grain ni la moisson. Ni l'éloquence,
  … licite : mais l'évocation de sa forme et de toute la grâce
 y °° qu'il recèle, de la magie enfin qui y est incluse, pour
 È _ nous faire croire à la vie. Il faut que l'art nous séduise
-MEME la vie.
-> On ne croit à la vie qu'en ce qu'on aime, et dans le
-Fr. _ rêve de ce qu'on aime.
-
-L'or
-
-Due: ” EE ne
-
-f Leg, ni
->: \ As LL SRE |
 
 10 7. ,
 …. Son art ne vient pas de son mal. Mais il y a de son \
@@ -1157,9 +1021,7 @@ les objets disparaissent parce qu'ils ne comptent plus $
 un à un. Mais, au contraire, tout y prend sa juste place, :
 et les formes de l'univers s'assemblent autour du seul }
 point fixe. Voilà saint Paul, quand la parole attendue $
-> q
 
-| PASSIONS ET MOMENTS
 fond sur lui avec le soleil, au chemin de Damas; et il
 _ entend, il voit, il sent, il est engendré par ce qu'il
 … engendre; il s'ouvre tout entier à la conception de son
@@ -1221,7 +1083,6 @@ _ inflexions de la courbe intérieure. Les grandes œuvres E
 A _ à mesure que nous les incarnons à notre rêve. Elles 4
 2 naissent de toutes les touches et de toutes les nuances E
 qu'elles peignent en nous. On ne comprend Dostoïevski,
-rt on + ST
 
 chacun qu'à raison de sa propre vie intérieure. Jamais
 , poète ne donna moins à l'entendement seul et à la
@@ -1242,7 +1103,6 @@ _ aigu, recule de plus en plus dans l'ombre, pour soi_ même. Alors, ce moi souf
 — d'ardeur sacrifiée, le sommet qui projette tout le cône ;
 L _ de la vision ; et l'univers entier de l'émotion entre dans È
 … … Jes secteurs de la lumière. Pour bien lire Dostoïevski, |
-À - il faudrait se souvenir de ce qu'on ne connaît pas
 encore : la passion fait ainsi, qui, dès la première vue,
 « pressent dans l'objet aimé tout ce qu'elle en ignore; et
 mille traits, qui échappent d'abord, entrent pourtant
@@ -1285,7 +1145,6 @@ ardentes. Et, parce qu'elle résiste, elle est abandonnée.
 
 O terreur! Elle est laissée là, comme une guenille
 
-: dE ni _ PASSIONS ET MOMENTS
 vile, par l'âme au seuil de la connaissance. Elle est là,
 _ comme une peau de rat, crevé de la peste, dans une
 _ rue de Chine; et la foule est autour, le peuple des
@@ -1499,7 +1358,6 @@ pour la même femme, parce qu'il les trouve en lui; et
 C'est de ce fond obscur que se lèvent les héros étranges
 _ de ses livres : à tous ensemble, dans le même amour,
 … ils n'en font qu'un, qui est lui, Dostoïevski. De là, cette
-NOR L pr
 
 patiente analyse, qui ne considère une face du carac- |
 tère qu'en fonction des autres faces. De là, enfin, :
@@ -1532,7 +1390,6 @@ penche, avec un zèle du même ordre, à multiplier « l'amour des amants par la
 pas aux degrés défendus. L'amant est le frère de son
 amante. Siegfried est presque le fils de sa bien-aimée,et
 
-# & U 5 Ü PASSIONS ET MOMENTS
 “4 pe asant à elle, toujours il pense à sa mère. Kundry vole
 _ un baiser filial aux lèvres de Parsifal pantelant.
 __ On me dirait de Dostoïevski qu'il a fait ménage avec £
@@ -1564,7 +1421,6 @@ S L pnfesse: se donner à la femme qui nous aime et qui
 nous aimons, dont nous attendons la joie; celle que
 y passion fait vivre et celle qui la tue. N'est-ce point, |
 Dopsoir ténébreux de l'/diot, les deux hommes, le mari
-# LL: “ wY
 
 et l'amant, la victime et le bourreau, que lon voit . }
 veiller la même femme, qui fut double et qui est morte,
@@ -1628,7 +1484,6 @@ l'ombre de lui-même.
 _ Les Anciens ignoraient la douleur, puisqu'ils croyaient y
 Ja vaincre. Et nous, nous devons la sauver. .
 #3 La douleur n'est point le lieu de notre désir, mais À
-ne: 6t Suarès. — 4 Si
 
 celui de notre certitude. Les Anciens sont trop charnels.
 Je ne prétends pas que nous devions faire élection de
@@ -1649,7 +1504,6 @@ Ainsi l'homme ne va plus sans une tristesse intérieure, 1
 qui donne du prix à tout ce qu'il sent comme la rosée
 des larmes à un merveilleux visage.
 
-On ne saurait se vanter, ni de ramener l'homme à un à
 âge qu'il n'a plus, ni d'abolir en lui aucune des puis- +
 sances que le passé y a mises, et qui lui étaient néces- |
 saires, puisqu'il se les est données. La douleur est une 1
@@ -1708,7 +1562,6 @@ toujours dans la tendresse. Et le rire dans les larmes.
 Car où est-il le bonheur, sinon dans la folie de tout ce
 qu'il nous coûte ? L'âme souffrante est seule égale à cet
 insatiable appétit. Et elle n'est point, si d'abord elle ne
-soupire. L
 
 A-t-il des regrets et des remords, Dostoïevski, lui qui
 va si loin dans l'art cruel de se connaître? If s'en donne
@@ -1728,8 +1581,6 @@ pourtant. Il est, en lui, une ardeur éternelle pour le è
 noyau du fruit. Tous les crimes pourront hanter son ï
 âme : elle ne saurait rien perdre de sa pure volonté, :
 qui est de ne pas nuire, ni de sa primitive convoitise,
-
-|
 
 ‘£ qui est l'innocence, après tout. Elle n'aspire qu'à saisir {
 _ l'objet vivant, à l'adorer en lui-même, à le posséder
@@ -2048,10 +1899,7 @@ ricaner; à la fin, leur comique est pareil à la chatouille
 interminable de la pensée : on crève d'ennui et d'énervement, à ce rire. Ils sont abstraits et mornes. Ils
 figurent la Science, et ses travaux à perpétuité. Marmé-
 à + ladov et Lébédev sont si hommes, qu'ils sont justifiés.
-L Dostoïevski dirait qu'il y a un Lébédev et un Marmé-
 d ladov en chaque père de famille, pour peu qu'il eût à
-
-| 73 Suarès. — 5
 
 vivre dans les conditions où ceux-là ont vécu. Ils ne
 sont pas dans la mort, ni impitoyablement condamnés,
@@ -2082,7 +1930,6 @@ toutes ses larmes, un grand amour et une grande joie.
 Tout donner enfin n'est pas assez, si l'on ne donne
 
 ne craint pas que l'Europe lui dévore la Russie; mais
-il s'oppose à ce qu'on jette la Russie comme un os à
 l'Europe. En tout ordre, à tous les degrés, Dostoïevski
 annonce le devoir d'être soi-même le plus possible,
 $ pour être plus homme. A ce prix seulement, l'humanité
@@ -2110,7 +1957,6 @@ montov et Gogol ont peu vécu, mais d'une vie ardente.
 Téodor Mikaïlovitch n'était pas de ces jeunes gens.
 
 + S La Russie ne s'est reconnue en Dostoïevski, que peu L
-_ de temps avant de le perdre. Il a été le héros de sa à
 14 _ nation, l'homme qui pense, le cœur qui bat pour toute x
 _ Ja race; mais il ne le fut que cinq ou six ans avant de à
 …_ mourir. Il lui fallut toucher à cette extrémité encore, g
@@ -2148,7 +1994,6 @@ trompe que sur la route à suivre. Quand on revient sur
 ses pas, on possède tout l'horizon et toutes les per- Î
 spectives, qu'on n'eût peut-être jamais bien vus sans É
 cette erreur-là. Elle est la racine commune de la peine 4
-s et de la puissance. É
 L'œuvre qui fit la fortune de Dostoïevski jeune 4
 homme, (1) et celles qui vinrent ensuite jusqu'à la ;
 - catastrophe du bagne, me semblent d'une invention
@@ -2239,7 +2084,6 @@ ne gravit sûrement la montagne que sur des échelons :
 
 80 4
 
-send 7. | LA PROFONDEUR RUSSE Me
 _ 3 _ Surtout, il lui fallait le bagne et l'enfer des crimes, (1) Fe,
 pour se purger à fond d'un amour-propre qui fut 3
 toujours féroce, et d'une naturelle jalousie. Mais bien
@@ -2271,7 +2115,6 @@ ei fait à vivre en profondeur : car toute l'œuvre de
 L' _ Dostoïevski est une vie dans la profondeur et dans la
 (1) Et moi aussi, j'ai mon enfer, le bagne des auteurs, des t#
 .… critiques et des faux arlistes, où je purge, dans un coin d'ombre, È
-# la colère de ma solitude et le vieil amour de la gloire. vL
 
 vérité secrète, qui est l'unique vérité, sans doute. Là, il
 s'est établi inébranlablement au-dessus de tous les
@@ -2317,7 +2160,6 @@ _ infamie, mais l'excellence de la douleur que l'infamie
 _ complice ou son idole.
 e Nulle trace, en cet homme admirable, de morgue
 vertueuse. Nul ne s'est moins juché sur les échasses
-du devoir et de la morale. A la profondeur où il sait
 L. chercher les origines, il trouve, en soi, la semence et
 à l'excuse de tous les péchés. Et le crime des crimes, qui
 est la cruauté, il en débrouille aussi les racines, avec
@@ -2341,7 +2183,6 @@ aux baisers sans pitié.
 
 Le plus haut point de la vertu est toujours de se
 vaincre, et d'embrasser parfaitement l'objet : lui être <
-le cœur et l'âme qu'il a si peu, ou qu'il n'a point. È
 
 Cette conquête est d'une autre grandeur et d'une |
 autre fécondité, que la domination telle quelle. S'em- ci
@@ -2367,10 +2208,8 @@ d'en avoir l'idée : elle n'est qu'un chiffre. Il faut en L.
 avoir le sentiment. Et telle est l'âme religieuse. Après F
 bien des routes et des chutes cruelles, l'âme religieuse À
 se fixe dans l'amour : là est son lieu, et sa conquête;
-là, sa force et la vocation de sa puissance; là serait È
 son repos, s'il en existait un. Dostoïevski n'a pas man- Fo
 
-| RHONE RS EE ve AU je ?
 # e qué la couronne promise à l'amour errant. Il est entré
 au port de la recherche idéale. + :
 LE La réalité! font-ils; la réalité! Hé, oui! Nous savons, F
@@ -2387,7 +2226,6 @@ x. Car, ils l'eurent, ceux qui ont dressé les cathédrales
 #4 de néant. Il est sec, et il sème les cendres. De là, les
 _ sables et les salins cuisants de son œuvre : toutes les - » lignes sont belles, et l'on ‘y respire à peine, dans un 14
 - vent d'éternel ennui. Flaubert est un génie mortuaire.
-F4 S'il a du cœur, comme je crois, il n'en a pas pour la i
 …_ vie. Et tout ce qu'il en a, d'ailleurs, il l'étouffe : il tâche
 ; à être sans amour, comme le monde de son intelligence;
 . et il y réussit.
@@ -2500,7 +2338,6 @@ tandis que Nietzsche est insupportablement l'homme
 du cabinet et des livres. Par lui-même, il ne sait rien 4
 de la vie, rien de l'actiou, rien des passions; et ii donne £
 
-“Rar LA PROFONDEUR RUSSE |
 Ë des lois aux passions et à la vie. Je ne m'étonne pas
 _ qu'il soit le prophète des professeurs et le dieu des
 _ femmes sourdes qui tranchent de la bonne ou de la
@@ -2527,7 +2364,6 @@ _ humain que d'être homme. L'homme est rare sur le Ÿ
 _ marché de Jupiter. Et rien de surhumain n'a de sens
 _ qu'à la mesure de l'homme. Sois pleinement homme, si F
 _ tu veux passer l'homme. Telle est la grande, l'unique
-| vérité. ;
 _  L'intuition est le lieu de toutes les intelligences.
 
 Il n'est rien dans Nietzsche, qui ne soit dans Dos- 3
@@ -2536,7 +2372,6 @@ Nietzsche, même ce qu'il affirme, — et lui, d'abord, le &
 malheureux, — toutes les négations, que la douleur de 3
 vivre arrache à Dostoïevski, se résolvent dans une L
 affirmation invincible : de la douleur, l'amour conclut, 4
-- en lui, à la beauté de la vie. Ce n'est pas le: Oui! de la F
 volonté ou de l'orgueil, ce oui glacé qui est le soleil ÿ
 polaire des stoïques ; mais l'amour qui, en portant la £-
 vie, l'affirme. i
@@ -2555,7 +2390,6 @@ cette eau amoureuse. Quel orgueil vient de plus haut? 3
 Or, elle ne fond pas sur les feuilles : elle se donne etles
 pénètre. Et parce qu'elle se penche versla prairie,onla
 
-pee LA PROFONDEUR RUSSE ;
 : dédaigne de s'abaisser. Mais tant elle a de pieuse
 d _ complaisance, que nulle offense ne l'atteint, et qu'elle
 _ sourit au mépris même.
@@ -2611,9 +2445,7 @@ loir laver l'or des souffrances, pour en séparer le trésor
 de la joie : à la constance de cet orpailleur, à celle-ci, M
 O saintes, bonnes larmes, routes de l'eflusion, sentes M
 profondes de la tendresse, c'est vous, très douces lar- +
-|
 
-> LA PROFONDEUR RUSSE En
 _ mes, qui parlez seules d'amour, et de cet amour qui ÿ
 _ fait vivre en créant. Et dans dass cg même des
 _ amants, ce sont les plus pures et les plus chaudes -
@@ -2647,8 +2479,6 @@ ble, vous êtes profond et vrai entre les grands. Vous 1
 allez au delà de tous autres, sans doute. Car enfin, où 4
 j'en suis venu, il n'est de vérité que dans la profonHET deur. Pour prendre toute notre hauteur, il nous est
 nécessaire de mouiller dans les abîmes. Tout est de k
-manque, à défaut de la profondeur. Et, au total, il y a
-| fausseté où il y a manque. ;
 Voilà donc le point où la haine n'est plus rien qu'une É
 racine torse entre toutes les autres ; et si elle a la forme 1
 du serpent ou du ver, ce n'est point pour faire horreur,
@@ -2665,28 +2495,7 @@ lantidote de la tyrannie rationnelle, des philosophes, et 4
 de tout poison inhumain : Dostoïevski, le cœur le
 : plus profond, la plus grande conscience du monde
 
-A" rs er RARE TETE ,  L'ORPORARE EE: CUT ANR
-ar Nr Nr E RTS SA ue. 7 s TR
-
-Lys) han Es > 2e UNE 9 pe RS “et
-
-4 ss e wù ERRO SPP. CE PRE
-A A RO re LE dit T0 NC NES
-
-ROBES] Le Pa TT ne EU MERE 2) CV SRE
-
-> 2 3 AE
-FLE il s SIN Lil
-
-CL ne
-
 1088 0
-
-#7 « 1
-ro: L LFP ER
-
-( ne RE PRRE TRS
-| |AACRRRME ASS
 
 2 Jusqu'ici, je n'ai point nommé Dostoïevski 13 %
 D. $. — Il a toujours répugné aux sciences........ 33 Le
@@ -2700,7 +2509,6 @@ Er. $. — Le monde de la profonde conscience ..... 41 #
 
 huitième cahier de la treizième série +
 $. — Quelle est donc cette recherche de la :
-dOULCUr ee ane ce 60
 $. — La force du style emporte tout............ 67
 $. — Qu'il manque de dignité avec noblesse! .. 70 à
 $. — Les arbres ne sont pas de la même essence 72 N
@@ -2708,4 +2516,3 @@ $. — Les arbres ne sont pas de la même essence 72 N
 $. — L'intuition est une vue du cœur dans les ë
 $. — Dostoïevski maître en toutes passions... 86 3
 Si Encore-up pas: ni... 2.20 Rene 87 ë
-S':— Larmes de la tendresse. .x:.,7.:- et 90 €

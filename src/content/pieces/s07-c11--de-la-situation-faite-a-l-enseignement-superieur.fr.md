@@ -7,26 +7,9 @@ author: ferdinand-lot
 isAvertissement: false
 wordCount: 42441
 ---
-PTS REP GT OP ONE 2 RAS cé aer Et ÉMRRRT US à
-: re CR a lc F7) SERA ONE
-
 re. de ce dixième cahier 3,400
 “FH et seize exemplaires sur whatman AE
 SR le jeudi 25 janvier 1906 "TE
-A ee à l'Imprimerie ERNEST PAYEN “+ RITES
-DE. 13, Rue Pierre-Dupont ; 21250)
-he - à Suresnes LA FSS RS
-
-15 Te ae je DEN CRUES CÉNNEST NOR
-
-LUE NS HR 7e er Je U “HE RP RE TNT PPT
-
-Ved nier Lfras Le À VD à
-
-re 1 L'ECYTESES
-
-LAUAIES De D NE ET de RAP RIRE RARE HER NS Per
-LARESSTENSE ? à : DSL ES pe ne
 
 Il est impossible de suivre honnêtement le mouve- +
 ment littéraire, le mouvement d'art, le mouvement 4
@@ -36,7 +19,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers 2
-de la deuxième, de la troisième, de la quatrième, et
 de la cinquième série. ;
 Pour savoir ce qui a paru dans les cinq premières :
 séries des cahiers, 1900-1904, envoyer un mandat de ;
@@ -61,26 +43,9 @@ de la situation faite
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ee TMS rt MANS ER VAT DES en
-mA RULES OPEN ENS FLE HIS N NAT EI Aie
-LA TRE RARES ÊTE ARE L'HreL ti (Pr FA SA ae PAR EX
-| \ NE RTE ARE . Area AE AT LEP FRE KT ONCE
-LE « M cure Leg
-
-#28 , À M Ÿ ps
-
-el Tr DEP di LA # NN
-
-#5 CAT FOR PO ÿ SES % ATTLPIÉE \ K
-CARS EN , NE UE DRE Eu no
-À Qi hi FA RTE ë HP "y ta * PES 4 PSN he. (et e Ï:5 RER
-
-: LE) SL HE AL *E NUS en FES £ ca, +z 4 Vita
-
 AE Nous avons publié dans nos éditions antérieures et sn
 _ dans nos cinq premières séries, 1900-1904, un St OO
 2NAR grand nombre de documents, de textes formant dos- ET
-4 _ siers, de renseignements et de commentaires; — un “HT
 si grand nombre de cahiers de lettres, — nouvelles, … à
 | romans, drames, dialogues, poèmes et contes; — un De
 - si grand nombre de cahiers d'histoire et de philoso- Me
@@ -136,8 +101,6 @@ maire de nos deuxièmes cinq séries, 1904-1909, On à V
 A: analytique très sommaire que nous avons publiée en fin *:
 - de ce cahier index. ‘a
 
-# L A P FR Ne
-
 cahier pour la discussion
 du budget du ministère
 de l'Instruction publique
@@ -157,7 +120,6 @@ nr » un extrait de cetle première table analytique très w
 1 un du méme auteur, en vente à la librairie des
 ta + un du méme auteur, en vente à la librairie des
 
-sur 45 2 d k Fira . 3 CARE UNE
 On peut noter que nous avons numéroté les chapitres,
 _ signatures et folios du présent cahier à la suite RE
 AS nombres qui nous étaient donnés par les chapitres,
@@ -167,33 +129,11 @@ HAS simplement par le titre général de l'ouvrage et la page,
 rs _ au lieu d'avoir à distinguer à chaque fois entre les deux
 cahiers de cet ouvrage, et de risquer de confondre ou:
 de faire confondre entre elles deux numérotations quise
-ii ls à L È 0 ve:
-
-53 RTE L RTC TR MAG IREM S Fu te LOT EN
-
-#5 $ KS RIRES
-
-#4 à ‘7
-
-#3 * \ TRS
-
-È Cut ne + à
 
 de la situation faite LR
 te à l'enseignement supérieur INTER
 
-#i sa 15 SE RAA RP ‘4 SALES à 2 AU RNA EEE
-
-Rrags UNE ro
-
-# } « 9 PEUR
-
-| 107 |
-
 10 35 44
-AE io ni de
-FI HA # |." rue ne Es
-va 114 ne de HE PE
 
 L'installation matérielle en province
 (I. Les Bâtiments. — II. Maisons d'étudiants)
@@ -210,8 +150,6 @@ _ marbre de la Faculté des Lettres « allemande » avec 1
 lécurie qui porte ce nom à Nancy! On calomnie le
 Français en l'accusant d'amour-propre. Ce défaut lui
 est totalement étranger.
-
-| 109 Ferdinand Lot. — 7
 
 .
 
@@ -261,7 +199,6 @@ de province.
 Les taudis qu'on appelle « Facultés des Lettres » sont À 4
 trop exigus pour qu'on puisse établir les 8 ou 10 salles Fa
 d'étude (1) qu'exige une Faculté des Lettres et une Fa- Ÿ
-cülté de Droit.(2) À Lyon on n'a pu y réussir qu'en ie
 utilisant les greniers. Mais ailleurs c'est physiquement
 impossible, faute de place, et l'on voit la Faculté des
 (1) Il en faut au moins : une pour la philosophie, une pour la phi- x
@@ -277,7 +214,6 @@ Cest de la sorte quest organisé le travail dans les Universités
 économiques, a peine à y parvenir faute de place. Bordeaux ne peut 1
 K même tenter l'expérience. Que dire des petites Facultés réduites à
 se contenter d'amphithéâtres sales et humides ! n°
-ni ds
 
 Ge } Lettres de Nancy se plaindre de « n'avoir pas même de
 
@@ -521,16 +457,12 @@ PA (2) Etant donné la situation de Grenoble et l'importance de ses $
 
 s collections, il eût fallu 2 chaires, l'une pour la Géologie, l'autre \S
 
-ÿ ; pour la Minéralogie et Pétrographie et il n'y en a qu'une. La
 Faculté s'est payé un Maître de conférences sur ses ressources 4
 
 à pourtant misérables. Ce sont là cependant des dépenses d'Etat. J
 
 | 8
 
-de man
-
-ne LES BATIMENTS : : y
 1904) au moment où j'ai fini d'écrire ces lignes sur V
 
 L'Association française ne pouvait se réunir à Grenoble ge
@@ -603,7 +535,6 @@ pour toutes nos Universités.
 ; reçois de Grenoble un mot qui m'apprend qu'une amélioration à
 : cette situation est peut-être en bonne voie.
 
-M NL Cr et
 Dijon. — Ici, c'est plus drôle encore : la Faculté des
 Lettres n'a pas de domicile fixe et ne sait pas si elle en
 Elle a droit actuellement au logement suivant, rue
@@ -631,8 +562,6 @@ Alors quoi ? ï
 Comme il est physiquement impossible que la Faculté
 des Lettres puisse vivre dans les locaux actuels de la
 rue Monge, la Ville a consenti, pour cinq ans seule- |
-
-si ment, à mettre à la disposition de la Faculté deux pe k
 
 1 * tites salles (d'anciennes sacristies, je crois) où l'on Fe
 
@@ -667,8 +596,6 @@ de. se cache quand il s'agit d'enseignement supérieur, se :
 s'étendre que du côté de la place Saint-Sauveur, dont il l
 
 à est séparé par des constructions qu'il faudrait expro-
-
-L, prier.
 
 3 L'État, la Ville, l'Université, viennent de se cotiser 4
 
@@ -729,12 +656,10 @@ plus spéciallement de La Ville et Université de Caen (Caen, 1588, in-{°) 4
 rien caennais les qualifie de « grand, magnifique et superbe bâti- À
 123 2
 
-Ne Ferdinand Lot it À
 À logie expérimentale. On a trouvé, d'ailleurs, un moyen 4
 : excellent pour empêcher la Faculté de s'apercevoir
 : qu'elle est à l'étroit : c'est de ne lui donner de profes- s.
 seur ni de géographie, ni d'histoire de l'art, ni de psy- 1
-| chologie.
 En la réduisant à trois chaires comme une Faculté |
 4 espagnole on pourrait même faire en sorte qu'elle se
 Il est vraiment regrettable que, non seulement la
@@ -752,7 +677,6 @@ vices universitaires et municipaux.
 Il reste cependant beaucoup à faire. L'Observatoire |
 du Puy-de-Dôme, dépendance de la Faculté des Sciences, ;
 | est sans logements, sans abris, sans instruments sufti-
-| sants. (2)
 ( ») Voyez plus loin, page 153.
 (2) [La situation de l'Observatoire s'est un peu améliorée depuis,
 non certes grâce à l'administration de la rue de Grenelle, — mais le
@@ -854,7 +778,6 @@ k canotage un terrain plus beau que la Tamise à Oxford
 & de ruelles qui constitue le « palais » actuel. On aurait
 AS fait dix à quinze pavillons légers, les uns autour du
 ] ground, les autres sur la hauteur, près du Jardin Bota-
-| nique. :
 Mais, à supposer que ce plan eût germé dans une
 cervelle quelconque, il aurait plongé dans le plus pro- <
 SE fond ahurissement le ministre ou le recteur auquel il
@@ -882,7 +805,6 @@ s'est appliqué à reproduire les motifs d'ornementation des édifices
 les plus remarquables de Tlemcen. Des inscriptions en caractères À
 arabes orientaux ou maugrébins s'enchevêtrent sous les coupoles
 
-te mr ne A ee D ANS CN
 Nous abordons maintenant un terrain entièrement
 nouveau. Il s'agit des Maisons d'Etudiants.
 Nos villes de province (exception faite peut-être de
@@ -1058,16 +980,13 @@ viennent compléter une instruction déjà forte. Le cas est donc
 
 . (2) Sauf le Chili, qui a appelé des professeurs, tous Allemands.
 
-Du Ferdinand Lot "7" 000
 EP ici sans très grand succès, nous faire concurrence.
-# U 22 L à
 à Aujourd'hui les Etats-Unis exercent sur tous ces
 Mot peuples une véritable fascination. PARIS même ne -
 FAR semble plus pouvoir lutter que péniblement contre des
 "HS organismes puissants et perfectionnés comme Harvard
 EVA près de Boston, Columbia à New-York, Yale à New4 Haven, Chicago, Palo-Alto en Californie. (1) Maïs tout
 el en subissant l'attraction de l'Amérique du Nord, les
-Dr à Américains du Centre et du Sud la redoutent. Ils nous
 1 reviendraient peut-être si nous avions quelque chose à È
 An leur offrir et si nous nous rappelions à leur souvenir.
 i. Après Paris, Bordeaux, en relations d'affaires avec .
@@ -1151,7 +1070,6 @@ gnement Supérieur en 1900 à critiquer l'organisation
 
 136 4
 
-| LES CADRES — LES MÉTHODES
 niement total de nos cadres d'enseignement gagne
 lentement les milieux universitaires. Devant l'opinion
 publique le problème n'est même pas posé. IL convient
@@ -1234,7 +1152,6 @@ DR étudiants de licence qui ignorent totalement ce qu'est la guerre de
 
 SUR 1850! On cite cet exemple comme typique, on en pourrait fournir sa
 
-4 LES CADRES — LES MÉTHODES ke
 que nous voudrions attribuer chez nous à cette première sa
 année commune. k É
 Cette idée est dans l'air. Plusieurs l'ont eue d'une RS
@@ -1311,7 +1228,6 @@ lument aucun rapport, quoi qu'on dise, avec le « sémipäire » tel qu'il exist
 l'École des Hautes Études. Un étudiant lit un travail
 scolaire rédigé hâtivement. Le professeur indique comment il faudrait faire en vue de réussir au concours, un |
 camarades écoutent d'un air morne. Cet exercice n'est
-ni de la science, ni de la pédagogie. C'est un produit
 indéfinissable. Je m'explique la stupeur des étudiants
 allemands et américains qui ont assisté à ces exercices
 qui vraiment ne riment à rien. — Oh! je sais bien qu'il
@@ -1336,7 +1252,6 @@ en prenant un à un soit à la Sorbonne, soit chez eux, quelques étudiants dist
 leurs notes et en les guidant de leurs conseils. Ce n'est pas cela
 du tout diriger un séminaire d'études. |
 
-1 ÉESSS Ferdinand Lot AT LE
 LA Des exercices de ce genre ne doivent pas, ne peuvent
 
 | pas se renouveler trop souvent. Néanmoins, le minimum Ë
@@ -1388,7 +1303,6 @@ FE emploiera, lui aussi, dix, quinze, vingt années à appro- $
 my l'Histoire d'Espagne, d'Angleterre, d'Italie, d'Allemagne, des paÿs É
 4 Scandinaves, — jusqu'au seizième siècle! Cest à n'y pas croire. à
 
-Re no à Re ce
  fondir l'histoire d'un souverain prussien, mais, EN OUTRE : | FA
 
 1° il donnera régulièrement chaque semaine, du 15 oc- ts
@@ -1424,8 +1338,6 @@ un cours public. Mais il faut à tout prix exiger et le plus jh
 
 dant de les maintenir.] ‘HE
 
-cu PTS L " et SAP RONPE MAS
-Je Ferdinand Lot Ua:
 Ne tôt possible que, chaque semaine, le professeur titu
 : 864 laire (1) donne au public studieux : LE
 ne 1° 2 heures d'exercice de « séminaire » ;
@@ -1452,11 +1364,9 @@ dE e de l'année suivante. Ce procédé serait, je crois, excellent. |
 f: qui est moins rétribué et qui a parfois (en province) ses thèses de *
 & doctorat à préparer. Néanmoins, même pour les maîtres de confé- 4
 hey « rences, le nombre d'heures exigible peut être raisonnablement |
-RS porté de 3 à 4. :
 Es (2) Sauf en province, quelques vieux découragés. Mais ils dispa- \
 és, raissent chaque jour. ‘
 
-M ie D AMIE ae ch ANR EE CE LS
 professionnelle est épuisant et, en outre, décevant. La [\LÉ
 préparation des cours mange un temps énorme ; d'autre Fe
 part la recherche poursuivie entre deux conférences est 4
@@ -1491,8 +1401,6 @@ amphithéâtre et contraint de s'en retourner fort peu satisfait. Le »3
 professeur a ajourné l'ouverture du cours ! Et trop souvent, nulle ra
 affiche visible, nulle communication de l'appariteur n'a averti A :
 le public de son erreur. né
-
-ce)
 
 ‘æ C'est, en somme, le système suivi par la Faculté des
 7ù Sciences de Paris, muni seulement de deux rallonges de
@@ -1569,7 +1477,6 @@ SM faire, en bonne justice, avec l'Enseignement scientifique
 514 d'une Faculté. On semble l'avoir compris et la récente
 ' paf réforme confie cette préparation à l'École Normale de
 LA la rue d'Ulm. Nos Facultés vont donc être débarrassées
-Ar de ce gros souci. (1) A
 1 L Reste la licence. Elle seule forme la matière de l'enen seignement d'Université. On sait, en effet, que pour le
 4 doctorat d'État, il n'est pas nécessaire d'avoir mis les
 ‘ pieds à la Faculté. (2) Quant au doctorat d''Université
@@ -1676,10 +1583,6 @@ que j'ai consultés. |
 (2) Quatre si l'on adoptait le système d'une année commune au
 Droit et aux Lettres.
 
-|
-|
-|
-|
 La deuxième année porterait sur le Moyen-Age et les
 Sciences auxiliaires (paléographie, diplomatique, biblio- Ni
 Le Moyen-Age a été sacrifié dans les nouveaux pro- &
@@ -1774,7 +1677,6 @@ Le Trois années d'études graduées fatigueraient moins …
 {; (1) C'est ce qu'on fait à la Faculté de Droit, à l'Ecole des Chartes. 4
 4 Imagine-t-on le baccalauréat et la licence en droit passés en une À
 Vi seule fois! Cela deviendrait, — bien inutilement, — un examen fort
-mA difficile. 3
 
 et seraient d'un profit plus réel que deux années de ss
 La durée totale des études universitaires pourrait, au À
@@ -1805,9 +1707,6 @@ crée à la licence spécialisée, la deuxième au diplôme d'études, la Er
 troisième à l'agrégation. Un an pour la licence! Imaginez un À
 toute l'Histoire! On se demande ce que les gens qui préparent les }
 Décrets ont dans la tête. à
-| 153 Ferdinand Lot. — 9. ;
-
-FLE Ferdinand Lot AR L
 
 # Allemagne et aux États-Unis, en Belgique, etc., des
 
@@ -1902,7 +1801,6 @@ Chez nous, donnez-leur un petit travail à faire, ils s'en vont. En À
 Aliemagne, un exemple de ce genre, un seul, se produisant en 4
 vingt-cinq ans dans une Université, fait scandale. 4
 
-de Pt © Ferdinand Lot Et
 # F Séminaire, en tout 12 heures par semaine. Si l'on n'ose t:
 "à ; demander cela à un étudiant, autant renoncer à faire de
 vs | l'enseignement supérieur en France. r ap.
@@ -1959,7 +1857,6 @@ KAC à la fin de la deuxième année ; mais elle west pas si absorbante
 
 ne qu'on ne puisse également la subir à la fin de la troisième année.
 
-| LES GRADES :
 grades à la fois plus facile et plus scientifique par le SD
 - système des trois paliers. a
 
@@ -2076,7 +1973,6 @@ devra enseigner, doit donc apprendre la manière de les 1
 faire pénétrer dans des cerveaux enfantins ou adoles- |
 cents. Le principe de la nouvelle réforme de l'École $
 
-Le Ferdinand Lot E
 : Normale est donc excellent et on ne doit s'étonner que
 3 d'une chose, c'est qu'on ait attendu si longtemps pour
 a la réaliser.
@@ -2109,8 +2005,6 @@ mais s'il doit exister des différences de degrés, il ne È
 | (1) Je supplie qu'on ne comprenne pas : un seul type d'enseigne-
 | : ment, ce qui serait tout le contraire de ma pensée. Ë
 
-PNR RE de 2e AR AE 21 cs re FRA x LEA 1} so CAMERA
-À LES GRADES sa
 L'établissement de 10° ordre a droit, tout comme le De
 grand lycée parisien, lyonnais, bordelais, à un per- Ë
 sonnel expérimenté. C'est dire qu'il est intolérable qu'on à ÿ
@@ -2169,7 +2063,6 @@ Le concours, tous les défauts d'institution tiennent en
 ce seul mot. Il est admissible pour des emplois de |
 bureaucrates. Il est malfaisant pour choisir des éducateurs. 1
 
-du 25 ie PEN EE CO EE on Cr ATP bu
 Mais, comme il n'y a pas d'autres moyens d'arriver,
 les jeunes gens s'épuisent pendant des années à préparer des concours. On voit des hommes y user toute leur |
 jeunesse de 25 à 35 ans; et cette préparation ne leur est
@@ -2298,11 +2191,8 @@ De : plômes d'études et de les fondre avec la licence.
 ER 3 De supprimer la distinction entre lycées et collèges
 L. 44 et d'assurer au personnel de ces derniers une meilleure
 Ë Fa situation quand ils ont acquis des titres.
-L Dex: pd
 
 Nos Facultés des Lettres de province
-
-L'effectif scolaire È
 
 Les Facultés des Lettres n'ont pas d'étudiants. Telle |
 est la phrase qu'on entend répéter quand on propose
@@ -2341,7 +2231,6 @@ PS sociale. On sait, en effet, que chez nos voisins les
 k Sciences politiques et économiques ne font jamais parRe tie de la Faculté de Droit. (1) Dans ces gros totaux, ne
 e nous le dissimulons pas, philosophes, philologues, his-
 ù toriens ne forment qu'une minorité, même à l'heure
-Du: actuelle.
 % 4 De même en Suisse, là où on sépare en deux, comme
 ve en France, la « Faculté de Philosophie ». Ainsi à FriL bourg, en Suisse, la section Histoire-Philologie comptait
 ia l'an dernier seulement 51 étudiants pour 22 professeurs
@@ -2353,7 +2242,6 @@ a pour 22 professeurs (12 ordinaires, 2 extraordinaires,
 ‘1 ex. circonstance le caractère scientifique que les études économiques
 he ont pris en Allemagne ?
 
-5 L EFFECTIF SCOLAIRE ; dé à
 De même en Belgique. je
 En Italie, à l'Université de Pise, la Faculté des Lettres RC
 comptait 68 étudiants pour 22 professeurs (11 ordinaires, i
@@ -2402,7 +2290,6 @@ F. 4 est donnée, en France, dans des établissements libres,
 ‘4 aucune condition de grade. Les pays germaniques ne
 4 professent pas cette sereine indifférence. Ils veulent
 he des garanties de ceux qui formeront les adolescents. De
-“#0 là la supériorité de l'enseignement secondaire en ce
 Re pays. Il est clair que si l'État français était aussi con-
 ‘0 scient de ses devoirs que les États allemands ou les
 Ke : cantons suisses, le public scolaire de nos Facultés des
@@ -2429,7 +2316,6 @@ Ne nous laissons pas non plus tromper par les appa- # 4
 rences. On est mal impressionné en entrant dans telle con- à
 férence, d'histoire, par exemple, à la vue du petit nombre pe
 de disciples réunis autour du professeur. En Allemagne 4
-on a vu le double, le triple d'auditeurs et davantage. ù
 Mais en ce pays où, ainsi que chez nous, la majorité “4
 des étudiants se prépare au professorat, l'enseignement es
 du professeur de lycée n'est pas spécialisé comme en É,
@@ -2519,7 +2405,6 @@ ne versités françaises où il existe un professeur d'histoire ancienne.
 
 oi seur sait des mots mais est autorisé à ignorer de l'Antiquité son #24
 
-ARE PU A AR De CRE PIE A AU Vert à Let DIRE
 années : dans les cours d'histoire contemporaine où 1088
 doivent assister les futurs juristes aussi bien que les j A
 futurs historiens, des auditoires qui rappellent les NES
@@ -2556,11 +2441,7 @@ contradiction amusante on exige, — et c'est une innovation excel- Fais
 lente,— une composition sur la civilisation des candidats aux agré- Ne
 -_ gations de langue vivante (allemand, anglais, espagnol, italien). — ENS y
 La civilisation gréco-latine, cela n'offre donc aucun intérêt au regard :L' ÈS
-de la civilisation espagnole! . He La
 
-417. CHER EME ER : av RE nt Un Lx (at
-
-LA AK GRENEERS à Ce D à pe EESTI
 E< "4 la spécialisation. J'en sais, pour les plus grands centres
 204 . d'Amérique, des exemples à peine croyables. ,
 
@@ -2660,11 +2541,8 @@ décentralisera si l'on s'obstine à n'offrir aux provinciaux
 + que des Facultés anémiques installées d'une façon défectueuse. En refusant personnel, matériel, bâtiments, sous
 | prétexte qu'à l'heure actuelle ces Facultés sont peu
 j peuplées, l'Administration tourne dans un cercle vicieux.
-È S il
 
-# 5e) DL:
 à Nos Universités françaises sont-elles a a
-# trop nombreuses? . “NUS
 à On lit dans le Rapport de M. Simyan sur le Budget + y EN
 de l'Instruction publique (exercice 1904), page 26 : k AR
 k Le vice capital de notre enseignement supérieur, ne ‘4748
@@ -2685,7 +2563,6 @@ _ clairement la difficulté de lutter contre les influences locales, PARUS |
 ce qu'il advint : pour ne pas perdre à jamais l'espoir de ;
 4 réaliser la réforme, on dut se résigner à tenir compte des HAS
 \ nécessités de la politique et des intérêts particuliers. ‘LATE
-__ N'en déplaise à M. Simyan, en 1896, le Parlement a 14
 __ fait preuve de bon sens. L'opinion que les Universités ; 112
 
 “qu françaises sont trop nombreuses, je la connais : je l'ai
@@ -2707,8 +2584,6 @@ et les Guizot par le spectacle des Universités allemandes É
 | qu'ils admiraient tant à juste titre, — car celles-ci étaient
 nombreuses, comme aujourd'hui. — Elle dut leur être
 # inspirée par des raisons pratiques. La vie politique et ;
-# |
-| | ARAUERL |
 j (1) L'organisation de Y « Université de France » date de 1808. — Dès \
 1809, Charles de Villers en dénonçait l'insuffisance. Avec une sagacité vraiment merveilleuse ce Français, professeur à Gœættingue, à
 prévoyait les maux qu'elle devait engendrer, maux dont nous |
@@ -2756,7 +2631,6 @@ YPun d'eux a été longtemps au pouvoir. N'est-ce pas mauvais |
 2) Esthétiquement, — la province française demeure à peu près ‘
 nulle, — par malheur. ?
 
-3 4 se FER % « STANAL LEA KT PR ne EU Ses #
 We chique. (1) Il n'existe donc plus de raison profoude
 LT pour réduire à un chiffre aussi bas le nombre denos
 PU Universités, voilà ce qu'il faut se dire et non pas répéter
@@ -2766,12 +2640,10 @@ Eu : Au reste, Liard et Lavisse devaient succomber justeEr: ment en 1892, dans l
 Nu voulaient décentraliser fortement et ils auraient abouti
 El. contre leur gré à augmenter l'engorgement de Paris.
 7448 Tous deux ont montré avec beaucoup de force l'incon-
-|
 “he vénient que présentait la dispersion des Facultés. PousRe sant à l'extrême ce système, ils disaient : Iln'y a d'UniNS: versité véritable que là où sont réunies quatre Facultés,
 <a Lettres, Sciences, Droit, Médecine. — La conséquence
 pe ) c'est que les petites Universités devaient disparaître.
 Du Elles auraient disparu, mais sans augmenter sensibleFe ment les 7; ou 8 « grandes » qu'on voulait conserver.
-\! Et voici pourquoi :
 Li La « province » française est morte et nos départements
 + ne se sentent pas solidaires. L'Allemagne pourrait faire
 te cette opération de réduire ses Universités (elle s'en garde
@@ -2783,7 +2655,6 @@ te s'explique pas comment le préjugé put demeurer si longtemps
 ra Louis-Philippe et de l'Empire, à l'égard de la culture intellectuelle.
 Ho: Et les « ruraux » de l'Assemblée Nationale de 1872-1877. Comme ils
 SE auraient écrasé l'Enseignement Supérieur, s'ils en avaient eu le f
-#7 temps ! FA
 at () Elle va certainement en augmenter le nombre. L'Académie de ,
 a { Posen a été créée il y a deux ans. Hambourg, Francfort et peut- F
 hi être Cologne peuvent transformer d'un moment à l'autre leurs 4
@@ -2874,8 +2745,6 @@ n le tableau pour chaque Université de l'origine de ses étudiants. Il |
 à mique, — en dehors du département. Ÿ
 ri] (2) Columbia, à New-York, une autre dans la même ville, Uni-
 
-Si és Se PRET ve aus LR: not ed LA 81 3; da.
-| NOS UNIVERSITÉS SONT-ELLES TROP NOMBREUSES ? LA +
 8 millions de revenus. De même le gigantesque Har- ne
 vard, avec ses 9.000 étudiants, ses 7 à 8 millions de N°
 rente, n'empêche pas que le Massachusetts ne possède DA
@@ -2972,7 +2841,6 @@ mesure de pouvoir résister à l'attraction parisienne. ;
 Le meilleur moyen de se rendre compte de la malfaisance de l'idée qui inspirait certains hauts fonctionnaires lorsque, en 1892, ils voulaient supprimer la moi- ;
 tié de nos Facultés de province, c'est de passer celles-ci t
 
-$ Nul n'aurait eu l'idée de toucher à Lyon ni à Bor- /
 deaux. Encore moins à Montpellier, la seule Université ÿ
 française qui ait une tradition ininterrompue et qui |
 
@@ -3007,7 +2875,6 @@ Es secondés par deux chargés de conférences, tirés du Lycée, doute }
 ie qu'elle puisse lutter plus longtemps contre la concurrence de À
 FAT Genève, dont le personnel est le triple de celui de la Faculté
 
-| NOS UNIVERSITÉS SONT-ELLES TROP NOMBREUSES? ko”
 F Câen est demeurée misérable. Supprimez-la et, — 38 À
 comme je l'ai dit plus haut, — toute la population sco- |. A4 è
 laire se dirigera vers Paris. Pas un étudiant n'ira à 5H
@@ -3045,7 +2912,6 @@ G) Et l'électricité industrielle qu'on commence à enseigner par- 4 nt
 tout. Les ouvriers sont nombreux aux cours du soir, même à (re
 
 M0) services méritent bien le maintien de ces Facultés, dût-
-& il y avoir çà et là un cours de hautes mathématiques
 peu suivi du public. (1) 1
 S Pour les Lettres, on conviendra qu'il serait humiliant à
 que de vieilles cités comme Caen et Dijon, où un petit
@@ -3075,7 +2941,6 @@ Impossible de faire moins. À
 cependant, ni la création de l'Université de Lausanne, ni celle de
 ä VAcadémie de Neuehätel. —
 
-14 & TNT A M A ALAN Se TRS ee nn de
 __ public fidèle qui s'accroît lentement mais constamment. ‘CR
 à On sait, d'ailleurs, le goût des Francs-Comtois pour la Re
 à Science et l'Érudition. Le Doubs et le Jura comptent
@@ -3089,15 +2954,6 @@ villes depuis dix ans, personne n'oserait plus leur ee
 à enlever leurs Universités. Mais j'ai voulu montrer dans 1h F
 les lignes précédentes que la suppression de ces six F5
 Universités n'était pas fondée en raison. ;
-| À
-| ;; 1
-LE Ferdinand Lot, — 11. 2408
-
-mA 3 É es AS à ee
-
-| RENE à … S'AVRE
-
-ie Dr AP RENAN ; aies MEN ER Le
 
 81 Dans un très intéressant projet de 1oï sur les Archives . F
 _ publiques, d'un certain nombre de Députés, projet © ne
@@ -3135,7 +2991,6 @@ L'autre reproche est mieux fondé : l'enseignement
 d'Archivistique et de la Bibliothéconomie n'est pas assez |
 
 | Seulement ce n'est pas la faute de l'École mais de l'État.
-Par économie on n'a accordé à l'Archivistique et à la
 
 3 Bibliothéconomie que deux chargés de cours payés
 4 6.000 et les titulaires donneront un enseignement plus
@@ -3157,8 +3012,6 @@ depuis quelques années des thèses sur l'histoire des $
 (1) Aussi voit-on les forts en thème qui n'ont que de lamémoire
 dégringoler à l'Ecole des Chartes à la fin de la troisième année,
 
-“Pas At AÉLTE “He ÿ NET:
-à 3 L'ÉCOLE DES CHARTES rs
 däx-septième, dix-huitième siècles, la Révolution; c'est )
 un mouvement à encourager. Mais une lacune très sensible, c'est que le professeur qui traite des sources de F3
 l'Histoire de France (c'est à mon sens une des chaires
@@ -3260,7 +3113,6 @@ rer les dépôts de la France et de l'Etranger. Les étudiants de on:
 ration nécessaire. Je cherche en vain quel personnel s'y adonnerait.
 | | 195 4
 
-LEUR Podiand Let ISIN Mere
 Ly thèse des Chartes, leurs dépouillements à Paris,en pro
 vince, à l'étranger, eussent été rendus impossibles. Nous #2
 ; aurions eu quelques licenciés de plus et plusieurs beaux
@@ -3268,12 +3120,10 @@ Fa travaux de moins.
 Les gens qui décrètent de haut, sans connaître le
 fond des choses, peuvent, avec les meilleures intentions
 du monde, commettre des sottises irréparables.
-| LE DOCTORAT EN DROIT
 La loi de 1889 avait eu pour résultat de mültiplier les
 candidats au doctorat en droit, qui devenaient de plus
 en plus rares. Au début, les professeurs de Droit, les
 | Civilistes surtout, gémirent. Ils prédirent un abaissement 4
-du niveau de l'examen et de la valeur de la thèse. — Ce 4
 fut tout le contraire, au moins pour la thèse. Le niveau
 n'a cessé de monter. Quelques professeurs à Paris, à j
 Toulouse, à Montpellier, etc., se voyant à la tête d'un
@@ -3290,7 +3140,6 @@ rieur français, sortaient de leur néant scientifique.
 La nouvelle loi militaire va anéantir tout cela. ;
 N'y aurait-il pas moyen de parer le coup et de garder Li
 
-LES LANGUES VIVANTES ET LES ÉTUDIANTS fi
 - 73
 une partie au moins des étudiants de doctorat ? Evi- à
 demment. C'est par une anomalie particulière à notre ;
@@ -3402,7 +3251,6 @@ proportion qui existe entre la population des deux pays
 (2) La différence est bien plus écrasante encore à notre désavantage. En dehors des Universités, neuf Technische Hochschulen À
 allemandes sont bondées de 10.000 étudiants en chimie, mathéma- (
 
-PAR PTE sd Get A sd ji vi Ses BE PAS hr Sue FR
 se retrouverait dans l'effectif scolaire. (1) Il n'en estrien.
 La France est loin d'avoir dans ses Facultés des Lettres ;
 les 5 à 6.000 étudiants qu'on s'attendrait à y trouver. 6
@@ -3446,14 +3294,12 @@ réparti par groupes d'études. i
 aurait non pas 6.000, mais 11.000 étudiants, presque autant que AA
 Ë Paris ! [Elle en compte davantage aujourd'hui. Les Allemands se iè
 sont décidés à compter cette catégorie d'auditeurs, si bien que
-nee CAR
 
 :, _ Facultés étrangères d'une vieille renommée n'en ont
 “a pas autant, et l'on voudrait que nos petites Facultés ;
 de _ récentes, mal installées, insuffisamment dotées de per- f
 N: sonnel, atteignissent ces chiffres ! C'est abuser de la cré-
 Br dulité publique. A la Sorbonne, même après la soustracEE tion opérée plus haut, il ne reste pas 1.500 étudiants
-5e en lettres. S'il y en a la moitié d' « effectifs », c'est
 fi | C'est qu'en effet, répétons-le, l'état d'anarchie où on
 sa laisse l'organisation de notre haut enseignement per-
 :L met aux étudiants de ne suivre ni cours ni conférences, \
@@ -3485,7 +3331,6 @@ _ la réalité », mais faisons la part de optimisme officiel.
 AE - des renseignements confidentiels. Je préfère m'en abstenir pour EX
 1 l'instant, mais je mets au défi l'Administration de me contredire.
 
-| - DU NOMBRE DES ÉTUDIANTS EN LETTRES TT
 sa aisé : il suffirait au Ministère de quelque fermeté pour DU.
 
 _ promulguer un décret ou même un simple arrêté impo- Ne
@@ -3516,13 +3361,6 @@ De) une sélection plus sévère s'impose dès le début. On ne doit pas Te. <e
 É admettre dans l'enseignement secondaire, à quelque titre que-ce : +50
 kel soit, des gens qui n'ont ni le goût ni les capacités suffisantes pour 749
 exercer un jour un métier diflicile. SLT
-
-(AY ET A SA du EUTRPE
-#3 44 Le € à Ê er
-
-NE déseet ONE: RFA 1 ALT
-
-de
 
 | Les crédits de matériel des Universités ; |
 allemandes et françaises a
@@ -3593,7 +3431,6 @@ a à chez nous, de temps à autre, dans le domaine des 4
 F sciences physiques et naturelles, des découvertes qui 4
 a impliquent l'existence d'Instituts, de Laboratoires, de 4
 “+ : Collections, mal outillés, je le veux bien, mais non abso- D
-LE lument indigents. “4
 : En lisant le rapport de M. Lippmann, j'ai aussitôt
 Es soupçonné une erreur de méthode dans l'interprétation 214
 à | des chiffres de statistique. Cette erreur n'a pas été
@@ -3601,7 +3438,6 @@ EUX (1) Quin'est nullement « deux fois plus petit » que Paris, mais 14
 RS le dépasse, à l'heure actuelle, par le chiffre de ses étudiants et de D 4
 Fe ses professeurs, si l'on tient compte des privat-dozents. H
 
-air, ane F LES CRÉDITS DE MATÉRIEL 14
 longue à découvrir. Après avoir entretenu une corres- 3
 pondance avec nos collègues allemands (r) et compulsé 14
 les budgets allemands, ainsi que l'ouvrage de Lexis, F3
@@ -3617,7 +3453,6 @@ $ Universités : M. le professeur W. Lexis (Gættingen), Georg Schanz 7
 | (Würzburg), M. le docteur A. Vorberg, bibliothécaire de Rostock, tk
 — enfin, pour Strasbourg, M. le docteur Hausmann, secrétaire de RY
 YUriversité, grâce à l'intervention bienveillante de M. le professeur ee:
-Bresslau. L4
 ‘4 (3) Pour les dix Universités prussiennes, on trouve les rensei- #
 k : gnements nécessaires dans une annexe du budget du royaume de è $
 | Prusse : Preussischer Staatshaushaltsetat, Anlageband, 1, numéro 95, 3
@@ -3637,12 +3472,10 @@ direction académique (fournis par la Minerca, 1903-1904, page 718). 3
 F De même pour la Hesse. — Pour le grand-duché de Bade, il suffit Le
 | de lire les chiffres de dotation des Instituts donnés par Lexis et la %
 x Mineroa, pour voir qu'ils sont exclusivement « sachlieñ ». — Pour ue
-i la Saxe ducale, la comparaison de Lexis (pages 579-587) et de la 4k
 ‘ Minerva (1903-1904, pages 463-464), montre que, tandis que le premier As
 | ouvrage offre les chiffres globaux (matériel et personnel), le second (£
 Nix ne donne que le budget du matériel; c'est donc ce dernier qu'il 3
 
-| MAG . Fr RE 1, NE OPEN ERREUR
 4 1 subvention de l'État: 2° non seulement le Matériel
 * (frais de cours, de recherches, de laboratoire, de travaux
 Ÿ pratiques, de collections, de chauffage, éclairage, etc.),
@@ -3677,7 +3510,6 @@ Den (2) Pour les Lettres et le Droit, le Staatswissenschaft, le Matériel 1
 Re s'entend de l'achat des livres et des collections d'archéologie,
 d'histoire de l'art, de géographie, etc.
 
-# _ LES CRÉDITS DE MATÉRIEL Ée
 4 la Médecine. Je me suis décidé à regret à ne point
 
 parler de ces derniers. En effet, si l'on peut dresser un ;
@@ -3714,7 +3546,6 @@ Facultés de Théologie, dont nous n'avons pas à tenir compte, 4
 augmentent aussi le total, quoique légèrement. #
 
 | (2) A Giessen, l'ensemble des dépenses des cliniques montait, en #4
-1903, à 652.963 marks. Les recettes s'élevaient à 314.730 marks, 3
 Etat Hessois versait la différence, soit 342.233 marks. Voyez Lexis, (à
 
 (3) 11 faudrait tenir compte des subventions des villes françaises. œ
@@ -3757,9 +3588,7 @@ k lors, la chose est de peu d'importance. ÿ
 ÉRL 5.250 marks pour l'Institut de Geophysik de Gættingue pour lequel …
 ; nous avons jugé inutile d'ouvrir une colonne spéciale: Dans le
 
-REA # Re 53e NRA HR ip d'A UE: 44% o: ï ét LE
 chiffres sont légèrement trop élevés parce qu'ilma été %
-Net /a ible de me procurer à temps le Budget dd
 royaume de Wurtemberg pour 1903. Pour Tübingen, on
 k trouvera donc les chiffres totaux sans soustraction |
 du traitement du personnel. Mais il suffira au lecteur de ‘R
@@ -3783,59 +3612,16 @@ D nerischer Museum ; les 5.400 marks de Leipzig se décomposent en f + ER
 5È s'appliquent à la Numismatique; à Strasbourg (2.500 marks), à HA
 1 lArchéologie chrétienne. — En majorité, on le voit, ces sommes _ »=.
 pa: _ s'appliquent à des Musées locaux et grossissent les chiffres, déjà ER
-| élevés, de l'Archéologie classique et de l'Histoire de PArt. %É ‘ai
-tee LA EUR
 
-Le 1903 Sciences mathéma
-| © & = = =
-| ; £ | 85 | SOUS
-| Gôttingen. ........ » 1.008 jo | 2.511 | &
-| ie 300 » 9.480 16.740 |
-| Marburg ......... 500 » 8.485 | 11.636 |
-# Hesse : Giessen.............. 500 600 4.000 9.010 |
-
-Î ne
 | es et naturelles
-|
-|
-| = É] a FR &
-| à |
-| :] 3.527 2.876 6.110 1.910 21.793 3.706 2 de 6
-| BI 3:05 » 3.852 » 11.310 600 34.790 |
-| 3.000 » 4.049 » 18.383 804 .
-| Le 3.500 2.600 10.150 8.800 » | 5.950 | 52.320 | %
-| x BA À
 
-; Hu es ANUS de LR
-STE MAR EBLE Se RUPRER DES ET Es es
 2 35
-| Gôttingen. ........ » 700 600 1.880
-| Kônigsberg ....... » » 450 1.686
-| Erlangen. ......... » » 2.055 00
-
-| Ét.
-| L| 25 Ë ë ë 8 à 5
-DE ie Le Annee PR OC et
 
 eue! Sciences juridiques et économiques DO |
 
-| 4 É S Minchen:. 24e 2.400 1.600 | \:
-pe 44 ë Ra SES ii
-
-HD gPgnERacoen le le
 = Lane mmnosmmessals S<|la
-L S41 4NOd o 24 Q SE ein ni
-22 fe saxa £ LA, Hire LES
 
-H << & en AD SS AMEN ANENEPNIS ET
-
-> XAVAVUL sq | Fr intonasseæns|o lis
-En _ ma IS @ |en
-| max: | (73
 Le sun09 aa £ Sihs De cac gmail e ss
-ZAR Set PAM to 2) et
-4 Z ES 5 Er Lien ces 29 CRE
-|
 
 de | Ferdinand Lot RUE
 | : La comptabilité très différente des budgets français
@@ -3864,7 +3650,6 @@ bibliothèques, etc. — 9° de la Province, — des sommes
 | consacrées par les Municipalités à l'entretien des Jardins %
 Botaniques qui sont universitaires, en Allemagne, et qui ‘4
 
-FT EE FRE s ie LE
 comptent pour un si gros chiffre dans le total. (1) Des
 chiffres précis sont malheureusement très difficiles à
 obtenir. Pour Caen, sur les 22.251 francs de dépenses
@@ -3960,7 +3745,6 @@ papier les disciplines similaires enseignées dans les divers établis-
 
 4 221
 
-SA Ferdinand Lot LES
 | avec gêne quarante personnes et où la place fait 54
 ï défaut pour les acquisitions de livres nouveaux. Il 4
 nt faudrait pour bien faire une série de salles consacrées,
@@ -4013,7 +3797,6 @@ des Hautes Études où se donnent des cours qui forment
 le complément et le couronnement de son enseignement.
 Si bien qu'il y aurait presque de toutes pièces à créer
 un Séminaire oriental (divisé en plusieurs sections) (1)
-| à la Sorbonne. Il en existe à la Bibliothèque de l'École
 des Hautes Études un embryon.
 Quant à la Psychologie expérimentale c'est inénar2 rable. Elle est coupée en plusieurs tronçons : École des
 École des Hautes Études quatrième section (histoire et si
@@ -4024,9 +3807,7 @@ A l'exception de ces dernières dont l'existence en ces
 lieux n'a pas besoin de se justifier, il va de soi que tout |
 le reste devrait être concentré dans un seul Institut
 he pourvu de l'outillage nécessaire.
-|
 
-F4 A4 pre: VERT TOTRET St je EN
 î Mais tout cela est impossible dans la Sorbonne
 actuelle, qui n'a pas été appropriée aux besoins
 sus modernes. Le seul procédé pratique c'est de construire 1
@@ -4118,17 +3899,13 @@ Ne etc., indispensables pour les cours maïs qui ne servent 24
 n. gner puisqu'elle atteignait, en 1903, la somme de
 51.000 francs pour l'ensemble des Universités, (1) mais
 elle est mal répartie et n'a point de fixité, La compa- 54
-A N'y à ”. sx je LI
 HE raison avec les Universités allemandes montre que, —
-ARE e ex à Si MON
 exception faite de Paris, de Lyon, de Bordeaux quiont 1
 
 D Toulouse 2.333. — L'extrême irrégularité de ces chiffres, qui ne 1140
 ' tiennent aucunement compte de l'importance respective des
 k Universités, suffit à montrer qu'il s'agit en réalité de crédits
 Ke extraordinaires. ce
-
-ete LES CRÉDITS DE MATÉRIEL
 
 4 des besoins assez considérables, — un crédit de 5 à
 10.000 francs est parfaitement suffisant pour entretenir
@@ -4162,7 +3939,6 @@ YHistoire de l'Art même, constituent en réalité des services d'Uni-
 1 £ (2) M. Lippmann ne s'en est pas aperçu, autrement ses plaintes
 7 eussent été bien plus vives encore. à
 
-| Ferdinand Lot ESS
 FA 326.382 francs de l'article 2 du même chapitre, consa
 crés aux frais de concours d'agrégation, aux jurys de }
 baccalauréat, etc. ; les 88.969 francs de l'article 4 (sub-
@@ -4191,18 +3967,6 @@ clair que, en regard des revenus du Botanischer Garten, ainsi que g
 du Museum et Instituts zoologiques de Berlin, les sommes affectées
 aux services similaires français sont affligeantes. 4
 
-à sat PAT PAR RUE 7 PTE 4 Ar Li CRE A ON
-RONA ERTs 0 MIE de URSS A 7 0 ft a PAST A LM NAT 1
-qe de | ATOS Nes TAN F1 à EEE Fe
-er TAC te Ut A ; aù AS La ON 2e CHER +' 4 Diva AUS
-VV sa NME PRE EL DT) SU RRET ‘1 Dee ASSURE
-Fi Ext Re MAY VE NTAMIEAT SANT ME $ PURE. Le SU Fe ie
-| RENE TA AE RERLTNNQES CDR AT  ANERere FINE sc Fe
-
-# # LS RETIENS
-| ri ; D] + 24
-
-é CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 | rez-de-chaussée, Paris, cinquième arrondissement.
 
 4 Nos Cahiers sont édités par des souscriptions men- |
@@ -4241,8 +4005,6 @@ AS ce numéro d'inscription qui devient automatiquement le
 k } numéro du tirage réservé à chacun des souscripteurs ;
 
 “A l'édition sur whatman est strictement limitée au
-
-| : : 14 VOTES
 
 \ Pour tout changement d'adresse envoyer soixante :
 | ” centimes, quatre timbres de quinze centimes.

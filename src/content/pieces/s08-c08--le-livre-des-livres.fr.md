@@ -7,17 +7,11 @@ author: jean-bonnerot
 isAvertissement: false
 wordCount: 14106
 ---
-Le eu RTS ET ER ete PE ST ER 2 MX
-M ESC Ce OT D NOT AS nt EU TRES 1] ee
-si £ ta
-
 Pour savoir ce que sont les Cahiers de la Quinzain ÉRX
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 a 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième RS
 : arrondissement. On recevra en spécimens six cahiers PS
-Eva de la deuxième, de la troisième, de la quatrième, de la 268
-| cinquième ou de la sixième série. ù : Le.
 Pour savoir ce qui a paru dans les cinq premières : de
 séries des cahiers, 1900-1904, envoyer un mandat de ee
 cinq francs à M. André Bourgeois, méme adresse; on.
@@ -34,36 +28,22 @@ est la série en cours, envoyer en un mandat à M. André % É
 Bourgeois, même adresse, le prix de l'abonnement: on A
 recevra les cahiers parus, et de quinzaine en quinzaine, e
 à leur date, les cahiers à paraître de cette huitième 4
-série. Ta)
 Voir à l'intérieur en fin de ce cahier les conditions 7; “à
-et le prix de l'abonnement. FA
 Nous mettons le présent cahier dans le commerce; E
 septième cahier de la huitième série; un cahier vert ‘à
 
 de 96 pages; in-18 grand jésus; nous le vendons #4
 
 _ Je livre des livres
-L FRAGMENTS de
 12 ‘ paraissant seize fois par an NA)
 … 8, rue de la Sorbonne, au rez-de-chaussée %
-
-AC FCO NA M tn dE Ne FEES NE
-
-Gure, ere arr rx o LA IN CCM NE VAN TRE Lee
-
-BANDE MANAGER YVAN ITS ch ne RUE y
-
-AE AE ne AR
-se. ne RS ù A k ATH Re ?
 
 Ne. Il a été tiré de ce cahier quatorze exemplaires sur
 4 À whatman ainsi distribués : e | 5
 10 premier exemplaire de souche, exemplaire du gérant; sul
 1 deuxième exemplaire de souche, exemplaire de ad.” \
-Ne ministrateur ; 15
 . troisième exemplaire de souche, exemplaire de l'im- 4
 4 x | dix exemplaires d'abonnement, numérotés de r à 10 4
-4 Î exemplaires d'abonnement : à Ne
 # et un exemplaire d'auteur numéroté a exemplaire
 ne “il Tous nos exemplaires sur whatman sont numérotés à
 TR à la presse et imprimés au nom du souscripteur; nos
@@ -76,31 +56,10 @@ je _ pour tous pays. x
 1h en caractères fin dix-huitième siècle (Didot) de la fon1 derie Mayeur (Allainguillaume et compagnie succes- M
 À 1 seurs) 21, rue du Montparnasse, à Paris, sixième
 
-CAE et ADS MORIN Me MCE. Nr AVES
-Lee LE
-
-Ki a RE fi "DTA ée Ne bi lis HR PA UT A NTM
 1 4
 À le livre des livres ‘4
 
-NDS ro ES L si ART NAS *
-| TE ë 4 + À { ne: pu
-HR + UN FUN Rent BUT
-
-à dl Ag Fr RE Et ù SEE EE PEU 18 #7 FN rt né (a
-
 54 120
-
-be: re LE
-
-HART ce î
-
-D: at LE ARENA En AE HEURE db PR ei NE FA A RENE
-
-d'a tan nr CARE NE DRE RS DE CT M UT TERRE
-# a # ê si x : . à à
-
-# !
 
 nr. RAND MÈRE, qui, le soir, au rougeoiement des bûches, Et
 È G Disiez des souvenirs de votre jeune temps hi
@@ -112,7 +71,6 @@ f Qui maudissaient le siècle en regrettant l'hier. i %
 b _ Vos cheveux étaient blancs des neïges de l'hiver; : 4 »__ Et, sous l'orbe agrandi des lunettes pensives, # S#
 4 _ Vos yeux ne voyaient plus que très loin dans l'éther. #
 
-LAN ne i L'ÉMANCENNNEER
 : 1) a C'est que l'âge morose a noué sur vos tempes ! RTE.
 ni L'aveugle bandeau noir qu'Amour met aux amants; fa à
 “ HI Les jours vous semblent courts ainsi que des moments; Fe
@@ -123,13 +81,7 @@ NE Grand mère, s'il est vrai que votre temps fut grave 10
 ‘0 Ce n'est point dans la vie indécise d'un jour, ; RAA
 ‘0 Mais dans les livres vieux où le passé se grave k
 A Al Plus immortellement qu'un nom sur une tour. Ha
-ie Ne
-fes { CE pie
 
-sf ; ur RE Ms LA b ‘4 KE . Æ F PRE TER 3 ' d À 4 Ts HA
-#4 . * ps td
-| N * À DR
-| 1 D
 3 pour un bibliophile 54
 “ Nr les aimez d'amour, comme on aime les choses :44
 "14 Que le temps destructeur et rude consacra, Mr,
@@ -137,7 +89,6 @@ F3 Vos vieux livres vêtus de robes d'apparat, { 4
 ëô “4 à Qui resongent sans doute avec enchantement, 28
 44 Dans le calme bleuté de votre chambre close, ct
 Ar : Au passé'qui ressemble aux beaux contes charmants. 4
-| k ) HN.
 
 de 4 Et vous 2imez aussi ceux-là en robes neuves $ 4
 QU: Comme le rire en fleurs des jardins printaniers, LÀ
@@ -172,24 +123,7 @@ Mi Le passé d'âge d'or, le seul qui soit réel... 200
 ‘4 Aujourd'hui n'est qu'un songe... à peine s'il existe. : Re
 : Demain est le reflet du mirage éternel... +
 
-ant pu RU NE LR AE ONE ÉUREINE ARE Dr) A MERE ACTE
-na Hyb : NE: : io
-‘ ul NP ON DNA « pt fe j , N We saut A &
-
-He à RIRE Ne fn DANS- ARE ONE 4 ALES VS var AS ue
-h cu De
-
-# F LS
 12108 0
-#- A
-#: . É 5154
-ra Le,
-
-EN AR se L'FEU ANA ATEN
-
-AO MARNS NAN PAU ACER AD EPA Dan en RE AR ne X LAON
-
-( 4 Satis er iii si cs ré ‘ y \: \ PS et è vers (3 HR
 
 4 sur une reliure en peau de truie estampée 3
 dr jo le demi-jour pâle et bleu de la vitrine “
@@ -230,7 +164,6 @@ L Où le titre s'incruste en des entrelacs noirs. Es
 4 Sur les plats adoucis dont l'incarnat se fane N:
 j En teintes de camée et de roses sainfoins, 3
 à . Se greffe et s'entrelace à chaque angle des coins “54
-#1
 à La double fleur de lys vermeille et diaphane. +
 4 Mais sur la tranche à vif dorée aux petits fers, j 48
 e . Se courbe larc d'azur de deux initiales Le.
@@ -240,12 +173,6 @@ Que fleurit la guirlande antiquée en spirales 4
 À Les longs signets de soie inégaux et passés ‘ve
 # Évoquent les traits doux, amoureux et lassés M
 “. D'une vierge au missel et qui prie et se penche. 15
-
-À RO TR 2 ti AU tu DER di ARE ds TIR 4 TETE
-
-‘V4 fl Reliure de Nicolas Eve 14
-
-# ai .
 
 57 Fut verdi par le temps et bronzé par l'oubli, ; ;
 ‘128 Comme un buste d'Amour que l'âge ensevelit 1
@@ -264,9 +191,7 @@ hs. Sous la mousse olivâtre et les herbes frangées. 1 » dix Innombrable semis
 228 Engourdit de silence et crispe en sa jonchée
 \ 48 Ce livre qui fut jeune et qui n'est plus qu'un mot. he
 
-F NN ES PAIE EEE Le ape NE a eat SAUCE AE % Val
 1 Reliure de Grolier 14
-ne
 De LÉ maroquin strié de nervures brunies ? %%
 i Est d'un roux mordoré de feuillage d'automne ‘5
 æ Que le soleil dégrade en teintes infinies, 7
@@ -277,7 +202,6 @@ j Parmi l'or azuré des souples entrelacs. © #4
 : Serpente et se dénoue en chaînette d'argent, : g.
 # Dentelle à petits fers ou mosaïque étroite. 1
 
-(5e Et, comme en un blason de devisestimbrées, DATA:
 ie Dans la couronne immense et centrale émergeant, ES
 ME Se détache le titre en romaines dorées, Des RUES
 1350 Tandis qu'au bas du plat, en sa formule brève DEA
@@ -286,11 +210,9 @@ po Jehan Grolier en fit hommage à ses amis * AGE
 ASS Et seuls ouvrent encor de leurs doigts très pieux <a
 ‘1 te Ces livres d'autrefois que le temps a blèmis, d
 (ee Les amateurs fervents qui se souviennent d'eux. 44
-# v bip
 
 | d'après une reliure en vélin 14
 D: à la mémoire de José-Maris de Hérédia RE
-k , “pa et diaphane et de teinte crémeuse, ne.
 ( Le vélin blond greffé aux angles de lys d'or 14
 4 Recouvre pour la vie et drape pour la mort, “a
 a .. Dans le demi-jour vert des vitrines dormeuses, 1 1
@@ -308,11 +230,9 @@ B; Le long filet doré qui serpente et se noue, A
 We Que ferment les volets d'un diptyque d'ivoire. AT
 7101 Le silence lui pèse et les siècles l'écaillent, F
 ‘SR Et l'ombre se dessine à ses plats endormis Es
-14 % Et ma main, au toucher de sa peau, a frémi, À: ar
 ‘1 Comme sous un baiser une femme tressaïlle j È
 a Parce que se ranime en sa frêle mémoire, at
 30 Et que s'éveille, au chaud frisson de mes caresses,
-à d ch -__ Avec le souvenir du Louvre et de Bourgueil, ;
 : +10 Echo d'un fier sonnet de prière ou d'accueil 1
 fa je Geste de gentilhomme ou regard de princesse MES
 D: Tout un passé d'amour, de légende et de gloire. pv
@@ -395,11 +315,6 @@ L: Des nimbes de lueur et des grappes de flamme,
 4 M'a fait songer à la Bible en couleurs d'antan +
 1 Que m'expliquait ma mère, à mi-voix, sous la lampe. {
 
-#4 -
-#
-
-1 un livre de prix de l'an douze TANT
-
 1 à mon cousin Marcel Bonnerot ‘4
 +114 fes comme un pastel et comme un vieux visage, V4 10
 Nb C'est un livre de prix conservé d'un autre âge, #01
@@ -430,7 +345,6 @@ Le lauréat de lan douze a fait serpenter ;
 4 Sous le trophée inverse et le laurier cueilli 4
 E Que deux noms inconnus sur un livre de gloire. à
 
-Hi (EE î 4 GEL NERTE ' fe AT, VO Hoi L OPUS À
 ‘04 en signet pour un livre de vers 2,270
 
 1046 114
@@ -452,7 +366,6 @@ Ki Le signet odorant d'une fleur écrasée. À
 1 4
 
 ù. en marge d'un Ronsard ; 4
-à ni
 % VRIL est descendu avec ses corbeïllées; js
 È La chanson des oiseaux du ciel s'est éveillée; Û
 % Et dans l'air enivrant de fleurs et de bourgeons x,
@@ -494,11 +407,9 @@ NPANE Qui chante et s'éblouisse aux baisers de vos lèvres. x:
 
 “4 Las! rêveurs et amants se plaisent à relire A |
 1 Les chants victorieux que Ronsard vous soupire : # À
-# i - 1?)
 ne, Car il flotte parfois aux feuillets entr'ouverts . (12408
 4 Le vertige attardé d'un de vos longs sourires, 1708
 
-l CMS HAT d ji Vi At ne k ( dpt FO EN MA ! À AE LE
 | 110 le Temple des Livres À
 : AISNE à la Mémoire de monsieur Jules de Chantepie du Dézert th
 ni. | fit bibliothèque est le plus beau des temples D
@@ -514,14 +425,12 @@ AM Selon toute harmonie et toute prescience,
 | ANNE En conformant le heurt des jours quotidiens .
 au Au rythme d'un passé dont ils sont les gardiens. |
 
-# A 0 dE 4 ; ax LIVRE DES LIVRES 40
 Dans la paix des rayons et l'oubli des travées, 4h
 .Que la poussière lente et tenace macule, nt
 Innombrables ainsi que grains d'une cuvée, :
 Les livres côte à côte et toujours s'accumulent, Le
 Comme le sable blond par les ans amassé ; 1
 S'exhausse et se prolonge aux grèves du passé. : 4
-ni?
 | Et ces livres obscurs aux pages de silence F e
 s D'un deuil ou d'un amour confidents éphémères, À
 | Beaux compagnons de rêve ou témoins de souffrance }
@@ -540,25 +449,18 @@ h Quand je franchis le seuil de votre sanctuaire &
 # Je me sens accablé de lassitude amère ie
 - Et du dégoût d'écrire encore et de penser... "hi
 L Ma petitesse avorte en face du passé!
-| b. NE à
 
 | “ol Car au secret du temple où l'âge les agriffe, oi
 
 LR Ro Sur les papyrus bruns d'écorce un peu ridée, RFA
-FE Sur le parchemin roide ou le papier de chiffe, AA
 L NA ni ME Nos phrases et nos mots et toutes nos idées de ls
 ji je mi Gisent, à tout jamais vivaces avant nous, 4 P'APRTOS
 DRRUUIN Comme un rêve inéclos sommeille en des yeux doux.
-LS Et je me sens ému de tendresse profonde Ÿ fn
 ? VE Pour ces livres d'hier que le hasard entasse : HAVE
 js ‘à À Car ils sont nos amis et leur œuvre est féconde. î
 (An hi Tout disparaît, les rois changent, les siècles passent; QU
 A À ! Et seul a survécu de toute éternité } ‘
-4 Ge Le livre indestructible en sa fragilité. DE
 
-k L k d'à RE A ba bi. ln A AE MTS ELLE is
-Û ï HA subfe DE) PRES A 2 PAT cs JT 4 Es Et 3
-# { ‘ N f
 Joe Grammaire latine du prince de Condé Re
 À LL maroquin rougi semé de fleurs de lys } 1
 Ron Que l'automne dessèche et que le passé farde, 515
@@ -574,9 +476,7 @@ __ - S'enroule de feuillage ou se nimbe d'azur.
 :à Aveuglé de poussière et de silence obscur, Ga À
 | "4 Sous l'étiquette ovale où la cote s'efface. FE
 
-\ENE un
 140 Cahier de textes Use
-| Ml 3 142
 l ex LÉ est des soirs de doute et d'âäpre inquiétude AUX
 INR Où l'on se sent mauvais et lâche pour l'étude, 8 \ 4
 PAL L'esprit vide, la chair triste, les gestes rudes. “4
@@ -587,10 +487,7 @@ FAN Alors, seul dans l'ennui de ma chambre bien close, 4
 F0 J'ai trouvé mes cahiers de textes qu'enluminent F,
 10 Des dessins emmêlés d'expressions latines. (LUE
 
-| A fe LS af Es Se ES PURE
-* PATATE tu a Rte CE TAUTTS sh PINCA API) ; (2 f he : à
 : 19 Feuilletant au hasard ces pages écornées, SR
-ne. hy
 L J'ai revécu de loin mes meilleures années, Pr
 1 Comme un beau songe enfui de candeur fortunée. , ù D
 4 Thèmes ou versions chantaient dans ma mémoire 1700 HA
@@ -603,25 +500,6 @@ Comme des vers, des baisers fous et de la gloire. ‘#4
 L Je taime d'un amour enfantin qui m'enivre, Re.
 3 Car tu es le meilleur et le plus vrai des livres! : ‘2
 
-# 46 Al + À, JE
-
-ne MR Pt te 4 NAN PER AE SAONE
-| HEAR ANSE AE APE De AA FRA AE APTE RTE :
-|: A NT
-| ASE À AU
-
-à j Fr: # PA le pere! Res
-
-LA RUN 6 RENTE Æ b ot
-“Art JVÈRSE à on
-
-#8 np 582
-
-nets Al % LA NC TER
-# IR , An COOPER nt
-nt 1 UN TON en
-il SPORE 4 LRTAGUINOREE À
-
 1 16700
 Almanach de demoiselle #0
 ; * à ma tante Marie Beaujard à H 4
@@ -632,7 +510,6 @@ Almanach de demoiselle #0
 % Hier, cherchant parmi les écheveaux de soie, : 1
 4 Les dés et les sachets de parfum, j'ai trouvé, 54
 # Mignon comme l'Amour où le titre est gravé, 23
-ke. Du
 Ë. Un almanach dont la couverture verdoie. |
 + , La tranche est dédorée et le signet se casse; : DE,
 L' Les vignettes sur zinc, que protège un papier, « 8 F5
@@ -640,7 +517,6 @@ Ex Sont d'un vieux symbolisme exquis et minaudier tr
 L Comme le titre ami : Le Messager des Grâces. NA
 
 ‘he Les mois, en rangs de saints, parlent d'année ancienne, UT
-De: ‘a ; Printemps d'un autre siècle où je ne vivais pas, f au
 Du Où de semblables jours glissaient d'un même pas, d
 1,0 Selon le nombre d'or et l'épacte chrétienne. : Dès
 ._ . Puis des vers, qu'autrefois chantaient les demoiselles, Sr
@@ -675,7 +551,6 @@ Re . Le corsage est brun puce et froncé à la vierge CPS
 | Et vous donne l'aspect d'un rêve qui émerge. M:
 | J'aime ces riens où tant de choses sont encloses ; î ‘4
 Mais j'ai peur qu'en un âge où je ne serai plus, Le +5
-k On ne le jette au feu comme du superflu, Ne:
 ; Le petit almanach du chiffonnier de rose. PR {
 
 “RUES u fond d'un vieux pupitre en bois brun d'acajou AL
@@ -685,7 +560,6 @@ k On ne le jette au feu comme du superflu, Ne:
 1 L'herbier, vêtu de cuir d'un rose de bruyère, 4 due a
 ; Pt \ Que fit en pension mon arrière grand mère. : ee
 
-LE AE, Re 7 en De ul 1 Eu 24
 | Son nom de jeune fille au plat, en lettres d'or; Pen.
 
 La tranche est rouge brique ainsi qu'aux vieux volumes;
@@ -710,7 +584,6 @@ Les saisons d'autrefois revivent de lueur; 510
 Mais la couleur se fond, se nuance et se fane { K ï
 
 | Au travers du réseau de veines diaphanes, à 3 ‘0%
-Et la page, où s'écrase et se sèche la fleur, ‘T1
 
 Garde, comme un débris du pollen qui féconde, a
 k Le reflet vert du bois ou blond des plaines blondes. F4
@@ -727,15 +600,11 @@ _ — Roses de vos printemps que le siècle a vieillies — LP FETE
 _ Comme demeure et vit, immortel et entier FES nu
 Dans l'effacement gris d'un dessin à la plume, PAS
 Votre portrait d'aïeule en coiffe et vieux costume. Ve
-#7 Mo L Ne
 
-APN OS MAN IENEATES ME 0 alba ce ei -
-te AM SET sas ; Sa dc, DREAM MOTTE RATS PRE
 ; ma Bible LT
 11 É plus beau livre ancien dont mes yeux se souviennent
 ss Est une vieille Bible in-folio de cuir, |. ei
 __ Dont ma mère tout bas m'expliquait les gravures, F5
-Bic, £ à CRT | pas LT
 ‘3 3 Pour que, selon son rêve infini de chrétienne, \ 08
 % Mon âme soit très simple et très bonne et très pure, ï 428
 1 HS Comme un soir de Chaldée où l'on voit s'éblouir 7 4
@@ -763,7 +632,6 @@ MIN Puis c'étaient Abraham et Jacob et Moïse
 ! Tous les prophètes blancs aux longs gestes d'accueil, Tu
 L f: Et le Messie enfant qu'adoraient les Rois Mages. ;
 
-= La Aie. 5078 ee 1 REC EN ES LEE En NEA SEE ER Le HS,
 à Le livre le plus beau n'est que vaine poussière, 4400
 À Puisqu'un soir, au retour de classe, j'ai trouvé, ne
 : Dos disjoint, en lambeaux et gravures tordues, ‘4 4
@@ -772,7 +640,6 @@ L f: Et le Messie enfant qu'adoraient les Rois Mages. ;
 À Et poussant de longs cris de triomphe énervé, 732
 Un enfant déchirait mes rêves éphémères. {50
 
-| #1
 / Et voici qu'en mon àme où le passé s'éplore, EE:
 Évoquant en secret l'estampe d'autrefois #14 ï
 4 Où Rachel amoureuse au bord de la fontaine nr.
@@ -781,20 +648,14 @@ Offrait au clair passant l'eau fraîche de l'amphore, + ver
 | Par un soir embaumé de silence et d'émoi, dr.
 Mettra son baiser d'aube à mes lèvres d'aurore! = x
 
-ous DE CR DE AS HAE VAL ONE AR AT AU ERE
-
-#, MRC à
-
 4 MIE aux yeux de songe et que je veux aimer, LR
 F. ÿ CES que mon cœur blessé s'apaise et refleurisse | "CNSIER
 7 Comme au printemps d'avril le taillis embaumé » LEE
-Fe Se dore de la feuille et du bourgeon propice, l É ie
 ‘# Prenez ce petit livre aux pages déchirées 1 Lo. *
 hr: Vêtu grossièrement de parchemin blondi, À 56
 VU: Que ferme sur la tranche en deux boueles pourprées 217400
 Ni Le ruban de satin où l'âge se raidit. : *ATeNe
 
-nn Jean Bonnerot Un
 RE Vous ne trouverez plus à la première page US
 ip Ai La gravure du titre et le portrait sur bois, au
 ‘11488 Où, le front ébloui du glorieux feuillage, LA
@@ -827,7 +688,6 @@ F D'une tache étrangère ou d'une déchirure ; 7 100
 Le Puis trouverez, l'Amour tournant l'autre feuillet, ne:
 | Odelette et Chanson et Villanelle pure fe “
 | Où s'écrase et fleurit le baiser d'un signet. : 700
-le n ÿ" rt
 Lors serez à jamais dans tous mes jours en fête 34
 
 — Jeune fille au nom doux comme un rêve charmé — 25008
@@ -836,14 +696,10 @@ L'amie aux yeux de songe et que je veux aimer. 1600
 | 558
 4 2 2
 
-À VAT "4 ñ f + mA fr te
-
-Eu ja ten SUR ANS OI ANT: NN
 { ous êtes tout pareil aux sages de la Grèce, D.
 ; \ Qui près de la mer bleue et des grèves d'or fin, Fr,
 | Laissaient fuir leur pensée et leur songe sans fin, #4
 Selon le rythme ami de la vague en caresse. 10
-| A
 - Vous avez vu déjà d'innombrables années ‘15e
 k Tordre à votre front blanc le laurier immortel, 54 3
 î Par qui l'homme est un Dieu vêtu d'aube et de ciel, 10
@@ -858,7 +714,6 @@ s L'autre page se froisse et s'emplit d'inconnu, DS
 ‘4 Vous demeurez, tandis qu'autour de vous tout passe. :1 7
 
 no Hommage à mes Livres 1
-ni ' à ma seconde Mère ÿi 4
 JE 111 \ O mes livres amis, d mes seuls confidents } he
 ATTA Vous qui, vêtus de soie ou drapés de haïillons, :
 LT En chaos sur ma table ou droits sur mes rayons, mn.
@@ -873,9 +728,6 @@ AL Et n'osant avouer tout bas, même en rêvant, : CAN.
 
 ji \ J'ai besoin de causer pour me sentir vivant. k “LA /0I
 
-{ RAT APCE JUS je RERO PAT SEM À Ms Ne.
-NN ‘LE LIVRE DES LIVRES js
-| a —————  —— —"——…————…— — — — — … ——— —" — —.—— —————"——————————— L “
 Et c'est vers vous encor que je viens pour aimer FF ve
 Et fuir selon l'envol des rêves infinis, “
 Quand j'ai peur de la femme et de doigts désunis, 4
@@ -887,7 +739,6 @@ Comme un petit enfant chérit sa douce mère, a
 Un amant sa maîtresse, un rêveur sa chimère, 1e
 Parce que c'est en vous que l'on peut déchiffrer, $
 Selon l'heure joyeuse, indifférente ou triste, #
-|
 La parole éternelle où chacun a pleuré. $
 4 O mes livres amis, vous êtes les gardiens Li Ç
 De toute la pensée et le savoir humains,
@@ -908,11 +759,7 @@ fe pd _ C'est à vos feuillets lents et froissés par la main 1H
 ‘ONE Et qu'un autre, inquiet de sa chair attristée, ; 3
 128 ___. Dans son ivresse vierge ou son orgueil humain, ; PL
 A. A mis sa clameur folle, immense et tourmentée. T2
-4 Grâce à vous je n'ai vu de la vie éphémère, | ANNEES
-LE Où la laideur s'accouple au mal et au mensonge, ATEN
-(5e : LUE Qu'un paysage bleu de printemps et de songe QE
 i À ve Où passe, nimbé d'aube et doré de rayons, 5,1
-\ THÈR . : ele nie) L Re:
 Le Comme les vierges d'or des anciens bréviaires, « AUS
 44 Pi Ee Le cortège chantant de mes illusions. ‘NS
 Fi Vous êtes des amis de toutes les minutes, “4
@@ -928,8 +775,6 @@ EU: Donnant de doux conseils en langage amical : LCI
 D Puisqu'à mon âme en feu monte de vos feuillets 16
 te ; Le parfum du passé et des vieilles légendes. ne
 
-pi: , au gré de la réverie D.
-| ÿ M ds
 à Henri Focillon \ ce
 Per | aa d'un long jour de soleil et d'ennui 704
 ie "Vers le soir, ayant clos les volets et les portes, VUE
@@ -944,9 +789,7 @@ il Que font les vers légers en prenant leur essor 15e
 RL, Et les grands bœufs lointains comme des visions,, De.
 124 Le volume premier des Médilations. | Der
 
-| NE | Jean Bonnerot ‘OO
 si Je lisais, et la strophe éperdue en son vol st
-Hot gate à L ë Pre
 ET Imitait tour à tour une fuite d'abeilles +4
 ie Ou le murmure lent et chevrotant des vieilles, 9
 Raut Ou le chant des grillons cachés au ras du sol : &,
@@ -991,20 +834,17 @@ L La page aux vers du Lac encore entrebäillée; F qu
 4 Jeunes filles mon cœur au vôtre était pareil,
 L' Et mon livre était clos d'un signet de soleil. |
 
-Pà ce 4 SAME
 ni ; à pleines voiles ‘210
 { Dh à mon cousin André Beaujard Van
 ‘10 Ho sous la paix de mes sapins bleuis, HE.
 RU Comme un enfant qui rêve et dort, : LRU DS
 ni Je lisais, de mes yeux de lumière éblouis, LEUR
-NA “ii Des vers d'azur pailletés d'or. 1 NI fi
 nu À Il tombait par instants des pommes écailleuses Ÿ JS
 : 10 Sur le sol roux piqué d'aiguilles, @ 4
 Text En un bruit sec et court de gouttes d'eau frileuses AT
 ‘Ars Quand pleuvent au vent les charmilles. HS
 
 Fa . Une odeur de résine emplissait mes poumons 133
-3 HA De vie amère et de fraicheur, à FX
 : __ * Comme la brise immense au loin qui vient des monts 1
 Fe Féconde et fait germer la fleur. Dr.
 ‘5e Mes yeux ne lisaient plus que des lettres sans suite; * à HA
@@ -1019,7 +859,6 @@ L De pius en plus vague et mouvant. ‘4100
 Les lieux vers lesquels tu fais voiles, 30
 Fs Sont des pays riants de fable et de mensonges D.
 Et Qu'illuminent d'autres étoiles. 53
-4 On part à l'improviste, on va de ciel en ciel he 4
 £ Au souffle aérieñ des mots 44
 À Vers d'autres orients, où l'on croit éternel AO
 hi. Le chant de source des échos. st
@@ -1027,10 +866,6 @@ hi. Le chant de source des échos. st
 + Mâis bleus et voiles en guirlande # 13 À
 3 Comme le vaisseau clair d'aube et d'apothéoses MS.
 #4 Sur qui, du fond de la légende, 4
-
-di if | je ANA à { par PAS Li RATES CT 1 jà N REutS RE TR RSEN
-
-Vi si PET : vie d' { TN (a:
 
 Die fo S'en vient le Chevalier du cygne aux yeux d'amour
 uen Vers la Princesse aux yeux d'espoir; ; FES
@@ -1043,26 +878,10 @@ RE ‘al Je veux la joie et les extases, Re
 He: Et partir au hasard de tes rêves, à Livre, 140
 FINS Sans autres voiles que tes phrases. { A 1
 
-| 711 PU d cd * à à ù V! CUS Ce VAS ”
-fl Su \ x à pr ( ne
-AE $ U Qui nn AN
-le (UYe 1 HLTALNSE Fu
-
-NP LA k er MH MOT LAN das it NN 2 Le SORT
 à Grand mère, qui, le soir, au rougeoiement des bûches.. 9 Ë pi
-à MAP ONSIDE: RELJURR eu ne m0 do à ue dde ue une 00 00e MON ED ‘4
 3 sur une reliure en peau de truie estampée............... 17 4
-# RE dei ro er eV ANS unit it Por) Ur LAN 724
-3 RMS CFAIONELETL ed AU RER SANS Ron me
 à ancre de prix de lan douse 7.2... 21280 D
-#4 MATE LR RONSAT LAN pee ETATS te:
 
 (ie _ huitième cahier de la huitième série
 WW," Grammaire latine du prince de Condé ........:...:/N99000
-Da, SOUVENIRS DE MON MORVAND . 2.22. eeie 2e ele US OUR
-| 14e Almanach de demoiselle"... MORE EE
-El Herbiers re ee RNA LI AR UNE CERCSEERETEES
 4 à * Amie aux yeux de songe et que je veux aimer.......... 55 24
-0 SAGESSE Let 0 NE RNA CAEN EEE NEA
-7 au pré de la réperie.n 0 LIEU NE URNRee  ReNERE A
-ï Table de ce cahier. ::....112.t.14 Lit RES

@@ -7,25 +7,16 @@ author: maurice-kahn
 isAvertissement: false
 wordCount: 31484
 ---
-G -DEUXIÈME C si DE LA QUATRIÈME SÉRIE
 courriers de Macédoine D
-SFA F je "1 à } ee
 k paraissant vingt fois par an Ro.
 8, rue de la Sorbonne, au rez-de-chaussée
 
-v À TA TONS PEU MAT A DRE TRT ed 4 à er à j.
 1e _ Pour savoir ce que sont les Cahiers de la Quinzair
 Et _ il suffit d'envoyer un mandat de trois francs cinquar
 VE à _ à M. André Bourgeois, administrateur des ahiers,
 Ce 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième.
 4 arrondissement. On recevra en spécimens six cahier
--eR de la deuxième, de la troisième et de la quatrièn
 ARE Nous mettons ce cahier dans le commerce; nous le
-
-#10
-# 164}
-
-MR US NE ane CESSE
 
 … HÉSARR ENS Sur les courriers des cahiers, courriers d e. Chine,
 4 courriers d'Indo-Chine, courriers du Japon, courriers
@@ -35,24 +26,17 @@ HAL EE de Finlande, courrier de Russie, cahier d'Arm énie,
 | PA cahier de Roumanie, courriers de France, publiés d ans
 « HIGNAENE les trois premières séries de cahiers, se référer au
 us rues * Sixième cahier de la quatrième série, cahier de courMU. rier, inventaire des cahiers, en forme de catalogue, un
-: {RNA cahier de 72 pages, FPS CRT NUIT AIRES
 
 : EURE Nous publierons dans un cahier de la cinquième série
 
 2 s FAN le relevé sommaire des courriers publiés dans les cahiers
-#2 TS de la quatrième série. ! ne.
-
-AR MOENEEE PNR AN Lun AA Et je RGO ES FU RS
 
 _ courriers de Macédoine A l'TROS
-à 4 am Pa pa, Le + JFÈRS
 
-HER de NO RL PES PAR TES
 1 à ÿ: Nous prions nos abonnés de vouloir bien suivre sur
 - De ÿ les cartes qu'ils ont à leur disposition ; nos courriers
 seront accompagnés de cartes et de plans aussitôt que
 nous en aurons les moyens. | SAT OIESSS
-| *;:1 NUMBER
 
 Ce cahier de courriers n'est pas un livre, mais un ze
 recueil d'articles (x) écrits au cours d'un voyage hâtif *t
@@ -113,8 +97,6 @@ E 4 Désireux avant tout d'exposer des faits précis, j'ai
 1114 dû nécessairement limiter le champ de mes investiga118 tions. Je me suis occupé fort peu de la politique des
 1! Puissances. (4) Je ne me suis pas occupé du tout de la
 
-L: 1 te me Tv MeV
-
 he (2) Revue de Paris, du premier novembre 1902.
 
 HA (3) Documents diplomatiques, Affaires de Macédoine.
@@ -147,7 +129,6 @@ que pour restituer l'indéfinissable, pour essayer de à
 conserver aux choses leur couleur, aux paroles leur Y
 Je ne me flatte point d'avoir atteint à la vérité. Mais .
 le mécontentement général que j'ai provoqué m'a été f
-() Voir page 51. k
 
 l ; Maurice Kahn ï 4
 we la plus douce des satisfactions : les Turcs m'ont trouvé
@@ -179,7 +160,6 @@ Li pas absolument exacte.
 | particulier : c'est une rare fortune pour le voyageur que
 
 de rencontrer le concours eflicace et l'accueil réconfor- 144
-tant de M. Steeg à Salonique, de M. Choublier à nn.
 Uskub, de M. Gautier à Monastir. Pa,
 Je tiens enfin à dire ici un mot personnel de reconnais- 1 4]
 sance à M. Georges Gaulis, qui fut longtemps corres- W:
@@ -191,18 +171,7 @@ et les souvenirs qu'il avait laissés n'ont pas peu con LE
 tribué à faciliter mon séjour et mon travail sur cette Lo
 _ terre lointaine et si atrocement malheureuse. 4 DS
 
-| t ‘4
-
-LA ATEN AE MAP te RD EE CHAR Et
-ES PRREAUL ps ne HA Ware PERMIS à Res DRE RES HR TE
-k M A an ep TR AEE AIS CIN RAGE FA HN OU AO) AR)
-dr Et Lit DRM EN LE IRSSNE RES
-+4 | Qui A RUES CR re) : DR NÉ RPUR PA DE va
-TA PANIER din L ; PNR EEE SRE
-ER RN TON ki k He ANSE x ELA
-
 Le Temps du jeudi 12 mars, sans titre: "1
-Les réformes à Monastir “4
 
 L'opinion et les réformes. — Les bandes et l'action des, k ; 11
 avec Riza pacha. 8
@@ -256,7 +225,6 @@ arriva à Ljoubona, la bande avait disparu, et les habitants de Prototchina avai
 sans doute pour suivre la bande, dont cette journée
 aurait donc sensiblement accru la force. Le chef de la
 bande, Kotté, a été blessé; un homme tué. On dit, k.
-|
 
 d'autre part, que la bande Arsof aurait coopéré dans
 cette affaire avec la bande Kotté. (1)
@@ -419,7 +387,6 @@ jour. Un de ses secrétaires me disait : « Il en fait plus
 à lui tout seul que nous tous ensemble. » Cela ne me 4
 surprend pas : d'abord, parce que les secrétaires tra- L
 vaillent peu, — en Turquie; — mais surtout parce que j'ai 4
-vu l'inspecteur à la besogne. Je l'ai vu, assis devant ë
 une table chargée de dossiers, de cigarettes, de bois- #* 4
 sons chaudes et froides, sans cesse offertes et sans à
 — recevoir, pendant que nous causions, dix visites en À
@@ -442,9 +409,6 @@ qui paraît indiscutée, son libéralisme, qui paraît avéré. À
 Les consuls mêmes sont unanimes à déclarer que « si 4
 quelqu'un peut agir en Macédoine, c'est Hilmi pacha ». 4
 
-ne.
-
-| à ju dés ei NRA RE VUE se NS  S D A A RE PH A à ARE LL Hen à Ÿ
 Hilmi pacha est arrivé à Uskub le 13 décembre 1902.
 Depuis trois mois, qu'a-t-il fait? Qu'a-t-il l'intention de
 faire encore? Il va sans dire que si, sur le second point, à
@@ -483,7 +447,6 @@ Si vous préférez aller vous constituer prisonniers, libre
 à vous ! » Et tous se rendirent chez le chef de la police
 et se constituèrent prisonniers, persuadés qu'avec 4
 Hilmi pacha ils n'avaient aucune chance d'échapper à |
-la justice. (|
 Ce récit n'étant connu que de source turque, il m'a |
 été impossible d'en vérifier l'exactitude. Quoi qu'il en - |
 soit, il ne semble pas que la répression ait été aussi |
@@ -568,7 +531,6 @@ chef-lieu de caza par le caïmacam, dans le chef-lieu de 4
 sandjak par le secrétaire général du sandjak. Outre n.
 ces présidents de droit, feront partie de la commission: M
 
-le commandant de la gendarmerie, le chef de la police, le s
 cadi, — juge religieux, — et deux membres, l'un musulman, l'autre chrétien, appartenant au conseil administratif du sandjak ou du caza. Chaque village aura le ;
 droit de choisir son garde-champèêtre. Une fois d'accord, les villageois feront connaître aux autorités
 locales le nom de leur choix et les conditions de paiement dont ils seront convenus avec leur élu. La com- |
@@ -701,14 +663,12 @@ rantaine de piastres pour un revenu de deux mille 1
 | Je me demande comment Hilmi pacha fait son :
 compte: la dîme seule représente 12,60 0/0 de la récolte; &
 une récolte de 2.000 piastres payerait 252 piastres de |
-dîime; et il y a d'autres impôts ; et le paysan n'a de
 revenu que sa récolte, quand il la!
 
 « Et même, ajoute Hilmi pacha, voyez comme mon
 
 @ Voir note additionnelle, page 28, paragraphe 3.
 
-| ane cécité | ESS ESS
 projet favorise le cultivateur : quelle que soit sa récolte, |
 l'impôt ne sera jamais augmenté; si sa récolte augmente, il sera seul à en bénéficier. Son bonheur dépend ‘ ï
 donc de lui, de son travail... »
@@ -751,7 +711,6 @@ des ressources du vilayet n'entrait pas en ligne de compte. È
 Je n'avais pas compris. Aucun sacrifice ne coûterait à Sa —
 Majesté Impériale du moment qu'il s'agissait du bonheur 4
 de ses sujets. Mais ses sujets n'étaient pas si malheureux 4
-que ça... À
 2 3° Sur la situation du paysan (page 26). — J'avais tra- 1
 vesti la pensée de l'inspecteur. J'avais rapporté comme
 siennes des paroles qui n'étaient pas exactement les siennes |
@@ -769,7 +728,6 @@ remarque ingénue : « Vous reconnaissez que je suis un F
 homme de bonne volonté. Mais qui est-ce qui m'a choisi ? È
 Or Sa Majesté me connaît. Son choix prouve qu'elle veut
 que les réformes soient exécutées. » EJ'avais répondu par avance, LL:
-#
 
 _ Le Temps du samedi 28 mars : :
 Ce que l'on dit en Serbie ie
@@ -825,7 +783,6 @@ assez heureuses pour paraître jolies; on est en Europe : M
 il y a des fils télégraphiques et de l'électricité dans les À -
 (4) Exactement au confluent du Danube et de la Save. 4
 
-:: à à Me up oi mA OEN | MERS us Res Creuse L NET a PLANTES PNEUS CPP O TES PORT CORNE AIT RE EU
 . rues, dans les maisons, et des tramways, dont deux à Et
 trolleys ; on est en Europe : des gens vont et viennent,
 affairés, comme pour travailler, et les brasseries ne se
@@ -922,7 +879,6 @@ sont patriarchistes. Il y a cependant des exarchistes qui se disent DE: » serbe
 - bulgares, qui sont restés attachés au Patriarcat, sont revendiqués Ee
 par la Grèce et baptisés par elle « grecs bulgarophones ». &
 
-bal LA
 \ courrier de Macédoine, dimanche 22 mars 1903
 Serbie, et des Macédoniens qui sont de race serbe, ‘qui
 parlent serbe, qui veulent être Serbes. Et cette absurdité place la Serbie dans un état d'infériorité parfaite-
@@ -958,7 +914,6 @@ elle rêve d'installer à Constantinople un patriarche œcuménique M
 slave : une Eglise serbe pourrait lui servir à réaliser son rêve, par M
 absorption de l'Eglise grecque. : £
 
-AT A ea ju ee (CA NE AQU Sn nd ie pu AS
 qui fortifierait nécessairement un nouvel État Balka- \ #
 nique. La Serbie n'espère plus obtenir une Église serbe. Ÿ ,
 Elle se contente de demander, — et elle a obtenu, à é
@@ -1018,12 +973,10 @@ lait, mais que l'entente n'était pas mûre. J'ai su d'autre part que
 la question commençait à être agitée. Toutes tendances au rapprochement ont été suspendues par lès événements de Belgrade.
 
 _ Le Temps des vendredi 3 et samedi 4 avril : 1
-ÿ le
 Chez les révolutionnaires bulgares k
 L'Organisation intérieure et les comités macédoniens. ‘à
 — Sarafof et Tzontcheff. — Trois dangereux person- #
 nages : Mikhaïlowski, Tatartcheff, Radeff. — Y aura-t-il |
-une insurrection ? — Des garanties, s. v. p. Be
 
 Il y a une dizaine d'années, un mouvement curieux #
 se dessinait dans plusieurs villages bulgares de la Æ
@@ -1138,9 +1091,7 @@ aussi précise. Elle l'est aujourd'hui grâce aux événe-w
 ments des deux dernières années. 4
 Sarafof et ses amis se séparèrent de Tzontcheff, :
 
-de CHEZ LES RÉVOLUTIONNAIRES BULGARES S
  — mars 1901, — et fondèrent un second comité, sous la k
-| présidence de M. Stanicheff, — Macédonien, né à Kou- $
  mocrate, d'une honnêteté réputée, habitant Sofia où il ; ‘
 dirige les travaux du monument « au tsar libérateur ». k
 — L'Organisation intérieure et le comité dissident - à
@@ -1167,7 +1118,6 @@ nelles. Je n'ai pu voir ici que M. Mikhaïlowski, prési- #
 dent du comité Tzontcheff, le docteur Tatartcheff, ‘4
 ancien membre de l'Organisation intérieure, le pu- à
 bliciste Radeff, et quelques personnages moins en D.
-vue. Le
 
 A courrier de Macédoine, samedi 28 mars 1903
 À Au fond d'un jardin, dans une petite rue paisible, la
@@ -1420,7 +1370,6 @@ après qu'un délai de six mois laissé à la Turquie pour appliquer à
 | les réformes a prouvé l'impuissance du gouvernement ottoman et 4
 | sa mauvaise volonté, l'idée du contrôle reparaît: et c'est la Russie à
 | qui la met en avant dans un ultimatum présenté à la Porte le jeudi f
-| 20 août 1903.
 Que les partisans du contrôle ne se hâtent point de se réjouir. ps
 . Que sera ce contrôle? Comment s'exercera-t-il? Le mot ne signifie :
 rien. Il faut définir. On parle d'un contrôle exercé par les consuls. ë
@@ -1451,8 +1400,6 @@ macédo-andrinopolitain, y expose la thèse de l'autonomie. 4
 | 4
 
 Le Temps du mardi 7 avril : #4
-
-L'affaire d'Ichtip î *
 
 Le village d'Ichtip est situé dans le vilayet de Kos- k
 
@@ -1586,7 +1533,6 @@ provoquée par la bande : la troupe ignorait la présence 1
 É, de la bande. Selon la version bulgare, c'est la troupe .
 qui aurait attaqué la bande : la troupe serait venue, ;
 
-È sachant la présence de la bande et dans le but de la
 chasser. Les Turcs se plaignent des bandes qui, disent-
 
 | ils, continuent leurs menées. Les Bulgares se plaignent .
@@ -1607,10 +1553,7 @@ que l'autorité les en a empêchés.
 
 ; Il est probable que je ne serais pas plus heureux.
 
-| ie Ex
-
 Le Temps du jeudi 9 avril: 1 a
-En wagon Le
 Entre Sofia et Nisch, j'ai voyagé, l'autre jour, avec * 4
 un Français établi à Constantinople et un commerçant à
 bulgare de Sofia. Comme par hasard, il fut question ei
@@ -1677,12 +1620,10 @@ pour la Bulgarie d'un intérêt vital. Voilà pourquoi nous }
 réclamons le règlement de cette question, selon la jus- ë
 tice, et d'une manière définitive, qui nous mette à l'abri = x
 des révolutions. Je ne suis, moi, ni un révolutionnaire, ,
-ni un chauvin, ni un idéaliste; je suis un commerçant; ss
 je suis un esprit pratique; je veux le bien de mon pays, 4
 non par des conquêtes, mais par le seul moyen eflicace, 5
 le développement économique. Je ne crains pas de le ‘4
 répéter, la question macédonienne est une question "
-économique. Le
 — Je vous demande la permission de: corriger votre Le:
 
 à courrier de Macédoine, dimanche 5 april 1903
@@ -1695,7 +1636,6 @@ ti connais pas l'importance du sentiment patriotique, ni
 L rallié à leur cause les esprits positifs, les commerçants,
 #4 les financiers, les gens pratiques, comme moi, si le fond
 à de la question n'était pas une question purement pra-
-#1 tique. 5
 : Ë Le Français établi à Constantinople intervint alors et,
 à s'adressant au Bulgare, lui dit :
 4 — Il me semble, monsieur, qu'il y a dans votre thèse
@@ -1718,7 +1658,6 @@ draient des places en Bulgarie. Si cette statistique est 4
 | vraie, — et les chiffres peuvent être exagérés, l'affluence !
 des émigrés macédoniens en Bulgarie n'est pas dou58 È
 
-LE Li a gp de A A PR
 teuse, — on conçoit que l'intérêt de la Bulgarie soit ; 4
 d'obtenir pour la Macédoine un régime permettant aux A
 Macédoniens de gagner leur vie en Macédoine. 1
@@ -1738,10 +1677,8 @@ Ils échangèrent des cigarettes : le Bulgare fuma du #1
 tabac turc, le Français du tabac bulgare. Puis ils restè- nu
 rent quelque temps silencieux. n
 Le Français, se tournant vers moi, me demanda tout 1
-à coup : de
 — Êtes-vous allé à Constantinople? ‘4
 — Pas encore. En
-— Il faut y aller. 4
 ‘ — Vous verrez que là encore ce sont des intérêts ‘4
 économiques et surtout financiers qui dominent la ni
 question. L'Europe ne veut pas de réformes, c'est bien PA
@@ -1753,19 +1690,14 @@ ts courrier de Macédoine, dimanche 5 avril 1903
 k É : : Vous êtes un idéaliste, ça se voit, rien qu'à vous re4 garder. Les Français de France sont tous comme vous.
 (3 Quand on a voyagé, surtout quand on a séjourné à
 : l'étranger, on change, on voit clair. Allez à ConstanLe tinople, on y soigne très bien l'idéalisme !
-te Je ne crus pas nécessaire de protester, ni de dé-
 4 tromper mon compatriote. Son discours d'ailleurs me
 ss semblait parfaitement raisonnable. Et je regrettai de
 +4 constater que, le train arrivant à Nisch, il me fallait
-Fe Je descendis. .
-
-|
 
 Le Temps du mardi 14 avril : a
 Une après-midi à Mitrovitza à 3
 Doux pays. — M. Chtcherbina. — Mitrovitza. — La troi- ÿ 54
 sième commission. — Un tour dans le quartier serbe. — Ce. 4
-L'hôtel Risto. bi;
 Le train qui d'Uskub conduit à Mitrovitza part à $
 d'Uskub tous les deux jours seulement, — lundis, mer- 7%
 _ credis, vendredis, — et de Mitrovitza tous les deux jours ke ï
@@ -1870,7 +1802,6 @@ voitures de Mitrovitza attendaient à la gare. Comme s
 de juste, ce furent les membres de la commission qui y à: | à
 furent introduits avec leurs invraisemblables bagages. F ;
 Une quinzaine de cavaliers les escortèrent. Puis l'in- 4
-| 63 # *
 
 “3 courrier de Macédoine, mercredi 8 avril 1903
 £ fanterie défila. Elle défila même fort bien, à l'alle2 mande, en levant la jambe très haut, en articulant
@@ -1902,7 +1833,6 @@ M. Chicherbina reste stationnaire, et que les complica- M
 tions sont toujours redoutables : « Pronostics absolu- |
 (1) Le consul russe est mort quatre jours plus tard. n À
 
-oi UNE APRÈS-MIDI À MITROVITZA ‘4
 5 Quittant le consulat, nous nous rendons au point j #3
 où fut commis l'attentat : c'est sur une route en contre- à s
 fort, déserte et gardée par un poste. La sentinelle, M
@@ -1955,7 +1885,6 @@ modeste, Baïram-Tsour, Albanais, ancien brigand dont « À on a fait un colonel
 11 de l'Autriche ; on affirme qu'il a rompu avec cette Puis-
 ; sance et qu'il est maintenant en rapports avec la 4
 Russie. Baïram-Tsour a déjà fait partie de la deuxième
-3 commission; il arrive de Constantinople où il a, M
 paraît-il, été reçu en audience par le Sultan. Voici, M
 enfin, assis à la turque, les jambes croisées et sa taba- À
 tière à la main, Youssouf effendi, uléma, un des aumô-
@@ -2060,14 +1989,7 @@ est un palais. Mais il paraît qu'à côté de ce qu'on K
 trouve à Prizrend et à Prichtina, Mitrovitza est un à
 . pays béni. Alors il ne faut plus rien dire. {
 
-G RES ORNE) ne AE UE De LA HAE EE Poe
-MALE de MARÉES pie 7 * RATER 16 AD
-ATOS [ SAN HER ce
-
-à pi ii ii Si vi ii ji Hs ie Te À CNE LS fai de
 Le Temps du samedi 18 avril: 1
-Les bandes |
-#
 Depuis quelques jours on entend beaucoup parler 1
 des bandes. Les rencontres deviennent plus fréquentes. ë Fe
 Des bruits inquiétants circulent: la date de l'insurrec- Ci
@@ -2119,7 +2041,6 @@ jusqu'à présent peu nombreuses, peu fortes, et peu ;
 agissantes ; il semble qu'elles se bornaïent à traverser
 le pays pour se rendre vers un autre point, Où à Se
 cacher en attendant le moment d'entrer en ligne; les Ÿ
-#
 
 rencontres avec la troupe étaient accidentelles et, à 4
 autant qu'on en peut juger à travers les versions con- 4 4
@@ -2198,7 +2119,6 @@ lépé, Okhrida, Resné, Kastoria, etc. Dans toute cette )
 
 région les bandes sont très nombreuses, assez fortes, ‘
 
-LES BANDES | te
 et soutenues par les habitants à la suite d'une pro- ;
 pagande très vigoureuse. La plupart des villages sont à
 gagnés à la cause, et, dans les rencontres avec la 4
@@ -2218,7 +2138,6 @@ nière d'agir des comités et n'accordera aucune protection "14
 . a été adressée aux membres des comités qui ont été j
 . invités à cesser leur activité criminelle et à ne pas F
  entraver l'application des réformes proposées par les f
-| Puissances. »
 _ Le consul de Russie jouit à cet égard d'un privilège |
 . que tous ses collègues doivent lui envier et dont il est 2
 … permis de s'étonner ; car de deux choses l'une: ou les À
@@ -2249,18 +2168,14 @@ FURERS paroles de sagesse, pas même ceux dont la voix auto-
 :ABPE risée, et notoirement désintéressée, pourrait courir la
 - chance d'être écoutée sans suspicion.
 
-L se HR
-RARE NES) ET ee NN te Te SA ND Ce TEL RE 7 CUS ÉTRE
 _ Le Temps des vendredi 24 et jeudi 30 avril, et
  mardi5 mai: tes , PEN PRU OR
-Le fond de la question HT
 kL Insécurité et misère. — Une maison à une heure d''Uskub. Re:
 _ — Le marché de Sofia. — Diflicultés d'une enquête. — 4
 a Grande et petite propriété. — Trois modes d'exploitation. 5.0 GE CRE
 — Un bail entre propriétaire et ouvriers, Monastir. — RATÉ
 _ Concurrence et émigration.— Transformation de la pro- : We
 ri tées. — Les charges d'un village. — Le budget d'une ER.
-| famille. — Conclusion. A? 512
 _ Le Parisien qui arrive en Macédoine éprouve, dès LS
 … labord, une déception : il est venu pour voir des mas- CU.
  sacres, des « atrocités »; et il ne voit pas de mas- SR
@@ -2320,7 +2235,6 @@ accompagnaient étaient bien nécessaires. Mon amour- k
 
 F propre me persuade aisément que c'était là une escorte 5
 # d'honneur tout simplement, dont on a voulu flatter nos 5
-| personnes ! ÿ
 K Parlons sérieusement. Il n'est pas impossible de î
 1 rétablir la sécurité dans ce pays, tout au moins d'y
 - diminuer l'insécurité. Que, dans les montagnes, tant que 3
@@ -2388,7 +2302,6 @@ la porte, des têtes de coqs sont pendues. Je demande
 
 80 4
 
-|
 la signification de ces emblèmes : « C'est, me répond-on,
 pour préserver la maison des esprits. » Î
 Un peu plus bas, une porte de bois ouvre sur une À
@@ -2459,13 +2372,11 @@ Une enquête sérieuse sur la situation du paysan macé- À
 2 Le revenu brut du travail agricole selon les diffé:
 rentes régions et selon les différents modes d'explois
 
-LE FOND DE LA QUESTION id F
 3° La répartition de l'impôt, en droit et en fait, par LA
 villages, par familles, par individus. ET eo
 . Ces trois points éclaircis, on obtiendraït aisément le } de
 revenu net du travail agricole. Mais ce n'est pas chose ÿ
 facile que d'éclaircir ces trois points. :
-La valeur et la distribution de la propriété foncière ne (à
 sont établies qu'approximativement par des semblants ! , \
 . de cadastres qui servent à fixer pour chaque propriété à
 la taxe de l'impôt foncier. Les brigades chargées de &
@@ -2494,7 +2405,6 @@ tervention d'un drogman. De toutes façons il faudrait 4
 courrier de Macédoine, mercredi 15 avril 1903
 k disposer de plusieurs mois, être assuré du beau temps
 et pouvoir, en toute sécurité, se hasarder à l'intérieur
-du pays. y ;
 Je n'ai pu faire cette enquête, comme je conçois qu'elle
 devrait être faite. Mais qui le pourrait, surtout en ces
 temps troublés? C'est profondément regrettable : une ;
@@ -2525,7 +2435,6 @@ extraits de ses notes, dans lesquels j'ai puisé une partie des renseignements q
 >. Cette observation nous amène à dire un mot des trois ; ;
 . modes d'exploitation en usage. Ce sont: ; :
 lexploitation directe de la terre par le propriétaire ; .
-le métayage ; #4
 l'exploitation par le travail d'ouvriers. à
 L'exploitation directe n'existe que pour la petite pro- a
 priété. Le plus souvent elle est faite en commun par 3]
@@ -2552,7 +2461,6 @@ tiaux et des instruments de labour. Le propriétaire su
 | fournit le terrain et la semence. Le métayer laboure, E
 | sème, récolte et bat. La récolte faite, on prélève la dime. LS
 Puis, on retire, — ou on ne retire pas : c'est selon conven- EE
-| 85 EX
 
 \ courrier de Macédoine, mercredi 15 avril 1903
 tions, — la semence pour l'année suivante. Et le reste est
@@ -2575,14 +2483,12 @@ vail de quatre hommes, et à leur volonté celui de leurs À
 | femmes et enfants, pendant un an, le propriétaire 1
 i 1 kilé de blé, le kilé représente environ 30 kilos, éva- ;
 4o kilés de maïs, à 12 piastres le kilé . . . 480 — .
-k 4o kilés de seigle, à ro piastres le kilé. . , 4oo — 4
 une somme en espèces de 55 piastres. . . . 55 — Si
 55 kilos de sel, à 30 paras, soit 3/4 de 4
 16 paires de tchareks, chaussures en peau fi
 de bœuf, valant 5 piastres pièce . . . .: ce 80 — F
 Total pour {4 personnes . . . : . . 1.600 piastres 1À
 
-| LE FOND DE LA QUESTION e
 Soit pour chaque chef de famille, 400 piastres, c'est-à- <
 : dire moins de quatre livres turques, environ 88 francs.
 Les quatre chefs de famille reçoivent, en outre, du
@@ -2599,7 +2505,6 @@ rarement le cas du paysan macédonien. Conséquence :
 la dette usuraire ou la dette envers le propriétaire,
 dont on n'arrive jamais à se libérer; et, par suite,
 éternité de l'esclavage aux maigres conditions qu'on a
-| vues.
 | [Ces conditions tendent à devenir de plus en plus
 | maigres à cause de la concurrence. Ce n'est pas en ;
 à Macédoine que l'agriculture manque de bras. Tout le ;
@@ -2610,7 +2515,6 @@ La concurrence produit une baisse continuelle du prix È
 de la main-d'œuvre.
 Une autre conséquence de cet état de choses est « 5 l'émigration, considérable. Les paysans macédoniens
 4 quittent leurs villages pour s'employer temporairement ;
-4 en Roumanie, en Bulgarie, à Constantinople. Ils y :
 4 sont mieux payés. N_
 
 courrier de Macédoine, mercredi 15 avril 1903
@@ -2644,7 +2548,6 @@ le Temps, quoique le titre en soit mentionné au sommaire. Il était 1
 un peu plus développé. Je l'ai rétabli de mémoire, 1
 88 4
 
-did d'in PAS AE HS RS Hot A Ga dE DS sé Nr te APPLE, À pee FT
 Y pères ; la condition des propriétaires peut s'améliorer Fr.
 et, par suite, celle des ouvriers. à
 _. La disparition de la petite propriété et celle du &e)
@@ -2710,11 +2613,9 @@ vilayet de Kossovo, compte cent cinquante maisons, ce F
 
 qui représente une population d'environ sept cents habi- h 5
 tants. Le total des impôts payés par ce village monte à a
-530 livres turques, — 12.031 francs, — dont 125 livres, Le
 — 2.837 francs 50, — pour l'impôt foncier, et 185 livres, #
 Ajoutez à ce total la charge de sept Albanais, qui se n
 font payer leur indulgence entre 8 et 20 livres par an, #
-en espèces ou en nature. PAR.
 Et notons une manière originale de percevoir la dîme ê
 sur le foin. Le dîmier déclare vouloir être payé en es- €
 pèces : il prélèvera une oque sur 7 oques 3/4, — ce qui, ie
@@ -2742,12 +2643,8 @@ e courrier de Macédoine, mercredi 15 april 1903
 ® : une ferme voisine.
 k Voici le budget de cette famille :
 j Exploitation des champs, vignes, arbres fruitiers,
-k Délais ee OU INR. TE TÉTPORESMERTER
 s Salaire du travail des deux frères. . . . . . . . 690 »
-| Autres travaux divers. 4 2 4.0... 109 25
 | Nourriture, — dont 581 francs pour la farine , . . 896 »
-Kclairaweieb Chauitage | MR ACTUS TES 63 »
-| Cnliw er medergn.#" 0). 72/6) 11/01 CES 15 » F
 Nourriture des animaux >. 0.7 LE. SE gÿ » ;
 : Voilà donc un revenu de 1.816 francs qui paye 4
 1 272 francs 40 d'impôts. (1) Le détail de ces impôts est
@@ -2756,20 +2653,16 @@ Nourriture des animaux >. 0.7 LE. SE gÿ » ;
 macédonien, plus haut, page 26. ' 14
 
 1 Imipotspeciak sun id) vigne). sit SANS 37 60
-| -— — À Le; A5 0 ENNNMEONE 4 Dante se Gone a ï
-— _— TO PART ei UN nent 1 40 ÿ
 Impôt spécial sur animaux, — un cochon, . .. 1 40 A
 | Capitation, —exemption du service militaire payé à
 \ par tous les chrétiens de quinze à soixante- é
 ‘ dix ans, — et prestation, — impôt pour l'entre- PAS
-| ar GS en AN RTE OR Re Le 69 » 5
 Redevance au maire, sur laquelle est prélevée ï
 l'allocation du garde-champêtre . . . . . . . . TA à
 Nourriture et entretien de gendarmes traversant
 Cotisation exigée par les comités révolutionRARES DUIPArES tea Nb a PRES 34 50 di
 Impôt foncier sur une vigne qui n'appartient
 plus à la famille et qui est entre les mains d'un W
-LE re cn STARS AMENER Au PR OA HIS AU 4 »
 | Et encore une fois cette famille est parmi les favori- V5
 sées : elle habite à quatre kilomètres d'Uskub ; elle est 1
 à l'abri des incursions albanaïses ; elle est soutenue par k
@@ -2792,8 +2685,6 @@ demande avec anxiété quelles « réformes » pourront suf-
 le paysan macédonien est, au fond, une question de
 pain. Et c'est son côté le plus intéressant. Et c'est celui
 qui intéresse le moins. ;
-|
-|
 Un intervalle d'un mois sépare cet article de l'article
 suivant. J'ai passé trois semaines de ce mois à Constan- ‘1
 tinople. C'est alors que je recueillis les éléments du cahier 1
@@ -2804,8 +2695,6 @@ avons préféré le réserver, puisqu'il trouvera sa place dans Li
 ces Impressions de Constantinople. À
 
 SE. pe ( es] 28 mat et mardi 2 Juin Hier e 10
-Ê Les attentats de Salonique # k.
-je _ Les responsabilités. — La répression. el h:
 Il y a quinze jours quese sont produits ici les effroya- (ANNEE x
 bles attentats à la dynamite; et, bien qu'on voie un vas 4
 peu plus clair que le premier jour dans la situation, il - 5
@@ -2825,7 +2714,6 @@ a envoyé des ingénieurs chargés d'exécuter les tra- 4 +
 _ vaux. Et l'agence commerciale de Bulgarie aurait été 0
 ici le centre du complot. 4
 _ Cette hypothèse turque accumule les ifyraisem- 44
-| ARE 41
 
 courrier de Macédoine, vendredi 15 mai 1903
 ; blances. Il faudrait pour qu'elle fût plausible que l'on
@@ -2854,7 +2742,6 @@ l'inspiration unique de l'Organisation intérieure. Mais,
 # ; bombes étaient employées comme accessoires; ailleurs, à
 des ponts avaient sauté, mais la dynamite n'avait pas M
 | encore joué le grand premier rôle dans la tragédie ë
-| macédonienne.
 
 De ce début éclatant, les Bulgares infèrent qu'aucune relation n'a jamais existé entre le groupe anarchiste de Salonique et l'Organisation intérieure, dont
 la tactique insurrectionnelle est, en général, différente.
@@ -2862,7 +2749,6 @@ la tactique insurrectionnelle est, en général, différente.
 (1) M. Schopoff est en relations très suivies avec l'exarque, monseigneur Joseph, lequel est beaucoup trop habile pour compromettre ;
 l'Exarchat, et ainsi la Bulgarie, par de louches intrigues, |
 
-no A EU a dE A AS ANNEE Vs Ye
 C'est une conclusion bien précipitée, bien absolue, et #
 aussi entachée de partialité que l'affirmation turque. F4
 La vérité me semble être, comme elle est presque +6
@@ -2895,8 +2781,6 @@ comités bulgares, Sarafof aurait eu avec eux des rela- à
 Je suis loin d'attacher à ces faits une importance D ÿ
 j très considérable. J'y vois cependant une indication, peu 1}
 nette, mais qu'on ne saurait négliger, et d'oùÿgconclus, 4
-
-| 97 « | VI |
 
 D: courrier de Macédoine, vendredi 15 mai 1903
 À simplement, que l'existence à Salonique d'un groupe
@@ -2991,13 +2875,11 @@ douane, laisse entrer, par la douane du port de Salonique, trois gros barils pes
 mais dont on ne trouve aucune trace-sur les registres À
 de la douane? )
 
-“+ ET Drm ve MAT Sr Ur + :
 Le caractère flottant de la population bulgare de ETS #
 
 __ Salonique n'est pas la seule raison qui a pu déterminer Me.
 __ les dynamiteurs à choisir Salonique pour champ de A $
 __ leurs exploits, de préférence à toute autre ville macé- .
-| donienne. DUR
 Salonique est un grand centre européen. On y parle °À
 beaucoup la plupart des langages européens; le français 12
 surtout, et l'espagnol, mais aussi l'italien et l'allemand. : & K
@@ -3078,7 +2960,6 @@ douteux. En tout cas ils ne sont point groupés comme à Uskub. È
 M. Bérard parle d'un quartier mohadjir. Je n'ai jamais entendu S
 parler d'un quartier mohadjir à Salonique. Des consuls que j'ai #É
 interrogés sur ce point m'affirment également p'eu avoir jamais Se
-ont
 
 | courrier de Macédoine, vendredi 15 mai 1903
 tement échoué. Il n'y a pas eu, à Salonique, de ces
@@ -3112,7 +2993,6 @@ comportés: furent seuls tués les dynamiteurs pris la :
 bombe à la main, ou ceux qui, arrêtés, résistaient à
 d'une manière menaçante. 1
 
-#e 1H EE LES ATTENTATS DE SALONIQUE . ie
 Mais la police se montra en cette circonstance infé- L.
 _ rieure à elle-même, si tant est que ce soit vraisem- £. is
 _ blable. Elle avait prouvé, avant l'événement, une : 7
@@ -3163,8 +3043,6 @@ l'opération. Je crains que Hilmi pacha n'ait conservé
 
 quelques illusions que j'ai perdues.
 
-: Et pourtant, je n'ai pas eu, personnellement, à me
-
 É plaindre de la police turque. J'ai pu, au cours de mon
 
 ï voyage, apprécier la bonne grâce de plusieurs agents.
@@ -3192,7 +3070,6 @@ attendait des ordres qui n'arrivaient pas, obtint l'au- J
 | PAR de m'emmener au konak chez le chef dela 4. à
 _ police. Après nos explications et quelques mots de . E Es
 protestation, ce haut fonctionnaire me faisait mettre Su ER ï.
-en liberté, en s'excusant de la méprise. SPAM 4
 Un journaliste américain fut, pendant la journée du î 8
 30 avril, arrêté, conduit au poste, attaché et légèrement 5-0 T2
 passé à tabac. Il riait, paraît-il, et s'exclamait: Funny ! "| SR
@@ -3209,14 +3086,6 @@ Elle les traite en invités. Elle réserve ses rigueurs À
 | pour les raïas ottomans qui, à cet égard, sont vrai- *
 ment bien partagés. cl
 
-#
-
-LAN € PUR CV ra gr F1 VE A er 4 ete FT VU 7 OUT CIEL EX i ra
-TENTE à à N'a C et i JR EURE tv en F
-ANR l A Hey Lan PRISE
-
-L LU ME 4 te NO TRE) BP RL ARE USS PIRE
-Tes l NOTE BIBLIOGRAPHIQUE k FEU Fi
 | . La bibliographie de la question d'Orient est considé- MALE
 ] Fab e. Je cite seulement les ouvrages les plus récents se EE 4
 rapportant directement à la question macédonienne et LEN La
@@ -3224,7 +3093,6 @@ rapportant directement à la question macédonienne et LEN La
 _ Livre jaune, affaires de Macédoine. — Paris, 1903. L' s
 414 Max CnougLier. — La question d'Orient depuis le traité ex
 _ de Berlin. — In octavo, Arthur Rousseau. Paris, deuxième de
-| _ édition, 1899. °
 LT Voir les chapitres net mr de la deuxième partie, ù à
 ‘144 intitulés : Le développement de la nation bulgare, se
 Et. La Turquie d'Europe (question macédonienne); et ot
@@ -3244,7 +3112,6 @@ y sont traitées depuis leurs origines en 400 pages.
 | la question macédonienne, voir la troisième partie,
 Vicror BéRarDp. — La Turquie et l'Hellénisme contem-
 Vrcror BérArD. — La Macédoine. — In-18, Colin. Paris,
-CxarLes Moravirz. — Les finances de la Turquie. — In
 Contient des renseignements intéressants sur l'administration turque.
 | GrorGes GAuzis. — La question de Macédoine. — Pages |
 Gzorces GAuLIS. — Bulgarie et Macédoine. — Revue de |
@@ -3255,23 +3122,14 @@ Vicror BérarD. — La Macédoine. — Revue de Paris, du |
 P. ARMINJON. — La protection religieuse dans l'empire
 ottoman, — Revue de Paris, du 15 avril 1903.
 
-| EL PR Pet Er CA REA
-| FRÈEs _ IV. — Ouvrages de propagande FN MÈRE
 40 Oréicorr. — La Macédoine au point de vue ethnogra- PE 1
 Be, phique, historique et philologique. — In-16, Constantinople,
 3 Point de vue bulgare. {1 ne à
 pa à _ GorcEvIcz. — Makedonien und alt-serbien. — In quarto. ne
 eo: #3 _ Point de vue serbe. LLC
-à Ne À A nat CR
 D à Point de vue grec. Re
 
-{ et Re EX are
-ON ra OY"
-
-+15 RENAN 7e L'an ; s Fe CA FA PNA or RO TRS
-#1 re NS
 44 Ce cahier de courriers n'est pas un livre. ...... 5
-\ FES Les RÉFORMES À MONASTIR / 4 FRE
 
 #7 L'opinion et les réformes. — Les bandes et 4 Fa
 l'action des comités. — Lenteurs adminis- n (SET
@@ -3280,11 +3138,9 @@ tratives. — Conversation avec Riza pacha, u "NA
 x L'Organisation intérieure et les comités K #4
 macédoniens. — Sarafof et Tzonicheff. —
 une insurrection ? — Des garanties s. v.p. 37. 16
-PA L'AreARE D'Icnrrp le ht... ..:.. | CORNE
 Al Doux pays. — M. Chtcherbina. — Mitrovitza. 328
 E — La troisième commission. — Un tour dans ru & sf
 HA - le quartier serbe. — L'hôtel Risto . . ... 61
-fs LA Fa PE va:
 
 courriers de Macédoine |
 Insécurité et misère. — Une maison à
@@ -3295,5 +3151,3 @@ ouvriers, Monastir. — Concurrence et émi- :
 gration. — Transformation de la propriété. —
 Travaux nécessaires. — Améliorations projetées. — Les charges d'un village. — Le d
 budget d'une famille. — Conclusion . . .. 97 <a
-* Les ATTENTATS DE SALONIQUE
-Les responsabilités. — La répression. . . .. 9ù |

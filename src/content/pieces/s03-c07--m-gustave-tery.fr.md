@@ -41,7 +41,6 @@ Nous avons donné le bon à tirer après corrections a...
 Ù pour deux mille six cents exemplaires de ce sixième AL:
 | cahier le samedi 28 décembre 1901. +4
 
-dns Se ne) Re AERPRe RSS %
 _Nous mettons ce cahier dans le commerce; nous le
 ù - vendons un franc. QE
 à Pour la représentation nous en vendons
@@ -52,7 +51,6 @@ e Nous avons publié un dossier de l'affaire Hervé dans
 4 # le quinzième cahier de la deuxième série. — Mémoires
 | et dossiers pour les libertés du personnel enseignant
 
-# CHARLES GUIEYSSE. — Les Universités populaires j
 et le mouvement ouvrier 1 franc Ù
 34: Nos Cahiers sont édités par des souscriptions men- à
 ka suelles régulières et par des souscriptions extraordi- à
@@ -68,7 +66,6 @@ et des abonnements de propagande à huit francs.
 Æ Le prix de nos abonnements ordinaires est à peu près
 égal au prix de revient: le prix de nos abonnements de
 > propagande est donc très sensiblement inférieur auprix
-* de revient. P=
 : Nous ne consentons des abonnements de propagande
 Fe que pour la France et pour la Belgique. : : “+
 Nos cahiers étant très pauvres, nous ne servons plus
@@ -98,7 +95,6 @@ SRE représente celte image d'après le texte. De quel droit
 Dre Naturellement l'auteur n'en savait rien et ne s'en «
  aperçut que quand le livre apparaissait aux galeries nn
 2 a de l'Odéon. Il faut pourtant respecter la liberté de
-D l'auteur. « cg
 , 54 Je conseille d'acheter en temps utile du second tirage.
 # À On ne sait pas jusqu'où peut aller le zèle d'un éditeur, À Æ
 4 quand il est éditeur d'art. : %
@@ -272,7 +268,6 @@ Avec quelques journalistes, j'attendais depuis une
 heure au ministère la sortie des juges. Dès qu'on
 ouvrit les portes de la salle où délibérait le conseil,
 nous entrâmes et j'allai tout droit vers Gustave Hervé.
-A mi-chemin, je rencontrai M. X. et je l'arrêtai au
 passage pour lui demander — tu devines avec quelle
 
 | C'est alors que M. X., en me serrant la main, eut la
@@ -340,7 +335,6 @@ table, l'avant-veille de la séance; et je lui lus le lendemain ma chronique, po
 fidèlement développé son « argument ». J'étais prêt à
 biffer, en écolier docile, toutes les phrases qu'il jugerait
 inopportunes. N'est-ce pas justement cet article-là qui
-4 m'a valu le coup de boutoir de M. X.?
 
 Et toi, par là-dessus, voici que tu m'appelles
 Dictateur ! A ce mot, Lapicque s'est écrié
@@ -591,7 +585,6 @@ mot, c'est tout notre souci,
 ? socialiste. Et Jaurès, qui laisse à tous ses collaborateurs
 \ l'entière liberté, qui nous laisse à tous le droit de dire ici
 
-| RÉPONSES PARTICULIÈRES
 toute notre pensée, me permettra d'observer que, de la belle
 œuvre dont il est le collaborateur principal, une seule
 chose me paraît fâcheuse : le titre.
@@ -615,7 +608,6 @@ je retrouve toute ma liberté pour répondre à votre pre- -
 mière question et vous conseiller de lire attentivement
 l « Histoire socialiste ».
 
-Les catalogues de la « Bibliothèque socialiste » et de la
 Société nouvelle de librairie et d'édition (17, rue Cujas), de
 la Librairie de propagande socialiste (31, rue Croix-desPetits-Champs), de la Bibliothèque ouvrière socialiste
 (12, rue du Commandeur), de la Librairie des Cahiers de la
@@ -781,7 +773,6 @@ nommée au temps de l'affaire. Nous ne voyons pas des
 qu'il y a un nombre incroyable de Mac-Mahon, ducs
 de Magenta, parmi nos chefs.
 
-| RÉPONSES PARTICULIÈRES
 $. — J'ai dit que nos chefs nous faisaient battre d'un
 cœur léger. Il y paraît au ton même de Téry. Ce n'était
 donc pas sibyllin. Cette affaire me passionnait tant que
@@ -930,7 +921,6 @@ devant ce désastre.
 $. — Je n'exige pas que Téry se rappelle exactement
 son texte. Je demande qu'il ne fasse pas valoir sa
 mémoire inexacte contre ma mémoire exacte.
-$. — Je n'ai pas dit, je n'ai pas pu dire ce que l'on me
 fait dire. J'aimerais mieux qu'il aflirmât simplement ne
 pas l'avoir dit. Pu dire apporte un renforcement de
 justification qui nuit au contraire à la simple justification, en la démontrant incomplète, incertaine.
@@ -965,7 +955,6 @@ $. — Je crois très volontiers que Téry a fait de
 Téry est très agissant. J'aimerais mieux qu'il fût
 homme d'action.
 $. — Il fallait défendre Hervé contre lui-même, contre
-R ‘Son propre entraînement.
 $. — J'admets parfaitement la traduction : C'est Hervé
 lui-méme qui le voulait. Elle ne va pas contre mon
 ; texte. Il est littéralement vrai qu'en un sens Hervé
@@ -975,7 +964,6 @@ lui-méme qui le voulait. Elle ne va pas contre mon
 \f modé. Au fameux banquet, il a reçu un sonnet dans j
 1 l'estomac. Comme un sous-préfet en tournée de revision.
 Ÿ Ce n'est pas l'auteur du sonnet que je blâme. C'est le
-| destinataire.
 
 $. — L'Aurore. Pressensé a beaucoup loué Hervé,
 sans l'écraser. Je ne suis pas suspect d'aimer Gobhier.
@@ -1038,7 +1026,6 @@ $. — Oui je les demande et n'ai que trop attendu. Si
 le crois. Qu'aurait dit Téry si j'avais demandé ces
 | comptes plus tôt ?
 ) $. — Mes formules étaient claires, pour qui entend le
-# français.
 
 ‘ $. — Basile. Nous devons laisser aux quotidiens ce
 moyen de polémique.
@@ -1049,7 +1036,6 @@ de réflexions que j'ai faites aux cahiers. J'ai publié
 | plusieurs de ces réflexions. Je publierai le reste. Je suis
 Hervé a-til aussi rapporté à Téry et à la Petite
 | République tout ce qu'il m'a dit aux cahiers de la Petite
-A République et de Téry, et s'il a tout rapporté, l'a-t-il
 fait sur le ton tragique ou plaisant, qui ne blessent pas,
 comme la bouffonnerie de l'esclave antique, ou sur le
 ; ton sérieux, qui touche.
@@ -1072,7 +1058,6 @@ K j'en aie honte. Mais je hais la pose comme un vice
 $. — Je hais la peur du ridicule comme une grande
 $. — L''inculpation d'arrivisme. J'ai longtemps dit que ”
 je me demandais si Téry était un arriviste. J'affirme
-s à présent qu'il en était un, et qu'il arrive, qu'il est à
 arrivé. Comment ! dans une affaire où se jouaient les
 | plus grosses libertés, au lieu de faire son devoir à sa
 place, comme nous, parmi nous, il a tiré sa fantaisie à
@@ -1085,7 +1070,6 @@ de l'instruction publique. Et il me demande, mon pauvre
 $. — Défiance. Que Téry se rassure. Ce n'est pas
 encore par la défiance de ses chefs que ce peuple
 pèche. Il pèche par la méfiance de la vérité désagréable.
-$. — Ostracisme. Que Téry se rassure. On a pu
 ostraciser un Jaurès. On ne peut pas ostraciser un jour-
 : naliste qui fait de la démagogie anticléricale. En France
 le cléricalisme et l'anticléricalisme sont les seuls qui
@@ -1130,7 +1114,6 @@ la Chambre. Il y a quelques députés qui ne sont guère
 atteints du mal parlementaire, au moins en ce sens
 M. Paul Guieysse, M. Vazeille. Et il y a des quantités
 innombrables de parlementaires qui ne sont pas
-$. — Il ne méprise pas le parlementarisme. Il a de la
 santé. Moi aussi. Je ne redoute que le mal parlementaire.
 $.— Il ne se sent pas encore de taille à tenir dignement
 son rôle à la Chambre. Pourquoi s'est-il senti de faille
@@ -1261,7 +1244,6 @@ demandaient. Je l'ai demandé à Hervé. Un abonné nous l'envoie de l'Yonne. Ce
 le Travailleur Socialiste de l'Yonne, Organe de la
 Fédération des Travailleurs Socialistes du Département, paraissant le samedi matin, numéro du samedi
 
-Mon cher Péguy, &
 Je viens de lire la lettre que M. Téry vousa
 envoyée et que vous m'avez communiquée. Je ne
 veux y relever que le passage relatif aux termes de
@@ -1269,7 +1251,6 @@ la conversation très courte que j'eus avec lui, le
 soir du 6 décembre, et que vous avez relatée, d'après
 moi, dans un de vos récents cahiers.
 M. Téry prétend que j'ai mal compris sa réponse.
-Qu'il la regrette, je le comprends. Qu'il cherche à
 l'expliquer, c'est son droit. Je sais seulement que
 ma mémoire ne m'a pas trompé, et qu'il s'est bien
 servi des termes mêmes que je vous ai répétés. Ils
@@ -1337,7 +1318,6 @@ feu de paille avait tué presque autant d'hommes que le
 feu du combat. » (Mémoires de Marbot)
 ; Le soir plus de 20.000 hommes restaient couchés sur
 
-Per LE TE SRE
 | le terrain, éventrés, décapités, rôtis ou blessés,
 20.000 hommes jeunes et pleins de vie, qui avaient des
 pères, des mères, des sœurs, des amis, fauchés en douze
@@ -1430,11 +1410,9 @@ témoignage que nous publierons.
 C'est une étrange et longue guerre
 que celle où la violence essaie d'opprimer la vérité. Tous les efforts de la
 violence ne peuvent affaiblir la vérité
-à et ne servent qu'à la relever davantage.
 Me voici condamné par les tribunaux universitaires,
 révoqué définitivement et, cette fois, sans le moindre
 Comme à dix-huit ans, je suis à la recherche d'une
-| position sociale.
 Que faire ?
 Prendre un métier manuel? Quand on vit dans les
 livres depuis l'âge de dix ans et quand on s'y est usé
@@ -1451,7 +1429,6 @@ et en toute indépendance, nos doctrines socialistes : or,
 je ne suis pas près de trouver cet oiseau rare.
 Accepter un mandat lucratif, devenir un politicien de
 métier, briguer un siège de député? La proposition
-| A NOS AMIS DE L'YONNE
 m'en a été faite de plusieurs côtés. Il paraît qu'il y a
 au moins cinq circonscriptions électorales qui se disputent l'honneur de me nommer... ou de me blackbouler
 au mois de mai prochain. Je suis extrêmement flatté de
@@ -1507,7 +1484,6 @@ Qu'on se rassure ! Je n'oublie pas l'importante question du viatique ; je ne m'e
 comme disent les marins bretons. Le ministre de
 l'instruction publique et des théâtres m'ayant fait
 supprimer mon traitement, des collègues ont eu l'idée,
-à la fois délicate, ingénieuse et audacieuse de me le à A NOS AMIS DE L'YONNE
 Ne servir quand même. Sur l'initiative de mon ami
 î Lapicque, maitre de conférences à la Sorbonne, l'un
 ; des quatre universitaires qui vinrent si crâänement
@@ -1606,7 +1582,6 @@ bonne presse fait un silence total sur cette publication. L
 Nos anciens abonnés n'ont pas oublié les rares courriers que notre ami Lionel Landry nous a envoyés de : ,
 Chine. Aujourd'hui nous publions de Félicien Challare
 
-Mon cher Péguy,
 Comme tu as demandé à un de nos amis de renseigner les abonnés des Cahiers sur la façon dont les
 troupes européennes ont traité les Chinois, tu me
 demandes aussi de dire ce que je sais de la façon dont
@@ -1653,7 +1628,6 @@ plus intelligent que l'Anglais, s'intéressant plus que lui
 de vivre sous la loi française, ete. Le juge me regarda
 avec stupéfaction : il m'aflirma que les Français d'Indo54
 
-| COURRIER D'INDO-CHINE
 | Chine traitent comme des sauvages ces Annamites qui
 appartiennent à une des races les plus intelligentes, les
 plus fines, les plus cultivées. Tout ce que j'ai vu depuis
@@ -2071,7 +2045,6 @@ naturellement d'une admirable tolérance religieuse. Les à
 lettrés adhèrent à la morale purement philosophique de
 . Confucius ; le peuple mêle un vague bouddhisme à des
 superstitions variées. Devant moi, un de mes amis
-| COURRIER D'INDO-CHINE
 
 | demande à son « boy » pourquoi il brûle, dans les chapelles, des morceaux de papier doré; c'est pour que
 Bouddha, croyant que son fidèle a brûlé pour lui de lor,
@@ -2177,7 +2150,6 @@ lire. J'en conclus qu'il faut être prudent.
 Maurice Kahn veut bien me signaler que dans la À
 lettre de Maurice Bouchor on doit lire ligne 5 de la
 lettre, au lieu de scène des Bavards, scène des F
-ligne 12 de la lettre, au lieu de ou, lu; .
 ligne 13 de la lettre, au lieu de Grégoire, Gringoire.
 Kahn est plus familiarisé que moi avec l'écriture de
 Maurice Bouchor, qui n'est pas familière. J'avoue que Eje ne connaissais pas la scène des Bavardes. Mais

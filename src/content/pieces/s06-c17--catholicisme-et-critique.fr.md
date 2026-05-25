@@ -7,21 +7,6 @@ author: paul-desjardins
 isAvertissement: false
 wordCount: 34897
 ---
-PUR SUN LOCAL Un LEE en or RES MERE LAURE ji AN ia
-« 1 Haut) ar WF ù É pas AL RATES 1 | (ua ALU Fan r
-FA ENS NU OU SU x tt: AE LARAT
-4 ASS CRUE AA ÿ TOUT it FAR Pis } V NA x
-ne at vin D: HA, LUN MUR + at
-AE Re ENFANT aus à TT ONE CPE EN a NN "
-
-à a te EUR nt * Fa Qi À RU | 4 Ur le A4 se Va n HAE WE
-
-SUCER APN UT MIS. 46 tt ER, out M LA LUNPRRE ï LA Lo He ARE ar Are 4
-| | SOON ÿ RU SEEN RU qe VAE
-PR ER At Pate NON LR AT TR FH) PLEMET je
-de ef 1 ant HAE MATE EAU DL dy RN UM NE Je
-ATARI PAM PAT ce ASE AR ARENA A x
-
 Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et-social si l'on n'est pas abonné aux Cahiers
 de la Quinzaine.
@@ -31,7 +16,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 6, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième et de la quatrième
 
 Pour savoir ce qui a paru dans les cinq premières |
 séries des cahiers, 1900-1904, envoyer un mandat de
@@ -57,18 +41,9 @@ seizième cahier de la sixième série; un cahier blanc de
 … XII + 360 pages; in-18 grand jésus; nous le vendons
 
 catholicisme et critique
-| SURMEAEFAIRE"LOISY
-|
-|
 % paraissant vingt fois par an
 L 8, rue de la Sorbonne, au rez-de-chaussée
 
-à | AR CN II RE D HRNSNS Vas EL PO ES AR 4 Ne fe NA LS REA ;
-5 LA Ent ARR AI ANR Fe SERA MESSE
-
-É RU ne ae EAU ÿ > As Fr VA TR re Ta ES RSR >
-
-|
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, 1900-1904, un Si |
 - grand nombre de cahiers de lettres, — nouvelles, |
@@ -99,124 +74,12 @@ reçoit, par le fait même de son abonnement, en tête de
 la série ; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-DRE EnS HA Fat à de A PAT DNA RAD nt RAR ANA
-EE dl RTE ONE Hier SN UE iQ il (UE SL MA Her TO Ne MAP LU
-see HA ARS NUREN PANNE A CU D A LE ONE PU en He 1 ‘9
-do Le : Lo . A on oo ut c.
-1 à ET RN nu Su EE nt NA) PA ANAL At NT À te AS.
-nt ‘LP ANeneS LEA nt (ANS ne ji au HUM AUS LA CARE VAN Ve UN EUR ae
-re ti LUE IMPR TE DANAUIEN RU ANS to AIS Un on HURNE LAN
-VER NE 11030 Na ne pi LAN Ne DA Te Ar ANNE
-PNR PAL en PA MAN Ni HN LAN ten NRA Lt ;
-MA "a QUEUE ï His sa UE tu US ju Lt Fr NL PAU N
-11 NTENNN RUN in A AN NE Re UNE FA ns
-nat LE Hi RANPATUTE NE ip DA AE ï ART
-DU Rouen PAU OA HRAANTL Le de AA PR INA EN PE
-
-pa ds a in Un ‘| s
-AS Rap GA a Des (NT "4
-vs ÿ 1 so ie ri a del je RAT
-ni hs ju D. à dt “ UT,
-FIN 11 nt Me NL K « fe AAA an Je As 4 a lt nt nt Es
-1 ni A, Fes Ye he po EN EN non il Ke KE ts SR À A ni Las A No re ; }
-‘os té WA : ui ui ja nu HA ‘ie # jo (ont so FU MX j
-. 4e ti} Et f et do do is je is Pa Fa 1 qu 41e
-4 À de ie Dit ii La LL. in ju hi ue a LE) it
-Le HA ee A A: à " FES HA 1H Au fée ii (ai [RAS ie : MAL sers de
-non bal Ro] NUS A ke À 1 | "| RQ ÿ, a i ni in ÿ,
-We 4 no nt es qu f) A na ne a oi AR
-F4 ca \ BR: IA PAU . no one (is j PAT HU ( ft saut PA su qu re ‘ Le
-& ni. x rt ra Ge Lie 0 di À AR AS
-A (Hit RU me cf fr noi a DU Aa sn) va rt {ti LU Ut hf nt je sit di \
-un 4 7 ia Des
 0 40
-! Sie nu Ts l
-AE No (ne pt Mu |
-sh 1e il Vis A Dal ae
 
 | catholicisme et critique
 
-un A f HAE CN MAUR
-ji hi pt AN SA MS CRE MS AA NEA Ra D re RE LE NE MAR ol LA EAU )
-Fe Us pl sai ‘A SAPA HE NAN Al EN ji LE a NE ETENN
-NS Sat 2 ÿ f' LUE | d'A RER NE 1 AE NACRE" AE Di SU pe au A ane AA Vue AA AŸ
-TA RACE *: PRINT MAUR NADENRS (ne je A PATES ME A4 HPEUX
-doi Ne AP pa ae AE AI on De nu NUE AN
-LE Sy Fair Aa CESR TOR J'Y NY EE UE ALENIX Son HAN EAU (eat MNT LUS AU AU Ni LA {1
-“al js WAR HPALER Nr D NT Ne AU GARE Riu I ie NA NDS LE
-i 1 AE HAOU LEA on AA) GARE Ie il RUEAIE AA NE (AAACEE ENS AURAS AU
-iL in LS AT ÿ fe RSA SAND E DEA HAINE AN IAE usb) ORAN AUS Wet
-PAL CENT FE IRC on dat AN a DA ii i
-dt SCAN LUE AE 4 ns qua JE (Gite AE LA y
-NN AA An he TU
-
-|
-
-£ IL al HOTTES
-ï ne nul ji LL DRE di UE oi
-ie Lo NUS out nl NPA a Une NE RAA jus]
-Je NUE on ÉEAIVE te, A NEA MA HU ds NA AN PA
-1210000 AT LUE AA ADN A AANER UE plie gr fit) 7 Aya RARE Le
-SR EVENE Feu NAN LES ne Eu Ne EEE ju ST LAVAN YU SA DE " ue CAC û Qué |
-Fat Du ALAN CL AE or US VE UNE Mdr (il NAT pin CTI ALAN Sin L
-PEAU FAQ DNLE : WE Rat NA tas MUR HE UNE DATI Ua k put 1e nee
-PUR TA ne ! His RTE MES PUR
-
 critique et prêtre,
 réparation et tardif honneur
-
-LU Le AMAR EA ae Fri NPA date RUES APP ÿ SA
-4; A AA EN EN ENTRE UN nn DRE re US A SA tr FER AE
-AU NAT LA a UVau SUR DNA no} ANNE IP
-es DAT ar GR UE PAR US FR TTNIAS “Ho W
-A TN nee a EU du Ra “UE
-(Ua NA CM QI Re At HA ne ANR A] rs, SEA LENCO “4 A er NAN :
-NUE AREA AN EAN EMEA RE LE AS TANT fs EE PA 6 ALAN true + A
-Mt MA ner MAN dla rs HAE NI AE Ne
-PAPE NE As NUS Hu Re AAREUUE to IFRS
-
-ne nd ie
-jh PU "à ju É 7 n Que ue « e FH à du
-ADO, M Vox MC GLS MSN < HU MOUNS st à FRA NM LE MAO FAI 1aË
-EUpA AN NPA AUhAUT ARE À TNT LOUE On ATEN FOR »! FER on ohne MU NU JA dk ju ie Fute Ni Hate LAN nn) ï
-PASS con At AS RE DAUGNE HA Va ER 1 SC ts + APE es Un 1x RAA
-53n MAD) s A nt NET) tt DES EUX su Ps EL EWRQUE Mt BAS dr: "AA k PARU M ve
-MURS Aa PE ju FAR TES SAN RON Je DER PACA ROSE At AN en HAUT NEUET
-a NA PAU & % te Mae UE WU 54 nee ne pi RL PE NAS LAN JS DA He Dre 4 « | Le 4e
-FA “é ni FR CUS FRA ot RUN AE US AT ASIA ANS AA BTE EU NU
-Or 02 TRE ANS TN ARE (RAC SpA AA Dis HU RU AP PERS RE se TA MARS FAR Fe: MR
-2 ( PAS tn AND Rs AN un tea 1, AE 8 Al
-(EAU AN RSA Te ji AN pi NEA AU A ne AS FE à LÉLRONEREER FU 1
-LUE ÿ dt jo A A FO 1e CUP AUS JU RNA ee ne
-MRC FE: ren AURA DAS ME CR AUA LC EAN 2 MON on MNT sa LalL a “en
-
-FAN ms des AA in Ru ao M di AU ENQUE D
-SALE ARS ol HAE et VE At ‘ Aa ANS A Le
-JFENE HE ps Ja not er PAS NAN OU UN US LA D ELU NES û 0
-4 (RAC LAURE AN (3 MH Le A NTATAM At 4 Vel ANT EAN He SA ro Les AGE HI LAVE
-LA RODEM pot Re cr A (PS MNENES MAR Al RAA SL iv à MENT Mn 4 ‘RITES
-
-RE un AA re 4) Ne de AR on nn ne
-HONTE ŒUE sis PEAU ANT VAR RUE We SANTE Pat ANA sain AVE DU ju
-D" De don Aou ANA Fe LE AS
-TANT Re AU EE (RU AAA nn tt d REA qu Lx DL AANANEN AA | A tee
-
-Hot \ en va Ÿ LM) cie ch je
-ü 4 ju rl Hu AIS pl HN ae 4 ne ie a) is
-our at IP A no 1 ii l us by
-Lit ji S io ) Hi A a at un 1 ra \ “ “1 a je nu Hi Pau ni i} jh Une OA Fa |
-nul RU HA ain Au CAS Ë NS ï FR ŒUS f) SEA ct Ru a N he th rs b ve WiN ni
-no qu fn EN ip) tt rt ‘ sie { Cl A HN tas Done a LA ne ‘ AN si
-JA ya NO r ut ie" if tu at pie pe TAN Ni À 1 uuyr H EN rue i AGE a \, |
-. AS À ee) a ne à ee tu po nai Dee si
-NUE ii Ne gel AT 1 be Wu AE aus au SU : n qu 0 J
-j; Noa Ua A QU HN Ed AR TE El nes (re sal un me), CA ï
-ACIDE NU (Ru) W NA “ONE hi nt A au ou NU a EE ent ait |
-AE “ ET na (ei AA ont A) Ha \ Ha NU H ï
-a | ui We ti y! un A sie Hunt 7 jh (ENT A #0 ou al en OL {
-il a re 40 ne fl Li tu Mal] jé AA HAAURU ÿ at FA if ti ri Na
-LL do pe EU Ji ‘he il !
-ni (ir en à A JA h
 
 Êtes-vous curieux de savoir si une pure idée, spéculation métaphysique, notion d'astronomie, d'histoire, de
 philologie, peut à la fin produire dans une société vivante des déplacements de force ?.. A quelles conditions, par quelles transformations elle le peut? Essayezvous de mesurer jusqu'où va, où échoue cette eflicacité
@@ -236,8 +99,6 @@ félicité promise sous conditions. Et cette énergie du
 groupe fermé, aussi bien qu'elle embrasse l'idée, aussi
 bien la repousse : dans l'un et l'autre cas, elle y inté-
 resse le cœur. L'Église fait qu'on a honni etemprisonné
-
-| I I
 
 catholicisme et critique
 
@@ -281,7 +142,6 @@ comme autrefois fut capté le néo-platonisme ; on parle
 à présent d' Qutiliser » Auguste Comte ou Darwin, ou,
 je crois, M. Bergson. Il se produit même deux ou trois
 philosophies originalement catholiques, comme celles
-de M. Blondel et du P. Laberthonnière. Ce sont en effet
 des idées neuves, mais introduites visiblement pour
 
 _ renforcer l'apologétique, non pour alimenter la vie au
@@ -523,7 +383,6 @@ quarante ans se passent, et le baron Frédéric de
 Hügel fait écouter au quatrième congrès scientifique
 international des catholiques, tenu à Fribourg (1899),
 des conclusions exactement critiques sur la composition
-parcellaire de l''Hexateuque et la modernité de la
 rédaction que nous en avons. On trouverait aujourd'hui
 
 moins d'apologistes qu'en 1850 pour discuter si Adam,
@@ -635,8 +494,6 @@ réclament le droit d'entretenir des Universités.
 
 Au contraire, ce qui frappe, lorsqu'on lit les ouvrages
 apologétiques du dix-neuvième siècle, c'est le ton mon-
-|
-|
 
 dain, l'aplomb infatué. On y reconnaît une éducation
 uniquement « littéraire » et sans dessous. Rien n'est plus
@@ -713,21 +570,6 @@ sans cesse dans les livres mêmes qu'on nous donne
 comme « d'histoire », comme « d'érudition », et découvrent que les auteurs n'ont pas encore le pressentiment de ce que veut dire, entre travailleurs sérieux, le
 mot certitude. Évidemment ils sont contents, ils sont
 rassasiés de leurs vraisemblances ; ils s'y reposent.
-
-eu 4 DR ik dun fui AA AUE 5 VS ESS de RU
-Une NAN AN HAE ATEN ra
-à nn PA At At AA ni A UE FLN RENTE ‘| ARE Lure 1
-Ro] HF DS Fa HAT A\AYE CRTC RENE Na Hunt Le te AA vol pie LAN nant
-À l'AS Fac [AMEL sine We AE [HU Er CIS FREE Ua to at RTL) ENS PET) RAD RAV ITR
-ANS VAL AA { A HAN " A el RSA (RU RTART UE x An A et: CV SEE
-4) CE 4, ne KA 4 Al A Jun Yan A2 An MNTEAUX LR) ARS RE) A ir UN \ SE Su +R Re AY
-+ te NAuA MURS 1 APN Rep A VER F our) FA CE CAL
-A PONS MAL DU PRE ul AU quil 48 PAIN A ne eos RAT gra IN y
-Ne EVA AE 11920 MT ea sx PEU À Ki (ae dif Ne (AE AT HET (NES NO A
-PAT NET MA fe AY QUE A ANS 1 a
-LEARN ms Ne GET UNE h DAS AU tn AE oi j |
-CCR RTE oi ÿ HA Len pee HAN Un LA ais ee 1 ï
-MATRA Pas HR LEE nu AURAS FN us HER
 
 L'initiation aux méthodes critiques, non attendue,
 non souhaitée du clergé, lui est venue du dehors. Les
@@ -1004,31 +846,6 @@ plus. Encore est-ce peu d'avoir conçu cette gageure
 | d'un parfait catholique parfait critique; l'admirable,
 c'est la façon dont M. Loïisy l'a tenue.
 
-KE Rue ia He Ni CA 4
-Ne ja RAT \ ANES b 2 LOX pus 1
-der SR HE PAS F2) Me ti do HE Au 2e EE L
-At AN FUME À QE du Lan ML AU
-ri FAP NL ee (an LA Hu FE FARUPRE
-A au l'in no A Ur at 4] RES SU 4 TS ol Ke QE HART nee De
-HE) AUTOUR ASE" SA A a 4 ï Ué na ai EAST 14 LEE jh Rte À
-U Fr IE NY ANA Qi hi Lo ND V “à DATI À ai PE ant Li L in a n nl 4 NS FAtA it
-AE Na LT FŸ AUS op MAN A jy Sn ie DAA Las nt (ES du MT a KA DAME
-LT 4 (ea HA TA TU HAE ANA Art ee ALUPA) ab 1 A AN 3 \
-QUE pe AU (f site AUTRE PA 2 qi NA sal
-AR RU EN ‘4 ji ia EYE LAN ne PARLE FI an jus Ion Qu VAS (#
-PNA. TUE \ “U NE W NC fe À a VE ( IR LME } fe (IL su ‘A 1 \E an F} \f
-OÙ 140 ARE LA pas) A AY (AE (AN AS DTA AU RUN % 4x AUS ns AA
-
-ù ,NeS ET NZ 114 Ji RER 1 (ur) MA if) NU an pa EU a EU Ve nur FA À Al
-1 Det dors AU die A aout LR ANAA RUN HAE MAR rie / et,
-sn | DURE Re AA CE) Er HUE US NE #4) VRn sen RUE NES sise ro ;
-ui n ve RTE 10 oo ne LA vi 1 Lg
-| NADINE on AD 1e HA nr is AU ACIES AA #
-EL ii nt DE “At out | a no a fi
-
-Ke Ho is ti ni we
-LE AURA HU ne Ne IAE HE
-
 Il n'y a nul péril, pour un bon religieux, à établir un
 Cartulaire par la méthode la plus rigoureuse, et il ne lui
 faut qu'un moyen courage. Il en faut un plus ferme aux °
@@ -1239,7 +1056,6 @@ des simples ; à quoi le critique répondit avec un sourire
 déférent que peut-être tient-on trop peu de compte,
 dans l'Église, du danger, non moindre, de trop scandaliser à la fin l'intelligence des intelligents. — Mais où
 sont les intelligents, à qui l'on a licence de parler ? Certains prélats pensent que ce sont ceux qui lisent le
-#0
 
 latin, et vous vous rappelez l'admonestation de Bossuet
 à Richard Simon : « Pourquoi donc, puisqu'il y a une
@@ -1267,8 +1083,6 @@ des opinions. Sont-elles conservatrices ou subversives,
 conformes ou non conformes ? Voilà ce qu'ils se demandent. Et ils bataillent, selon la règle du jeu en politique:
 Mais M. Loisy s'efface ; il les laisse seuls avec les faits,
 avec les textes et ce qu'il est désormais impossible
-
-| À | \ i su
 
 : catholicisme et critique
 de n'y pas voir: qu'ils s'en tirent comme ïls pourroni !
@@ -1358,7 +1172,6 @@ j catholicisme et critique
 la vérité dont il vit est chose tout à fait indépendante
 des vérités que sa philologie examine et tient en suspens, chose inébranlée par cet examen et sauve en tout
 cas. Un instinct du cœur lui suggère que c'est équivoquer sur le mot vérité que de l'employer ici et là, vu
-qu'il n'y à ni synonymie ni commune mesure. Et en
 effet pour lui il n'y en a point. Ainsi pense l'abbé Loisy,
 sincèrement, non pour se mettre bien avec ses supé-
 rieurs et les décrets des Conciles, mais pour s'accorder
@@ -1537,7 +1350,6 @@ et naturel des textes : il faut que, simple avec les
 simples, il soit subtil avec les subtils. Ici c'est Le cas de |
 déployer tout ce qu'il a d'acuité et de sens fin du symbole.
 
-| RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 L'évangile selon saint Jean se présente comme l'exem-
 
 ple le plus accompli de ces livres à double fond;
@@ -1690,7 +1502,6 @@ toujours froissés, s'harmonisent. Par exemple l'apostro- |
 phe de Jésus à sa mère, dans ce même festin de Cana :
 « Qu'y a-t-il entre moi et toi, femme? Mon heure n'est
 
-| RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 pas encore venue. » Si nous comprenons que le festin
 de noces, c'est l'inauguration du Royaume ou de la
 jeune Église; que la femme dont il s'agit, ce n'est point !
@@ -1795,7 +1606,6 @@ pas un fait, mais la perception symbolique d'une vérité
 religieuse. » Et il ajoute : « Le récit ne laisse pas d'être
 | vivant à sa manière, comme peut l'être un tableau ou
 | un poème, parce que l'auteur n'a pas conçu à froid son
-| allégorie; il a vu réellement ce qu'il raconte; mais il ne
 | l'a pas vu autrefois comme compagnon de Jésus; il le
 | voit dans son esprit, comme contemplateur mystique
 l de l'Évangile. L'auteur est un grand mystique, le pre-
@@ -1806,7 +1616,6 @@ deux sont vrais, le premier comme symbole et l'autre
 
 comme vérité en soi; ce qui n'empêche pas les discours de n'avoir jamais été tenus comme on les dit,
 ? et les faits de n'être jamais arrivés comme on les
-| raconte. »
 
 catholicisme et critique
 Vous concevez mieux à présent, (je l'espère), en quel
@@ -1845,16 +1654,6 @@ faut vivre, — voilà la tâche que ce petit abbé dans sa
 
 chambrette s'est assignée, sans plus, comme suflisante
 à occuper quelques années d'une activité moyenne.
-
-M PANNE AAA DNA PA AAA NE NT) pis pisa”
-2 ET AREAS A TE AA A QT EE en qe
-Fi ÿ AIS \ An ‘ei s | fu We. Hu AU MA An eue DRE AXE AT #4 LS
-A RU NYC D PNR HN SAN ACUE SENS ne }
-pu A SRE CA ERANENNS RUNUIATEET RATE ACIER Te PA de ; PE ï
-ANTERE UE ENT a délit EN qnt (A xhi at) LE APN # MERE ra ue 4 f
-A A LM EU ELA A Data PAR NT NA re TS ? 1
-OCR VIE RAAADLE er OA AA AE ur CHARIOT MN ONE STE ORENEE
-LUN RON CA CARO ERA A A Gen O ARR Le
 
 On voit que le critique, tout doucement, change de
 . plan!' « histoire sainte ». Celle-ci, dans le catéchisme
@@ -2185,9 +1984,7 @@ dire à ceux-ci qu'ils ont peu lu ou mal compris les
 général de ces œuvres est qu'elles proposent une synthèse de la foi et du savoir. Que l'un des termes, la foi,
 soit retiré, il n'est plus de synthèse, et l'originalité, la
 substance même de la pensée de M. Loisy se dissout.
-On ne concevrait pas qu'il se séparât. S'il en venait là, °
 75 5
-|
 
 catholicisme et critique
 c'est alors qu'on aurait lieu de dire qu'il se sépare de
@@ -2238,7 +2035,6 @@ k métaphysique n'est jamais hors de vue; il ne peut ouvrir
 û aux textes de sa messe quotidienne sans que sa pensée
 … retourne à son centre; songez qu'il lit afin de tirer de
 d sa lecture des règles de vie, et qu'ainsi il est placé, par
-M profession, au point de jonction de la spéculation et de
 « la pratique, c'est-à-dire au nœud même de la philosophie. C'est pourquoi M. Loisy, philosophe et chrétien
 f spirituel, gardera toujours M. Loisy, historien de la
 _ religion, de résoudre cette histoire en un pur phénomé-
@@ -2260,7 +2056,6 @@ est « l'histoire sainte ».
 
 M. Loisy passerait-il plutôt au christianisme protestant, qui offre tant de nuances et si bien graduées que
 tous les dosages de la foi et de la libre critique trouvent
-à s'y rassortir ? — S'il le faisait, à la suite de plusieurs,
 en qui le cœur et la raison ont consenti ce compromis,
 il marcherait en sens inverse de Newman son guide.
 Mais, à vrai dire, c'est son propre cerveau de logicien
@@ -2717,8 +2512,6 @@ l'Institut catholique et retiré dans son aumônerie de
 Neuilly, — le même grand pape (grand par d'autres
 côtés), a insisté encore pour que les exégètes fussent \
 
-|
-
 circonspects et bons tacticiens contre les ennemis de la
 foi (dans son Encyclique du 8 septembre 1899, aux
 archevéques, évêques et au clergé de France). Gette fois
@@ -2984,9 +2777,7 @@ toujours dans l'Église. La division du travail intellec-
 
 tuel, en même temps qu'elle ira sécularisant les sciences
 
-|
 catholicisme et critique |
-|
 de la nature et des sociétés, ramènera de plus en plus
 la religion à la mystique. Ce lui sera encore un beau
 champ que ce champ bien à elle. Les sondages y décou- |
@@ -3013,25 +2804,14 @@ terroger sur ces choses. Souvenons-nous donc que la Û
 mise du sentiment est de beaucoup la plus forte. Il ne |
 faut pas, si l'on est catholique, traiter le sentiment à
 comme une illusion. Ce serait faire preuve d'un intellectualisme borné. Le texte autour duquel on dispute ne :
-|
 
 contient pas en sa teneur même la vérité et la vie; il
 est seulement apte à la contenir, si on l'y met. Il en est
 comme de ces morceaux de roc qui paraissent luire
 d'un éclat mystérieux et saigner de vrai sang, au fond
-de la grotte de Morgat; qu'on les détache de là, qu'on
 les emporte dans un cabinet de minéralogie, sous les
 lampes, — ce n'est plus cela, ce n'est plus rien; il y
 faut la lumière juste et la mer.
-
-MM ce ARENA PUS RARE TU CAE a fuel RAP 4 A Lux ja ( "à dit
-Pa ra NAVAE IN NUE MAN ae PUR NCA ROUES AR RATE ANA DU oh
-. . 1 1 ARE FER Tu AAA ON HN EE ai ne VIRE
-PANNE REY PRET ARE fe PA TN CT NCA MIN ARS ELON SA IT AN 1% Has D
-0 ii je LA \ tant RU AN LAINE WRUANE MER j ñ
-ANS HAN EP a LC 21 HS LUS RE PEN os otre ti f je he Des
-
-CEA 0 AN NE à DL STAR 4 NAS va (TR il AE ju ni ui V1 ï | %
 
 Ceci nous ramène à observer le contre-coup de Paffaire Loisy dans la conscience des jeunes clercs, de
 ceux qui ont été, non pas indignés et catégoriques,
@@ -3215,7 +2995,6 @@ cours, ces mots Q Et il était nuit » n'expriment qu'une
 circonstance accessoire, une localisation dans le temps
 afin de préciser, comme aussi bien on pourrait dire : |
 c'est à neuf heures du soir que la chose s'est passée. — |
-Mais, si l'on se reporte au passage de Luc (XXII, 53) :
 « Voici votre heure, et la puissance des ténèbres. »,
 cette désignation de l'heure prend une gravité plus
 émouvante. Et maintenant mettons-nous au point de
@@ -3363,14 +3142,6 @@ ses supérieurs : ou la renonciation à la franchise de son
 jugement, ou la perte du trésor de consolations et
 de vertus qu'ont amassé pour lui cent générations
 
-D ne NE OR
-RD OU UT Res VI MN EE ROTATION Ma
-1 ROSES CU ne fe. MS CE SL TELE
-5}, tes nn
-HOT E nr - _ DE ai | Ne
-TC SNRRE = TA en à
-ATX NA l SLR Dane ne
-
 Le narrateur impassionné (ou qui n'est passionné que
 de comprendre), n'est point surpris que cette crise soit
 en effet dure et âpre. Dans un post-scriptum assez violent, que l'évêque de Nancy vient de joindre à son premier avertissement, il dénonce le danger que font courir à la foi les théoriciens de l'« immanence ». Il se
@@ -3410,55 +3181,8 @@ sée achèvera sa révolution. On peut déjà prévoir que, 4
 dans une génération ou deux, l'insertion de l'absolu
 dans la trame des faits ne sera plus même intelligible. È
 
-TRUE Le Fan apart Leu à A A SR ie .
-LANTA PENSE EE" EU nr à de ss .
-ET Net Aÿ, LS PAP RARE AE Li Tete ne HUE Fe ne |
-D PR: HR Re de RARE nn Fe où A
-Et nr Vase NE EAU pre ee a
-| + a MAS NS ES se ln RU Ne SUR 5 Se DENTS SERA RÉ
-pe TE He CHEN A DA) A RAS PMNTESSE CRNES ES REP RE ne ia -
-Fe ae sh on Ambre He A TT et RE TES ‘ane de
-ME GC: mÉRC (3 WE Apt ES PA Ne RAT AT CRE CARRE € AETRURS Pt CR TEE e FRE ce >
-ET Se ne De re nos nn .  _ |
-F L 0 in CON se ;
-RE AR be HE Se EN D'Ape le HA Ps . _. .
 mn CERN Horn Here puis ou. . à .
-+. a ss Pie SU EN A AE Ce FE EE RG
-à à : … La ee CR Se ae Rae FRE RTE be
-ONE vis Ro ENTRE D AUDE ANRT LC NA ren Re
-‘ SR NES cn 4 He UN ct eo
-“A ER 4 ue Roue NET PR Sen FAIRE ee
-Pire Sie a FAN NU RUAE rer. La
-FRE D DD EE Ra de RE ES Nr CRE no
-r bte Ur I RARE UE NE SN OR “e PACE se Ve LA
-ARS Se: nur fa Hs es “al on È .. |
-FREE En NS NÉ ENTRE SR APE Mn A dont é hs à | . :
-RÉ RE RES ss Ne PAM Ta He Apos En d VS + .
-ÈGEE RENE rer ol ANRT DUT RENE AE ve et ae . à à
-D ANT ne D ou sur LR Sara nt . FD
-RS Re Jens fe GE AUS FAUNE ; A par A A |
-+ ARE 1 RS SA PAPAS TN à ne HADER. ME RARE) ET de ANAL ASE
-Le Fc ne Ha no)  . DE ses os RARES
-Ne SRE Han Re Ÿ dura SR Se AUS RU ha # PAS
-Re pare RE ni ee 5
-; é A ua “et LEA HAS NE TE € AA CR AUS He Vree SEE LR
-Fans ORAN ER A DE RÉAL Fa NEA À | SMS re
-4 g D ri o Wa ne AA M DU Le Rte Lu :
-ne : ne et À AU: CHE HS LT 6 RER « DE
-dr Eee AE Are ci RE NUIT AP re AE Un
-Re ARE EE US NE? Ne Arte UE STE a
-L 5 D É Rae. LUE FRE CRE D ee LT Fa RL
-TA GPS pere FRE DAS in HEURE NT Re me
 
-MR KL AA RAT A A Pas DO do % |
-
-NE ‘el Dear e ê rte TOUS 1h
-
-DA Pa DRE je ARE
-
-Lie NTM : É : SIPREERT EEE Il
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -3492,8 +3216,6 @@ francs les vingt cahiers de la cinquième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
-
-2 a AN Re ENT NE PEAR EAN NAME ns MATE ñ
 
 au total des prix marqués; ainsi depuis le premier
 janvier 190 la cinquième série complète se vend

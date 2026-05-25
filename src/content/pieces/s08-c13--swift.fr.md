@@ -7,7 +7,6 @@ author: henriette-cordelet
 isAvertissement: false
 wordCount: 16992
 ---
-ni: ; SWIFT de
 | ner le meilleur de lui-même à l'amié qui l'attendaità is
 Dublin, tandis qu'il causait, faisait des impromptus 4
 | badins ou philosophait dans le salon de Bury-Street. d \
@@ -263,7 +262,6 @@ fé Clogher, de l'interroger. Après cet entretien, il consentit 1
 ui pour sauvegarder son honneur aux yeux de la posté- A
 de (à) L'histoire du mariage secret est confirmée par le témoignage ÿ
 108 d'amis intimes. Le Dr. Sheridan, Mrs. Whiteway, le Dr. Delany, y (
-k ni croyaient fermement. j À
 
 Delany raconte que vers l'époque où le mariage eut é
 lieu, il remarqua la tristesse et l'extrême agitation de À :
@@ -307,7 +305,6 @@ Mrs. Delany parle avec admiration de la beauté de a
 (1 d noirs et le teint très blanc. A l'époque où la vit Mrs. De- l
 #0 lany, son expression habituelle était pensive, mais non
 
-L- mélancolique. En dépit du chagrin et de la maladie, F
 E. elle devait garder jusqu'à la fin sa vaillance et aussi la (
 "1 _ vivacité d'esprit qui faisait son plus grand charme. Sa É
 de. s jalousie même n'eut rien de romantique. Elle était trop tr
@@ -318,7 +315,6 @@ de. s jalousie même n'eut rien de romantique. Elle était trop tr
 _ le Doyen peut écrire avec talent sur un manche à "il
 40 Il ne restait plus qu'elle en ce monde entre Swift et :
 à le désespoir. “4
-É EN (1) Allusion à la Méditation sur un manche à balai. K De 4
 
 Avant de s'abîmer définitivement dans la misanthro- 1
 
@@ -349,9 +345,6 @@ place digne de lui en Angleterre pour y vivre dans le à
 
 , commerce familier de ceux qui formaient alors l'élite € 1
 _, intellectuelle. Loin de ses amis, il n'était qu'un banni. tu
-ne
-
-| 61 Swift. — 4 us
 
 17 Après Londres, Dublin représentait pour lui ce « calme
 
@@ -432,7 +425,6 @@ couvaient en lui avivèrent son indignation contre le sy- ‘4
 nomie, donnant seulement deux réceptions par semaine au TC :
 Doyenné. On dit que la chère y était fort simple, mais le vin ‘14
 
-# Swift
 par les Anglais. (1) Il demanda un jour à Delany : « Les
 corruptions et les vilenies des hommes ne rongent donc
 pas votre chair et n'épuisent donc pas vos énergies ? »
@@ -480,7 +472,6 @@ parurent les premières Lettres du Drapier. de
 Grâce à l'influence de la duchesse de Kendal, maï- k
 tresse de Georges Ie", un nommé Wood obtint le droit I
 de frapper pour l'Irlande 108.000 livres de « half nor
-pence » et de « farthings ». Ni le Lord Lieutenant, ni le | ca
 « Privy Council » ne furent consultés. Contre l'extra- à 4
 ordinaire audace et l'arbitraire de cette mesure, ni
 © Swift, indigné, s'éleva. Le billon manquait réellement à
@@ -498,8 +489,6 @@ Waters. Voir aussi la satire intitulée : À Swearer's Bank. Il y pro- la “
 pose d'établir une banque alimentée par des amendes imposées de
 aux gens qui jurent. Il y ridiculisait le projet d'une « Banque natio- ji
 nale Irlandaise » qu'on agitait alors, Swift jugeait les garanties À)
-
-je
 
 E mêmes et pour vos enfants; votre pain, votre habille-
 
@@ -530,9 +519,7 @@ Me l'indignation populaire par des ballades et des satires
 il | 40.000 livres. Mais Swift voulait un triomphe plus com-
 
 Se: plet. Le moment était venu de donner son véritable à
-v cäractère à la résistante. Dès la quatrième lettre, il À
 J dénonce l'indignité de la politique anglaise et dit aux
-f (1) « Le simple soldat, quand il ir au marché ou à la taverne,
 
 UT offrira cette monnaie; si on la refuse, il sacrera, fera le diable à tA
 ti quatre, menacera de battre le boucher ou le cabaretier, ou pren- É
@@ -544,9 +531,6 @@ ne tant de viande, ou toute autre marchandise, n'a pas d'autre chose FA
 
 ; veut le payer en monnaie de Wood,— par exemple vingt pence de ; 1
 “4 cette monnaie pour un quart d'ale, — et ainsi dans toutes les autres k
-dj: choses, et ne jamais lâcher sa marchandise qu'il ne tienne de fs
-
-de Enr *,
 
 Irlandais, après avoir montré leur pays régi par un 1
 Parlement dans lequel ils n'ont pas un seul représen- "Ha
@@ -579,7 +563,6 @@ existe, il ne tombera pas un seul cheveu de sa tête; car il a tra- ny nl 5
 Jonathan, pour qu'il ne mourût pas. » :230
 () Whitshed devait mourir peu après, accablé de honte et de 34
 
-je dc s : y ed le
 s verdict, puis en le renvoyant avant la fin de la
 Trois Lettres parurent encore. L'une d'elles, adressée
 au Lord Chancelier Middleton et signée de Swift, plai-
@@ -614,7 +597,6 @@ Le temple de la Gloire et la cathédrale de Saint-Patrick.
 1 Plusieurs compositions analogues sont signalées' par les bio-
 *e graphes de Swift.
 
-| © SWIFT ù pa
 ment impossibles à certaines âmes. La haïne dont 1
 s'était nourri son génie était devenue son génie même. \ ;
 Il en devait être la plus douloureuse victime. F
@@ -646,7 +628,6 @@ comme autrefois d'art, de politique ou de philosophie. }
 Swift se sentait plus à sa place parmi ces « honnêtes À
 gens » que dans le chœur de Saint-Patrick. le à
 
-| 4 x,
 ne Il était d'ailleurs profondément attaché à quelques- jh
 ÿ uns d'entre eux. Il aimait le bon Gay, si candide, si ,
 | négligent, qui devait rester enfant toute sa vie; il 1]
@@ -676,7 +657,6 @@ LE dans l'intimité des adversaires du Ministère. Ses visites à Boling- ‘à
 NS broke ne pouvaient qu'indisposer Walpole. Après leur entrevue,
 fe ; Swift en écrivit d'ailleurs le récit à Lord Peterborough, avec d
 an: injonction de montrer la lettre à Walpole, — qui ne rectifia rien. #
-| (}
 
 | et maîtresse du Prince, l'ayant présenté à la Princesse, h NE
 il avait été reçu avec une faveur marquée. Cet accueil { à
@@ -715,7 +695,6 @@ s'approcher le moment le plus cruel de sa vie. ‘4
 Ï très peu de prix à la vie, les pauvres jours qui pourront (
 1 me rester à vivre après une telle perte seront un far- 48
 ( deau pour moi; et je dois supplier Dieu de toutes mes 1)
-| forces de me donner le courage de le porter... On m'a N
 | L écrit des lettres trompeuses; mais Mr. Worrall a eu la 44
 raison et la prudence de me dire la vérité : cette vérité  ‘ ;
 
@@ -817,7 +796,6 @@ no des lumières dans l'église : « L'enterrement est ce soir
 æ et mon état ne me permet pas d'y assister. Il est main- |
 4 tenant neuf heures du soir; j'ai changé de pièce pour F
 F ne pas voir la lumière dans l'église, qui est juste en face (
-ÿ de la fenêtre de ma chambre à coucher. » |
 | Elle reposa dans le cloître jusqu'au jour où l'on réunit
 | Ë ses restes à ceux de Swift. (1)
 mi: Il avait toujours gardé la plus grande réserve sur
@@ -825,7 +803,6 @@ mi: Il avait toujours gardé la plus grande réserve sur
 : (1) Craik dit que des fouilles récentes ont mis au jour, dans la }
 * cathédrale, un cercueil renfermant les restes de Stella et de
 
-fi pra pi rl Ne ia PTE je NE Ms Ve FAT fa AO TSI sai HUE %
 elle fat morte, il aurait encore bien moins voulu rompre Al
 
 le silence sur celle qui, seule à ses yeux, rendait la vie la
@@ -889,10 +866,7 @@ une des lettres datées de Londres, Swift parle du testament de A
 Stella et de l'emploi charitable qu'elle voulait faire de sa fortune, ph
 
 { d'après ses propres conseils, très probablement. (
-| à
 
-RE (#2 NPA ; * js ik IE MA LNENE Ÿ
-Le Swift é + PARLES du LA
 À ‘ nières visites en Angleterre, peu de temps avant la
 4 mort de Stella. (1)
 4 Il n'avait d'abord voulu faire qu'une satire politique :
@@ -923,7 +897,6 @@ qu On trouve aussi dans une lettre d'Arbuthnot : — « Gulliver est -
 1e lui a dit avoir très bien connu Gulliver; mais que limprimeur
 à s'était trompé, et qu'il « vivait à Wapping et non à Rotherluthe ». f
 x J'ai prêté le livre à un vieux monsieur qui s'est mis tout de suite Etes
-< à chercher Lilliput Sur sa carte. » à x
 54 (2) Tories et Whigs revivent dans les « Talons hauts » et « Talons .
 4 bas » ; Papistes et Protestants, dans des Big-endians (ceux qui
 nr mangent l'œuf à la coque par le gros bout), et les Small-endians #
@@ -934,7 +907,6 @@ Wu de Bolingbroke et d''Ormond en France par la fuite de Gulliver à pi
 PA: Blefuscu, la disgrâce encourue par Swift pour avoir écrit le Conte FAUA
 fe du Tonneau, par la disgrâce encourue par Gulliver quand il éteint er
 4 Vincendie du palais sans songer au décorum... etc. ! 1
-Le dl ot
 
 sont plus rares et le caractère humain et général de la à
 satire apparaît plus clairement. Son roi géant, dont la à
@@ -1104,7 +1076,6 @@ LE ae semaine, par sommes insignifiantes. On laccusa naturellement de
 2 108 faire de l'usure. On raconte qu'un jour, un homme très pauvre
 .. 18 vint lui demander à emprunter un peu d'argent. Interrogé sur les 1
 
-je GAY CASE : | (il SEE NN à a SNS OA Q
 Le ton pessimiste de ses lettres aux amis d'Angle- l'AS
 terre laisse entrevoir son amertume croissante sous le
 poids de l'âge et des infirmités. Depuis la mort de 1
@@ -1139,7 +1110,6 @@ bonne et due forme et dit souvent que l'homme avait été le plus OS
 exact de ses débiteurs. Il était si populaire dans la ville, que les : ANT
 habitants auraient dû, disait-il, souscrire 40 shillings par an pour ane
 Pentretenir de chapeaux, tant il avait de saluts à rendre quand il à ST
-. sortait. LES
 On croyait en lui avec une sorte de gravité religieuse ; une ‘100
 éclipse ayant été annoncée, mais le temps n'ayant pas permis de û 1 \
 la voir, il s'amusa à faire dire que « l'éclipse avait été remise par Ï de nt
@@ -1147,8 +1117,6 @@ la voir, il s'amusa à faire dire que « l'éclipse avait été remise par Ï de
 ordre du Doyen de Saint-Patrick », et nul parmi les bonnes gens ; ui
 
 ne douta que ce ne fût vrai. Ë D 6
-
-es Lg L CU Ge re MP EP ONE RSR CRIE
 
 ï prends Dieu à témoin que j'écris ceci les larmes aux 1"
 
@@ -1182,8 +1150,6 @@ A trop tempérés pour que j'accepte leur invitation, et À
 
 1 dit également : « Je suis aussi las de ce monde que je
 
-4 le suis de la vieillesse et de la maladie qui ne me laisse
-
 18 jamais tout à fait tranquille. Je vis parmi une nation
 
 4 d'esclaves, qui se vendent pour rien. Mes revenus, bien
@@ -1208,8 +1174,6 @@ FL: rivales. Son humanité, sa charité, sa condescendance, sa sincérité,
 al, sont égales à son esprit; et pour les estimer il faut un goût aussi f
 __ sûr et aussi délicat... » p,
 
-ÿ LZ Ut FRTRE er SLA Le ER TN RL
-
 4 honorablement, et j'ai ‘quelques amis de grande valeur, sn k
 qui lorsque nous nous visitons mutuellement, sont d'ac- ï
 cord avec moi pour exprimer notre haine absolue de ‘ L
@@ -1229,7 +1193,6 @@ il dominait ceux-ci de toute la hauteur de son génie, et N£
 les progrès de l'âge et de la misanthropie aidant, il We
 les forçait trop souvent à jouer auprès de lui le rôle de 4 He
 complaisants. (1) Sa dignité n'y gagnaït pas plus que la ‘À
-leur. , he
 | Comme au temps où Stella vivait, les divertissements pe
 littéraires (impromptus, vers badins..., etc.) occupaient À
 À les loisirs du petit cercle de Swift. Son humour intaris- | d
@@ -1264,7 +1227,6 @@ LA séparaient tout à coup de ses amis et le confinaient .
 1 dans sa chambre pendant des jours. Le mauvais esprit RENE.
 pan conjuré, il reprenait sa place parmi les vivants. * pi ‘
 
-| CHAPITRE V 1
 Il combattait avec une angoisse toujours plus aiguë
 les progrès de son mal et prévoyait l'issue avec une 4
 clairvoyance atroce. Sa mémoire vacillait par instants, je
@@ -1281,7 +1243,6 @@ accès de colère terribles. dé
 | Durant les années 1738-1739, il s'efforce encore déses- 168
 pérément de tenir le mal en respect. Le régime violent ps
 qu'il s'obstinait à suivre, l'épuisait sans éalmer sa 1
-| A
 souffrance. Il était devenu d'une maigreur de squelette. Le?
 A la fin, n'osant plus sortir, il parcourait sa maison de À
 xp (1) Vers la même époque, peut-être, il établissait la liste trouvée il
@@ -1376,42 +1337,12 @@ De Il ne connut le grand repos définitif que trois ans plus “
 el tard. Après trente-six heures de convulsions, il s'éteignit
 244 sans souffrances le 19 Octobre 1745. Il consacrait toute
 21 sa fortune à bâtir un hôpital de fous. #
-#9 0 #)
-
-LC OAURTARS HEC NE OIMENUES MUR 3 RUE AE) Ÿ un nn
-" AS à PAPIN te { Nat] À me NE
-LL ut al L OR PE ÉTÉ SA SEE ' {LR RS OAINIE
-Leu OT PEER ANT ANNEE EPA Ge TR) TE CE ATMRLE hi
-AE ch de: MHESGRAN RAUOR RS NM RUD EEE AL RATE PAT EE LA Lg ART ras
-
-1 rl Ce 7% NP or Na F8 EAP) d Le E M
-#1 Re! 4 TRS
-| 0 * + 4 A
-RTE, rh À las LES CAPOTE 0 Liu: |A
-|: LPCPTRONET 7 SMS ALTER Bar a la POS ON PE H: M |
-L + RÉ SNEENENTEE fl AVE RUE NOIRE NET EURE ment:
-Et ERA te PAU RUE 1Fyu PA NAUCE + NE Mn sal si
 
 Épitaphe rédigée par Swift. Dans son | :
-F ; testament daté de Mai, 1740, il donne TEA
 des instructions pour que les mots LR
 M ci-dessous soïent inscrits sur sa tombe, Aute
 ; sur une table de marbre noir « en "Abe
 65 : , ment et bien dorés ». FR
-| : {SA
-
-Pas : Wine PA , Vs rat Mn SE
-
-AL HPITEN SD aus ME La TU
-
-à De a fé ci
-| Ugr SÆVA INDIGNATIO Ho:
-
-| RER x F VAE (IAE ain
-PL le 1 s- Li ra CUT ï
-‘'HSTEN je à 1 UN HS ‘te If # HE QU RECRUE AR RER (a
-
-| Ouvrages consultés vi k
 
 F rected with notes by Thomas Sheridan. : NE
 
@@ -1446,22 +1377,16 @@ Et: seven Lords of the Committee appointed to examine
 
 ne A Letter from the facetious Dr. Andrew Tripe, at Bath, tothe.
 
-Des venerable Ironside. — 1714. Ù ‘
-
 Le The History of the four last Years of the Queen (first prin210 ted in 1758). À } à à
 
 #0 Some free Thoughts upon the present State of Affairs. — 1714. à
 
-ia SSSR one A Ne
-nr, IL — TRAGCTS RELATIVE TO IRELAND | 4
 ‘à A Proposal for the universal Use of Irish Manufactures. Vie h É
 à An Essay on English Bubbles. Me
 #, The Story of the injured Lady, written by herself, inaLet.
 : A on that all the Ladies and Women of Ireland l 1
 On giving Badges to the Poor... etc. j 15
 On the Causes of the wretched Condition of Ireland. : Un è
-On sleeping in Church. ; 5184
-| On doing Good... { « 510
 Thoughts on Religion. ké \
 | Further Thoughts on Religion. | ‘ à
 Î Tracts on the Test Act. ii
@@ -1490,15 +1415,11 @@ pour deux mille exemplaires de ce treizième cahier 4
 
 À et pour treize exemplaires sur whatman le mardi ‘0
 
-‘à Le gérant : CHARLES PÉGUY # hr
 ‘14 Ce cahier a été composé et tiré par des ouvriers syndiqués 1
 ni ïl À Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 1605 ke Fat
 
-+ 8R 44 AS f SA ol à CT A Ke MEN AREA ET TT À de
 41248 1 548
-4 dix EMI \ À 3 il e 1 Unit « KA
 
-Gisuis la Bou EN - du dE pt ne AT D.
 Il a été tiré de ce cahier treize exemplaires sur 0
 whatman ainsi distribués : Le
 premier exemplaire de souche, exemplaire du gérant; nil 1
@@ -1517,14 +1438,6 @@ Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon- {4
 derie Mayeur (Allainguillaume et compagnie succes- d.
 is _seurs) 21, rue du Montparnasse, à Paris, sixième 1
-| arrondissement. Ù hi:
-
-sa If AR UNS. TRUE AE (n e " RULRENE D EE À die à CAR
-ne: en
-| : ÿ
-TS les Lx
-
-\ CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, si
 
 | rez-de-chaussée, Paris, cinquième arrondissement. ‘a
 
@@ -1579,9 +1492,6 @@ numéro du tirage réservé à chacun des souscripteurs ; “
 
 Es l'édition sur whatman est strictement limitée au us
 
-RUE w DO TU 1% dr SE dir NE Ha ue pat + ARE Û
-rt LUN j PLAN 7 de AO
-
 © Pour tout changement d'adresse envoyer soixante
 | centimes, six timbres de dix centimes. ÿ !
 F Nous engageons nos abonnés de certains pays à nous
@@ -1603,4 +1513,3 @@ A partir du premier janvier qui suit l'achèvement 19
 d'une série, le prix de cette série est porté au moins A:
 au total des prix marqués; ainsi depuis le premier 4 À
 janvier 1907 la septième série complète se vend quarante- (A
-| trois francs. 4%

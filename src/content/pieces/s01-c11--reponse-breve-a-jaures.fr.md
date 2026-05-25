@@ -37,7 +37,6 @@ texte. “oment pas ce mème
 — Ils s'en garderont bien.
 He — Je sais que vous ne donnez rien qui soit dans les j
 deux revues dont vous êtes le complément. ]l est dési1. rable que ces deux revues se considèrent ainsi mutuelgs lement comme étant complémentaires la deuxième de
-fe F la première et la prémière de la deuxième. Qu'elles
 Ps Soient mutuellement comme les cahiers sont avec elles.
 Lu Non seulement elles peuvent exister, mais elles doivent
 à prospérer toutes les deux. Elles ont leurs formats, leurs
@@ -58,7 +57,6 @@ aan sil Sinon j'ai peur que la conférence de Jaurès ne paraisse
 inon j : le lecteur d'acheter la
 mise dans La Revue pour dispenser le fait de la peine
 sténographie du Mouvemeni. Cela
-ce RÈS Lin:
 J'ai peur que quelqu'un de jaux que peut
 les avantages commerck ni!
 aller à considérer le tion d'une conférence P sg
@@ -95,11 +93,8 @@ la vente au numé Parfai s
 le ces mœurs. Si l'
 Si l'abonné ferme, éventuel ou gratuit n'.
 
-“ PTS é à de la Première série:
 e'aux noms à ne
 nous importe, alors. de ris Patronale, que
-Six content. F SOL Ou ne soit pas  @.
-L'inconv, Émis 6 Me
 ne. TRUE enance des calculs Commerciaux, qui sont :
 ‘478 9Bques, en un sens, aux considérations se
 est plus pénible encore d Û Ouvrières Si
@@ -116,7 +111,6 @@ Re difficile, non Patronalement, mais laborieusement Jen.
 sévérité autoritaire du patron pour son employé, mais
 à la libre et la mutuelle exigence de l'ouvrier pour son Re
 camarade et son compagnon l'ouvrier. Je suis chezmoi,
-î Je reçois le Mouvement. Je lis la conférence de Jaurès. À nt:
 D Première partie. J'attends une quinzaine. Et deuxième se
 D, } partie. Jelis attentivement. J'ai relu. Elle m'a laissé une
 LT Cest un discours d'apparat, prononcé dans une céré
@@ -128,7 +122,6 @@ nouveau d'une socialiste éloquence. Mais passons pour 4.
 si aujourd'hui. Tout ce que je retiens, c'est que le a
 est malheureusement fait pour l'assistance, et que !&
 
-a a ces Re
 spect du discours est conforme à : ma sr
 fi involontairement le discours s'ordonne sur l'O nc ‘ie
 du théâtre, et comme ces représentations
@@ -214,8 +207,6 @@ Pourtant, nous pouvons dès aujourd'hui résumer et * Er +”
 ae traits l'œuvre d'art de la période
 Le “ ai s'est ouverte, il y a environ cent cinquante : en
 C'est un beau t sus k Re.
-indispensable Lea Le Pr MR Rat pes Le
-graphique, l'horizon tellement js É Sue SoPOS hs
 pas indiscutable, Gardoné-nous # e lumière, ne soit
 de la Première série
 ER | ru amis les savants désavoueraient. C'est .
@@ -226,7 +217,6 @@ Sons la conférence Pour les idées
 L'est bien entendu que Je passe les nombreux IOr- È
 ceaux où nous sommes entièrement d'accord avec
 Jaurès. Nous Commenterons le reste : “4
-j Je continue
 Des jeunes gens, littérateurs, artistes, m'ont demandé
 ÿ de vous dire ce soir ce Œue, pour nous, dans notre ConF: ception socialiste, représentait l'idée de Part;
 Je m'arrête aussitôt, et je proteste contre ces jeunes
@@ -270,9 +260,7 @@ nous travaillons de toutes nos forces à l'affranchir de
 toutes les servitudes. La révolution sociale nous donnera
 la libération de l'art. Elle nous donnera un art libre, J
 mais non pas un art socialiste, = Du
-Quand nous disons qu'il ÿ a eu un art chrétien ou un k Fr
 art CE nous nOMMONS ainsi la représentation en art
-ni PE chrétienne et de l'humanité païenne. Or
 anité ne sera pas socialiste ainsi qu'elle fut chré- JS
 üenne et païenne, au sens où elle fut l'humanité anti Le
 et l'humanité moderne. Elle sera libre. Mé LS e.
@@ -340,7 +328,6 @@ rable ?Par ae reuves un monument incompa- N N SU
 ! ee qu'il n'est pas un mot de ces Preuves qui Var.
 ne tende uniment à la démonstration de la véri LR  —
 la réalisation de la justi vérité, à .
-a justice. Quand no: FT
 les Preuves sont un mo: RON cunstatons que “4
 ‘ dons-nous : elles ne ra pis . perle: pan
 aucun ensemble, mais à Riel ne d'ensemble
@@ -352,9 +339,7 @@ arables à la beauté éométri !
 Partout elles nous présentent la brie pi
 la beauté de l'histoire, D'ensemble ï ete
 incomparables. Mais je le demande one pa ds
-lues si Passionnément, je vous le né ms
 nous donné aie Preuves cet assentiment sincère, ie
-ie, si NOUS n'avions pas eu
 Impression que l'auteur ne pensait j
 pes un seul instant à demander au conflit des forces
 sociales, au conflit du droit et de l'iniquité, du mensonge
@@ -364,7 +349,6 @@ réalité de l'action la matière du chef-d'œuvre qu'il a x
 donné, Que l'auteur eût ces émotions à une intensité f
 inouie et les communiquêt au lecteur, cela est incontestable, mais Ià n'est pas la question. Je prétends que
 î c'est justement parce que pas un mot du texte ne
-tendait sinon à la réalisation de la justice' et à là
 démonstration de la vérité que tout en nous, la raison 4h
 ÿ eflicace et la passion nourricière, accompagnait l'opé- .. À 1h
 Ph ration. Là même était, en un sens, la vertu de l'opéra.
@@ -399,7 +383,6 @@ guérison d'une majorité malade par une minorité saine. Fi
 L'action est une remédiation perpétuelle, une perpé- “0
 ÿ pelle réparation. Je ne demande pas que le médecin k, > RS
 Soit fasciné par la douloureuse contemplation de la US A
-PURnce et de la maladie et.du mal jusqu'à en devenir & : à Ve
 Me médecin fatigué, c'est-à-dire un mauvais médecin. HA.“
 as iédemande qu'au moins le médecin garde quelque
 de ceci: qu'il est institué pour soigner des
@@ -409,7 +392,6 @@ Le ét les prêtres aient une certaine gaîté inso-
 aie. La plupart des médecins ont un arrière f( il
 saine tristesse. Ils nous plaisent ainsi Malh € fond de hi.
 cin qui se laisserait sédhire à Ja à * eur au méde- Ll:
-l'opération, Et je le AE angereuse beauté de
 
 de la première série
 demande à Zola, je le demande à tous ceux qui sont
@@ -511,7 +493,6 @@ Le À Ils ne se sont pas demandé, ils ne me demandent pas
 Le “4 de dire sous quelle forme, dans quelle mesure, par quels
 à moyens, les artistes seront rémunérés de ES efforts
 3 | dans l'ordre socialiste que nous voulons fonder :
-nn 7. Ils pouvaient le demander, s'ils ne le
 ifé É:: Il n'y a aucune honte à demander #o chemin, au *
 un sergent de ville. Surtout il n'y a aucune
 demander son pain. a
@@ -521,7 +502,6 @@ Ja cité. Ce serait de la vertu chrétienne FRE à
 sance bourgeoise de demander
 e d'une. fausse élégan RÉERE ni:
 cociété du pain pour son prochain, pOur ges My : “#4
-ï, Mais i orme En
 de n'en demander pas pour 01. Mais il est Co) 5
 la solidarité socialiste ainsi que nous nous la rt
 tons, ainsi que nous laimons, ainsi que nous la pr ve ne ei:
@@ -530,7 +510,6 @@ chaque jour. Et nous sommes inclus parmi tous les
 citoyens. Parce que nous. Sommes réciproquement, FR
 mutuellement, le prochain du prochain, le voisin des
 voisins, le concitoyen de nos concitoyens. Do:
-Je continue :
 ils n'ont '
 point cette préoccupation; d'abord parce qu'ils sont ns
 à l'âge heureux où le fardeau des besoins matériels
@@ -550,7 +529,6 @@ qu'ils demeurent, m: : on
 a ren, angent et boivent. Car les gens qui
 availlent bien sans manger, mo ne
 légende b A > mon ami, c'est de la se
-ourgeoise romantique, Ou bi
 besoins matériels nca 44 + Ou bien le fardeau des
 Matériels pèse directement, 1 { » loyalement sur leur
 
@@ -611,7 +589,6 @@ raissent aussi infatigables. Cela dénote une mauvaise Er
 penses, lui dit un ami, que les dieux négligent les l 4 -
 affaires humaines, à tant de tableaux ne remarques-tu :, À à
 pas combien d'hommes ont dû à leurs vœux d'échapper \ “JS
-à la force de la tempête et de parvenir sauvés jusqu'au js ee a
 mer. Ce rest sa de ét qui ont véri dans la
 quelque respect hum ar que vous, qui avez gardé
 était déjà vieux du tenpa do een de démonter. jh
@@ -648,7 +625,6 @@ Mais nous reviendrons là-dessus. Laissons aussi
 l'art au travail de beauté. Je n'accorderais nullement
 l'identité. Mais la distinction demanderait une sérieuse
 
-dialectique. Je m'en tiens provisoirement à Ex Era
 des artistes au cœur de ma république. ve sil
 « Supposez un homme instruit
 et noble de cœur exerçant un de ces métiers qui
@@ -673,7 +649,6 @@ plaisent. — car ce métier, n'oceu À +" FSRRe
 détournerait moi à À pant que mes mains, Dès
 à moims ma pensée que la nécessité de AS à
 . Parler pendant deux heures de ce qui n'est l'obi
-actuel de mes réflexions. Ce seraient ia à nu M x
 heures de délicieu: ou cinq LÉ eu
 se promenade, et j'aurais
 temps pour les exerci » EL J'aurais le reste du Be.
@@ -683,7 +658,6 @@ de lois: + J'acquerrais pendant ces h ‘#
 e loisir les connaiss SE es heures ?
 ances positives, je ï
 dent les autres ce que j'aurais , Je ruminerais pen- 1
-acquis. Il ÿ a certains
 méti de la première série
 1 €rs qui devrai
 ice q alent être les métiers réservés des hi
@@ -757,7 +731,6 @@ l'enseignement, emploi social qui n'a presque rien de
 commun avec la science.
 
 EL | Au risque de ne pas vous sembler moins ignorant que
-je ne le parais à la plupart de nos contemporains, je
 vous avouerai que je connais dans ces quelques morceaux sinon tout le socialisme au moins l'indication de
 tout le socialisme ainsi que je l'entends. Vous me dek mandez pourquoi M. Renan n'est pas devenu ou demeuré
 i socialiste, ainsi que nous le sommes. Je vois à cela
@@ -765,7 +738,6 @@ beaucoup de raisons, et vous les voyez aussi, venues de
 son caractère et de son histoire. Mais la raison pro-
 #4 " chaine est, ce me semble, que l'auteur a mal entendu ta Fa
 à 1e que lui-mêmeil avait prononcé, il a entendu en un sens dé- !
-Da À faillant ce qu'il avait prononcé en un langage ce
 d \t ble, — ou plutôt il n'entendit pas bien personne api
 comme spectateur le personnage qu'il nous Re ue
 matiquement proposé. Vous save que £ AUS ul
@@ -819,7 +791,6 @@ république, on lais “rquilles Dansma fi
 à , sera les gens le plus tranquilles
 pas en vain que les anciens philosoopes a.
 D | perfection de l' <"ens philosophes ont amnqncé ja
-rater. Je demande ae a
 Fe ten in, que l'on ne fasse point de mal à ses concitoyens.
 u' Et vus ia que je reprocherai à Jaurès d'avoir donné
 ou 4 avoir au moins indiqué une solution mauvaise parce
@@ -846,7 +817,6 @@ pe le plus considérable.
 { temps de leur loisir, qui sera le p
 } beaucoup près, mon ami rasétrez- VOUS où
 sera les citoyens * mot de tranquillité, à peu
-à ine i e de la liberté humaine,
 près comme la saine jonissanc mi
 je crois que ce dont l'homme LS tot
 lement le plus besoin, ce qui scrait naturellement ; UNS !
@@ -899,7 +869,6 @@ ren É Le souverain de droit divin, c'est la raison. La majoSR A rité ne fait p
 - \ Je passe l'idée d'un gouvernement scientifique. Je continue :
 Er À. Le suffrage d'un peuple ignorant ne peut amener qe
 nue la démagogie ou l'aristocratie nobiliaire.
-nn. pig sa-
 [a Je passe que le peuple n'aime pas les ire et les
 | vants. Mais je retiens encore ces fragments
 ll « + cuitiver.le peuple. Tout
@@ -998,7 +967,6 @@ de la première série
 laires, furent glorieux. Ne me faites
 ne pense pas, Je sais que plusi P°S dire ce que je
 vraiment glori ne VrAÏS artistes furent
-&lorieux. Je ne leur en VEUX pas, Je ne n°
 que beaucoup d'artistes n'aient eu de leur
 accompagnement plus ou moins large de va Re
 Mais quand VOUS aurez distingué de la gloire so ne
@@ -1064,7 +1032,6 @@ ement agencé le nil
 de la Première Série
 dessein de remplacer moins ou pl
 dans l'imagination des peuples à TRUE Premier
-militaire et Contaminé, romain, De op jé un
 {| Malheur à l'artiste qui aime la loire, J'ai S gloire,
 \qui aime son art, 0e: J'aime l'artiste
 Û 1, “ PER LS Jaurès M'Opposerait que la gloire est
@@ -1087,7 +1054,6 @@ une émulation socialiste habilement enrubannée. La
 Ÿ gloire est en un sens l'autorité de la réputation. me
 révolation supprimera toute autorité. Sans quoi elle
 SA É. ne serait pas définitive, elle ne serait pas la révo-
-#4 Nes reviens au commencement de FU ns
 :d Jaurès paraît s'imaginer que la PÉVOBMER Ass
 l'art serait faite parce que les œuvres a ma
 d'être la propriété individuelle de quelques
@@ -1151,8 +1117,6 @@ ct déshonorant métier de composer pour le foule .
 PT , bourgeoise. Et quelle décadence que de tomber de la “ l
 ù 1 foule bourgeoise mauvaise payeuse aux snobs encore
 plus avilissants. Les histoires douloureuses Aer sel [ul s
--u# Es nent à la mémoire et vous vous A me LEE L
-die la mode bourgeoise et de la foule et de la modesnol É y
 sur la déplorable production de l'art. Vous vous a
 5 ‘à sentéz les tentations quivassaillent les er “ K. c
 perpétuelle oppression de l'écrivar insincère, parce deu
@@ -1178,9 +1142,6 @@ qu à abonné, surtout l'abonné des grands journaux, 8
 ue des grandes revues, son abonnement lui ‘8
 a a avant toutun moyen de domination. L'expres- 1h D RE
 
-n Je me désabonne est l'expression d'un perpétuel % Far, LA es
-chantage. Que devient di I SE
-sion, la liberté de l'écrivain. V. S Tea Le f
 ES + Vous savez aussi bien À ES
 moi qu'elle est nulle, puisqu'elle n'est + que
 Souvent elle est imperceptible, C'est pes entière etque | LS D.
@@ -1257,7 +1218,6 @@ de de us Fu en qui cette constatation n'aurait
 A Un profond retentissement d'art
 l seulement Partiste tue l'art: ae
 le monde, il tue tous ses nn és “metont
-f travail social et du travail h Jus: La distinction du
 k alte encore dans la société b Ï RE
 ial Ourgecise et le travail
 y étant rendu insuffisant, le total “du travail til +.
@@ -1280,7 +1240,6 @@ Le ce poème où il s'émeut que les statues aient des palais
 T À climat injurieux. Un tel scrupule ne vientpas spontané
 à, ment aux optimistes. Mais il est impossible quil ne soit : (
 pas venu à tout profond artiste ayant un certain sens ME À
-ë M de la vie et des antinomies morales. Ce ae
 dé RE jamais parvenu à l'établissement des séules r sat
 péremptoires, avait alors un sens critiqué nd ee :
 :.2s questions. Il n'a jamais su les solutions, mais - Fe 1 à
@@ -1388,13 +1347,11 @@ avons franchi anxieusement le seuil religieux. Pareille- FN
 ment nous avons connu les sentiments humains de l'art
 assez longtemps après que nous en eûmes religieu- -
 
-beauté de l'art, ÿ … FES #iHation religieuse à la : F
 is » J'y réussis assez volontiers, car l'ini- L
 n marque de Sa nuance pour ainsi dire tous les
 iments qui suivent, et derrière ces sentiments je Hi
 ne cahier de la première série
 ï la revoi
-autant qe Pan Fe pe Je veux l'analyser, à
 ductiblé ‘nov que j'y aperçois Comme un irré.
 à qui inférieure à une vi supérieure, coran
 à l'initiation même à toute vie supérieure. Mais cœ \ 4 d
@@ -1513,7 +1470,6 @@ de plus en plus ce dernier plan. L'expression de maître Re
 que l'on doit prononcer en bâillant et bélant un peu jé Fe
 bouche ovale et toutes les dents à l'air, disparaiscai de
 de nos entretiens. Fr Res .
-ae Qui nous vint. Nous Ne pi - il
 Us en Pie AUX Cours de l'école normale. ae sea
 dl première sa
 . ; cacher, s'il est Vrai, comme je Je crois Le « e
@@ -1614,8 +1570,6 @@ ii : jé, nous constations qu'il nou
 Ï monde des à lus varié. Nos découvertes
 apparaissait aussi de plus enp
 
-ie ï on- LEE
-
 tas et des variations indéfinies. Nous ne 1È j
 franchement à ceux que nous aimions. À ce : ÎLE
 Nous vivions avec eux. Parmi eux. Familièrement.
@@ -1646,7 +1600,6 @@ ane ar au commencement constituer la
 
 de ces Abel . Un malaise nous venait
 
-Abe 8. Lo ue Analysant alors un
 Dos y aperçümes Réal ses de l'initiation, "M
 de M ent certains éléments douteux
 Mauvais. Dans l''initiale extase “ ; AR, M
@@ -1705,7 +1658,6 @@ que dans la peine et dans la laideur universelle, nos  : ..
 musées demeurent les derniers asiles de l'art véritable Le “a
 et de la véritable beauté. Je ne suis nullement pour que
 l'on démolisse les consolations et les refuges. Mais en- x
-sh “Qu préprons justement la naissance et la vie d'une À c Se
 cité qui n'ait besoin d'aucun refuge, puisqu'elle n'aura l LT > à,
 ue aucune connaissance de la peine et de la laideur. “
 Je 5 oublierai jamais tout ce que: nous devons re Wù
@@ -1713,17 +1665,14 @@ ns es, Pour tout dire d'un mot, je n'oublierai jariais
 a Rene a copieuse bonté du Louvre. Mais je crois £
 a L 3 eUraltun très gros danger à laisser imaginer que “à
 so NE de Louvre encore mieux que le Louvre
-it le itif idéal humain N° x ri
 Eee Iibimiient” de à espece pas Michelet, qui
 vé contre l'ancienne instituti FE) !
 musées. Vous ne vous noie ution des Fe
 rien. Moi non plus, Mais ii + Plus. Vous ne savez
-le saura; nous Je dire m7. de UP de VOS abonnés, qui > HE
 ien que Michelet ue
 du à €la première série
 Es S est fortement
 ourgeoise des musées, contre l'entass a
-L À eme
 talité de la cohabitation. Cette attitude ns us
 deux raisons, dont l'une était que Michelet fut un vi nt
 naire, et dont la deuxième était i Res
@@ -1759,9 +1708,6 @@ du même regard PS VO? ière que de se faire ac- à
 Ce serait une imagination grossiére q" ésent, qui
 (4 : x qui n'entendent rien au présent, 9
 Fi croire que ceux qui sont comme afranchis
-RÉPONSE BRÈVE À JAURÈS il
-pour se représenter le futur. Nos: AL M va
-n'a pas vu, ne verra pas: Michelet eut d à a I HE
 inairement neufs parce qu'il avait eu des VUS | LiÉ j
 exactement vieilles. Comme historien, il sen 4 Hal
 ment l'insuffisance artistique et historique des pc À !
@@ -1793,7 +1739,6 @@ iti RE taire de la première i-
 Sltion. Cette histoire de réquisitions acqui: dE à
 s me semble un
 raccourci et vraiment un symbol ge 4 première vérle
-Car nous savons en oo quisicn, 5e 4 F
 La d'argent ne sont pas moins Ra : A
 moins des violences que les ie Fi PR hi:
 k violences financières ne nous sont: pas Rp Les
@@ -1822,13 +1767,11 @@ ont se multiplier. Il ne faut pas que ce nom coms à -
 à d'expositions nous abuse. Il peut désigner jenr is
 dl rations inverses. Autant il me paraît inintellige “A à ee
 
-. Réponse BRÈVE À SAURÈES L'ÈE
 ÿmmoral d'entasser à Paris des produ llandais - 12 L: i
 ne ant il me convient que les H Nes
 done, FE brandt dispersés, que les Eepegnos
 -  assemblent les Rembran Murillo et les Goya. Ceci
 recueillent les membres. de sation. LED INFE
-institution, de la réorganisation. LEP, CAES
 sition est dé la déconstitution, de la désorganisation.
 “éme gentiment de remords nous avons été
 Par ce même sentiment 0 des Rubens, : Le

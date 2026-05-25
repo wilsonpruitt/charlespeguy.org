@@ -10,22 +10,10 @@ wordCount: 22152
 paraissant vingt fois par an LT
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ta MR PE PR En ENS SAP
-de
 Nous mettons ce cahier dans le commerce; nous le
 M | vendons un franc M
-# j CSN
-
-€ TO ANNEES i , av NEA LE N ui LS
-
-{ae te M LE AM LR a MARNE MAC SES SA ER
-ÉTÉ e LAS LES enr
-SAUNA ARE Des Gr “ER
 
 l'aube fraternellte
-
-NUS de A \ ae F7
-D RTE ; At d NE PERTE Lie
 
 Je vous adresse quelques papiers que j'ai tout lieu de
 croire assez intéressants. C'est le journal d'un jeune
@@ -72,7 +60,6 @@ Les premiers moments où il vit nettement l'anéantissement prochain furent pén
 était pris d'un grand frisson à la pensée de la destruc- {
 tion totale et ses mains maigres se Cramponnaient aux |
 choses avec une énergie farouche et des gestes de d
-|
 
 ; k révolte. Les instants les plus durs étaient ceux où on le
 
@@ -189,7 +176,6 @@ mouvement de curiosité. On cherche à me connaître ; T
 je suis différent, avec mes mains blanches, mes vête- |
 
 10 4
-|
 
 | ments plus soignés. Maître d'école, employé ou sémina-
 
@@ -262,8 +248,6 @@ des souflles noirs, dans l'épouvante, et que les grands
 oiseaux de mer jettent leurs rauques clameurs dans le
 vent, et frôlent de leurs ailes immenses, ouvertes dans
 la nuit, les flancs du navire. |
-
-| ‘
 
 Après tout, elle n'est pas si différente, cette vie, de
 ma vie passée, au moins pour le confort et le luxe. La
@@ -395,8 +379,6 @@ Et l'autre, le Parisien, se tourne vers la compagnie,
 la prend à témoin, commente d'un clignement d'yeux et
 d'un sourire :
 
-— Tu vois, i s'dessale.
-
 Et d'autres enfin, Parisiens également, d'allure inquié-
 tante, avec de mystérieux tatouages sur la peau, sur
 qui on se chuchote des histoires, qui parlent de sonner
@@ -481,9 +463,7 @@ d'autrefois disparaître, ses vieilles familles se disperser,
 ses vieux hôtels s'emplir du va et vient d'étrangers. Et 1}
 lentement, avec un plaisir subtil d'imagination, je le
 cherche à découvrir, derrière sa banalité présente, sa Fi
-|
 
-| L'ARRIVÉE
 : physionomie lointaine, je la vois, telle qu'elle était
 cinquante ans en arrière, moitié ville et moitié village,
 avec ses bourgeois récoltant leurs vins, cueillant leurs
@@ -601,8 +581,6 @@ après une journée de marche au grand air froid du
 dehors, près d'un poêle bourré de charbon, fumant ure É
 pipe qui tirait bien, devant un bol de vin chaud. F
 
-|
-
 Le printemps est tardif dans ces pays du Nord.
 
 Il prépare longuement sa venue, avec des coquetteries, des hésitations charmantes. Rien ne saurait
@@ -650,8 +628,6 @@ banales, qui éveillent dans nos êtres un frisson toujours
 
 Un léger bruit de pas. C'est le soldat Finoche, qui
 rôdant par là me rejoint dans ma cachette.
-
-— As-tu du perle?
 
 J'ai du perle, et des feuilles, il roule une cigarette,
 l'allume, s'allonge à mes côtés, les pieds dans l'herbe
@@ -998,12 +974,6 @@ flancs gazonnés; des touffes de saules ont gardé quelques feuilles jaunies par
 Des chaumes grisâtres et détrempés, de la prairie inondée où roulent des vapeurs blanches, de la terre
 boueuse se lève une tristesse infinie, qui me tombe sur
 le cœur, le noie. J'ai froid; de grands frissons traversent ma chair enfiévrée.
-
-me Ï } L ii 0 ER
-Roi . À 1 QU ATMERE ur ni -
-NC ï MS ET) LONE à ne SRE TETE
-
-Le camp d'Eaubonne.
 
 Figurez-vous une plaine, nue, immense. Çà et là
 quelques petits bois de pins chétifs et rabougris, allongeant leurs branches au ras du sol, rapetissés par toute |
@@ -1384,11 +1354,6 @@ côtés, sur ma tête, le long des branches. Je m'endors,
 et quand je me réveille le lendemain, le soleil est déjà
 haut, des oiseaux chantent. Il me semble que je sors
 d'une eau fraîche, tant j'ai le corps reposé et l'âme
-|
-
-|
-|
-#
 
 D'autres couchers de soleil somptueux où les derniers
 rayons flambent comme des torchères sous des nuages
@@ -1402,10 +1367,6 @@ et plus mornes, où de pâles rayons filtrent dans le vent
 qui grandit, d'autres soirs pleins de tristesse, sans
 clartés, sans reflets, où les choses se hérissent, se
 crispent, sous des souffles rageurs.
-
-dE ñ “if ÉMRNE:
-
-Ms = Re k Les de RE Cho
 
 Depuis quinze jours, toute la batterie est au fort du
 Redan. Nous sommes venus y faire des travaux de terrassement, des réparations urgentes.
@@ -1790,8 +1751,6 @@ les calerais. Tu irais aux halles décharger les voitures È
 de choux.
 — Et ta gironde qui s'est fait emballer et qui tra- i
 vaille plus. |
-|
-ni
 
 — Charrie, vieux, on te laissera, Polyte.
 
@@ -1874,10 +1833,6 @@ Je nage dans le goudron, il s'étale sur mes treillis em
 larges plaques qui collent à ma peau et la brûlent; il y
 en a plein mes souliers ; tout ce que je mange, je bois,
 sent le goudron; son odeur âcre et nauséabonde me
-
-|
-|
-|
 
 l'Aube fraternelle
 poursuit la nuit, dans mon sommeil, le flot noir et vis- |
@@ -1998,7 +1953,6 @@ emplit les voûtes de pierre, les plaques tournantes
 sonnent, des portes métalliques battent. Dans la cour
 on entend la trépidation d'une machine à vapeur, qui
 va actionner la dynamo pour les projecteurs électriques. Les hommes sont répartis en équipes de travail
-ou de combat. C'est un va et vient de bourgerons de
 toile et d'uniformes. Ceux qui vont se battre, en collection de guerre, sac au dos, partent le long des che- |
 mins pierreux vers les batteries avancées. Déjà sous les ;
 peupliers de la route, dans la plaine, défilent en longues
@@ -2092,10 +2046,7 @@ avec joie la grande forêt bleue, la plaine où luisent des
 eaux paisibles, les cultures, les sainfoins roses et les
 blés roux, mouvante parure jetée par le travail de
 l'homme sur les flancs sacrés de la terre.
-|
 
-|
-|
 « Allons, ça se tire. » Les premiers réservistes sont
 arrivés. Nous en avons trois ou quatre « à la carrée ».
 Ils se tiennent à l'écart dans les premiers moments, ils
@@ -2276,7 +2227,6 @@ de lui avoir donné une foi robuste dans leur efficacité. À
 sans mystère. À
 Il fait le charroï des bois de grume à Paris. Chose :
 curieuse, il a le plus profond dédain pour la grande
-ville, où il y a trop de monde, pas de bon air; il ne s'y É
 arrête jamais à ses voyages. Ce charroi l'occupe, quand 1
 les travaux des champs chôment, et lui fait gagner
 Mais ce qui revient toujeurs dans ses propos, c'est 4
@@ -2396,8 +2346,6 @@ prodigue de bourrades, et dont les tendresses s'assènent des horions.
 Au dehors la nuit tombe. Les jours sont plus courts.
 Il faut allumer les lampes avant l'appel du soir.
 
-|
-
 L'étape était longue, la route poudreuse, le soleil
 brûlant. Tout à coup un vertige na pris, je suis tombé
 sur le sol. La plaine tournoyait, des arbres lointains
@@ -2424,8 +2372,6 @@ passant sous ma tête sa grosse main calleuse, il me
 
 | Je les suivais péniblement, le corps défaillant, l'âme
 neuve, sentant confusément sourdre en moi des émotions inconnues.
-
-|
 
 Nous sommes une vingtaine, couchés, debout, assis,
 dans une fourragère. Il y a un tir réel à projectiles,
@@ -2455,8 +2401,6 @@ où se perdent les couleurs et les formes, qui flotte
 comme une mer impalpable et diaphane, qui serait
 
 Voilà que sur nos têtes, la voûte s'éclaircit, se subti-
-
-sa AU FORT
 
 1% lise, on devine que dans les hauteurs de l'air, le soleil
 
@@ -2576,8 +2520,6 @@ rappeler sans cesse la joie naïve du peuple, sa résigna-
 tion et sa facile bonté. Donnez-moi la haine de ce qui
 n'est pas comme vous droit, simple, fort.
 
-#
-
 n Je tousse depuis quelques jours. J'ai pris froid : je
 tremble de fièvre, les soirs, et la poitrine me fait mal.
 
@@ -2610,19 +2552,10 @@ printemps, pleins du tressaillement des sèves, d'autres
 encore lointains, sûrs, pleins du piétinement des foules,
 de la rumeur des mondes qui naissent.
 
-Le gérant : CnARLEs PÉGUY
 Imprimerie de Suresmes (E. PAYEN, administrateur), 9, rue du Pont. — 6607
 
-à Éd FAIRE eve Na Re Re NET D
-PRESS ‘de
 _ Ce cahier a été composé et tiré au tarif des ouvriers 4
-> FT = rex
 
 Fini d'imprimer deux mille exemplaire s de ce
 ‘te euxième cahier le jeudi 23 octobre 1902
-nu à l'Imprimerie de Suresnes KES
 FOIS 9-rue-du Pont, : NT RSR
-
-ne Ÿ RSS LT RS EVE
-
-MR Lien S ï PT ET et

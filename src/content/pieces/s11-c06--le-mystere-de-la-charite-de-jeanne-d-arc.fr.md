@@ -8,16 +8,11 @@ isAvertissement: false
 wordCount: 45606
 ocrSource: "fr.wikisource.org — Œuvres complètes, Tome 5 (NRF 1918), 2026-05-25"
 ---
-
 *le mystère*
 
 *de la charité*
 
 *de Jeanne d’Arc*
-
-NON SOLUM IN MEMORIAM
-
-SED IN INTENTIONEM
 
 *Non seulement à la mémoire*
 
@@ -33,17 +28,9 @@ SED IN INTENTIONEM
 
 *pour le cinq centième anniversaire*
 
-*de la naissance de Jeanne d’Arc,*
-
 *qui tombera pour le jour des Rois*
 
-*de l’an 1912.*
-
 1425.
-
-En plein été.
-
-Le matin,
 
 Jeannette, la fille à Jacques d’Arc, file en gardant les moutons de son père, sur un coteau de la Meuse. On voit au second plan, de la droite à la gauche, la Meuse parmi les
 prés, le village de Domremy avec l’église, et la route qui mène à Vaucouleurs. À la gauche au loin le village de Maxey. Au fond les collines en face : blés, vignes et bois ; les blés sont jaunes.
@@ -54,14 +41,8 @@ Hauviette, son amie, dix ans et quelques mois.
 
 Madame Gervaise a vingt-cinq ans.
 
-# LE MYSTÈRE DE LA CHARITÉ
-
-DE JEANNE D’ARC
-
 Jeannette continue de filer : puis elle se lève ; se tourne
 vers l’église ; dit le signe de la croix sans le faire :
-
-Jeannette
 
 Au nom du Père ; et du Fi ; et du Saint-Esprit ; Ainsi soit-il.
 
@@ -158,9 +139,7 @@ les pasteurs. Nous sommes des bons chrétiens, vous
 savez que nous sommes des bons chrétiens. Alors comment que ça se fait que tant de bons chrétiens ne fassent pas une bonne chrétienté. Il faut qu’il y ait quelque chose
 qui ne marche pas. Si vous nous envoyiez, si seulement
 vous vouliez nous envoyer l’une de vos saintes. Il y en a
-bien encore. On dit qu’il y en a. On en voit. On en sait.
 On en connaît. Mais on ne sait pas comment que ça se
-fait. Il y a des saintes, il y a de la sainteté, et ça ne marche
 pas tout de même. Il y a quelque chose qui ne marche pas. Il y a des saintes, il y a de la sainteté et jamais le
 règne du royaume de la perdition n’avait autant dominé
 sur la face de la terre. Il faudrait peut-être autre chose,
@@ -188,8 +167,6 @@ Les Anglais n’auront pas
 
 La Tour de Saint-Nicolas.
 
-Jeannette
-
 Mon Dieu, mon Dieu, nous serons bien sages, nous
 serons bien soumis, nous serons bien obéissants. Nous
 serons bien fidèles.
@@ -199,34 +176,13 @@ sommes vos enfants.
 
 Hauviette apparaît venant.
 
-Jeannette
-
 Mon Dieu, mon Dieu, qu’est-ce qu’on a fait de votre
-peuple.
 
 Entre Hauviette. Elle commence toute chantante, comme si ses paroles ne fussent que la suite naturelle de sa chanson, et ne redescend que par degrés à son propos ordinaire.
 
-Hauviette
-
-— Bonjour, Jeannette.
-
-Jeannette
-
-— Bonjour, Hauviette.
-
-Un silence.
-
-Hauviette
-
 — Tu faisais ta prière ?
 
-Jeannette
-
 Un assez long silence.
-
-— Je faisais ma prière. Il y a tant de manque. Il y a tant à demander.
-
-Hauviette
 
 — Le bon Dieu sait bien ce qu’il nous faut, le bon Dieu sait bien ce qui nous manque.
 
@@ -234,17 +190,10 @@ Puis toujours comme bavardant :
 
 Tu faisais ta prière. Ne t’en excuse pas. Ne t’en
 défends pas. Je ne te le reproche pas. Tu n’as pas
-besoin de t’en défendre. Il n’y a pas de mal à ça. Tu
 n’as pas besoin d’avoir honte.
-
-Jeannette
-
-Un silence.
 
 — Je faisais ma prière. Toi aussi, Hauviette, tu fais
 ta prière.
-
-Hauviette
 
 — Moi je suis bonne chrétienne comme tout le monde,
 je fais ma prière comme tout le monde, je suis bonne
@@ -280,7 +229,6 @@ tout naturel, ça, ça se fait tout seul.
 
 Il faut que le dimanche ressorte dans la semaine et
 que l’*Angelus* et l’heure de la prière sorte dans la
-journée.
 
 Oui Jeannette, ma belle, je fais ma prière, mais toi tu
 ne sors pas de la faire, tu la fais tout le temps, tu n’en
@@ -288,29 +236,16 @@ sors pas, tu la fais à toutes les croix du chemin,
 l’église ne te suffit pas. Jamais les croix des chemins
 n’avaient tant servi…
 
-Jeannette
-
-— Hauviette, Hauviette…
-
-Hauviette
-
 — Ne te fâche pas, ma belle. Jamais les croix des
 chemins n’avaient tant servi…
 
-Jeannette
-
 — Hélas hélas une croix un jour a servi, une vraie
 croix, en bois, sur une montagne, a servi une fois…
-quelle fois.
-
-Hauviette
 
 — Tu vois, tu vois. Ce que nous savons, nous autres,
 tu le vois. Ce qu’on nous apprend, nous autres, tu le
 vois. Le catéchisme, tout le catéchisme, et l’église, et
-la messe, tu ne le sais pas, tu le vois, et ta pièce tu ne
 la fais pas, tu ne la fais pas seulement, tu la vois. Pour
-toi il n’y a pas de semaines. Et il n’y a pas de jours.
 Il n’y a pas de jours dans la semaine ; et pas d’heures
 dans la journée. Toutes les heures te sonnent comme la
 cloche de l’*Angelus*. Tous les jours sont des dimanches
@@ -318,11 +253,7 @@ et plus que des dimanches et les dimanches plus que
 des dimanches et que le dimanche de Noël et que le
 dimanche de Pâques et la messe plus que la messe…
 
-Jeannette
-
 — Il n’y a rien de plus que la messe.
-
-Hauviette
 
 — Je suis une bonne paroissienne de la paroisse de
 Domremy en Lorraine, dans ma Lorraine de chrétienté.
@@ -334,8 +265,6 @@ monde, que depuis treize ans et demi que toi tu es
 venue au monde. Voilà ce que je sais. Et la croix qui
 est à la croisée du chemin de Maxey.
 
-Jeannette
-
 — Hélas, hélas, c’est que c’est le chemin qui mène
 aux ennemis, le chemin du bourg ennemi. Comment
 des chrétiens peuvent-ils être ennemis, enfants du
@@ -343,38 +272,19 @@ même Dieu, frères de Jésus.
 
 Tous frères de Jésus.
 
-Hauviette
-
 — Tellement que tu as honte…
-
-Jeannette
-
-— Hauviette, Hauviette…
-
-Hauviette
 
 — Tellement que tu as honte, d’être toujours en
 prière, et que tu te caches. Tu dis le signe de la croix,
-au lieu de le faire, au commencement et à la fin de tes
 prières, pour qu’on ne te voie pas, parce que tu le ferais
 tout le temps.
-
-Jeannette
-
-— Hélas.
-
-Hauviette
 
 — Tu veux être comme les autres. Tu veux être
 comme tout le monde. Tu ne veux pas te faire remarquer. Tu as beau faire. Tu n’y arriveras jamais.
 
-Jeannette
-
 — Je suis une bergère comme tout le monde, je suis une chrétienne comme tout le monde, je suis une paroissienne comme tout le monde.
 
 Je suis votre amie comme vous.
-
-Hauviette
 
 — Tu auras beau faire, tu auras beau dire, tu auras
 beau croire : tu es notre amie, jamais tu ne seras
@@ -384,12 +294,8 @@ Je ne t’en veux pas. Je suis dans la main du bon
 Dieu. Nous sommes dans la main du bon Dieu, tous, et
 la terre, entière, est dans la main du bon Dieu. Il faut de tout pour faire un monde. Il faut des créatures de toute sorte pour faire une création. Il faut des paroissiens de toute sorte pour faire une paroisse. Il faut des chrétiens de toute sorte pour faire une chrétienté.
 
-Jeannette
-
 — Il y a eu des saints de toute sorte. Il a fallu des
 saints et des saintes de toute sorte. Et aujourd’hui il en faudrait. Il en faudrait peut-être encore d’une sorte de plus.
-
-Hauviette
 
 — Tu es parmi nous, tu n’es pas comme nous, jamais
 tu ne seras comme nous. Moi quand je fais ma prière,
@@ -397,32 +303,17 @@ je suis contente, pour le temps que ça dure. Pour le
 temps de la faire, et pour le temps que ça dure après.
 Jusqu’à la suivante. Jusqu’à la prochaine.
 
-Jeannette
-
-— Hélas.
-
-Hauviette
-
 — Mais toi ça te laisse toujours sur ta faim, de faire
 ta prière. Et tu es toujours aussi malheureuse qu’avant.
 Après qu’avant. Écoute, Jeannette : Je sais pourquoi tu
 veux voir madame Gervaise.
 
-Jeannette
-
 — Personne encore ne l’a deviné, ni maman, ni ma
 grande sœur, ni notre amie Mengette.
 
-Hauviette
-
 — Je le sais, moi, pourquoi tu veux la voir, cette
-madame Gervaise.
-
-Jeannette
 
 — Alors, Hauviette, c’est que tu es bien malheureuse.
-
-Hauviette
 
 — Malheureuse, malheureuse, je suis malheureuse
 quand c’est mon tour. C’est pas toujours mon tour.
@@ -434,13 +325,8 @@ heureuse de ta vie parce que tu fais la charité, parce
 que tu soignes les malades et que tu consoles ceux qui
 sont affligés ; et que tu es toujours là avec ceux qui ont
 de la peine. Mais moi, moi Hauviette, je sais que tu
-es malheureuse.
-
-Jeannette
 
 — Tu le sais parce que tu es mon amie, Hauviette.
-
-Hauviette
 
 — Je ne suis pas amie seulement, je suis une fille qui
 voit clair. De faire du bien aux autres, nous autres ça
@@ -452,28 +338,17 @@ as, pauvre grande, tu as une fièvre, une fièvre de
 tristesse, et tu ne guéris point, tu ne te guéris jamais.
 Tu as une grande fièvre. Tu es pétrie de tristesse. Ton
 âme est pétrie de tristesse. Ton oncle est allé la chercher,
-hein.
-
-Jeannette
 
 — Il est vrai que mon âme est dans la tristesse.
 Tout-à-l’heure encore…
 
-Hauviette
-
 — Alors pourquoi faire semblant, pourquoi vouloir
 ressembler à tout le monde.
 
-Jeannette
-
 — Parce que j’ai peur.
-
-Hauviette
 
 — La tristesse, la peur, la détresse. C’est une grande
 famille et il y en a beaucoup. On dirait que tu as consommé toute la tristesse de la terre.
-
-Jeannette
 
 — Comment une âme ne serait-elle pas noyée de
 tristesse. Tout-à-l’heure encore j’ai vu passer deux
@@ -485,16 +360,8 @@ pas quitter mes moutons. Ils ne m’avaient pas vue. Ils
 sont accourus en criant comme des petits chiens. Le
 plus grand avait bien sept ans.
 
-Hauviette
-
 — Le plus petit avait bien trois ans. Des moucherons,
 des marmots. Je les connais très bien, tes nourrissons.
-
-Jeannette
-
-— Hauviette, Hauviette.
-
-Hauviette
 
 — Je les ai rencontrés en venant. Je montais, ils
 descendaient. Ils descendent toujours. Ils m’ont appelée
@@ -505,29 +372,18 @@ laine. Oui, oui, c’est toi madame la bergère. Malicieusement. Ils avaient bon
 très bonne mine. Ils étaient contents. Ils avaient l’air
 heureux de vivre.
 
-Jeannette
-
 — Ils sont accourus comme des petits chiens. Ils
 criaient : Madame j’ai faim, madame j’ai faim.
-
-Hauviette
 
 — Tu en oublies. Ils ont dû t’appeler, oui, oui, ils t’ont
 certainement appelée (saluant) madame la bergère. Ils y tenaient trop. Ils étaient trop contents de toi, après. Et
 ils étaient aussi trop contents de ça, de t’appeler comme
 ça. C’est pas comme moi.
 
-Jeannette
-
 — Toi tu n’y tiens pas. Tu as raison, petite sotte,
 petite peste. Ils m’ont appelée madame la bergère.
 
-Hauviette
-
 — Tu vois bien. Moi je n’y fais pas même attention.
-Je n’ai rien entendu.
-
-Jeannette
 
 — Ils criaient : Madame j’ai faim, madame j’ai faim.
 Ça m’entrait dans le ventre et dans le cœur, ça me
@@ -535,16 +391,12 @@ broyait comme si des cris pouvaient broyer le cœur.
 Ça me faisait mal. Regardant brusquement Hauviette dans les yeux. Je ne suis peut-être pas la seule madame qui ne
 peut pas supporter les cris des enfants.
 
-Hauviette
-
 — Allons, tais-toi. Veux-tu te taire. Qui veux-tu dire ?
 De qui veux-tu parler ? Je ne la connais pas. Je n’en
 connais pas. Je n’en ai pas entendu parler. Non, non,
 je ne connais personne. Finis-la, ton histoire, et qu’on
 n’en parle plus. Je la connais, ton histoire. Tu m’embêtes avec ton histoire. C’est pas la peine de la finir. Je la connais, la fin de ton histoire. Tu leur as donné
 tout ton pain.
-
-Jeannette
 
 — Je leur ai donné tout mon pain, mon manger de
 midi et mon manger de quatre heures. Ils ont sauté
@@ -572,8 +424,6 @@ Et j’ai senti que j’allais pleurer. Alors j’avais les yeux
 gonflés, j’ai tourné la tête, parce que je ne voulais pas
 leur faire de la peine, à ces deux-là, du moins.
 
-Hauviette
-
 — Oui, oui, vous avez inventé ça, aussi. Tout ça c’est
 très perfectionné. Vous avez un secret pour ça. Vous
 réussissez à souffrir plus que ceux qui souffrent eux-mêmes. Où les malheureux sont malheureux une fois,
@@ -591,12 +441,8 @@ Vous savez profiter, vous profitez de tout. Un quart
 d’heure de pire. C’est toujours autant de bon. C’est
 toujours autant de gagné. Vous êtes des profiteurs.
 
-Jeannette
-
 — Je leur ai donné mon pain : la belle avance ! Ils
 auront faim ce soir ; ils auront faim demain.
-
-Hauviette
 
 — Ils auront faim ce soir, ils n’y pensaient pas ce
 matin ; ils avaient faim hier, ils n’y pensaient pas ce
@@ -606,21 +452,15 @@ autres. Ils en trouveront d’autres.
 Vous avez faim, pour les autres qui ont faim, même
 quand ils n’ont pas faim.
 
-Jeannette
-
 — Jeûner, jeûner ne serait rien. On jeûnerait tout le
 temps si ça servait tout le temps.
 
 On jeûnerait tout le temps si ça servait une fois. On
 jeûnerait tout le temps si ça servait jamais.
 
-Hauviette
-
 — Ni les embêtements de demain, ni les embêtements
 d’hier : aujourd’hui seulement les embêtements d’aujourd’hui. Il faut prendre le temps comme il vient, même le temps des autres. Il faut prendre le temps
 comme le bon Dieu nous l’envoie, même comme il l’envoie aux autres, comme il nous envoie le temps des autres.
-
-Jeannette
 
 — Leur père a été tué par les Bourguignons. Hélas,
 hélas, ce n’est pas même par les Anglais. On n’a pas
@@ -629,8 +469,6 @@ mère, hélas leur mère. Tous les deux ils ont échappé
 ils ne savent pas comment. Ils ne le sauront jamais.
 C’est le plus vieux qui m’a dit tout ça, quand il a eu
 fini de manger. Avant de repartir.
-
-Un silence bref.
 
 Les voilà repartis sur la route affameuse. Dans la
 poussière, dans la boue, dans la faim. Dans l’avenir,
@@ -650,8 +488,6 @@ pas faire manger aux passants tout le pain de mon père. Et même alors, est-ce 
 
 Elle s’est complètement arrêtée de filer.
 
-Un silence.
-
 Nous aurons beau faire, nous aurons beau faire, ils
 iront toujours plus vite que nous, ils en feront toujours plus que nous, davantage que nous. Il ne faut qu’un briquet pour brûler une ferme. Il faut, il a fallu des années pour la bâtir. Ça n’est pas difficile ; ça n’est pas malin. Il faut des mois et des mois, il a fallu du travail et du travail pour pousser une moisson. Et il ne faut qu’un briquet pour flamber une moisson. Il faut des années et des années pour faire pousser un homme, il a fallu du pain et du pain pour le nourrir, et du travail et du travail et des travaux et des travaux de toutes sortes. Et il suffit d’un coup pour tuer un homme. Un coup de sabre, et ça y est. Pour faire un bon chrétien il faut que la charrue ait travaillé vingt ans. Pour défaire un chrétien il faut que le sabre travaille une minute. C’est toujours comme ça. C’est dans le genre
 de la charrue de travailler vingt ans. C’est dans le
@@ -664,8 +500,6 @@ toujours battus. Ils auront toujours le dessus dessus
 nous, par dessus nous.
 
 Nous aurons beau dire.
-
-Un silence.
 
 Pour un blessé qui se traîne au long des routes, pour
 un homme que nous ramassons au long des routes,
@@ -686,13 +520,9 @@ ils désespèrent de leur salut, car ils désespèrent de la
 bonté de Dieu. Et ainsi, de quelque côté qu’on se tourne,
 des deux côtés c’est un jeu où, comment qu’on joue, quoi qu’on joue, c’est toujours le salut qui perd, et c’est toujours la perdition qui gagne. Tout n’est qu’ingratitude, tout n’est que désespoir et que perdition.
 
-Un silence.
-
 Et le pain éternel. Celui qui manque trop du pain
 quotidien n’a plus aucun goût au pain éternel, au pain
 de Jésus-Christ.
-
-Un silence.
 
 Maudite soit-elle, maudite de Dieu ; même ; et maudits
 ceux qui l’ont apportée sur la terre de France ; et ceux qui l’ont apportée sur la terre de France, faudra-t-il, mon Dieu, faudra-t-il qu’ils soient maudits aussi de vous. Faudra-t-il que nous vous demandions des malédictions, vos malédictions contre eux. Et votre réprobation. Votre métier, vous mon Dieu, c’est la bénédiction. Quand nous vous demandons vos bénédictions, nous vous faisons faire votre métier. Vous étiez fait pour verser vos bénédictions comme une pluie, comme une pluie bienfaisante, comme une pluie douce, tiède, agréable, comme une pluie fécondante sur la terre, comme une bonne pluie, comme une pluie d’automne sur la tête, sur les têtes de tous vos enfants ; ensemble. Sera-t-il dit, mon Dieu, sera-t-il dit qu’à présent nous vous demanderons, que nous aurons à vous demander des malédictions, vos malédictions, nous tous vos enfants, les uns contre les autres.
@@ -702,20 +532,14 @@ nous vous demandons votre réprobation, nous ne vous
 faisons pas faire votre métier, nous vous faisons faire
 le contraire de votre métier.
 
-Un silence.
-
 Mon Dieu, mon Dieu nous ne vous faisons pas faire
 votre métier.
-
-Un silence.
 
 Elle se remet à filer.
 
 Et puis ! qu’est-ce que ça lui fait ? mes malédictions.
 Je pourrais passer ma vie entière à la maudire, du
 matin au soir, et les villes n’en seront pas moins efforcées, et les hommes d’armes n’en feront pas moins chevaucher leurs chevaux dans les blés vénérables.
-
-Un silence.
 
 Sacrés, blés sacrés, blés qui faites le pain, froment,
 épi, grain de l’épi de blé. Moisson du blé des champs.
@@ -726,17 +550,12 @@ jour entre tous les jours fûtes mangé.
 Blés, sacrés blés qui devîntes le corps de Jésus-Christ,
 un jour entre tous les jours, et qui tous les jours êtes
 mangé n’étant plus vous-même, mais étant le corps de
-Jésus-Christ.
-
-Un silence.
 
 Blé qui n’êtes plus que les aspects du blé ; pain qui
 n’êtes plus que les apparences du pain ; pain qui n’êtes
 plus que les espèces du pain.
 
 Pain qui n’êtes plus que de l’ancien pain.
-
-Un long silence.
 
 Et vous vigne, sœur du blé. Grain de la grappe de
 vigne. Raisin des treilles. Vendange du vin des vignes.
@@ -750,19 +569,14 @@ Jésus-Christ, un jour entre tous les jours, et qui tous
 les jours aux mains du prêtre êtes changé, n’étant plus
 vous-même, mais étant le sang de Jésus-Christ.
 
-Un silence.
-
 Vin qui n’êtes plus que les aspects du vin ; vin qui
 n’êtes plus que les apparences du vin ; vin qui n’êtes
 plus que les espèces du vin.
 
 Pain qui fûtes changé au corps, vin qui fûtes changé
-au sang.
 
 Pain qui n’êtes plus que de l’ancien pain, vin qui
 n’êtes plus que de l’ancien vin.
-
-Un silence.
 
 Faudra-t-il, mon Dieu, que le sang de votre Fils ait
 coulé en vain ; qu’il ait coulé en vain une fois, et tant
@@ -782,8 +596,6 @@ abandonné la chrétienté de vos enfants.
 Tout est plein de la guerre et de perdition. Et c’est la guerre qui fait la perdition. Sera-t-il dit que vous
 nous abandonnerez à la guerre.
 
-Un silence.
-
 C’est vous qu’il nous faudrait et que l’on vît passer
 sur la terre la marque de votre main.
 
@@ -795,8 +607,6 @@ Pour d’autres peuples vous avez envoyé des saints.
 Vous avez même envoyé des guerriers.
 
 Nous sommes des pécheurs, mais nous sommes chrétiens tout de même. Nous sommes du peuple chrétien. Nous sommes de votre peuple de chrétienté.
-
-Un silence.
 
 Autrement qu’est-ce que ça lui fait, nos malédictions.
 Nous pourrions passer notre vie entière à la maudire,
@@ -810,8 +620,6 @@ malédiction de Jésus et qui se promène en vainqueur
 sur tous les chemins du monde. Livrerez-vous enfin
 le monde à cette gueuse ?
 
-Un silence.
-
 Mais nous petits de quel pouvoir la maudire, et de
 quelle efficacité. J’aurais mieux fait de filer tranquille. Tant qu’il n’y aura pas eu quelqu’un pour tuer la
 gueuse, pour meurtrir le meurtre et pour sauver ce
@@ -823,19 +631,9 @@ la Meuse. La Meuse finit toujours par passer par dessus.
 
 Un jour ou l’autre.
 
-Hauviette
-
 Et c’est pour cela que tu veux voir madame Gervaise ?
 
-Jeannette
-
-— …
-
-Hauviette
-
 — Madame Gervaise, qui n’est pas ton amie…
-
-Jeannette
 
 — On n’est pas l’amie d’une sainte.
 
@@ -848,12 +646,8 @@ Jeannette, rougissant sous le coup et fermant un instant les yeux
 — Tais-toi, malheureuse, qu’oses-tu dire ? C’est une
 fille de Dieu.
 
-Hauviette
-
 — Je suis une fille qui voit clair. On n’est pas l’amie
 d’une fille de Dieu.
-
-Jeannette
 
 — Madame Gervaise est au couvent. Nulle fille n’entre
 au couvent que Dieu ne l’ait appelée par son nom. Il y a une vocation. Il faut qu’il y ait une vocation. Nulle
@@ -864,11 +658,7 @@ désignée, par son nom, conduite par la main, et quelquefois forcée et prise p
 leur a révélé, sans doute, Dieu doit leur avoir dit de
 ce que nous ne savons pas, de ce que nous ignorons
 nous autres. Dieu doit leur avoir fait des révélations
-particulières.
 
-Hauviette
-
-— Il n’y a point de révélations particulières. Il n’y a
 qu’une révélation pour tout le monde ; et c’est la révélation de Dieu et de Notre-Seigneur-Jésus-Christ. De Dieu par lui-même et par Notre-Seigneur-Jésus-Christ.
 C’est une révélation pour tous les bons chrétiens, pour
 tous les chrétiens, même pour les mauvais, et pour les
@@ -938,16 +728,12 @@ plaisir à nos père et mère, et pour nous occuper de nos
 petits frères et de nos petites sœurs, et tout ce qu’il faut
 faire dans la sainte journée.
 
-Jeannette
-
 — Madame Gervaise est au couvent : les saintes et
 les saints fondateurs. Il y a eu tellement de grands
 saints, et des si grands saints, à la fondation des
 couvents, que toute leur sainteté doit se reporter, se
 reverser particulièrement sur ceux qui sont appelés
 dans leurs couvents.
-
-Hauviette
 
 — Notre-Seigneur-Jésus-Christ est le premier des
 saints et le premier des fondateurs. Il est le plus grand
@@ -957,11 +743,7 @@ Sur tout ce qui est appelé chrétien.
 
 Tout son mérite, toute sa sainteté se déverse éternellement.
 
-Jeannette
-
 — Les mérites, les grands mérites des saintes et des saints fondateurs doivent travailler plus particulièrement pour les filles et les fils que la vocation leur a faites.
-
-Hauviette
 
 — Les mérites de Notre-Seigneur-Jésus-Christ, qui
 sont les plus grands des mérites, qui sont des mérites
@@ -984,30 +766,19 @@ mérites, toutes les vertus ensemble de Jésus et de tous
 les autres saints ensemble, toutes les saintetés ensemble
 travaillent et prient pour tout le monde ensemble, pour
 toute la chrétienté, pour le salut de tout le monde.
-Ensemble.
 
 Je suis une petite Française qui voit clair ; et je ne
 laisse pas dire. Je suis une petite Lorraine qui voit
-clair.
-
-Jeannette
 
 — Madame Gervaise est au couvent ; elle doit savoir
 pourquoi le bon Dieu permet qu’il y ait tant de souffrance.
 
 Tant de souffrance et tant de perdition.
 
-Hauviette
-
 — Est-ce que tu sais bien comment Gervaise est
-allée au couvent ?
-
-Jeannette
 
 — Oui : madame Colette, qui est une sainte, a passé
 par ici. Elle a converti Gervaise avec trois de ses amies.
-
-Hauviette
 
 — Sa mère a beaucoup pleuré dans ce temps-là.
 
@@ -1019,22 +790,14 @@ et chez sa mère, comme un garçon. Il était charpentier ;
 de son état. Et après il ne s’est pas retiré. Au contraire il
 est allé pendant trois ans faire sa prédication publique.
 
-Jeannette
-
 — Je voulais voir madame Colette, mais elle a beaucoup d’âmes à sauver. Alors j’ai dit à mon oncle d’aller trouver madame Gervaise à Nancy.
 
 D’aller chercher madame Gervaise.
 
-Hauviette
-
 — Depuis qu’elle est au couvent sa mère est seule et
 s’ennuie et pleure et fait peine à voir.
 
-Jeannette
-
 — Elle est venue aussitôt, et je l’attends ce matin.
-
-Hauviette
 
 — La dernière fois qu’il y a eu des soldats, sa mère
 s’est sauvée dans l’île avec nous ; seulement il n’y avait
@@ -1055,21 +818,13 @@ avaient tout volé, tout brûlé. On avait honte pour elle.
 Elle se sauvait comme une pauvre vieille bonne
 femme de grand’mère qui n’aurait pas d’enfants.
 
-Un silence bref.
-
 En vérité madame Gervaise a mal choisi son temps pour délaisser le monde et pour sauver son âme …
 
-Un silence.
-
 Écoute, Jeannette. Il ne faut pas faire comme elle et fuir au couvent pour sauver son âme à soi. Il ne faut pas sauver son âme comme on sauve un trésor.
-
-Jeannette
 
 — Hélas, hélas pourtant c’est le plus grand trésor.
 
 C’est le seul trésor.
-
-Hauviette
 
 — Il faut donc la sauver comme on perd un trésor.
 En la dépensant. Il faut se sauver ensemble. Il faut
@@ -1081,28 +836,16 @@ peu aux autres ; il faut travailler un peu (les uns) pour
 les autres. Qu’est-ce qu’il nous dirait si nous arrivions,
 si nous revenions les uns sans les autres.
 
-Jeannette
-
 — Alors tu y tiens ? à ce que nous fassions, ensemble,
 des digues et des levées en terre, avec la terre et la boue
 du fleuve, avec le sable, devant ce fleuve de perdition ?
-
-Hauviette
 
 — Voyons, Jeannette, il ne faut pas te fâcher. Tu as
 raison. Le mieux, si on pouvait, ce serait de tuer la
 guerre, comme tu dis.
 
-Jeannette
-
 — La partie n’est pas égale. Il a fallu Jésus pour
 faire le salut, il a fallu Jésus et tous les saints.
-
-Hauviette
-
-— Les autres saints.
-
-Jeannette
 
 — Vingt siècles, je ne sais combien de siècles de prophètes. Quatorze siècles de chrétienté. Il ne faut qu’un instant pour faire damner une âme. Il ne faut qu’un
 instant pour une perdition.
@@ -1118,8 +861,6 @@ la paix des hommes ?
 
 Par une paix d’homme.
 
-Hauviette
-
 — Tu as raison, ma grande, tu as raison. Le mieux,
 si on pouvait, ce serait de tuer la guerre, comme tu
 dis. Mais pour tuer la guerre, il faut faire la guerre ; pour
@@ -1130,8 +871,6 @@ chacun de son côté, chacun de son mieux, à garder
 sauf tout ce qui n’est pas encore gâté.
 
 Chacun de notre côté.
-
-Jeannette
 
 — Ces soldats, ces soldats qui ne servent qu’à perdre.
 Encore, dans le temps, il y avait du monde qui servait à tout. Tantôt ils sauvaient et tantôt ils perdaient. Mais
@@ -1145,8 +884,6 @@ Dieu, mon Dieu, comment pouvez-vous, comment
 permettez-vous cela ? Des hommes qui ont un métier ;
 et ce métier, c’est de toujours perdre, c’est de faire,
 c’est d’opérer la perdition des âmes.
-
-Hauviette
 
 — Jeannette, écoute-moi bien :
 
@@ -1175,9 +912,6 @@ difficile : on reçoit moins de coups, puisqu’on en donne
 aux autres. Une fois soldats, ils n’auraient, eux aussi,
 qu’à faire la moisson sans avoir fait les semailles. Mais
 les bons laboureurs aiment les bons labours et les bonnes
-semailles…
-
-Comme se reprenant :
 
 Écoute, je ne voudrais pas dire une bêtise. Mais au
 fond je crois bien qu’ils aiment tout de même autant le
@@ -1197,27 +931,16 @@ tient tout, ce qui garde tout ; ce sont eux qui tiennent
 tout, eux qui gardent tout, eux qui sauvent tout ce
 que l’on peut sauver ; c’est par eux que tout n’est pas
 mort encore, et le bon Dieu finira bien par bénir leurs
-moissons.
 
 Moi je suis comme eux. Si j’étais à la maison occupée
 à filer mon peson de laine, ou ça revient au même si
 j’étais à jouer aux boquillons, parce que ce serait
 l’heure de jouer ; et si on venait me dire, si quelqu’un accourait : Hauviette, Hauviette, c’est l’heure du jugement, l’heure du jugement dernier, dans une demi-heure l’ange va commencer à sonner de la trompette…
 
-Jeannette
-
 — Malheureuse, malheureuse, de quoi oses-tu parler ?
-
-Hauviette
 
 — Je continuerais à filer ma laine et ça revient au
 même je continuerais à jouer aux boquillons…
-
-Jeannette
-
-— Hauviette, Hauviette…
-
-Hauviette
 
 — Parce que le jeu des créatures est agréable à Dieu.
 L’amusement des petites filles, l’innocence des petites
@@ -1240,13 +963,8 @@ tout ça l’un après l’autre qui fait la journée du bon
 Dieu. Si tout à l’heure on me disait : Tu sais, Hauviette,
 c’est pour dans une demi-heure…
 
-Jeannette
-
 — Ma petite Hauviette, ma petite Hauviette.
 
-Hauviette
-
-— Je continuerais à filer, si je filais, et à jouer, si je
 jouais. Et en arrivant je dirais au bon Dieu : Notre
 père, qui êtes aux cieux, je suis la petite Hauviette, de
 la paroisse de Domremy en Lorraine ; pour vous servir ;
@@ -1254,17 +972,12 @@ de votre paroisse de Domremy dans votre Lorraine de
 chrétienté. Vous nous avez rappelés un peu de bonne
 heure, vu que je n’étais encore qu’une toute petite fille.
 Mais vous êtes un bon père et vous savez ce que vous
-faites.
-
-Un silence.
 
 Je suis une petite Française têtue. Jamais on ne me
 fera croire qu’il faut avoir peur du bon Dieu ; qu’on
 peut avoir peur du bon Dieu. Quand je suis sur la
 route et que mon père me rappelle, pour me faire
 rentrer à la maison, je n’ai pas peur de mon père.
-
-Un silence.
 
 Je suis comme eux. Nous sommes leurs filles. Il faut
 moins de force pour abattre un bonhomme que pour
@@ -1287,19 +1000,14 @@ décourager les paysans, et qu’on ne peut pas décourager les victimes et les 
 lasseront avant les victimes et les martyrs.
 
 On croit, on pourrait croire qu’il vaut mieux être à la
-place du bourreau qu’à la place de la victime, à la
 place du bourreau qu’à la place du martyr. Il faut
 croire que c’est une erreur.
-
-Jeannette
 
 — Voilà bientôt cinquante ans passés, Hauviette, que
 les bons laboureurs prient le bon Dieu pour le bien des
 moissons ; voilà huit ans passés que moi petite je le
 prie de toutes mes forces pour le bien des moissons.
 Madame Gervaise est au couvent : elle doit savoir pourquoi le bon Dieu n’exauce pas les bonnes prières.
-
-Hauviette
 
 — Je suis une bonne chrétienne. Je suis une bonne
 Française. Pour que le bon Dieu bénisse les moissons,
@@ -1310,15 +1018,11 @@ et pousse en moisson. Pour que la moisson croisse et
 que le blé foisonne. Nous, c’est tout ce que nous pouvons faire, c’est tout ce que nous avons à faire : le reste au bon Dieu ; nous sommes dans sa main ; il est
 le maître ; il nous exauce à sa volonté.
 
-Jeannette
-
 — Dieu nous exauce de moins en moins, Hauviette :
 Les voyageurs qui passent n’apportent plus que des
 nouvelles mauvaises. Les Anglais tiennent enserré le
 mont de monsieur saint Michel, et voici que le blé, qui
 manquait pour le pain, va manquer pour semer.
-
-Hauviette
 
 — C’est affaire au bon Dieu : nos blés sont à lui.
 Quand j’ai bien fait ma tâche et bien fait ma prière, il
@@ -1338,25 +1042,13 @@ fais rien. Tu causes et en même temps tu travailles.
 Fille inquiète, âme insatiable, âme inquiète, si tu
 crois ce que tu dis, alors au moins ne travaille pas.
 
-Jeannette
-
 — Il est vrai : j’ai une grande souffrance de toute
 cette perdition ; mais je souffre encore une souffrance,
 une souffrance inconnue, au delà de tout ce que tu
-pourrais imaginer.
-
-Hauviette
 
 — Tu la diras sans doute à madame Gervaise ? ta
-souffrance nouvelle.
-
-Jeannette
 
 — Je ne sais pas.
-
-Un silence.
-
-Hauviette
 
 — Au revoir, ma belle, à tout à l’heure. Montrant le chemin qui vient du bourg. Elle va venir par ici. Montrant le chemin qui s’en va par la droite à flanc de coteau. Moi je m’en vais par ici. J’ai affaire par ici. Je ne sais pas comment
 que ça se fait. J’ai toujours affaire ailleurs. Je ne sais
@@ -1364,8 +1056,6 @@ pas. Je ne l’ai jamais rencontrée, cette personne-là. J’ai
 toujours affaire ailleurs. Ailleurs qu’où elle est. Il y a
 comme ça des hasards dans l’existence. Aussi, ça
 m’étonne, je ne l’ai jamais rencontrée.
-
-Par ici. Par là.
 
 C’est honteux. C’est affreux. Sa mère à présent en
 veut au bon Dieu. Sa mère est jalouse du bon Dieu. Sa
@@ -1383,16 +1073,9 @@ Une impiété qui n’a pas de nom.
 J’aime encore mieux penser à tes deux nourrissons. Le
 bon Dieu leur enverra peut-être de retrouver, demain,
 du monde comme toi. Quoique tu as raison. Du monde
-comme toi, si il y en a, il y en a guère. Si il y en a, il y
 en a pas beaucoup.
 
 Au revoir. L’appétit aux repas. L’appétit aux prières.
-
-Elle sort.
-
-Jeannette
-
-Un long silence.
 
 Mon Dieu, mon Dieu, qu’est-ce qu’il y a donc ? De
 tout temps, hélas, dans tous les temps on s’est perdu ;
@@ -1415,8 +1098,6 @@ Fils qui est mort pour nous. Sera-t-il dit que vous
 n’aurez point fait cesser la grande pitié qui est au
 royaume de France.
 
-Un silence.
-
 Jésus, Jésus, un jour sur une montagne de ce pays-là
 vous avez eu pitié du peuple, vous avez pleuré sur cette
 foule, et cette foule avait faim et pour la nourrir, pour
@@ -1436,10 +1117,6 @@ parmi nous. Sera-t-il dit que vous ne multipliez plus, que
 vous ne multiplierez pas les poissons secs et les pains.
 
 Vous ne pleurerez pas sur cette multitude.
-
-Un silence.
-
-En vision.
 
 Heureux ceux qui l’ont vu passer dans son pays ;
 heureux ceux qui l’ont vu marcher sur cette terre ; ceux
@@ -1557,7 +1234,6 @@ as saint Jésus, et nul ne pourra te l’enlever éternellement jamais. Car il e
 que tu as mis au monde ; un jour du monde que tu as
 mis au monde. Tu as produit ce saint-là, tu as enfanté
 ce saint-là. Et nous autres nous ne sommes que des
-petites gens.
 
 Et il n’y aura plus que des petites gens, depuis
 qu’une paroisse est venue, qui a tout pris pour elle.
@@ -1566,8 +1242,6 @@ Avant même qu’on ait commencé.
 
 Il n’y aura plus jamais, éternellement jamais, que
 des petites gens.
-
-Un silence.
 
 Heureuse celle qui versa sur ses pieds le parfum de
 l’amphore, celle qui versa sur sa tête le parfum du vase
@@ -1588,7 +1262,6 @@ quel cœur insensible ne se fût amolli, quels yeux, quels
 yeux humains n’eussent versé des larmes ; cette face
 de sueur, toute en sueur, toute sale, toute poussiéreuse,
 toute pleine de la poussière des chemins, toute pleine
-de la poussière de la terre ; la poussière de sa face, la
 commune poussière, la poussière de tout le monde, la
 poussière sur sa face ; collée par la sueur. Heureuse
 Madeleine, heureuse Véronique ; heureuse sainte Madeleine, heureuse sainte Véronique, vous n’êtes pas des saintes comme les autres. Tous les saints sont saints,
@@ -1605,7 +1278,6 @@ Vous seuls vous l’avez vu deux fois et non pas une
 seulement ; non pas une fois seulement, comme tous les
 autres, dans votre éternité ; non pas seulement la deuxième fois, qui dure éternellement ; mais une première fois, une fois antérieure, une fois terrestre ; et c’est cela qui ne fut donné qu’une fois, c’est cela qui
 n’a pas été donné à tout le monde. Il y a plusieurs
-classes de saints, il y en a deux, et vous êtes de la
 première classe, et nous tous tous les autres, pécheurs
 et saints, nous ne sommes tous après que des ouvriers
 de la onzième heure ; et les saints mêmes, les autres
@@ -1745,7 +1417,6 @@ du royaume du monde.
 
 Et il ne connut plus nulle autre histoire de la terre.
 
-Car au soir de sa vie, au soir de sa journée, d’un
 seul coup, du premier coup il avait connu la plus
 grande histoire de la terre.
 
@@ -1769,10 +1440,8 @@ embrasser les enfants, les petits, les tout petits enfants.
 Mais vous, flèche de Chartres, nef d’Amiens, où allez-vous. Que faites-vous, qui êtes-vous, d’où venez-vous. Vous n’êtes rien. Et vous flèche de Chartres et tombeaux
 de Saint-Denis, saintetés du royaume de France, vous
 n’êtes rien. Et dans ce petit pays, dans ce petit bourg,
-dans cette petite paroisse on a vu ce qu’on n’a pas vu à
 Château-Thierry ; dans cette autre petite paroisse de ce
 pays-là, où il n’y a peut-être pas même une église, à
-présent ; aujourd’hui ; on y a vu ce qu’on n’a jamais vu
 à Château-Thierry. Une autre paroisse s’était levée de
 plus bonne heure. Comment s’y sont donc pris, mon Dieu,
 les gens de ce temps-là et de ce pays-là, les gens d’alors,
@@ -1821,7 +1490,6 @@ vous fîtes le premier sacrifice. Que vous fûtes le premier
 sacrifié, la première hostie. La première victime. Quand
 on pense, mon Dieu, quand on pense que vous étiez
 là, qu’il n’y avait qu’à s’approcher de vous, mystère
-effrayant ; et qu’il n’y avait qu’à s’approcher de ce
 mystère effrayant. Non, quand on pense que c’est arrivé
 une fois. Qu’on a vu ça sur la terre. Que tout un chacun
 pouvait vous toucher, *pasteur visible*, les bonnes femmes,
@@ -1908,11 +1576,7 @@ présent. Si vous étiez là, Dieu, ça ne se passerait
 tout de même pas comme ça. Ça ne se serait jamais
 passé comme ça.
 
-Madame Gervaise
-
 En vision à elles deux.
-
-Il est là.
 
 Il est là comme au premier jour.
 
@@ -1970,53 +1634,24 @@ Tous les bourgs sont à Dieu sous le regard de Dieu.
 
 Comme s’apercevant enfin l’une l’autre.
 
-Jeannette
-
 — Bonjour, madame Gervaise.
-
-Madame Gervaise
 
 — Bonjour, ma fille. Que Jésus le Sauveur sauve à jamais ton âme.
 
-Jeannette
-
 — Ainsi soit-il, madame Gervaise. Mon oncle vous a dit que je voulais vous voir ?
-
-Madame Gervaise
 
 — Oui, ma fille, et j’ai pensé que tu étais malheureuse.
 
-Jeannette
-
-— Hélas.
-
-Madame Gervaise
-
 — Dieu nous conduit, mon enfant, Dieu nous conduit par la main. Nous sommes dans la main de Dieu. Nous ne faisons rien que Dieu n’y consente et ne le veuille. C’est Dieu, c’est Dieu même qui ce matin m’a conduit vers vous.
-
-Jeannette
 
 — Ainsi soit-il, madame Gervaise.
 
-Madame Gervaise
-
 — Dieu m’a conduit vers toi parce que tu es malheureuse. On s’imagine ici, dans la paroisse, que tu es heureuse de ta vie parce que tu es bonne chrétienne, parce que tu es bonne paroissienne, parce que tu es pieuse ; parce que tu as bien fait ta première communion ; parce que tu vas bien à la messe et aux vêpres ; parce que tu vas souvent à l’église ; et que dans les champs tu te mets à genoux au son lointain des cloches calmes.
-
-Jeannette
-
-— Hélas.
-
-Madame Gervaise
 
 — Je sais, moi, que tout cela ne suffit pas. J’ai pensé que tu étais malheureuse, toi aussi, et c’est pour cela que je suis venue de suite.
 
-Un silence.
-
 Je sais. Je sais que tu as consommé au contraire
 toute la tristesse d’une âme chrétienne. Et c’est une
-tristesse infinie.
-
-Un silence.
 
 J’ai passé par là. Les saintes et les saints, toutes les
 saintes et tous les saints ont passé par là. C’est la
@@ -2028,86 +1663,54 @@ nous travaille quand il veut. Dieu nous travaille chacun
 notre tour. Tu n’es pas la première. Tu ne seras pas
 la dernière.
 
-Jeannette
-
 Comme une attaque.
-Brusquement.
 
 — Savez-vous, madame Gervaise, que les soldats partout vont à l’assaut des bourgs et forcent les églises ?
-
-Madame Gervaise
 
 D’abord comme en défense forcée.
 
 — Je le sais, ma fille.
 
-Jeannette
-
 — Savez-vous qu’ils font manger l’avoine à leurs
 chevaux sur l’autel vénérable ?
-
-Madame Gervaise
 
 — Je le sais, ma fille. Et ils ont dit que ça faisait une
 bonne mangeoire, une mangeoire très commode, et
 juste à hauteur pour la tête des chevaux.
-
-Jeannette
 
 — Et qu’ils disent des horreurs à la Sainte Vierge, à
 notre mère la Sainte Vierge ; et qu’ils injurient, et qu’ils
 blasphèment Jésus en croix.
 
 Et l’on dit même qu’une fois ils ont souffleté Jésus en
-croix.
-
-Madame Gervaise
 
 — Ce n’est pas le premier soufflet qu’il a reçu. Et nos
 péchés le soufflettent outrageusement tous les jours.
 
 Nos péchés l’outragent et le soufflettent tous les
-jours.
-
-Jeannette
 
 — Savez-vous, madame Gervaise, et que le bon Dieu
 me pardonne à jamais d’avoir osé vous dire ces
 paroles, savez-vous que les soldats boivent dans les
 très saints calices le vin qui les soûle ?
 
-Madame Gervaise
-
 — Je le sais, ma fille.
-
-Jeannette
 
 — Faut-il, mon Dieu, faut-il vous dire encore cela.
 Faut-il pour finir…
 
-Madame Gervaise
-
 — … Pour consommer cette détresse …
-
-Jeannette
 
 Faut-il avoir à vous dire encore cela ? Savez-vous
 qu’ils font ripaille avec les très saintes hosties consacrées ?
 
-Madame Gervaise
-
 — Toutes les saintes, tous les saints ont passé par là.
 Nous indignes, nous infimes, nous petites nous y passons. J’y ai passé, tu y passes, nous y passerons tous. Et pourtant nous autres nous sommes de petites gens.
-
-Jeannette
 
 — Le sang de Jésus, le vase, le calice qui tient le
 sang de Jésus.
 
-Madame Gervaise
-
 — Ils démolissent les maisons ; ils démolissent les
-églises.
 
 Une maison démolie, une maison bâtie ; une maison
 démolie, la même maison rebâtie ; une maison démolie,
@@ -2122,28 +1725,18 @@ Qu’importe, nous rebâtirons toujours assez de nouvelles maisons.
 
 Nous bâtirons assez de maisons temporelles.
 
-Jeannette
-
 — Le sang de Jésus, le sang de Jésus.
-
-Madame Gervaise
 
 — Ils démolissent nos maisons ; quand ils démoliraient
 tout nous avons, s’il plaît à Dieu, nous aurons dans la
 maison de notre père une maison que les soldats ne
 démoliront jamais.
 
-Jeannette
-
 — Le corps de Jésus, le corps de Jésus. Qu’ils
 profanent le pain et le vin, le corps et le sang de
-Jésus.
-
-Madame Gervaise
 
 — Nous avons d’autres maisons que les maisons que
 nous avons. Nous avons des maisons que les soldats
-n’atteindront point.
 
 Une maison que les soldats ne démoliront point.
 
@@ -2156,11 +1749,7 @@ nous a gagné des demeures éternelles.
 
 Nous avons un autre père que le père que nous avons.
 
-Jeannette
-
 — Le corps de Jésus, le corps sacré de Jésus.
-
-Madame Gervaise
 
 — Ils démolissent les églises. Nous en rebâtirons toujours. Nous rebâtirons toujours des églises de pierre.
 
@@ -2183,12 +1772,8 @@ y a un corps de Jésus que les doigts des mains pécheresses ne toucheront plus 
 
 Un corps de Jésus que les doigts des mains pécheresses ne profaneront plus jamais.
 
-Jeannette
-
 — Le corps de Jésus. Faire servir au péché même le
 corps même, le corps sacré de Jésus.
-
-Madame Gervaise
 
 — Il y a une autre Église que toutes les églises (les montrant)
 de la Meuse et de la Lorraine, que Domremy et Maxey,
@@ -2197,8 +1782,6 @@ Paris et que Rome. Il y a une Rome céleste. Il y a une
 Jérusalem céleste. Il y a une autre église que toutes les
 églises de la terre. Il y a une autre Église que toutes les
 églises de la chrétienté même. Il y a une Église que les mains pécheresses ne démoliront, ne souilleront éternellement jamais. Il y a une autre Église que toutes les églises de la terre de chrétienté.
-
-Jeannette
 
 — Encore quand ces soldats romains osaient toucher
 votre corps périssable, votre impérissable corps, au
@@ -2212,11 +1795,8 @@ profanent, sachant qui vous êtes, profanent votre corps.
 En vérité, mon Dieu, ils ne savent qu’inventer, ils ne
 savent quel mal faire ; on commet à présent des péchés
 que l’on n’avait jamais commis. On ne sait pas quoi
-inventer.
 
 Des péchés que l’on ne pourrait pas soupçonner.
-
-Madame Gervaise
 
 — Je le sais, ma fille.
 
@@ -2225,33 +1805,21 @@ où les âmes se noient.
 
 Et je sais que ton âme est douloureuse à mort, quand
 tu vois l’éternelle, la croissante éternelle damnation des
-âmes.
-
-Jeannette
 
 — Savez-vous, madame Gervaise, que nous, qui
 voyons tout cela se passer sous nos yeux sans rien
 faire à présent que des charités vaines…
 
-Madame Gervaise
-
 — Mon enfant, mon enfant, mon enfant, les charités
 ne sont jamais vaines.
 
-Jeannette
-
 — … et sans vouloir tuer la guerre…
-
-Madame Gervaise
 
 — Mon enfant, ma pauvre enfant, mon enfant, ma
 petite enfant, tu ne parles pas comme une petite fille,
 tu ne parles pas comme une petite chrétienne.
 
 Surtout ne te mets pas en colère. C’est aussi un grand
-péché.
-
-Jeannette
 
 — … sans rien faire à présent que des charités
 vaines, puisque nous ne voulons pas tuer la guerre,
@@ -2259,8 +1827,6 @@ nous sommes les complices de tout cela ? Nous qui
 laissons faire les soldats, savez-vous que, nous aussi,
 nous sommes les tourmenteuses des corps et les damneuses des âmes. Nous aussi, nous mêmes, nous souffletons Jésus en croix. Nous aussi, nous mêmes
 nous profanons le corps impérissable de Jésus.
-
-Un silence.
 
 Complice, complice, c’est comme auteur. Nous en
 sommes les complices, nous en sommes les auteurs.
@@ -2271,33 +1837,23 @@ C’est tout un. Ça va ensemble. Et celui qui laisse faire et celui qui fait fa
 fait, c’est autant que celui qui fait. Comme se relevant.
 C’est pire que celui qui fait. Car celui qui fait, il a au
 moins le courage de faire. Celui qui commet un crime,
-il a au moins le courage de le commettre. Et quand on
 le laisse faire, il y a le même crime ; c’est le même
-crime ; et il y a la lâcheté par dessus. Il y a la lâcheté
 en plus.
 
 Il y a partout une lâcheté infinie.
 
 Complice, complice, c’est pire qu’auteur, infiniment
-pire.
-
-Madame Gervaise
 
 — Je sais, ma fille, que vous êtes, vous toutes, les
 damneuses des âmes. Et je sais que ton âme est douloureuse à la mort, de savoir qu’elle est complice du Mal universel ; complice et auteur, tu le confesses ;
 complice et auteur du Mal universel ; complice et
 auteur du Péché ; complice et auteur de cette universelle
-perdition,
 
 et tu te sens désespérément lâche.
-
-Un silence.
 
 Mais ce n’est là rien encore.
 
 Ce n’est rien.
-
-Un long silence.
 
 Ma fille, pardonne-moi les paroles que je vais t’oser
 dire ; je suis une pauvre femme ; j’en ai tant vu aussi, dans mon enfance, quand j’étais une petite fille. Comme
@@ -2311,12 +1867,8 @@ trahir. Je dois t’offenser, s’il faut. Pardonne-moi les
 paroles que je vais t’oser dire ; après, je m’en irai, si tu
 le veux, sans te voir plus jamais.
 
-Un silence bref.
-
 Je sais aussi ta souffrance nouvelle ; je sais la souffrance qui te paraît effroyable au delà de toute souffrance, effrayante au delà de toute imagination
 même ; pourquoi tu m’as mandée ; pourquoi je suis venue.
-
-Un silence bref.
 
 Se mépriser soi-même, on se mépriserait encore soi-même, on s’y ferait, on s’y habituerait ; il est, il y a des habitudes pires : Tu as connu que tous ceux-là sont
 lâches, que tu avais aimés, … que tu as aimés…
@@ -2357,8 +1909,6 @@ Moi aussi j’ai eu des amies.
 
 Moi aussi j’avais des amies.
 
-Repartant.
-
 Mengette, que j’ai vue ce matin ; Hauviette, qui ne
 veut pas me voir ;
 
@@ -2371,8 +1921,6 @@ du Péché ; complices, auteurs de cette universelle perdition ; et qu’ils e
 Responsables des âmes qui se damnent à ces âmes elles-mêmes, et responsables à Dieu, car les âmes sont à lui, et vous les laissez damner sans rien faire, et vous vous
 damnez vous-mêmes à laisser ainsi damner les âmes de Dieu.
 
-Un silence.
-
 Ainsi c’est ainsi une énumération et un déroulement
 sans fin de damnations, une explication des damnations sans fin ; un enchaînement, une danse affreuse des perditions ; l’une entraîne l’autre, infailliblement ; l’une
 entraîne l’autre dans une ronde infernale ; l’une tient
@@ -2381,10 +1929,6 @@ se tiennent d’une main qui ne se lâchera jamais. L’une
 tient l’autre, l’autre tient l’une, l’une tient à l’autre et
 l’une renforce l’autre. Tous les jours inventions nouvelles. Tous les jours imaginations inconnues. Nouvelles damnations, redoublements de damnation les cercles
 de l’enfer se déroulent au dessous des cercles.
-
-Un silence.
-
-Tu mens.
 
 Depuis que tu as connu cela, tu es menteuse : Menteuse à ton père, menteuse à ta mère, à tes frères, à ta grande sœur, à tes amies, car tu fais semblant de les
 aimer, et tu ne peux pas les aimer. Et pourtant tu les
@@ -2410,8 +1954,6 @@ faussées tes amitiés ; faussées tous tes sentiments : Ta
 vie tout entière est menteuse et fausse. Et tu vis dans
 ta maison, parmi les tiens, et tu te sens plus irréparablement seule et malheureuse qu’une enfant sans mère.
 
-Un grand silence.
-
 Un espoir te restait. Tu venais sur tes douze ans.
 Dans cette grande détresse tu attendais au moins, tu te
 disais qu’elle finirait bientôt, car tu approchais de la
@@ -2420,15 +1962,12 @@ communication du corps de Notre-Seigneur, tu touchais
 communication du corps de Notre-Seigneur guérit tous
 les maux.
 
-Un grand silence.
-
 L’heure est venue, l’heure attendue ; l’heure attendue,
 l’heure préparée de toute éternité.
 
 L’heure que tu attendais depuis des jours et des
 jours, l’heure que tu attendais depuis ton baptême,
 l’heure que tu attendais de toute éternité. Depuis ton
-éternité.
 
 Le jour est venu, le grand jour, tu as reçu communication du corps de Notre-Seigneur.
 
@@ -2440,7 +1979,6 @@ de Notre-Seigneur-Jésus-Christ, le même corps de
 Notre-Seigneur-Jésus-Christ.
 
 Après quatorze siècles à ton tour de recevoir. À ton
-tour d’approcher.
 
 À ton tour tu reçus pour la première fois le corps de
 Notre-Seigneur-Jésus-Christ.
@@ -2481,16 +2019,8 @@ Brusquement, presque brutalement :
 
 Enfin tu avais manqué ta première communion.
 
-Un silence.
-
-Sombre :
-
 C’est presque pire que si on manquait le jour de son
 jugement et le jour de sa mort.
-
-Jeannette
-
-Un long silence.
 
 — C’est vrai.
 
@@ -2500,60 +2030,31 @@ de mon âme fût si douloureuse.
 
 Tous ceux-là que j’aimais sont absents de moi-même.
 
-Madame Gervaise
-
 — Même Dieu. C’est cela, tous.
-
-Jeannette
 
 — *Tous* ceux que j’aimais sont absents de moi.
 
-Madame Gervaise
-
 — La damnation c’est cela ; c’est cela la perdition même.
-
-Jeannette
 
 — Tous ceux que j’aime sont absents de moi : c’est ce
 qui m’a tuée sans remède …
 
-Madame Gervaise
-
 — Le seul remède qu’il y ait au monde est venu, et le
 seul médecin ; et le remède ne t’a rien fait ; le médecin
-ne t’a rien fait ; et le soir de ce jour tu t’es trouvée
 comme le matin …
-
-Jeannette
-
-— Hélas.
-
-Madame Gervaise
 
 — Ta vie est un mensonge perpétuel. Et pourtant tu
 avais béni ce matin-là ce jour qui se levait ; tu avais
 béni ce soleil qui se levait sur les côtes (les montrant en face) sur les côtes lorraines, sur les côtes de la Meuse.
 
-Jeannette
-
-— Hélas, hélas.
-
-Madame Gervaise
-
 — La créature soleil sur la créature Meuse.
-
-Jeannette
 
 — Tous ceux que j’aime sont absents de moi : c’est ce qui m’a tuée sans remède ; et je sens pour bientôt venir ma mort humaine.
 
 Je n’irai pas loin. Je ne peux plus aller. Ma vie est
 toute creuse en dedans de moi.
 
-Madame Gervaise
-
 — Malheur au cœur que le corps de Jésus n’a point empli ; malheur au cœur que le corps de Jésus n’a point rassasié.
-
-Jeannette
 
 — Je ne peux plus, je ne peux plus aller.
 
@@ -2562,14 +2063,10 @@ Jeannette
 Ô mon Dieu j’ai pitié de notre vie humaine où ceux
 que nous aimons sont à jamais absents.
 
-Madame Gervaise
-
 — Enfant ! ayez pitié de la perdition ; enfant ayez pitié
 de la vie infernale où les damnés maudits, où les
 damnés perdus ont la pire souffrance : que Dieu même
 est absent de leur éternité.
-
-Jeannette
 
 ﻿— Ô s’il faut, pour sauver de la flamme éternelle
 
@@ -2583,15 +2080,11 @@ Mon corps, mon pauvre corps, à cette flamme qui ne s’éteindra jamais.
 
 Mon corps, prenez mon corps pour cette flamme.
 
-Mon chétif corps.
-
 Mon corps qui vaut si peu, qui compte si peu.
 
 Qui ne pèse pas lourd.
 
 Mon pauvre corps qui a si peu de prix.
-
-Un silence.
 
 ﻿Et s’il faut, pour sauver de l’Absence éternelle
 
@@ -2602,8 +2095,6 @@ Abandonner mon âme à l’Absence éternelle,
 Que mon âme s’en aille en l’Absence éternelle.
 
 Mon âme à cette absence qui ne s’éteindra jamais.
-
-Madame Gervaise
 
 — Taisez-vous, ma sœur : vous avez blasphémé :
 Dieu, dans sa miséricorde infinie, a bien voulu que la
@@ -2623,7 +2114,6 @@ ils seraient comme nous.
 Ils auraient la grâce.
 
 Or ils ne sont pas comme nous. Il y a une différence.
-Elle est infinie. Il y a, il y a eu le jugement.
 
 Autrement alors ils seraient comme nous. Il n’y a, il ne
 peut y avoir que deux sortes, il ne peut y avoir que deux
@@ -2649,7 +2139,6 @@ Quoi qu’ils fassent. Éternellement quoi qu’ils fassent.
 
 C’est ça l’enfer. Autrement il n’y aurait pas d’enfer.
 Ça serait la même chose que nous ; ça serait la même
-chose partout.
 
 Dans toute la création.
 
@@ -2715,20 +2204,15 @@ Ils seraient des hommes comme nous ; ils seraient
 vivants, terrestres ; ils seraient des vivants ; ils seraient
 avant le jugement. Ils ne seraient pas après.
 
-Un silence.
-
 Ma fille, ma fille, il y a beaucoup d’Églises ; dans
 l’Église. Mais il n’y en a qu’une. Il n’y a qu’une Église.
-Il y a plusieurs Églises. Il y a la militante, où nous
 sommes. Il y a la souffrante, où nous éviterons d’être ;
 s’il plaît à Dieu. Il y a la triomphante, où nous devons
 demander d’être. S’il plaît à Dieu. Mais il n’y a pas une
-Église infernale.
 
 Il n’y a pas une Église d’enfer.
 
 C’est insensé. C’est une imagination absurde. C’est
-inconcevable.
 
 Toutes trois sont des Églises vivantes ; il n’y a pas,
 il ne peut pas y avoir une Église morte.
@@ -2741,8 +2225,6 @@ Si leur souffrance pouvait servir, servait, ils seraient
 une Église, ils seraient dans l’Église.
 
 Militante, souffrante, triomphante, toutes trois vivantes, il n’y a pas, il ne peut pas y avoir une Église morte.
-
-Un silence.
 
 Il y a l’Église militante ; nous en sommes ; c’est
 l’Église des soldats d’une certaine guerre ; nous en
@@ -2778,7 +2260,6 @@ De notre amour humain, de notre amour familial, de
 notre amour filial.
 
 Il y a l’Église triomphante. Nous devons tâcher d’en
-être. Il n’y a pas à s’en cacher. Il n’y a pas à faire le
 modeste. Nous devons tâcher, nous devons demander
 d’en être. C’est la loi ; c’est la règle. Commune. Nous
 devons les prier, et en attendant nous devons les prier
@@ -2791,7 +2272,6 @@ pour les autres et pour nous, pour tous ceux de la souffrante et pour tous ceux 
 eux. Ce n’est pas seulement la loi et la règle. C’est
 aussi notre mouvement même. C’est aussi notre amour
 même. C’est aussi la communion même. C’est notre
-mouvement propre.
 
 C’est le mouvement propre, le mouvement naturel de
 notre amour. Le mouvement de notre charité.
@@ -2810,8 +2290,6 @@ Puisque nous ne sommes pas encore décidés.
 
 Pas encore dirigés.
 
-Séparés.
-
 Acheminés vers l’un des trois chemins.
 
 Sur l’un des trois chemins.
@@ -2825,8 +2303,6 @@ n’y a pas une Église qui ne communierait pas.
 Qui ne serait pas une Église, qui donc ne serait pas
 une Église. Il n’y a pas une Église morte.
 
-Un silence.
-
 Mon enfant, ma petite fille, le bon Dieu a fait des
 cadres. Il faut travailler, il faut prier, il faut souffrir
 dans les cadres que le bon Dieu nous a faits. Il veut
@@ -2836,50 +2312,28 @@ infernale servît à sauver les âmes ; il n’accepterait pas,
 pour sauver les âmes en danger, nos souffrances de
 là-bas. Il n’y a pas une Église morte.
 
-Jeannette
-
-Simplement :
-
 — Alors il y a tant de souffrance perdue.
-
-Madame Gervaise
 
 — Malheureuse, malheureuse enfant, comme tu parles.
 
-Jeannette
-
 — Dans la création il y a tant de souffrance de créée de perdue.
-
-Madame Gervaise
 
 — Il ne s’agit pas de souffrir. S’il ne s’agissait que de
 souffrir, qui ne souffrirait pas. Qui ne souffre.
 
-Un silence.
-
 Il y a une souffrance utile, et une souffrance inutile. Il
 y a une souffrance féconde, et une souffrance inféconde.
 
-Un silence.
-
 C’est pour cela que notre maître à tous …
 
-Jeannette
-
 — Notre Seigneur, Notre Seigneur Jésus-Christ.
-
-Madame Gervaise
 
 — Notre maître de maîtrise, de toute maîtrise, de l’une
 et l’autre maîtrise ; notre maître de seigneurie et notre
 maître d’enseignement ; notre maître de domination et
 notre maître d’apprentissage.
 
-Jeannette
-
 — Notre Seigneur, Notre Seigneur Jésus.
-
-Madame Gervaise
 
 — Il devait savoir, lui. C’était son métier. De sauver.
 C’était son office. Il devait savoir. Il est notre maître à
@@ -2907,13 +2361,7 @@ C’est une grande impiété. C’est une grande tentation. C’est plus qu’un
 
 C’est une tentation incroyable.
 
-Un blasphème effrayant.
-
-Jeannette
-
 — Se peut-il qu’il y ait tant de souffrance perdue.
-
-Madame Gervaise
 
 — C’est un mystère, enfant, comme un aveu : le plus grand mystère de la création. C’est un plus grand
 mystère que l’Incarnation même et que la Rédemption,
@@ -2921,8 +2369,6 @@ que le mystère de l’Incarnation et que le mystère de la
 Rédemption. Car la Passion de Jésus, au moins on voit
 à quoi que ça sert. Et toute l’Incarnation s’éclaire de
 toute la Rédemption.
-
-Jeannette
 
 — S’il faut donc, pour sauver de la flamme éternelle
 
@@ -2939,8 +2385,6 @@ Les âmes des damnés s’affolant de l’Absence,
 Laisser longtemps mon âme à la souffrance humaine,
 
 Qu’elle reste vivante en la souffrance humaine.
-
-Madame Gervaise
 
 — Taisez-vous, ma sœur : vous avez blasphémé :
 
@@ -3036,8 +2480,6 @@ Tout ce qu’il avait amassé.
 
 Tout ce qu’il avait pu ramasser d’âmes en travaillant bien.
 
-Une pleine brassée.
-
 Tout ce qu’il pouvait tenir dans ses deux mains.
 
 En ne perdant pas son temps.
@@ -3073,8 +2515,6 @@ Un éternel baiser de son père laverait ses plaies vives,
 Rafraîchirait ses plaies vives,
 
 Et sa tête, et son flanc, et ses pieds, et ses mains.
-
-Une source éternelle,
 
 Une eau pure éternelle attendait ses plaies vives.
 
@@ -3112,8 +2552,6 @@ Cinq pansements pour les cinq Plaies.
 
 Avec du linge bien fin.
 
-De lin.
-
 Mais un peu usagé.
 
 Parce que c’est plus doux.
@@ -3142,15 +2580,11 @@ Et non seulement les pieds.
 
 Mais comme avait demandé Pierre.
 
-Simon Pierre.
-
 *Non seulement les pieds, mais aussi les mains et la tête*.
 
 Mais quand il avait lavé les pieds de ses disciples.
 
 C’était dans une chambre bien close.
-
-Bien tranquille.
 
 Dans la chambre du souper.
 
@@ -3160,8 +2594,6 @@ Et à présent ce serait dans le ciel.
 
 Maintenant ce serait dans le ciel.
 
-Désormais.
-
 ﻿Les esprits l’attendaient après la mort des corps ;
 
 Et les purs esprits purs après les corps charnels.
@@ -3170,8 +2602,6 @@ Et les fins esprits purs après la mort charnelle, après la mort grossière.
 
 Et les fins esprits purs après les grossiers corps.
 
-Singulier mystère.
-
 Les esprits l’attendaient pour lui laver son corps.
 
 Comme s’ils se connaissaient en corps.
@@ -3179,8 +2609,6 @@ Comme s’ils se connaissaient en corps.
 Comme s’ils savaient ce que c’est qu’un corps.
 
 Comme si ça les regardait.
-
-Singulier mystère.
 
 On voit bien que c’était son corps à lui.
 
@@ -3228,11 +2656,7 @@ Les langes sur la paille et le bœuf et la panse
 
 De l’âne et les présents ; les bergers et les rois.
 
-Jeannette
-
 — Il naquit à Bethlehem dans une pauvre étable.
-
-Madame Gervaise
 
 — Les présents que lui avaient apportés les bergers et les rois.
 
@@ -3264,36 +2688,20 @@ De la laine de leurs moutons, mon enfant ; de la laine
 des moutons de ce temps-là. De la laine comme celle
 que nous filons.
 
-Jeannette
-
 — De la laine comme ça.
-
-Madame Gervaise
 
 — Les rois mages présentèrent l’or, l’encens et la
 myrrhe. De l’or comme à leur Roi.
 
-Jeannette
-
 — De l’encens comme à leur Dieu.
-
-Madame Gervaise
 
 — De la myrrhe comme à un homme mortel.
 
-Jeannette
-
 — Qui un jour serait embaumé.
-
-Madame Gervaise
 
 — *Les rois mages Gaspard, Melchior et Balthazard.*
 
-Jeannette
-
 — *Gaspard et Balthazard et Melchior les rois mages.*
-
-Madame Gervaise
 
 ﻿— Tout cela se passait sous la clarté des cieux ;
 
@@ -3327,16 +2735,10 @@ L’étoile dans la nuit brillait éternellement,
 
 L’étoile dans la nuit comme une épingle d’or.
 
-Jeannette
-
 — Une étoile était apparue, une étoile était montée
 qui ne remontera donc jamais.
 
-Madame Gervaise
-
 — Comme tous les petits enfants il jouait avec des images.
-
-Très brusquement :
 
 Clameur qui sonne encore en toute humanité ;
 
@@ -3420,8 +2822,6 @@ Qui lui déchirait.
 
 Sa gorge sèche et qui avait soif.
 
-Son gosier sec.
-
 Son gosier qui avait soif.
 
 Sa main gauche qui lui brûlait.
@@ -3445,10 +2845,6 @@ Tous ses quatre membres.
 Ses quatre pauvres membres.
 
 Et son flanc qui lui brûlait.
-
-Son flanc percé.
-
-Son cœur percé.
 
 Et son cœur qui lui brûlait.
 
@@ -3486,8 +2882,6 @@ Sèche de ravaler l’amertume.
 
 Sèche, amère de ravaler l’ingratitude.
 
-Des hommes.
-
 Amère, suffoquée de ravaler.
 
 Suffoquée des flots d’ingratitude.
@@ -3514,8 +2908,6 @@ De la mort.
 
 ﻿Il revoyait l’humble berceau de son enfance,
 
-La crèche,
-
 Où son corps fut couché pour la première fois ;
 
 Il prévoyait le grand tombeau de son corps mort,
@@ -3524,17 +2916,7 @@ Le dernier berceau de tout homme,
 
 Où il faut que tout homme se couche.
 
-Pour dormir.
-
-Censément.
-
-Apparemment.
-
 Pour enfin reposer.
-
-Pour pourrir.
-
-Son corps.
 
 Entre quatre planches.
 
@@ -3552,8 +2934,6 @@ S’y coucher comme tout le monde ;
 
 Il devait y passer comme tout le monde ;
 
-Il y passerait.
-
 Comme les autres.
 
 Comme tout le monde.
@@ -3569,8 +2949,6 @@ Mais il n’y resterait que deux jours, trois jours ; à cause de la résurrect
 Car il ressusciterait le troisième jour.
 
 À cause de sa résurrection particulière et de son ascension.
-
-À lui.
 
 Qu’il fit avec son propre corps, avec le même corps.
 
@@ -3620,27 +2998,17 @@ Au fond ils n’étaient pas méchants.
 
 Ils ne chercheraient pas querelle à son corps pendu.
 
-Et dépendu.
-
 Ils ne feraient point des misères à sa dépouille.
-
-Mortelle.
 
 Ils ne chercheraient pas des disputes à ces pauvres femmes.
 
-Aux saintes femmes.
-
 Ni à ce vieux Joseph d’Arimathée.
-
-Ce bon vieux.
 
 Ce sage bon vieux.
 
 Qui lui prêterait son sépulcre.
 
 On peut se prêter beaucoup de choses dans l’existence.
-
-Entre soi.
 
 Dans son ménage.
 
@@ -3666,23 +3034,13 @@ Ce n’est pas ordinaire.
 
 Se prêter son sépulcre.
 
-Son propre tombeau.
-
 Ce vieux lui prêterait donc son sépulcre.
 
-Ce sage vieux.
-
-Ce vieux avisé.
-
 Cet homme riche.
-
-Ce vieil avisé.
 
 Cet homme à la barbe blanche.
 
 Aux cheveux tout blancs.
-
-Ce vieux sage.
 
 Cet homme tout blanc.
 
@@ -3703,8 +3061,6 @@ Et que lui mourait dans la jeunesse maigre de ses trente
 *Or comme il s’était fait le soir.*
 
 *Vint un certain homme riche d’Arimathée.*
-
-*Nommé Joseph.*
 
 *Qui et lui-même était disciple de Jésus.*
 
@@ -3736,10 +3092,6 @@ Il savait quoi dire.
 
 Il n’avait pas peur.
 
-Même à Pilate.
-
-Il savait se présenter.
-
 *Celui-ci alla trouver Pilate.*
 
 *Et demanda le corps de Jésus.*
@@ -3751,10 +3103,6 @@ Ce n’était pas plus difficile que ça.
 Décidément ce Pilate n’était pas un mauvais homme.
 
 C’était un bon fonctionnaire.
-
-Un préfet.
-
-Romain.
 
 Il n’en voulait pas particulièrement à Jésus.
 
@@ -3778,8 +3126,6 @@ Et toute l’humanité y pense éternellement.
 
 Dans un linceul propre.
 
-*In sindone munda*.
-
 Dans un linceul blanc.
 
 *Et il le plaça dans son monument neuf.*
@@ -3800,15 +3146,11 @@ Il fit rouler un grand rocher.
 
 À l’entrée du sépulcre.
 
-*Et s’en alla.*
-
 On aime à penser qu’ensuite il chercha pour son propre
 
 ﻿corps un autre monument.
 
 Le grand tombeau de son ensevelissement.
-
-Le saint sépulcre.
 
 Le sépulcre de sa grande sépulture.
 
@@ -3848,8 +3190,6 @@ Il était tout au bout en même temps qu’alors.
 
 Il était au milieu et tout ensemble à l’un et l’autre bout.
 
-Lui seul.
-
 De tous.
 
 ﻿Il saisit d’un regard toute sa vie humaine,
@@ -3859,8 +3199,6 @@ Que trente ans de famille et trois ans de public
 N’avaient point accomplie ;
 
 ﻿Que trente ans de famille et trois ans de disciples,
-
-Sa nouvelle famille,
 
 Cette autre famille,
 
@@ -3883,8 +3221,6 @@ Trente-trois ans de travail, trente-trois ans de prières.
 ﻿Que trente ans de charpente et trois ans de parole,
 
 Trente-trois ans de charpente, trente-trois ans de parole,
-
-secrète ; publique ;
 
 N’avaient point épuisée ;
 
@@ -3912,19 +3248,11 @@ Il voyait, il revoyait aussi l’établi et le rabot.
 
 L’établi. Le billot pour appuyer le morceau de bois que
 
-﻿l’on fend.
-
 La scie et la varlope.
 
 Les beaux vrillons, les beaux copeaux de bois.
 
 La bonne odeur du bois frais.
-
-Fraîchement coupé.
-
-Fraîchement taillé.
-
-Fraîchement scié.
 
 Et la belle couleur, et la belle odeur,
 
@@ -3944,10 +3272,6 @@ Mais ce sont les outils qui le mangent.
 
 Et l’écorce qui se sépare.
 
-Qui s’écarte.
-
-Qui se pèle.
-
 Qui s’enlève délicatement sous la cognée.
 
 Qui sent si bon et qui a une si belle couleur brune.
@@ -3959,8 +3283,6 @@ L’écorce qui a une si bonne couleur, une si bonne odeur.
 Comme il aimait son métier.
 
 Il était fait pour ce métier-là.
-
-Sûrement.
 
 Le métier des berceaux et des cercueils.
 
@@ -3978,11 +3300,7 @@ Il ne faut décourager personne.
 
 Le métier des buffets, des armoires, des commodes.
 
-Des mées.
-
 Pour mettre le pain.
-
-Des escabeaux.
 
 *Et le monde n’est que l’escabeau de vos pieds.*
 
@@ -3998,17 +3316,11 @@ L’ouvrage bien faite.
 
 Il avait été un bon ouvrier.
 
-Un bon charpentier.
-
 Comme il avait été un bon fils.
 
 Un bon fils pour sa mère Marie.
 
 Un enfant bien sage.
-
-Bien docile.
-
-Bien soumis.
 
 Bien obéissant à ses père et mère.
 
@@ -4019,10 +3331,6 @@ Comme tous les parents voudraient en avoir.
 Un bon fils pour son père Joseph.
 
 Pour son père nourricier Joseph.
-
-Le vieux charpentier.
-
-Le maître charpentier.
 
 Comme il avait été un bon fils aussi pour son père.
 
@@ -4042,11 +3350,7 @@ Un bon compagnon charpentier.
 
 Parmi tous les autres compagnons.
 
-Charpentiers.
-
 Pour tous les compagnons.
-
-Charpentiers.
 
 Comme il avait été un bon pauvre.
 
@@ -4055,8 +3359,6 @@ Comme il avait été un bon citoyen.
 Il avait été un bon fils pour ses père et mère.
 
 Jusqu’au jour où il avait commencé sa mission.
-
-Sa prédication.
 
 Un bon fils pour sa mère Marie.
 
@@ -4078,8 +3380,6 @@ Jusqu’au jour où il avait commencé sa mission.
 
 Les camarades, les amis, les compagnons, les autorités,
 
-Les citoyens,
-
 Les père et mère
 
 Trouvaient cela très bien.
@@ -4091,8 +3391,6 @@ Les camarades trouvaient qu’il était un bon camarade.
 Les amis un bon ami.
 
 Les compagnons un bon compagnon.
-
-Pas fier.
 
 Les citoyens trouvaient qu’il était un bon citoyen.
 
@@ -4124,8 +3422,6 @@ Un jeune homme tranquille.
 
 Un jeune homme rangé.
 
-Commode à gouverner.
-
 Et qui rendait à César ce qui est à César.
 
 Jusqu’au jour où il avait commencé le désordre.
@@ -4137,8 +3433,6 @@ Le plus grand désordre qu’il y ait eu dans le monde.
 Qu’il y ait jamais eu dans le monde.
 
 Le plus grand ordre qu’il y ait eu dans le monde.
-
-Le seul ordre.
 
 Qu’il y ait jamais eu dans le monde.
 
@@ -4153,8 +3447,6 @@ Le seul Gouvernement du monde.
 Le Maître du monde.
 
 Le seul Maître du monde.
-
-Et où il apparut à tout le monde.
 
 Où les égaux virent bien.
 
@@ -4186,11 +3478,7 @@ Elle s’en glorifiait peut-être en elle-même et elle glorifiait Dieu.
 
 *Magnificat anima mea.*
 
-*Dominum.*
-
 *Et exultavit spiritus meus.*
-
-*Magnificat. Magnificat.*
 
 Jusqu’au jour où il avait commencé sa mission.
 
@@ -4244,11 +3532,7 @@ Comme une servante.
 
 Comme une pleureuse des Romains.
 
-Des enterrements romains.
-
 Comme si ça avait été son métier.
-
-De pleurer.
 
 Elle suivait comme une pauvre femme.
 
@@ -4277,8 +3561,6 @@ Puisque sans en avoir l’air, sans même le savoir elle
 D’une piété.
 
 D’une certaine piété.
-
-*Pietas*.
 
 Voilà ce qu’il avait fait de sa mère.
 
@@ -4320,13 +3602,9 @@ Elle aussi elle avait monté, monté
 
 Dans la cohue, un peu en arrière.
 
-Monté au Golgotha.
-
 Sur le Golgotha.
 
 Sur le faîte.
-
-Jusqu’au faîte.
 
 Où il était maintenant crucifié.
 
@@ -4334,23 +3612,15 @@ Cloué des quatre membres.
 
 Comme un oiseau de nuit sur la porte d’une grange.
 
-Lui le Roi de Lumière.
-
 Au lieu appelé Golgotha.
 
 C’est-à-dire la place du Crâne.
 
 Voilà ce qu’il avait fait de sa mère.
 
-Maternelle.
-
 Une femme en larmes.
 
-Une pauvresse.
-
 Une pauvresse de détresse.
-
-Une pauvresse en détresse.
 
 Une espèce de mendiante de pitié.
 
@@ -4365,10 +3635,6 @@ De ces saintes femmes.
 Escortée, entourée seulement de ces quelques femmes.
 
 De ces quelques saintes femmes.
-
-Des saintes femmes.
-
-Enfin.
 
 Puisqu’éternellement on devait les nommer ainsi.
 
@@ -4408,15 +3674,11 @@ Elles formaient toujours un petit groupe à part.
 
 Un petit cortège un peu derrière le grand cortège.
 
-Un peu en arrière.
-
 Et on les reconnaissait.
 
 Elle pleurait, elle pleurait sous un grand voile de lin.
 
 Un grand voile bleu.
-
-Un peu passé.
 
 Voilà ce qu’il avait fait de sa mère.
 
@@ -4528,8 +3790,6 @@ Plus jamais.
 
 Depuis trois jours les gens disaient : Elle a vieilli de
 
-﻿dix ans.
-
 Je l’ai encore vue.
 
 Je l’avais encore vue la semaine dernière.
@@ -4556,15 +3816,9 @@ Tous les gouvernements s’étaient mis d’accord contre lui.
 
 Le gouvernement des Juifs et le gouvernement des
 
-﻿Romains.
-
 Le gouvernement des juges et le gouvernement des
 
-﻿prêtres.
-
 Le gouvernement des soldats et le gouvernement des
-
-﻿curés.
 
 Il n’en réchapperait sûrement pas.
 
@@ -4588,8 +3842,6 @@ Mais lui tous les gouvernements.
 
 Tous les gouvernements d’abord.
 
-Et le gouvernement et le peuple.
-
 C’est ce qu’il y avait de plus fort.
 
 C’était ça surtout qu’on avait contre soi.
@@ -4600,11 +3852,7 @@ Qui d’habitude ne sont jamais d’accord.
 
 Et alors on en profite.
 
-On peut en profiter.
-
 Il est bien rare que le gouvernement et le peuple soient
-
-﻿d’accord.
 
 Et alors celui qui est contre le gouvernement
 
@@ -4640,8 +3888,6 @@ Elle voyait bien que tout le monde était contre lui.
 
 Le gouvernement et le peuple.
 
-Ensemble.
-
 Et qu’ils l’auraient.
 
 Qu’ils auraient sa peau.
@@ -4652,8 +3898,6 @@ Et qu’il n’y avait aucune dérision sur elle.
 
 Pour elle.
 
-Nulle dérision.
-
 On n’avait que du respect pour elle.
 
 Pour sa douleur.
@@ -4661,8 +3905,6 @@ Pour sa douleur.
 Pour son malheur.
 
 On ne lui disait pas des sottises.
-
-Au contraire.
 
 Les gens ne la regardaient même pas trop.
 
@@ -4674,15 +3916,11 @@ Elle aussi elle était montée.
 
 Montée avec tout le monde.
 
-Jusqu’au faîte.
-
 Sans même s’en apercevoir.
 
 Ses jambes la portaient sans même s’en apercevoir.
 
 Elle aussi elle avait fait son chemin de croix.
-
-Les quatorze stations.
 
 Au fait était-ce bien quatorze stations.
 
@@ -4732,12 +3970,6 @@ Quand on a l’un pour soi, l’autre contre soi quelquefois
 
 ﻿on en réchappe.
 
-On s’en tire.
-
-On peut s’en tirer.
-
-On peut en réchapper.
-
 Mais il n’en réchapperait pas.
 
 Sûrement il n’en réchapperait pas.
@@ -4760,17 +3992,11 @@ Non, depuis la veille seulement.
 
 Il avait été arrêté la veille au soir.
 
-Seulement.
-
 Elle se rappelait bien.
-
-Ainsi.
 
 Comme le temps passe.
 
 Comme le temps passe vite.
-
-Non, lentement.
 
 Comme il passe lentement.
 
@@ -4793,8 +4019,6 @@ Elle se rappelait très bien.
 Mais il lui semblait.
 
 Elle croyait qu’il y avait trois jours.
-
-Au moins.
 
 Et même plus.
 
@@ -4820,23 +4044,11 @@ Depuis Ponce Pilate jusqu’au dernier des charretiers.
 
 Elle suivait de loin.
 
-De près.
-
-D’assez loin.
-
-D’assez près.
-
 Cette cohue hurlante.
 
 Cette meute qui aboyait.
 
-Et mordait.
-
 Cette cohue hurlante qui hurlait et tapait.
-
-Sans conviction.
-
-Avec conviction.
 
 Car ils accomplissaient les Écritures.
 
@@ -4844,15 +4056,9 @@ On peut dire qu’ils tapaient religieusement.
 
 Puisqu’ils accomplissaient les Écritures.
 
-Des prophètes.
-
 Tout le monde était contre lui.
 
 Depuis Ponce Pilate.
-
-Ce Ponce Pilate.
-
-*Pontius Pilatus*.
 
 *Sub Pontio Pilato passus.*
 
@@ -4861,12 +4067,6 @@ Ce Ponce Pilate.
 Un brave homme.
 
 Du moins on le disait un brave homme.
-
-Bon.
-
-Pas méchant.
-
-Un Romain.
 
 Qui comprenait les intérêts du pays.
 
@@ -4888,13 +4088,9 @@ Qu’est-ce qu’ils avaient.
 
 Il n’avait pourtant pas fait tant de mal que ça.
 
-Tous.
-
 Lui en tête Ponce Pilate.
 
 L’homme qui se lavait les mains.
-
-Le procurateur.
 
 Le procurateur pour les Romains.
 
@@ -4907,8 +4103,6 @@ Les généraux, les officiers, les soldats.
 Les sous-officiers, centeniers, centurions, décurions.
 
 Les prêtres et les princes des prêtres.
-
-Les écrivains.
 
 C’est-à-dire les scribes.
 
@@ -4923,8 +4117,6 @@ Et qui ne sont pas pour ça des hommes plus mauvais
 ﻿que les autres.
 
 On lui avait dit aussi qu’il avait des disciples.
-
-Des apôtres.
 
 Mais on n’en voyait point.
 
@@ -4956,8 +4148,6 @@ Elle pleurait pour son passé.
 
 Pour les jours où elle avait été heureuse dans son passé.
 
-L’innocente.
-
 Pour effacer les jours où elle avait été heureuse dans
 
 ﻿son passé.
@@ -4968,27 +4158,17 @@ Ses anciens jours de bonheur.
 
 Parce que ces jours l’avaient trompée.
 
-Ces jours trompeurs.
-
 Ces jours l’avaient trahie.
 
-Ces anciens jours.
-
 Ces jours où elle aurait dû pleurer d’avance.
-
-Par provision.
 
 Il faudrait toujours pleurer par provision.
 
 En avance des jours à venir.
 
-Des malheurs à venir.
-
 Du malheur qui veille.
 
 Elle aurait dû prendre ses précautions.
-
-Prévoir.
 
 Il faudrait toujours prendre ses précautions.
 
@@ -4997,8 +4177,6 @@ Si elle avait su.
 Si elle avait su elle aurait pleuré toujours.
 
 Pleuré toute sa vie.
-
-Pleuré d’avance.
 
 Elle se serait méfiée.
 
@@ -5024,10 +4202,6 @@ Elle était entrée dans le jeu.
 
 Quand on pense qu’il y a des jours où elle avait ri.
 
-Innocemment.
-
-L’innocente.
-
 Tout allait si bien dans ce temps-là.
 
 Elle pleurait, elle pleurait pour effacer ces jours.
@@ -5052,11 +4226,7 @@ Le peuple des pauvres.
 
 Qui est sérieux.
 
-Et respectable.
-
 Et le peuple des misérables.
-
-Des miséreux.
 
 Qui n’est pas sérieux.
 
@@ -5064,19 +4234,11 @@ Ni pas respectable.
 
 Il avait contre lui ceux qui travaillaient et ceux qui ne
 
-﻿faisaient rien.
-
 Ceux qui travaillaient et ceux qui ne travaillaient pas.
-
-Ensemble.
-
-Également.
 
 Le peuple des ouvriers.
 
 Qui est sérieux.
-
-Et respectable.
 
 Et le peuple des mendiants.
 
@@ -5085,10 +4247,6 @@ Qui n’est pas sérieux.
 Mais qui est peut-être respectable tout de même.
 
 Parce qu’on ne sait pas.
-
-La tête se trouble.
-
-La tête se dérange.
 
 Les idées se dérangent quand on voit des choses comme ça.
 
@@ -5118,8 +4276,6 @@ On exagère toujours.
 
 Le monde est mauvaise langue.
 
-On exagérait.
-
 Enfin il n’avait pas fait du mal à tout le monde.
 
 Il était trop jeune.
@@ -5144,12 +4300,6 @@ Elle pleurait, elle pleurait, elle en était devenue laide.
 
 Elle la plus grande Beauté du monde.
 
-La Rose mystique.
-
-La Tour d’ivoire.
-
-*Turris eburnea*.
-
 La Reine de beauté.
 
 En trois jours elle était devenue affreuse à voir.
@@ -5161,8 +4311,6 @@ Ils ne s’y connaissaient pas. Elle avait vieilli de plus de dix ans.
 Elle savait, elle sentait bien qu’elle avait vieilli de plus de dix ans.
 
 Elle avait vieilli de sa vie.
-
-Les imbéciles.
 
 De toute sa vie.
 
@@ -5184,17 +4332,11 @@ Elle était devenue la Reine des Sept Douleurs.
 
 Elle pleurait, elle pleurait, elle était devenue si laide.
 
-En trois jours.
-
 Elle était devenue affreuse.
 
 Affreuse à voir.
 
-Si laide, si affreuse.
-
 Qu’on se serait moqué d’elle.
-
-Sûrement.
 
 Si elle n’avait pas été la mère du condamné.
 
@@ -5204,21 +4346,13 @@ Ses pauvres yeux étaient rougis de larmes.
 
 Et jamais ils ne verraient bien clair.
 
-Après.
-
-Depuis.
-
 Par la suite.
 
 Jamais plus.
 
 Jamais désormais elle ne verrait bien clair.
 
-Pour travailler.
-
 Et pourtant après il faudrait travailler pour gagner
-
-﻿sa vie.
 
 Sa pauvre vie.
 
@@ -5238,17 +4372,9 @@ On a tant de mal à gagner sa vie.
 
 Elle pleurait, elle était devenue affreuse.
 
-Les cils collés.
-
 Les deux paupières, celle du dessus et celle du dessous,
 
 Gonflées, meurtries, sanguinolentes.
-
-Les joues ravagées.
-
-Les joues ravinées.
-
-Les joues ravaudées.
 
 Ses larmes lui avaient comme labouré les joues.
 
@@ -5276,13 +4402,9 @@ Et elle était ainsi associée à sa Passion.
 
 Elle pleurait, elle faisait si drôle, si affreux à voir.
 
-Si affreuse.
-
 Que l’on aurait ri certainement.
 
 Et que l’on se serait moqué d’elle.
-
-Certainement.
 
 Si elle n’avait pas été la mère du condamné.
 
@@ -5302,8 +4424,6 @@ Et on ne sait pas, peut-être aussi pour ne pas pleurer.
 
 Heureusement encore qu’il connaissait ce vieux Joseph
 
-﻿d’Arimathée.
-
 Un homme de bien, ce vieux, sans aucun doute.
 
 Et heureusement surtout que ce vieil homme voulait
@@ -5312,19 +4432,9 @@ Et heureusement surtout que ce vieil homme voulait
 
 À sa dépouille.
 
-Mortelle.
-
 Elle aurait ainsi une grande consolation.
 
-La seule.
-
-Une seule.
-
-La dernière.
-
 La consolation de la sépulture.
-
-De l’ensevelissement et de la sépulture.
 
 Il serait même enterré dans un beau sépulcre.
 
@@ -5352,8 +4462,6 @@ S’intéresser à lui.
 
 À son corps. À sa dépouille.
 
-Mortelle.
-
 Voyez-vous il est toujours bon d’être protégé.
 
 Ce vieux sage homme.
@@ -5361,18 +4469,6 @@ Ce vieux sage homme.
 Un homme de bien.
 
 Prudent comme sont les vieillards.
-
-Ménager.
-
-Précautionneux.
-
-Attentif.
-
-Attentionné. Attentionneux.
-
-Ménager.
-
-Économe.
 
 Peut-être un peu avare, comme sont les vieillards.
 
@@ -5391,10 +4487,6 @@ Booz était bien économe.
 Et même ménager de son temps.
 
 Il s’était pourtant fait faire un beau sépulcre,
-
-Un beau tombeau.
-
-Un beau monument.
 
 Taillé dans la pierre, dans le roc.
 
@@ -5426,8 +4518,6 @@ Exprès pour soi.
 
 Pour y reposer en paix.
 
-Ce vieillard.
-
 Décidément cet homme avait fait le plus grand sacrifice
 
 ﻿que l’on puisse faire à Jésus-Christ.
@@ -5435,8 +4525,6 @@ Décidément cet homme avait fait le plus grand sacrifice
 C’était un homme très bien.
 
 Il connaissait le gouvernement.
-
-Le gouverneur.
 
 *Le procurateur de Judée*.
 
@@ -5458,21 +4546,11 @@ Elle ravalait ses larmes avec sa salive.
 
 Et en même temps elle avait la gorge sèche, brûlante.
 
-De fièvre.
-
-Le gosier sec.
-
-Brûlant.
-
 Elle avait la tête toute en eau.
-
-Et il y en avait toujours.
 
 Et il en sortait toujours.
 
 Et en même temps elle avait la tête sèche, lourde, brûlante.
-
-Pesante.
 
 Et les yeux lui piquaient.
 
@@ -5484,11 +4562,7 @@ Et d’avoir encore envie de pleurer.
 
 Elle pleurait. Elle fondait. Son cœur se fondait.
 
-Son corps se fondait.
-
 Elle fondait de bonté.
-
-De charité.
 
 Il n’y avait que sa tête qui ne se fondait pas.
 
@@ -5499,8 +4573,6 @@ Elle ne se reconnaissait plus elle-même.
 Elle n’en voulait plus à personne.
 
 Elle fondait en bonté.
-
-En charité.
 
 C’était un trop grand malheur.
 
@@ -5513,8 +4585,6 @@ On ne peut pas en vouloir au monde pour un malheur
 ﻿qui dépasse le monde.
 
 Ce n’était plus la peine d’en vouloir au monde.
-
-D’en vouloir à personne.
 
 Elle qui autrefois aurait défendu son garçon contre
 
@@ -5554,8 +4624,6 @@ Le jour de sa mort et de son assomption.
 
 Après le jour de sa mort et de son assomption.
 
-Éternellement.
-
 Mais aujourd’hui elle devenait la Reine de Miséricorde.
 
 Comme elle sera dans les siècles des siècles.
@@ -5565,12 +4633,6 @@ Elle était tout de même contente que cet homme riche
 ﻿se soit occupé de son fils.
 
 Un homme considéré.
-
-Estimé.
-
-Un notable commerçant.
-
-Retraité.
 
 Retiré des affaires.
 
@@ -5585,8 +4647,6 @@ Que l’on ne connaît même pas.
 Comme ça on voyait bien, on ne pourrait pas dire que
 
 ﻿son fils était un galvaudeux.
-
-Un traîneux. Un vagabond.
 
 Comme les princes des prêtres n’avaient pas cessé de
 
@@ -5603,8 +4663,6 @@ Et qu’il courait les routes avec des gens qui n’étaient
 Mais ce n’était pas à elle à charger son fils.
 
 On a quelquefois bien du mal avec les enfants.
-
-Madame.
 
 Celui-là ne leur avait jamais donné que de la satisfaction.
 
@@ -5644,8 +4702,6 @@ Quand ils grandissent.
 
 Elle l’avait bien dit à Joseph.
 
-Ça finirait mal.
-
 Ils avaient été si heureux jusqu’à trente ans.
 
 Ça ne pouvait pas durer.
@@ -5676,8 +4732,6 @@ Les ennemis qu’on fait se retrouvent toujours.
 
 Il dérangeait trop de monde.
 
-Aussi.
-
 Le monde n’aime pas être dérangé.
 
 On est quelquefois drôlement récompensé dans la vie.
@@ -5703,8 +4757,6 @@ Quel dommage. Une vie qui avait si bien commencé.
 C’était dommage. Elle se rappelait bien.
 
 Comme il rayonnait sur la paille dans cette étable de
-
-﻿Bethléem.
 
 Une étoile était montée.
 
@@ -5772,8 +4824,6 @@ C’étaient les mêmes bergers, les mêmes paysans de la campagne.
 
 Qui étaient venus en ville.
 
-Aujourd’hui.
-
 Qui hurlaient après ses chausses.
 
 On avait donc changé le monde depuis trente ans.
@@ -5789,8 +4839,6 @@ Elle ne voyait pas qu’en effet.
 Il avait changé le monde.
 
 L’un le tirait, l’autre le poussait.
-
-À hue, à dia.
 
 Mais celui qui le tirait et celui qui le poussait.
 
@@ -5825,8 +4873,6 @@ Personne ne voulait plus rien savoir.
 Et ils ne connaissaient rien, tous, que de taper dessus.
 
 Avec des hurlements.
-
-Des hurlements affreux.
 
 Et des cris de mort.
 
@@ -5864,11 +4910,7 @@ Les hommes sont bien changés.
 
 Petits enfants, petits tourments. Grands enfants, grands
 
-﻿tourments.
-
 On a quelquefois bien de la peine, madame, avec les
-
-﻿enfants.
 
 On ne pourrait pas dire qu’elle avait joui de son garçon.
 
@@ -5912,8 +4954,6 @@ Et il y avait aussi cette vieille bonne femme dans le temple.
 
 En avaient-ils été fiers.
 
-Trop fiers.
-
 Et cette fois aussi.
 
 Cette fois qu’il brilla parmi les docteurs.
@@ -5956,8 +4996,6 @@ Il enseignait, à douze ans il enseignait au milieu des docteurs.
 
 Comme ils en avaient été fiers.
 
-Trop fiers.
-
 Il aurait dû tout de même se méfier ce jour-là.
 
 Il était vraiment trop brillant, il brillait trop, il rayonnait
@@ -5992,13 +5030,9 @@ Il aurait dû se méfier. Ces gens-là ont la mémoire longue.
 
 Et puis ils se tiennent entre eux.
 
-Ils se soutiennent.
-
 Les docteurs ont la mémoire longue.
 
 Il les avait sûrement blessés ce jour-là.
-
-À douze ans.
 
 Et à trente-trois ans ils le rattrapaient.
 
@@ -6016,8 +5050,6 @@ Les docteurs ont la mémoire longue.
 
 Ils l’avaient rattrapé au demi-cercle.
 
-Au demi-tour.
-
 Au détour de sa route charnelle.
 
 Au détour de sa route mystique.
@@ -6027,8 +5059,6 @@ Et ils l’avaient acheminé à la mort.
 À cette mort.
 
 Ils le tenaient bien.
-
-Cette fois.
 
 Et ils ne le lâcheraient pas.
 
@@ -6064,37 +5094,13 @@ Voilà quelle était sa récompense.
 
 Voilà comme elle était récompensée.
 
-D’avoir porté.
-
-D’avoir enfanté.
-
-D’avoir allaité.
-
-D’avoir porté.
-
 Dans ses bras.
 
 Celui qui est mort pour les péchés du monde.
 
-D’avoir porté.
-
-D’avoir enfanté.
-
-D’avoir allaité.
-
-D’avoir porté.
-
 Dans ses bras.
 
 Celui qui est mort pour le salut du monde.
-
-D’avoir porté.
-
-D’avoir enfanté.
-
-D’avoir allaité.
-
-D’avoir porté.
 
 Dans ses bras.
 
@@ -6144,8 +5150,6 @@ Il avait aussi une crampe.
 
 Il avait surtout une crampe.
 
-Une crampe effroyable.
-
 À cause de cette position.
 
 De rester toujours dans la même position.
@@ -6158,8 +5162,6 @@ Une crampe de tout le corps.
 
 Et tout le poids de son corps portait sur ses quatre
 
-﻿Plaies.
-
 Il avait des crampes.
 
 Elle savait combien il souffrait.
@@ -6167,8 +5169,6 @@ Elle savait combien il souffrait.
 Elle sentait combien il avait mal.
 
 Elle avait mal à sa tête et à son flanc et à ses Quatre
-
-﻿Plaies.
 
 Et lui en lui-même il se disait : Voilà ma mère. Qu’est-ce
 
@@ -6178,11 +5178,7 @@ Voilà ce que j’ai fait de ma mère.
 
 Cette pauvre vieille femme.
 
-Devenue vieille.
-
 Qui nous suit depuis vingt-quatre heures.
-
-De prétoire en prétoire.
 
 Et de prétoire en place publique.
 
@@ -6195,8 +5191,6 @@ C’était la loi de son père.
 Notre père qui êtes aux cieux.
 
 Comme il l’avait dictée à Moïse.
-
-Le premier Législateur.
 
 Son père qui parle dans le Buisson Ardent.
 
@@ -6242,8 +5236,6 @@ Elle avait suivi.
 
 Un chemin de croix beaucoup plus douloureux que le
 
-﻿sien.
-
 Car il est beaucoup plus douloureux de voir souffrir son
 
 ﻿fils.
@@ -6256,8 +5248,6 @@ Que de mourir soi-même.
 
 Il les avait nourris.
 
-Ses parents.
-
 Mais lui-même c’était de fiel et d’amertume.
 
 C’est l’habitude, c’est la loi, c’est la règle.
@@ -6266,11 +5256,7 @@ Que les fils rapportent quelque chose à leurs parents.
 
 Que les enfants.
 
-En grandissant.
-
 Apportent quelque chose à leurs parents.
-
-En vieillissant.
 
 Lui voilà ce qu’il avait apporté à ses père et mère.
 
@@ -6284,8 +5270,6 @@ Il lui avait apporté.
 
 Il lui avait mis dans la main
 
-Les Sept Douleurs.
-
 Il lui avait apporté.
 
 Il lui avait mis dans la main
@@ -6295,8 +5279,6 @@ D’être la Reine.
 D’être la Mère.
 
 Il lui avait apporté
-
-D’être
 
 Notre Dame des Sept Douleurs.
 
@@ -6313,8 +5295,6 @@ Toute la vie à Nazareth.
 Il se revoyait tout le long de sa vie entière.
 
 Et il se demandait comment il avait pu se faire tant
-
-﻿d’ennemis.
 
 C’était une gageure. Comment il avait réussi à se faire
 
@@ -6382,10 +5362,6 @@ Il les avait ainsi gênés.
 
 Dans leurs affaires.
 
-Dérangés.
-
-Momentanément.
-
 Dans leurs affaires.
 
 Il avait porté atteinte à leurs intérêts.
@@ -6397,8 +5373,6 @@ Il avait chassé les trafiquants du temple.
 Tous ceux qui vendaient et qui achetaient dans le temple.
 
 Il avait renversé les tables des changeurs.
-
-*Mensas numerariorum*.
 
 Et les sièges de ceux qui vendaient des pigeons.
 
@@ -6446,25 +5420,11 @@ Monté sur l’ânon d’une ânesse.
 
 Afin que les Écritures des Prophètes.
 
-Fussent accomplies.
-
 D’ailleurs il n’aimait pas les commerçants.
-
-Ouvrier.
-
-Fils d’ouvriers.
-
-Fils nourricier.
-
-Fils nourri.
-
-De famille ouvrière.
 
 D’instinct il n’aimait pas les commerçants.
 
 Il n’entendait rien au commerce.
-
-Au négoce.
 
 Il ne savait que travailler.
 
@@ -6487,8 +5447,6 @@ Au moment de la présenter.
 De la rapporter à son père.
 
 Un jour les camarades l’avaient trouvé trop grand.
-
-Simplement.
 
 Un jour les amis, les amis l’avaient trouvé trop grand.
 
@@ -6738,23 +5696,17 @@ Sur l’inaugurateur de la perdition.
 
 Sur le premier objet de la réprobation
 
-Éternelle.
-
 ﻿Car il avait connu que le damné suprême
 
 Jetait l’argent du sang qu’il s’était fait payer,
 
 Le prix du sang, les trente deniers dans la monnaie de
 
-﻿ce pays-là ;
-
 Comptés en deniers, dans les deniers de ce temps-là de
 
 ﻿ce pays-là.
 
 Les trente deniers, prix temporel, monnaie temporelle,
-
-﻿deniers temporels.
 
 Ces trente malheureux deniers, prix d’un sang éternel.
 
@@ -6781,10 +5733,6 @@ Malheureux tous ceux qui eurent commerce avec eux.
 ﻿À l’effigie, à l’effigie de César.
 
 Qui se les passèrent de main en main.
-
-Deniers dangereux.
-
-Plus faux.
 
 Infiniment plus dangereux.
 
@@ -6826,10 +5774,6 @@ Par le regret, par le remords, par le repentir.
 
 *Aux princes des prêtres.*
 
-*Et aux sénateurs.*
-
-*Disant :*
-
 *J’ai péché, livrant le sang juste.*
 
 *Mais ils dirent :*
@@ -6840,21 +5784,13 @@ Par le regret, par le remords, par le repentir.
 
 *Et jetant les* deniers *d’argent dans le temple.*
 
-*Il se retira.*
-
 *Et partant se suspendit par un lacet.*
-
-Se pendit.
 
 *Or les princes des prêtres.*
 
 *Ayant pris les* deniers *d’argent.*
 
-*Dirent.*
-
 *Il n’est pas permis de les mettre dans le trésor.*
-
-Sacré.
 
 *Parce que c’est le prix du sang.*
 
@@ -6866,8 +5802,6 @@ Sacré.
 
 *À cause de cela ce champ fut appelé.*
 
-*Hâceldama.*
-
 *C’est-à-dire.*
 
 *Le champ du sang.*
@@ -6875,8 +5809,6 @@ Sacré.
 *Jusqu’au jour d’aujourd’hui.*
 
 *Alors fut empli ce qui fut dit par le prophète Jérémie.*
-
-*Disant.*
 
 *Et ils reçurent trente deniers d’argent prix du mis à prix.*
 
@@ -6930,14 +5862,10 @@ Et par pitié du Père il eut sa mort humaine.
 
 Pourquoi vouloir, ma sœur, sauver les morts damnés de l’enfer éternel, et vouloir sauver mieux que Jésus le Sauveur ?
 
-Jeannette
-
 Elle cesse de filer.
 
 — Alors, madame Gervaise, qui donc faut-il sauver ?
 Comment faut-il sauver ?
-
-Madame Gervaise
 
 — Comme tu parles, mon enfant, comme tu parles.
 Nous sommes derrière Jésus, mon enfant, nous marchons derrière lui, nous sommes son troupeau de disciples. Nous devons recevoir ses enseignements. Nous
@@ -6951,24 +5879,16 @@ Nous n’avons pas à courir devant. Comme des moutons qui ont le tourniquet. No
 dans ses jambes. Nous n’avons pas à l’empêtrer.
 Dans sa marche.
 
-Jeannette
-
 — Madame Gervaise, je vous le demande : qui donc
 faut-il sauver ? Comment faut-il sauver ?
 
-Madame Gervaise
-
 — En imitant Jésus ; en écoutant Jésus :
-
-Un silence.
 
 Le maître sauveur n’a pas même essayé de sauver
 les damnés, *après*, car il avait connu que l’enfer éternel
 est enclos sans espoir.
 
 Il avait connu que ce sont des âmes forcloses, déclarées forcloses.
-
-Un silence.
 
 Le maître sauveur n’a pas semé ni voulu que l’on
 semât, car il savait multiplier les pains ; il ne faut pas
@@ -6998,19 +5918,13 @@ semer, car il sait encore multiplier les pains.
 
 *Malitia sua* : sa peine, sa malice, son mal ; son travail ; son épreuve ; hélas peut-être sa tentation ; peut-être son péché.
 
-Un silence bref.
-
 Le maître sauveur n’a pas voulu que Pierre tirât
 l’épée contre les soldats en armes : il ne faut pas faire
 la guerre.
 
 *Et ecce unus*. Et voici que l’un *de ceux qui étaient avec Jésus, étendant la main, tira son épée* …
 
-Jeannette
-
 — Ils avaient donc des épées.
-
-Madame Gervaise
 
 — Ils avaient donc des épées. *Tira son épée, et frappant le serviteur du prince des prêtres, lui coupa l’oreille.*
 
@@ -7024,28 +5938,16 @@ Madame Gervaise
 
 *Or tout ceci est arrivé, afin que fussent accomplies les Écritures des prophètes.*
 
-Jeannette
-
 — *Alors tous les disciples, l’ayant abandonné, s’enfuirent.*
-
-Madame Gervaise
 
 — Mon enfant, mon enfant, comme tu parles, tu ne
 parles pas comme une petite fille.
 
-Jeannette
-
 — Je crois,… je crois…
-
-Madame Gervaise
 
 — Ma fille, mon enfant, qu’oses-tu dire ?
 
-Jeannette
-
 — Je crois que si j’avais été là, je ne l’aurais pas abandonné.
-
-Madame Gervaise
 
 — Ma fille, mon enfant, gardons-nous du péché d’orgueil. Nous sommes faits comme les autres. Nous sommes des chrétiens comme les autres. Nous eussions
 été comme eux. Nous eussions été parmi eux. Nous
@@ -7061,53 +5963,30 @@ pas fait comme eux.
 
 Nous ne valons pas mieux que les autres.
 
-Jeannette
-
 — Ce n’étaient pas des Français. Ce n’étaient pas des
-chevaliers français.
-
-Madame Gervaise
 
 — Ma fille, mon enfant, comme tu parles. Tu ne
 parles pas comme les autres, tu ne parles pas comme
 tout le monde.
 
-Jeannette
-
 — Jamais des Français ne l’auraient abandonné.
-
-Madame Gervaise
 
 — Ma fille, mon enfant, comme tu parles. Tu ne
 parles pas comme une bonne chrétienne, comme une
-chrétienne ordinaire.
-
-Jeannette
 
 — Des chevaliers français, des paysans français,
 jamais des gens de chez nous ne l’auraient abandonné.
 
 Des gens du pays français. Des gens du pays lorrain.
 
-Madame Gervaise
-
 — Ma fille, mon enfant, ne pensons point orgueilleusement, gardons-nous du péché d’orgueil. Ces hommes dont tu parles si légèrement, ils furent les premiers
-chrétiens.
-
-Jeannette
 
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Ils étaient les premiers chrétiens. C’était pas facile,
 d’être les premiers chrétiens.
 
-Jeannette
-
 — Ils étaient heureux.
-
-Madame Gervaise
 
 — C’était pas facile. La terre toute entière, la terre
 était toute embarbouillée de paganisme. La terre tout
@@ -7119,13 +5998,9 @@ enfant souillé.
 Ils furent les premiers chrétiens de la chrétienté.
 Après Jésus les inventeurs de la chrétienté.
 
-Jeannette
-
 — Ils étaient heureux. Jamais nos Français ne l’auraient abandonné ainsi, jamais nos Français ne l’auraient abandonné.
 
 Des gens du pays lorrain, des gens du pays français.
-
-Madame Gervaise
 
 — Ma fille, mon enfant, comme tu parles. Tu ne parles
 pas comme il faut. Ils furent les premiers saints du
@@ -7139,11 +6014,7 @@ fondateurs, les auteurs, les inaugurateurs, les inventeurs de toute chrétienté
 Après Dieu, avec Dieu, s’il plaît à Dieu les créateurs
 de toute chrétienté.
 
-Jeannette
-
 — Jamais les gens de par ici ne l’auraient abandonné.
-
-Madame Gervaise
 
 — Il fallait que les Écritures fussent accomplies. Ne
 parlons point légèrement, mon enfant, ma fille, ne parle
@@ -7186,11 +6057,7 @@ patrons. Ils furent les saints des premiers jours.
 
 Ils ne portaient pas des noms d’aujourd’hui ni d’hier.
 
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Ils portèrent, ils soutinrent les premiers noms du
 monde, ils soutinrent, ils avancèrent, ils lancèrent, ils
@@ -7210,11 +6077,7 @@ La face de la terre.
 
 Ils promurent les premiers noms du monde. Ils promurent la chrétienté même.
 
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Ils soutinrent de grands noms. C’étaient de grands
 noms, mon enfant, ces noms dont tu parles à la légère,
@@ -7242,11 +6105,7 @@ Fils en esprit et successeurs en esprit.
 
 Fils spirituels et successeurs spirituels.
 
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Où il n’y avait rien, ils firent tout. Et où il y a tout,
 c’est à peine si nous faisons quelque chose. Ils avaient
@@ -7256,13 +6115,7 @@ patronage ; des noms qui notamment furent pris, qui
 excellemment furent pris et seront pris éternellement
 par les saints leurs successeurs.
 
-Et où il y a tout, ce qu’il y a, nous le perdons.
-
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Ils furent donc un peu comme Jésus. Ils furent les saints des saints, des autres saints, des saints leurs successeurs, des lignées des autres saints leurs successeurs. Ils furent les patrons des patrons, des autres
 patrons, des patrons leurs successeurs, des lignées des
@@ -7282,11 +6135,7 @@ dans la famille spirituelle, dans chaque famille particulière il y a eu de gran
 
 Par un répartement, par une répercussion de la sainteté ; par une redistribution, par un reversement du patronage.
 
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — C’étaient *Jacques* et Jean, fils de Zébédée. Ces noms
 dont tu parles à la légère, mon enfant, ils se nommaient
@@ -7300,11 +6149,7 @@ deux frères, *Simon, qui est appelé Pierre, et André son frère, envoyant leu
 
 *Or eux, aussitôt ayant laissé leurs filets et leur père, le suivirent.*
 
-Jeannette
-
 — Ils furent heureux.
-
-Madame Gervaise
 
 — Ils inaugurèrent la cité de Dieu, le royaume de Dieu
 sur la terre. Que votre règne arrive. Le règne de Dieu
@@ -7317,22 +6162,14 @@ Les âmes des pécheurs qu’il avait rachetés. Ils se nommaient, n’y en avai
 
 *Simon le Chananéen* …
 
-Jeannette
-
 — *et Judas Iscariot, qui même le trahit.*
-
-Madame Gervaise
 
 — Malheureuse, malheureuse enfant. Mais l’un d’eux
 reçut son nom des mains mêmes de Jésus, des propres
 mains de Jésus.
 
-Jeannette
-
 — Celui-là même qui le renia. Des gens de ce pays-ci
 ne l’auraient jamais renié.
-
-Madame Gervaise
 
 — Malheureuse, malheureuse enfant, quelle idée court
 derrière ta tête ? *Et ne nos inducas in tentationem*.
@@ -7368,11 +6205,7 @@ Son nom inventé ; son nom nouveau ; son nom créé.
 
 *Et je te donnerai les clefs du royaume des cieux.*
 
-Jeannette
-
 — Trois fois. Le même. Le même le renia trois fois.
-
-Madame Gervaise
 
 entrant comme dans une sainte colère :
 
@@ -7388,8 +6221,6 @@ fois. Et puis après. Nous nous l’avons renié des centaines et des milliers d
 
 Les saints balayeurs, les grands saints balayeurs du monde.
 
-Jeannette
-
 — Jamais les hommes de ce pays-ci, jamais des saints
 de ce pays-ci, jamais des simples chrétiens même de
 nos pays ne l’auraient abandonné. Jamais des chevaliers
@@ -7401,11 +6232,7 @@ arraché la tête.
 
 Des gens du pays lorrain. Des gens du pays français.
 
-Madame Gervaise
-
 — Il fallait que les prophéties fussent accomplies.
-
-Jeannette
 
 — Ils auraient laissé à d’autres le soin de les accomplir.
 Jamais le roi de France ne l’aurait abandonné. Jamais
@@ -7422,8 +6249,6 @@ saint Ouen ne l’auraient abandonné. Jamais nos saints
 ne l’auraient renoncé. C’était des saints qui n’avaient
 pas peur.
 
-Madame Gervaise
-
 — Mon enfant, mon enfant, comme tu parles. Tu
 t’appuies sur les deuxièmes saints contre les premiers
 saints ; tu te prononces pour les deuxièmes saints contre
@@ -7433,35 +6258,22 @@ enfant. Tu introduis la division dans l’Église ; tu introduis un débat dans
 
 Tu invoques les deuxièmes chrétiens contre les
 premiers chrétiens, les deuxièmes saints contre les
-premiers saints.
 
 Toute maison divisée contre elle-même périra.
-
-Jeannette
 
 — Je dis ce que je crois. Je connais la race des gens de
 ce pays-ci.
 
-Madame Gervaise
-
 — Tu introduis la division dans l’Église une, que Notre
 Seigneur a fondée une, qu’il a voulue une, qu’il maintiendra éternellement une. Tu introduis la division, tu introduis un débat dans la communion une.
 
-Jeannette
-
 — Je dis comme nous sommes, et comme étaient nos
 saints. Ils n’avaient pas peur des coups.
-
-Madame Gervaise
 
 — Il n’y a qu’une sainteté. Ce sont les mêmes saints.
 Il n’y a qu’une sainteté, qui vient de Jésus.
 
 Qui est la sainteté même de Jésus.
-
-Éternellement reversée.
-
-Jeannette
 
 — Sainte Geneviève, saint Aignan, saint Loup n’ont
 pas eu peur d’aller au devant des armées païennes. Ils
@@ -7487,8 +6299,6 @@ D’un sabre de garde champêtre. C’étaient des milliers
 et des milliers et des centaines de milliers de sabres.
 Et qui avaient servi. Et qui serviraient encore. Beaucoup. Longtemps.
 
-Qui savaient servir.
-
 Qui étaient prêts à servir.
 
 Ils y allèrent pourtant. Dans les plis de leurs manteaux ils portaient la gloire de Dieu.
@@ -7499,25 +6309,18 @@ Pasteur, pour le pasteur en chef. Ils firent plus pour le
 peuple de Dieu que les autres n’avaient fait pour Dieu
 même.
 
-Madame Gervaise
-
 — Tous les saints dans les plis de tous leurs manteaux
 ont toujours porté la gloire de Dieu.
-
-Jeannette
 
 — C’étaient des barbares, des armées barbares, des
 armées innombrables, des armées païennes. Cent fois
 plus barbares, cent fois pires, infiniment plus barbares,
 infiniment pires que les Anglais même. Et que les
-Bourguignons.
 
 Ils y allèrent pourtant. Dans les plis de leur manteau
 ils portaient la gloire de Dieu et le corps de Jésus. Et
 les fronts barbares se courbèrent devant eux. Vainqueurs dans la défaite, ils vainquirent, ils triomphèrent
 des victorieux mêmes.
-
-Madame Gervaise
 
 — Toute sainteté vient de Dieu, toute sainteté procède
 de Dieu. Il n’y a qu’une sainteté, qui vient de Jésus-Christ. Tous les saints sont les saints de Dieu, les frères de Jésus, les frères en sainteté de Notre-Seigneur
@@ -7533,11 +6336,7 @@ les saints du monde ne sont que le reflet de Jésus.
 Toutes les saintetés du monde ne sont que les reflets
 de la sainteté de Jésus.
 
-Jeannette
-
 — Saint François ne l’aurait jamais renoncé.
-
-Madame Gervaise
 
 — Tu introduis le débat là où il ne doit jamais y avoir
 de débat. Tu introduis la division là où éternellement
@@ -7545,21 +6344,13 @@ jamais il n’y aura de division.
 
 Car l’Église est impérissable ; la communion est impérissable et *toute maison divisée contre elle-même périra.*
 
-Jeannette
-
 — Sainte Claire ne l’aurait jamais renoncé.
-
-Madame Gervaise
 
 — L’Église est une ; la communion est une ; une dans
 le temps ; une dans l’éternité
 
-Jeannette
-
 — Renoncé, renoncé, c’est le pire de tout. Madame
 Colette ne l’aurait jamais renoncé.
-
-Madame Gervaise
 
 Cette colère lui remonte.
 
@@ -7575,11 +6366,7 @@ Ils ne se retournaient point contre la source éternelle.
 Contre leurs modèles, contre leurs exemples, contre
 les objets de leur imitation.
 
-Jeannette
-
 — Je dis ce qui est.
-
-Madame Gervaise
 
 — Ils avaient la plus grande dévotion, ils n’avaient que
 dévotion pour leurs frères les saints, pour leurs frères les premiers. Ils se proposaient timidement et humblement, ils ne se proposaient que de les imiter. Tous ensemble ; tous ensemble comme eux ; tous ensemble
@@ -7587,14 +6374,9 @@ après eux ; tous ensemble avec eux ; d’imiter Jésus.
 
 Ils n’avaient que dévotion et imitation pour leurs
 frères ; pour leurs frères aînés ; pour leurs grands
-frères.
-
-Jeannette
 
 — Je ne peux pas mentir. Je ne veux pas mentir. Je
 dis ce qui est.
-
-Madame Gervaise
 
 — Ils jugeaient, eux ; ils savaient qu’ils étaient du même
 corps ; du même corps de chrétienté. Ils savaient qu’ils
@@ -7606,11 +6388,7 @@ grand tenant de sainteté.
 
 Tenanciers du grand tenant de sainteté.
 
-Jeannette
-
 — Renoncer, non, renoncer. Comment a-t-on pu renoncer le Fils de Dieu.
-
-Madame Gervaise
 
 — Juifs, Grecs, Latins, Français, il n’y a pas plusieurs
 sortes, il n’y a pas quatre races de saints. Saints juifs,
@@ -7631,11 +6409,7 @@ seraient levés, ils se seraient soulevés de toutes leurs
 forces, de leurs pauvres forces, de leurs forces victorieuses. Contre le mauvais usage que l’on voulait faire d’eux. Contre ce pernicieux usage. Contre cet usage
 d’impiété, de les animer contre leurs frères, de les employer contre leurs prédécesseurs, contre leurs fondateurs, contre les premiers buveurs de la source éternelle, contre les premiers nourris de l’impérissable source.
 
-Jeannette
-
 — Je dis seulement ceci : jamais nous, nous ne l’aurions lâché.
-
-Madame Gervaise
 
 — Nous le lâchons tous les jours, malheureuse enfant,
 nous le lâchons tous les jours. Tu invoques saint François, ma pauvre enfant. Par madame Colette, par sainte Claire, par la filiation spirituelle de sainte Claire, fille
@@ -7656,20 +6430,12 @@ saint. Tu m’opposes mon maître.
 
 Tu m’opposes mon père.
 
-Un silence.
-
 Eh bien moi qui suis de saint François, à toi qui
-n’est …
-
-Jeannette
-
-vivement :
 
 — à moi qui n’est de rien. Tout beau, madame. On est
 toujours de quelque part, on est toujours de quelque
 chose et de quelqu’un dans la chrétienté.
 
-Il n’y a pas de va nu pieds et de propres à rien dans
 la chrétienté. Il n’y a pas de vagabonds, d’errants.
 
 Vous qui êtes de saint François ; à moi qui suis de
@@ -7695,8 +6461,6 @@ Vous qui êtes de saint François ; à moi qui suis de
 saint Remy, et de saint Jean et de sainte Jeanne.
 
 Vous qui êtes de Jésus ; à moi qui suis de Jésus.
-
-Madame Gervaise
 
 Moi qui suis de saint François ; à toi qui es de saint
 Remy, et de saint Jean et de sainte Jeanne.
@@ -7773,7 +6537,6 @@ infirme Dieu accordera peut-être quelque chose à
 mes prières. Il accordera peut-être, il accordera sans
 doute beaucoup aux tiennes, car il faut prier pour
 soi, il faut commencer par prier pour soi, Dieu aime que l’on prie et que l’on commence par prier pour soi.
-Autrement il y aurait de l’orgueil. Il y a de l’orgueil,
 c’est qu’il y a déjà une pointe d’orgueil. Dieu t’arrachera, Dieu te libérera de cette servitude. Dieu te sauvera, Dieu te calmera de cette inquiétude. De cette
 dangereuse, de cette périlleuse inquiétude. Au péril de
 ton âme. De cette inquiétude mortelle. Dieu t’éclairera
@@ -7813,8 +6576,6 @@ peut faire le plus de peine, s’ils les entendent, si jamais
 ils les entendaient, tout ce qui peut faire le plus de
 peine aux saints qui sont dans le ciel.
 
-Jeannette
-
 — J’ai dit seulement, pardonnez-moi, je dis seulement :
 jamais nous autres nous ne l’aurions abandonné, jamais
 nous autres nous ne l’aurions renoncé. C’est la vérité.
@@ -7836,12 +6597,9 @@ De tout.
 Je n’aime pas les Anglais. Je dis : Jamais des Anglais
 n’auraient laissé faire cela.
 
-Madame Gervaise
-
 — Prends garde, mon enfant, l’orgueil veille ; et le
 malin ne se couche jamais. C’est son plus grand chef d’œuvre que de détourner vers le péché les sentiments
 mêmes qui nous poussaient vers Dieu, qui nous jetaient
-à Dieu.
 
 Qui nous conduisaient, qui nous mettaient au service
 de Dieu.
@@ -7876,9 +6634,6 @@ royaume de perdition ; quand il travaille dans les sentiments qui travaillent p
 lui ; quand il travaille, quand il joue dans les passions
 qui lui reviennent ; quand il joue son jeu, le misérable ;
 quand il descend les pentes qui lui sont, hélas, comme
-réservées.
-
-Comme abandonnées.
 
 Seulement alors son domaine était toujours limité,
 son royaume, son misérable royaume. Il n’obtenait
@@ -7960,14 +6715,10 @@ même et les mérites, Jésus et les promesses, il l’emploie
 pour nous perdre, il le fait servir à nous perdre, il le
 fait servir à notre perdition éternelle.
 
-Il joue du côté où il ne devrait pas jouer, où il ne
 devait jamais jouer, dans le jeu de Dieu avec le jeu de
-Dieu.
 
 Il emploie tout, il retourne tout, il sait retourner tout.
 Jésus même et l’histoire de Jésus.
-
-Jeannette
 
 — Je dis seulement : des Français, des Anglais, des
 Bourguignons, jamais mon père, jamais ma mère nous
@@ -7987,8 +6738,6 @@ serait mis en colère, ce jour-là, monsieur le curé.
 Jamais mon oncle, jamais Hauviette, jamais Mengette nous n’aurions enduré ça. Nos saints étaient des saints
 qui n’avaient pas peur des coups.
 
-Madame Gervaise
-
 — Le vieil orgueil veille toujours. Quand le diable travaille par les autres péchés, par les six péchés capitaux, il fait son métier, le misérable ; il fait de son métier, il
 travaille dans sa partie. Mais quand il fait par l’orgueil,
 mon Dieu, quand il chemine, quand il s’avance dans
@@ -7999,15 +6748,11 @@ quand il prend le manteau d’orgueil, non alors, non,
 mon Dieu, il en fait trop. Vous lui laissez faire plus que
 son métier.
 
-Jeannette
-
 — Je dis seulement : Nous n’aurions pas enduré ça.
 Nous n’aurions pas supporté ça. Nous n’aurions pas
 laissé faire ça. Je dis : Hauviette. Je dis : Mengette.
 la regardant brusquement droit dans les yeux. Je dis : Vous,
 madame Gervaise, vous n’auriez pas laissé faire ça.
-
-Madame Gervaise
 
 chancelant soudain sous cette poussée, sous cette invasion, sous cette attaque ; directe ; sous cette révélation de la pensée la plus secrète. Elle tremble. Elle rougit brusquement. Un éclair dans les yeux. Puis elle parle pour se rassurer. Elle éteint lentement, modestement tout cela.
 
@@ -8019,11 +6764,7 @@ balbutiant, bafouillant, se reprenant peu à peu :
 
 Je ne suis pas venue au monde dans ce temps-là, mon enfant.
 
-Jeannette, implacable :
-
 — Vous, vous ne l’auriez pas renoncé.
-
-Madame Gervaise
 
 dans un effort incroyable, dans un effort terrible d’humilité ; volontaire ; de volonté d’humilité ; comme traquée ; dans un frémissement, dans un frissonnement ; fermant les yeux ; humblement ; elle achèvera d’une voix grise.
 
@@ -8037,14 +6778,10 @@ raison. Dieu fait bien ce qu’il fait.
 
 Il est venu la nuit comme un voleur ; et il a tout emporté.
 
-Jeannette
-
 Elle trouve le moyen de dire ce qui suit humblement :
 
 Moi je suis sûre que je ne l’aurais pas abandonné.
 Dieu m’est témoin que je ne l’aurais pas abandonné.
-
-Madame Gervaise
 
 reprenant peu à peu de l’assurance un peu par habitude :
 
@@ -8081,7 +6818,6 @@ jour d’un deuil éternel, c’est qu’un jour il fut un renégat.
 
 La terre, la face de la terre était si sale, mon enfant.
 Toute souillée de saleté, toute souillée, toute sale de
-paganisme.
 
 Toute souillée de l’adoration des faux dieux.
 
@@ -8127,8 +6863,6 @@ Mais nous.
 
 elle prononce des paroles grises :
 
-L’orgueil veille.
-
 Le vieil orgueil veille.
 
 Mon enfant, nous ne sommes pas venues au monde dans ce temps-là.
@@ -8139,24 +6873,16 @@ La terre était toute sale, toute boueuse, toute barbouillée de fange.
 
 En ce temps-là.
 
-*In illo tempore.*
-
 En ces jours-là.
 
 *In diebus autem illis.*
-
-Toute fangeuse.
 
 Et nous on nous a débarbouillé la terre, essuyé les
 plâtres, amassé, préparé les approvisionnements où
 nous nous ravitaillons éternellement.
 
-Jeannette
-
 — Je dis seulement : Je suis comme tout le monde ;
 (mais) je sais que je ne l’aurais pas abandonné.
-
-Madame Gervaise
 
 — Ils ne soupçonnaient pas leur histoire, leur propre
 histoire, la grandeur de leur histoire. Comment l’eussent-ils deviné. On n’avait jamais rien vu de pareil. Mais nous. Nous, nous avons reçu treize siècles d’avertissement. Nous avons reçu treize siècles d’admonitions. Avons-nous été assez avertis. Nous avons treize siècles d’exercice. Treize siècles d’existence. Nous avons treize siècles d’habitude même. Nous savons. Nous connaissons. Nous ne devrions pas être surpris.
@@ -8177,7 +6903,6 @@ milliers de fois les coqs des fermes, de toutes les
 fermes ont chanté après que nous l’avions renié trois
 fois ; sur nos simples, sur nos doubles, sur nos triples
 reniements. Les coqs dans la paille. Sur le fumier des
-fermes.
 
 C’est drôle on parle toujours de ce coq-là, il est
 célèbre, du coq qui se trouva là pour chanter, pour
@@ -8220,7 +6945,6 @@ pas seulement toi ; mais tout le monde, partout on en
 parle légèrement ; ce Pierre, notre fondateur, dont tu
 parles à la légère ; que tout le monde blague ; le maître
 des clefs. Ils furent les apôtres investis. Ils furent les
-premiers disciples.
 
 Jésus pardonna, et instantanément, d’avance il avait
 pardonné le reniement de Pierre. Dieu veuille qu’il ait
@@ -8247,7 +6971,6 @@ Jésus était la tête et lui est la base. Jésus était la
 tête et lui les pieds. Le pied.
 
 Et André, son frère André fut crucifié en croix de
-saint André.
 
 Quand nous aurons payé comme eux, autant qu’eux,
 nos reniements, nos propres reniements, alors, mon
@@ -8281,19 +7004,14 @@ extrême sans nous tuer jamais, tout ce que nous pouvons de la souffrance humain
 lâchement laisser damner les autres, si nous ne voulons
 pas lâchement nous laisser ainsi damner avec eux.
 
-Jeannette
-
 — Je crois bien qu’au fond je ne suis tout de même
 pas lâche.
-
-Madame Gervaise
 
 — Voilà ce que nous devons faire ici-bas. Car il y a des
 trésors. Comme il y a malheureusement pour ainsi dire
 comme un trésor des péchés, heureusement, heureusement il y a d’autres trésors.
 
 Il y a dans le ciel, dans le ciel et sur la terre, dans
-le ciel et de là sur la terre, il y a dans le ciel un
 trésor de la grâce ; un trésor des grâces ; une source
 éternelle de la grâce ; elle coule toujours et elle est
 toujours aussi pleine ; elle coule éternellement et elle
@@ -8357,12 +7075,8 @@ Il espère que nous y ajoutions.
 Voilà ce que nous devons faire ici-bas. Heureuses quand le bon Dieu, dans sa miséricorde infinie, veut bien accepter nos œuvres, nos prières et nos souffrances
 pour en sauver une âme. Une âme, une seule âme est d’un prix infini.
 
-Jeannette
-
 — Quel sera donc le prix de tout un peuple d’âmes ;
 quel sera donc le prix d’une infinité d’âmes.
-
-Madame Gervaise
 
 — Il y a un trésor des promesses. D’un seul coup, du
 premier coup Jésus a tenu toutes les promesses. Il est
@@ -8386,12 +7100,8 @@ que celui à qui c’est promis. C’est nous qui nous tenons
 parole à nous-mêmes, qui avons à nous tenir parole à
 nous-mêmes. Voilà ce que n’ont pas compris les docteurs de la terre.
 
-Jeannette
-
 — Une âme, une seule âme est d’un prix infini. Que
 sera-ce le prix d’une infinité d’âmes ?
-
-Madame Gervaise
 
 — Tu me forces. Tu me dépasses. Quand on dit sauver
 une âme, cela veut dire sauver cette âme, qu’on pense
@@ -8415,24 +7125,16 @@ On ne prie jamais contre personne.
 
 On dit sauver une âme, on dit comme ça.
 
-Jeannette
-
 Comme n’entendant pas :
 
 — Que sera-ce le prix d’une infinité d’âmes ?
-
-Madame Gervaise
 
 — On doit penser à tous, on doit prier pour tous. Trop
 heureuses quand sa faveur infinie veut bien choisir
 cette âme parmi celles que nous avons aimées. Ah !
 Jeannette, si tu savais …
 
-Un silence bref.
-
 On t’aura dit souvent que j’avais fui le monde et que j’avais été lâche, que j’étais lâche, que j’avais abandonné maman ; ils n’ont que ça à dire, que l’on a fui le monde, que nous fuyons le monde : si tu savais par combien de larmes, et du sang de mon corps et du sang de mon âme j’ai voulu sauver cette âme-là ! Pardonnez-moi, mon Dieu, cet orgueil à jamais, d’avoir osé choisir une âme à la sauver.
-
-Un long silence.
 
 Mais quand l’âme a passé devant le Tribunal, si
 Dieu l’a condamnée à l’Enfer éternel, nos œuvres ne
@@ -8442,36 +7144,23 @@ pas. Ne donnons pas pour elle, ne donnons pas en vain
 pour elle nos œuvres vivantes, nos prières vivantes,
 nos souffrances vivantes : il faut laisser les morts ensevelir leurs morts.
 
-Jeannette
-
 Elle cesse de filer pour engager la discussion.
 
 — Alors, madame Gervaise, quand vous voyez qu’une
-âme se damne …
-
-Madame Gervaise
 
 avec une sourde violence extrême ; comme un cri d’en dessous :
 
 — Jamais nous ne savons si une âme se damne.
 
-Jeannette
-
 — Hélas ! nous savons bien qu’il en est qui se damnent. Nous voyons bien. Voyons ! madame Gervaise : souvent
 nous croyons bien que telle âme est damnée.
-
-Madame Gervaise
 
 — Ma sœur, quand je crois bien qu’une âme s’est damnée, je suis malheureuse et je donne à Dieu la souffrance nouvelle où mon âme est enclose à supposer damnée une âme encore ici.
 
 On offre à Dieu ce que l’on a. On offre à Dieu ce que l’on peut.
 
-Jeannette
-
 — Et quand vous voyez, madame Gervaise, que vos
 prières sont vaines ?
-
-Madame Gervaise
 
 très vivement ; comme un cri sourd ; comme un cri secret :
 
@@ -8488,20 +7177,12 @@ très ferme.
 
 Et quand cela serait, c’est affaire au bon Dieu : nos âmes sont à lui. Quand j’ai fait ma prière et bien fait ma souffrance, il m’exauce à sa volonté : ce n’est pas à nous, ce n’est à personne à lui en demander raison.
 
-Jeannette
-
 — Et la souffrance.
-
-Madame Gervaise
 
 — Il exauce la souffrance comme il exauce la prière.
 
-Jeannette
-
 — Et quand nous voyons, quand vous voyez que la
 chrétienté même, que la chrétienté tout entière s’enfonce graduellement et délibérément, s’enfonce régulièrement dans la perdition.
-
-Madame Gervaise
 
 — On verra, on verra, mon enfant. Qu’est-ce que tu
 en vois. Qu’est-ce que tu en sais. Qu’est-ce que tu
@@ -8542,18 +7223,10 @@ Nous sommes dans la main de Dieu.
 
 Les voies de Dieu sont insondables.
 
-Jeannette
-
-Un peu brusquement.
-
 — Adieu, madame Gervaise.
-
-Madame Gervaise
 
 — Adieu, ma fille. Que Jésus le Sauveur sauve à jamais
 ton âme.
-
-Jeannette
 
 — Ainsi soit-il, madame Gervaise.
 

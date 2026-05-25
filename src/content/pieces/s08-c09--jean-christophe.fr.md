@@ -7,18 +7,11 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 3795
 ---
-LS tie RAT FA ne FT SEE)
-
-RÉ EoNE Mr NE « $ = Fri + { h ie
-
-HE nr er PÉPAUR TES à SES SE PASS “NE Ge
-
 c Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante OO
 à M. André Bourgeois, administrateur des cahiers, +4
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ee
 arrondissement. On recevra en spécimens six cahiers e
-de la deuxième, de la troisième, de la quatrième, de la 4
 cinquième ou de la sixième série. ‘ : 4
 
 Pour savoir ce qui a paru dans les cinq premières ; js
@@ -41,28 +34,15 @@ recevra les cahiers parus, et de quinzaine en quinzaine, S
 à leur date, les cahiers à paraître de cette huitième 124
 
 Voir à l'intérieur en fin des autres cahiers les condi- \ Ë
-tions et le prix de l'abonnement. L à
 
 Nous mettons le présent cahier dans le commerce; ÿ h
 huitième cahier de la huitième série; un cahier vert ne i
 
 de 72 pages; in-18 grand jésus; nous le vendons 5
-deux francs. Le
-
-J Christophe
 
 | paraissant seize fois par an
 
 - 8, rue de la Sorbonne, au rez-de-chaussée
-
-vi ar ne pee RARE Les.
-
-Mat jf F Gr D RAC ELA ZAS TEA D TE BA] DEV AE INT EEE RER LOIRET ROME » TU, PAR RE EN vi) Den Re GE RM PT ST NE PEER
-
-(AA MIN Vox T ADPNRRES L
-
-#x480 2 NE , LA CU EDEN
-PAU ne ce [AS DT F fe à.
 
 nu nu Nous avons publié dans nos éditions antérieures et
 à M a dans nos cinq premières séries, I900-I90/, un si.
@@ -111,11 +91,7 @@ _ avons établi automatiquement de ce catalogue analy- #4
 _ tique sommaire dans l'index total de nos éditions anté- ;
 -  rieures et de nos sept premières séries, même premier 5%
 _ cahier de la huitième série. “à
-RER : Tes
 
-DATE de AU $ à AO TER
-
-js DU MEME AUTEUR 3
 d aux Cahiers de la Quinzaine f #
 Le présent petit index donne automati- Æ
 4 quement pour tout volume et pour tout + F
@@ -128,7 +104,6 @@ n' du cahier lui-même, dans la série ainsi y.
 , déterminée, en chiffres arabes, de sorte È
 4 que V-17 par exemple doit évidemment se 3.
 À lire dix-septième cahier de la cinquième oE
-< b) la date du bon à tirer, ou, à son dé- 9
 #4] faut, la date du fini d'imprimer, ou, à son i
 ‘4 défaut, la date du cahier même; An
 a c) le prix actuel; 2
@@ -142,13 +117,10 @@ L — — le Triomphe de la Raison, — trois actes, — 20 oc- Û
 tobre 1899, un volume en voie d'épuisement..............
 ‘4 sept francs 2 ne
 M: — — les Loups, — trois actes, — octobre 1898... cer À
-| — — Danton, — trois actes, — (1-6, jeudi 7 février 1907, $
 . un cahier épuisé, n'est plus mis en vente que dans les col__ lections complètes de la deuxième série............... 99 à
 
-ie APR : à du même auteur 19000
 St 5 D” Romain Rolland, — une introduction d'une lettre inédite
 DR. de Tolstoi, adressée à Romain Rolland (-9, samedi
-:4i } BR JÉVTIET 1902-14... u eue ue deu aabteiee de ce0e QUIL ÉCART SERRES
 + à À — — Le 1{ juillet, action populaire, — trois actes, — M
 3 ÿ — — Vies des hommes illustres, — Beethoven, avecle  n
 PE masque de Beethoven (IV-10, samedi 2 janvier 1903, un
@@ -161,7 +133,6 @@ di deuxième édition, sans le masque (IV-10,, mardi 22 sepAs ternbre 1903"..1..
 fl 1903, un cahier épuisé, n'est plus mis en vente que dans
 BAS les collections complètes de la cinquième série..... 2797
 ni — —  — — le même sous couverture Fischbacher, sk
-1à — — Jean-Christophe. — 1. — L'aube (V-9, mardi 2 fé
 h} — — Jean-Christophe. — I. — L'aube, — édition OllenNe dorff, en vente à la librairie des cahiers.................. "
 Ê — — Jean-Christophe. — II. — Le matin; la mort de
 JA — — Jean-Christophe. — I. — Le matin, — édition 4 £
@@ -175,15 +146,11 @@ et trois francs cinquante DA À 1
 Ollendorff, en vente à la librairie des cahiers.............. 414
 
 “ — — Vies des hommes illustres, — la vie de Michel- 0
-Le: À deux francs ES
 …_ — — Vies des hommes illustres, — la vie de Michel- fc
 _ Ange, — IL. — l'abdication (VIII-2, mardi 16 octobre 1906. M.
 
-> sables mouvants (VII-4, mardi 13 novembre 1906.......... Ua Ve
-
 _ — — Jean-Christophe. — IV. — la révolte. — 2 — {fi
 …_ l'enlisement (VII-6, mardi 11 décembre 1906. trois franes ï 1
-# 1
 
 74 Note du gérant. — De ce petit index il résulte que
 | : Jean-Christophe se compose présentement de quatre
@@ -219,38 +186,18 @@ na huitième série, un cahier blanc de 160 pages, marqué
 L Deuxième partie de ce quatrième livre : Yenlisement ; FE
 il cette partie formait le sixième cahier de la huitième Da.
 de série, un cahier blanc de 144 pages, marqué trois De:
-ne francs ; L Ex |
 mA Troisième partie de ce quatrième livre : la délivrance; de
 ns c'est le présent cahier, neuvième cahier de la huitième NM
 4 série, un cahier blanc d'au moins 144 pages, marqué ne:
 1150 Pour. avoir les quatre. premiers livres de Jean-Chris- ne
 14 | tophe, il suffit d'envoyer un mandat de dix-neuf francs En è
 
-i tit 17 on Por
 _ cinquante à M. André Bourgeois, administrateur des on
 Uk cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 _ cinquième arrondissement. On recevra par le retour
 fi _ du courrier les six cahiers formant les quatre premiers Hs:
-| divres. : + 0
-1 Sa le gérant 4 à
-| x : lee
 pi Comme on va le voir ci-après, la pagination du pré- 1 1
 _ sent cahier, troisième partie du quatrième livre, fait NT
 _ suite à la pagination du cahier rappelé ci-dessus, tee
 _ deuxième partie de ce quatrième livre. Ainsi les trois
 parties de ce quatrième livre sont paginées à la suite.
-
-AT ERA AE RU A PA EARATREN RAP A rt ET et }
-+! UN A PINS ji Vie AT LATIN it a AA JR CT UT
-i\ Tr Enr \ N l ut (HV
-pari av. ! MALE Le à
-ME PE l4 y her its n # À
-VENT VR Qu TE Ne QU fl
-
-ere ri FN QE TANS EE NE RE Be OR LAND LE NU LOUE Sub 2 PA:
-L 2, IS ENTMREEnEr L2 d À hat ‘ res +0
-ax RME 1e s À ts ce >
-# 100
-14 Jean-Christophe MC:
-
-4 Jeu ñ « at A L SAT AACPPANS

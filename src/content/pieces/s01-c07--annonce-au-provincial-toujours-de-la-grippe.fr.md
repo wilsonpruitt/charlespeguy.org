@@ -7,7 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 14267
 ---
-Mon ami,
 Nous commençons à donner aujourd'hui le second
 roman de nos amis Jérôme et Jean Tharaud. Ce roman
 ne sera pas le seul que nous publierons. IL ne sera pas
@@ -469,7 +468,6 @@ qu'il est devenu prêtre, je ne suis pas bien renseigné
 là-dessus. Nous nous voyons si peu souvent. Il était
 
 séminariste. Il s'est de degrés en degrés avancé régulièrement, rituellement, de l'Église enseignée à l'Église
-enseignante. Je ne sais où il en est. Je crois qu'il a fini.
 Je ne connais pas même ces degrés. En quoi j'ai tort.
 Mon ami a été malade. Je me rappelle à présent fort
 bien qu'il se soigna ponctuellement. Il est très jeune.
@@ -578,7 +576,6 @@ ordre de sainteté. Il n'a point donné d'invention, il n'a
 point régné; mais il a été humble, patient, saint, saint, !
 saint à Dieu, terrible aux démons, sans aucun péché. Ne
 Oh ! qu'il est venu en grande pompe et en une prodigieuse magnificence, aux yeux du cœur, et qui voient
-la Sagesse! » )
 
 « Nous connaissons la vérité, non seulement par la
 raison, mais encore par le cœur. »
@@ -634,7 +631,6 @@ par sentiment du cœur sont bien heureux et bien légitimement persuadés. Mais 
 ne pouvons la donner que par raisonnement, en attendant que Dieu la leur donne par sentiment de cœur,
 sans quoi la foi n'est qu'humaine, et inutile pour le
 — Je vous entends comme il convient. ,
-— Je continue :
 « Il eût été inutile à Archimède de faire le prince dans
 ses livres de géométrie, quoiqu'il le fat. Il eût été inutile ) e
 à notre Seigneur JÉsus-Curisr, pour éclater dans son
@@ -727,7 +723,6 @@ déplacerait plus tard dans la mémoire des hommes
 l'importance qu'il voulait donner respectivement à ces
 deux distances, il aurait sans doute négligé la métaphore, car il n'était pas homme à préférer la plus belle
 des comparaisons à la plus infime raison.
-Je continue
 « Tous les corps ensemble, et tous les esprits ensemble, et toutes leurs productions, ne valent pas le
 moindre mouvement de charité; cela est d'un ordre
 infiniment plus élevé. » De tous les corps ensemble, on ne saurait en faire
@@ -902,7 +897,6 @@ et je dirais presque d'un enracinement végétal. D'où
 è sans doute une certaine hésitation dans la défense la
 mieux intentionnée, une certaine incertitude, inexactitude et maladresse à la vie. D'ailleurs il ne me serait
 
-Les TIRE a € EE es ONE CPS ACER CES PEL ES à GR 2, NISSAN
 pas difficile de trouver dans le christianisme un remède
 à cela. Il est dit qu'il y aura peu d'élus, et si les chré- “
 tiens n'étaient pas présomptueux la peur de comparoir ne.
@@ -1092,7 +1086,6 @@ Sinon, elle apprendra qu'ils ne nous servent pas
 Les stériles honneurs rendus aux Dieux d'en bas!
 
 Dans un rocher murée! oh! quelle mort cruelle!
-La morne Niobé
 Périt ainsi soudée à la pierre.
 
 Antigone se lamente et sa lamentation me paraît
@@ -1123,9 +1116,7 @@ Qui perdit la lumière
 Nouvelle réflexion salutaire et nouvel et derniere
 Sur la rive traîtresse
 à En proie à tous les vents Fe
-‘à La marâtre effrénée
 Des deux fils de Phinée Hu:
-ae Les enterra vivants.
 6 £ Et leur mère, 6 ma fille, : EVER
 F D'Érechthée! et ses jeux, FR
 Borée étant son père, hoc
@@ -1180,7 +1171,6 @@ une cité antique harmonieuse et factice. Mais vous
 n'allez pas non plus m''instituer une cité antique identique au moyen âge de la chrétienté. Sans faire aucune
 
 espèce de métaphysique, je suis bien forcé d'accepter
-qu'il y a eu un génie antique et un génie chrétien et que
 le génie chrétien est à beaucoup d'égards différent du
 génie antique. Cela étant admis, je prétends, et je main-
 ù tiens, et je maintiendrai toujours que le génie chrétien
@@ -1508,8 +1498,6 @@ d'éviter tout gaspillage inutile.
 les conflits des diverses fractions bourgeoises.
 
 Lutte contre le militarisme, Le cléricalisme, l'antisémitisme,
-
-‘ Le nationalisme, etc.
 
 ! RÉSOLUTION. — Au milieu de la grande lutte des classes
 qui domine tout le problème social, — et qui fait une nécessité inéluctable au prolétariat d'être constitué en un parti

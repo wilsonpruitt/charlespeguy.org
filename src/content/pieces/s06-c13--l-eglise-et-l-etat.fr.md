@@ -13,23 +13,6 @@ les événements actuels en Russie
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-Re RNA EENEINE ne PRET So tes #7 LOU OA ARR UNE CRT
-AD ANA TE des: dr A APS CE DAC AN TS PE UE ES re
-7 ra le JE ARENA ENAUIE Lex Cr VA Ar D Par ARR EEE AE NL LES CET LPS
-Rte CR ne UC
-| MIE ft SANS LE ) PAR Or QE ELU tre FRA E 4 fe 12 0e AITIRN Fes
-AU SE VAS CA Ut ÉTAPES te L'INCNUES
-MR CE IIS Pioer bt Moir SP EN Cp APN NO E ME ER AV + KIA
-MA AS Lu tu OR AO RARE LA UT NE ARNO UNE Nes ARTS M | ? HARAS
-
-A ER SA NAN PES fe
-RATER CA MORE A AT rt ii AU Fu MA tbe À
-ca FEES HU CRUE au PANNE AS ol \® fe AUS LA LA NITER à
-1 ‘10 PEU AUS 28 REA | HA NIENC mes: PAL NI AA Av Dre HE) NAS ir!
-DR | Or NU LEA (TA RES A D LV dd ul LPS st
-127 LENS at ji À (AA Cie REA EAE HR EU NU \ fé OU Ce
-; “NAS x 4 He he n dora IAA AN RE MY AUDE MU Ni QU a)
-
 Nous avons publié dans nos éditions antérieures et Le
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de cahiers de lettres, — nouvelles, É
@@ -65,14 +48,6 @@ reçoit, par le fait méme de son abonnement, en tête de
 la série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-"#7" Je Fer EE sil RATE NE TES JUAN PUITTE AT ru Pr, nt »
-re ï ta HAUTS pe j À 24" 3 TAK TENUE ARE
-‘LES SORNNER $ MES set
-À pi ALAN 1 k ne
-#,. > PONS se 1 LR NUL
-> ADR RIT ù A A AE RRR
-#4 V0 CUS ERA RS LT NPA PAR Le
-
 4 Nous avons eu par les soins de Léon Deshairs une
 Me ‘ photographie de Tolstoi et Gorki se Promerteile ss :
 . semble à lasnaia Poliana; cette photographie a été prise
@@ -80,8 +55,6 @@ Me ‘ photographie de Tolstoi et Gorki se Promerteile ss :
 
 ,  Deshairs par le docteur Schlepianoff; nous l'avons Jait
 it _ reproduire à trois cents exemplaires ; nous la ie A)
-
-| 2 : (AS LA Ke
 
 Notre vieil abonné M. J.-W. Bienstock nous avait apporté il y a plusieurs années le premier des deux fragments que l'on va lire; on verra ci-après pourquoi ce
 fragment présente un intérêt véritablement unique ; le
@@ -107,43 +80,6 @@ _ et rassemblés forment un volume de trois francs cin-
 quante aux éditions du Mercure de France; on peut le
 
 . commander dès aujourd'hui à la librairie des cahiers.
-
-MAL bit Me AR DE PEN Le Reid AE TER US (A
-
-| AAA RO A ra ENS 5 Ge % GOT 2  : _ 16e P (
-
-“ AS Heu me È 29 \E4 ' B É AT er Et RENE "ts
-Un Ar EE 14 Edit) a *f È 5 NH ot FE {ARLES {
-
-AS ré ce Lare PA RDE à 2 tt 7e M:
-
-Fe TR 1 PRG. NT RAA SA Ia un HV bi RU Ki td VALUE A ES M #4 PES
-
-SUR C pat REX t A fc gt APE ‘ a AE TAN MOTTE mx
-
-AFRO bé ART AU (qe LE Ma # AT e CA vŸ: RUE
-Set + Ë hs AUS RENE HN De YA EE VD Wt HET LISE
-
-ACT, Nes Le ar LEA MA PU FOR NN ner
-Led dit LE NAN MANU EU HN LUE NY À
-
-Li LE AUS NE a D A A A A A IN Een W ty
-
-| 1 CNRS HAUT PE Ï } 4 A. à A EE \l Ns
-
-Joue We UN DRE QUE d; ee 45: We £ NE
-ne tt LES ET Hs RARES papa
-| di en ARTE do RMONtE DATE 1% EU Ce NE % Ra ) UNE Ne
-RCA ‘HS tes 1 RANTA he re NES sn: As DE Ÿ NA A MH Det qe
-su rx è ROUE à Le el txt RCA) VE CU iN Ps TE LA AN RARE HER HU +
-JTE il MES Pc ja FPE f AUS PDUAT TN (AM AU: Do “AI #
-AU RAS Le | fe te MAIN ALT RTS FEU EU É
-Au EAN “HAE tea ta, 8 AT ME RE HAN fi AIM Nr, fil Et Ms RE tar +
-NE LE LP TR Aa tEt NUE Lion î ris d DAUVe) AU f
-Die Un à Éon HAE AS D ANT HU QU AE ee Sp 4 Li '
-1 oo ni ti ne van
-et MA DSi HE IN) RE El
-A A NEA a ni Fig |
 
 Au cours d'une de mes visites à L. N. Tolstoi, à
 Jasnaia Poliana, en 1885 ou 1886, je remarquai dans son
@@ -172,52 +108,9 @@ sommes fait scrupule de le publier; nous nous le permettons maintenant que nous 
 Tolstoï la responsabilité de la forme de ces pages.
 
 ne) nn dites
-à Ne na RU jou LE AO
-ta Au A cs (Pr FN ACTES FX LD hat ae CAPES ï
-ne (pet mi PT à D NY fi PIN In Are
-ER DEN NÉE er m4 (hp ul LA REIN Fo du
-NE AE Le U FRA SNL nat QUE Wir FRA el es 1 | jh : . |
-4 ss Re “L A HAE RASE ik
-' : 16 ) put URI aol AN cg: LUE MA ER , +0 no e KE RE Le JA SRE PTE |
-À. . . à \ Aer (A pv Puit SA LU NeR FRE NS es us + A ne AE
-1 ‘i . Î je " ‘ ji pu rat A LAN À ar San ET Born Fnhe 13510 ,
-are PAS A (0 AD *« 4 d NITÉE y V+ SEA UD Le (y Ke LAS WA pe Lo eu
-| | k + ' } £ 11 (ar) AA Win (HE F2 \'o L FAR, APE eu: AE €
-010 F7 VE PAT Ë FSU TE NES DS ee NEA ere De 1 AA
-‘es pr ty Fe (HA ifle A Win [Vue PT: La LATE FAR "
-u ol 4 RENE f Hat Ur Ÿ (ii PAR ro AE LEURS fs
-NA (in N Do di AE La ti (L 1 SA A { Lau fl “ à -
-EM HO Fe us jun RES" Al HAN a Vi ; de ‘5 | ;
-ou. Je ÉRIE ke se RE?) AU Lis a ASE 1 LM “à : à
-PS UN Le j CEA els SEA OUTRE SIA AN F2 Ni ui, ‘ ui 1 | :
-q in ELA CR EE AA BTE AUS je ST PS HE TRE Aie
-MAS DCE nu AA AA LUN tes Aa? UE CI LEA 4 MA |
-ke . a AA f AO LA et A NtE it | Net Na Re 44
-Ÿ A RE f je SAUT ASE ml CU Star g SEM #3 RAT RAT SET
-ROMA K. RE * A M Mr HI LOD ge ae Shots de de di \ 4
-FA TARN D pri 10 EN ROLE AA 1 Car MATE hu ar di ï ‘ - n |
-LE nt À) ÉATAU MTS UN Lens dx HAINE UE RS RTE) Hi PAR
-HRNAES lat QE MR Wie ne We
-
-PH A AT ARTE YOUR #14 Dora que or PINS ni y" "y
-AN PNR ANNE (AA un Al H'N21 14 Ma fn CASA pee et CT
-OT (PEUT AERNE UEFA IRL Jin LA AITUER LE AA LAON DE Fil PR D RAT UE
-an 14 VA ( EVER MA MS k DAV) : Sun + ANS
-| RU Ve YA SEA ARE HS Le FA DATE PARA LU et NT Ki À sf î
-6 ARR LAINE) \T RER De ji A Al a RNA NA de es se #7 A
-NE NE) GR SEEN Lire UIEE ur ee RNA Las AE 4 16 ar JAQRE FES
-Du ONG Fe fn CAR He A A TR 4, #| ape || RTS  SODENE
-At FAR AA ru ANA A Le APTE ER HUE DRE
-SUITE mes FAN EE He Aa AN AANÉNUESS A1 AE ANT LP At PS Pia
-“ot Ati Nota 4 dus au ROUE AU ( ji NA Ne BE à
-NPA Va 8 TN JR DEAN ÿ At (ARE ne RES LE 413 e PAM SLR dif j
-À Re i MA otar ÿ ie) M tre At pro
-AN A AE ne RAR nr AUS it? Gas DAS PRIE DAY y AI AIR Pie ti
-ARLES ARTE SAUNA RU CLR M an Hi) eut NEA il
 
 La foi c'est le sens donné à la vie, c'est ce qui
 imprime à la vie sa force et sa direction. Chaque
-homme la subit et vit en s'y conformant; s'il ne l'a
 pas trouvée, il meurt. Dans cette recherche, l'homme
 profite de tout ce qu'a élaboré l'humanité. Tout ce
 qu'a élaboré l'humanité s'appelle la révélation. La
@@ -293,7 +186,6 @@ autre. Je ne puis faire cela que si sa foi et la mienne
 ne sont que des paroles et non l'essence même de
 notre vie, non le cœur. Cela on ne peut pas le faire.
 C'est pourquoi on ne peut tromper un homme ou le
-forcer de croire à ce qu'il ne croit pas. Et on ne le
 peut pas, parce que celui qui croit, — c'est-à-dire
 qui a établi son rapport envers Dieu, et sait que la
 foi est le rapport de l'homme envers Dieu, —ne peut
@@ -330,9 +222,7 @@ l'étude du christianisme, par son insanité inattendue ÿ
 et inutile.
 
 Parmi toutes les conceptions et paroles athées,
-il n'y en a pas de pires que celles de l'Église. Il n'y
 a pas de conception qui ait engendré plus de mal, il
-n'y en a pas de plus contraire à la doctrine du
 Christ. En réalité, le mot ÆZcclesias signifie réunion
 et pas plus, et c'est ainsi qu'il est employé dans les
 
@@ -349,7 +239,6 @@ donnent à ce mot les pontifes auxquels est nécessaire La tromperie de l'Églis
 n'est rien d'autre que la préface qui déclare : Tout
 
 ce que je dirai maintenant, c'est la vérité, et si tu
-ne crois pas, je te brüleraï, ou te maudirai ou t'in- .
 sulterai de toutes les manières. Cette conception
 
 est un sophise nécessaire pour certain but dialectique et elle reste le bien de ceux à qui elle est né-
@@ -375,7 +264,6 @@ croyances pareilles, cette définition ne dit rien et
 semble aussi insuflisante que la définition de la
 chapelle comme réunion des vrais musiciens. Mais
 derrière cela on voit le fil blanc. L'Église est vraie
-et unique et il y a en elle les pasteurs et le troupeau,
 et les pasteurs, établis par Dieu, enseignent cette
 doctrine vraie et unique, c'est-à-dire : « Nous jurons
 
@@ -503,7 +391,6 @@ défigurée pour la concilier avec l'État, pour expliquer la sainteté, la lég
 
 En réalité ces mots : l'État chrétien », c'est la
 même chose que la glace chaude ou tiède. Ou il
-n'y a pas d'État, ou il n'y a pas de christianisme.
 
 Pour le bien comprendre il faut oublier toutes ces
 fantaisies qu'on nous enseigne avec tant de soins,
@@ -732,27 +619,9 @@ cela, la hiérarchie, bien qu'elle n'ose le nier, n'ose
 aussi le donner comme doctrine, car cette doctrine
 la renierait elle-même.
 
-Pur SAN re DEAR NO EN PEU UN 4
-réing le | ARBRES AE PACE Ne ur de POS AR et \
-LE e rt è APE CPL AT ARE KE, h SAR re
-# 1 ART à Ne j RL
-% Le ‘ FAT re on NN NES
-Vie Ê PART RE T KART PRES pe
-AE de : RE Re Ton on
-; 1 STE NE CARE Chr PE Le STORE RE
-| PLU TR CVS RSR ARR MIO TETE NES
-
-MEL ee res FA pts SRE SRE PU VALereg el DE 20e a NE à LR 20
-Ra NE EE yes + sa CHAT AT i g. 13; RENE
 7 0
 les événements actuels en Russie
 les événements actuels en RUSSIE : RÈR
-
-FASIORT EE Ë LA 4} DD es Ra k LS RME
-
-Rent e : ie # 5 { H'APEMHENA ?S PES DE PELLE
-
-re: CEE D'ART SET HT) 726 LA PE Ar DA Li dr HT: LUS But 1# ?
 
 La lettre que l'on v&4 lire a été publiée pour la première fois en français dans le Courrier Européen ;
 deuxième année, numéro IS, vendredi 10 mars 1905;
@@ -765,13 +634,6 @@ publié en russe dans quelques jours.
 M. Bienstock a relu sur épreuves l'édition que nous
 donnons ici de cette lettre.
 
-LU 0 (x il ul PTE FRE LD Da ati Es AUS \
-(A, AN NS AR a rs aun Es UM PAUN ARTE 1 EEE SEEN on
-ri PR ! in y PS EEE dE AN NASA EN (Er A ARE T0
-
-MAUR DAS AMEN EVE Re Den AO STAR ES PE LÉ RP DER AA PNA fee Le
-
-Il y a deux mois, je reçus d'un journal de l'Amé-
 rique du Nord, un cäblogramme, avec réponse
 payée de cent mots ; on me demandait mon opinion
 sur l'importance, le but et les conséquences probables de l'agitation des Zemstvos. Ayant sur ce
@@ -788,7 +650,6 @@ l'ajournement de la véritable amélioration sociale,
 puisque la véritable amélioration sociale ne s'obtient
 que par le perfectionnement religieux et moral de l'individu. Tandis que l'agitation politique, plaçant devant
 
-Œ 5 il que, p'aç
 les individus l'illusion pernicieuse de l'amélioration
 
 sociale par le changement des formes extérieures, |
@@ -867,8 +728,6 @@ s'aitribuent des droits qu'ils n'ont pas) et inutile.
 Je trouve cette activité ineflicace, parce que la
 lutte par la force, et, en général, par les manifestations extérieures (et non par la seule force morale),
 
-de
-
 - * d'uupetit groupe de gens contre un gouvernement
 ‘2. puissant qui défend sa vie, et qui dispose pour cela
 de millions d'hommes armés et disciplinés et de
@@ -933,7 +792,6 @@ On dit, donnez la liberté et le peuple exposera
 ses réclamations. C'est faux. En Angleterre, en
 France, en Amérique, la liberté de la presse est
 absolue, cependant, dans les parlements, on ne parle
-pas de la socialisation de la terre, on en parle à
 peine dans les journaux, et la question du droit du
 peuple sur la terre, reste reléguée à l'arrièreplan.
 
@@ -989,7 +847,6 @@ s'émouvoir, discuter, mentir, feindre, insulter et se
 battre, tout cela se fait de soi-même, sans qu'il y
 ait besoin d'efforts. Les hommes veulent tellement
 qu'il en soit ainsi, qu'ils se persuadent que cela
-est.
 
 Et alors, voilà une théorie d'après laquelle on
 tâche de prouver que les hommes peuvent, sans
@@ -1092,7 +949,6 @@ nécessaire, répriment, avec la force armée, les
 révoltes et les manifestations de la volonté du
 peuple quand ils les considèrent comme la violation à
 de la légalité, c'est-à-dire de ce que ces gouvernements, à un moment donné, considèrent comme ;
-la loi. À
 
 Quand dans un État, ayant n'importe quelle consütution, le pouvoir se maintient par la violence et \
 peut être accaparé par quelques hommes, par des À
@@ -1113,7 +969,6 @@ du gouvernement russe, particulièrement sot et
 grossier, nous voyons plus clairement que par les
 actes des autres gouvernements, la malfaisance et
 
-| LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 \  l'inutilité non de tel ou tel gouvernement, mais de
 \ tous les gouvernements, c'est-à-dire d'un groupement d'hommes ayant la possibilité de soumettre à.
 leur volonté la majorité des peuples. :
@@ -1196,7 +1051,6 @@ les complices de leurs crimes. ï
 J'avais terminé cet article et me demandais s'il :
 
 fallait le publier ou non, quand je reçus une remar- 4
-La voici :
 
 \ Depuis déjà plusieurs jours, je ne puis me ressaisir.
 Quand queiqu'un commence à me parler des ouvriers fl
@@ -1271,34 +1125,6 @@ Que les hommes le veuillent reconnaître ou non,
 devant nous tous, se dresse le même idéal de perfectionnement supérieur et seule l'aspiration vers cet
 idéal anéantit la désunion et rapproche les hommes.
 
-PARA AT RENE AS pie MA xl
-ANT 1 AU AQU NTI tes AN AUS w
-LU AE LS 4 JAN AMEN HAN UE MU fe ( (eau Ne Ni NA De
-M SANS AE A SATA RATE EU) RO PURE FRS si Rqua pr JF
-DUR à A ie NE) We AOELES VAN if HER DE ENT 1e NU HUE ets) (HAOS 100 NO k
-na 1 A Ni HA sl do LAN t : QU
-a ME fui PAU LVAORE a FRA At Ne AN Le nf EAN W
-a LAS AAA ps on Fa An PAT UN AU 10
-(ps { AA DANS EL LAN VAL OUUE DA tn NANTES NE AU
-|A RAA X AR ( EE vu PAU ti MAINS { (UNE RARES A ARNN RU \'URE
-JUN AN ANS UN AR | JU NA AR IN ii VI AU CI st Re He RE 1! | ANR de ti
-is ui JU C MAN au NA le UN Lu AU va! A RNA (NA RL fi} 1 00
-IENAN PAU ue LUN NN NA ONU nt LAIT NA PAU DURS PAR fau HU HA
-À LUN Ml HAN He non) HO he AU A Vi tout NA "LA NUE
-REPLe) (ii a) HA ho AA at DE MA AS AR AAA HULL EN ie
-V Le MOTS ont Jour AS on : x Li
-at ON (re An qua NES An RUE LA) NU il Al AE Ne AVE
-in AU j et 1) ANS x ose US 1 TE A a où TS
-1 DE, oo dont 10 Al
-) ii PA ji on ns no \ “e al A qu 1 (ll Hi lee
-1 Au je \ Li on laut
-
-| RAR OR ON ONE di MOULE ET OPETR
-4 Pal CE } UNE NASA MEUNIER LE VELO ds
-#0 : EN es ga | HPLC INT Li NE
-N:, L à RON ut si
-
-CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -1331,12 +1157,6 @@ l'achèvement de cette série ; ainsi du 2 octobre au
 
 À partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
-
-ce 1% RANCE AA pe AA MER An AA EE
-Lu AU ste DUT ALAN Let NUS des ART fi ‘
-LE) { SATA ARR DATA frs AI SAN Had en 1 qe " Art AA À
-INSEE RON PO UT deg A0) ADAM QE A AMAMEE a D MTS EN la D AU \
-fa : ( NE NE ACER PA VARIE SUN ROUTES it DUAL
 
 au total des prix marqués; ainsi depuis le premier
 janvier 190 la cinquième série complète se vend

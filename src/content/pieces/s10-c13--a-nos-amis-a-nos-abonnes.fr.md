@@ -7,41 +7,26 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 45596
 ---
-RON RNA NAN SERA AE RE re ER 2 A
-
 La SATA contenues dans ces trois cahiers , D
 a HT ' , Les noms soulignés sont ceux des mem- Lun
 
-‘11 PRISE bres de la Commune. £ SÉTRRES
 Ÿ Re. hé 4 Toutes les fois que le nom et le prénom 4 " &a
 
 LÉ TENR ê ont été soudés par l'usage, le prénométant AA
-LL PÉTER è devant, c'est à la lettre du prénom que A il
 
 AE l'on trouvera l'ensemble des deux. Ainsi
-À 14 me à » Clément Thomas se trouve à sa place à C. | ê
 DR 2: Les notices biographiques individuelles | AU)
 À Dr: “VRTAe ; publiées dans les trois premiers Cahiers,
-| #0 1e AE et dont la table se trouve à la fin du PES
 LME cahier III, n'ont pas été renouvelées dans | LS e
-1} FANS les cahiers IV, V et VI. Ÿ END
 60 11 n'a été attribué, dans les cahiers LV, V.
-
-VA CÉRLEN et VI, de notice biographique individuelle d
 
 } M dr qu'aux personnages n'ayant pas figuré dans 5 “
 
 FAP E RES les trois premiers cahiers, ou auxquels dl
 à 6 EAN n'avait pas semblé utile, pour une raison Fe
 Rs: À à 2 quelconque, de consacrer alors une de ces re ï
-Du Bordas. — 234. Courbet. — 80. PEAU
-TEAM * ta T de +
-
-| Brideau. — 80. ! a Costa. — 66. (11450
 
 ; mes cahiers rouges
-Lisbonne. — or. l
-|
 
 4 Les chiffres soulignés renyoïent aux Notes
 j et corrections.
@@ -49,84 +34,12 @@ w Toutes les fois que le nom et le prénom
 ‘@ ont été soudés par l'usage, le prénom étant
 : devant, c'est à la lettre du prénom que Fon
 l trouvera l'ensemble des deux. Ainsi Louis-
-| Victor Noir.
-| ÉRPReE EP 5
-| Agar. — 129. 935. 23%6. A
-| Barbès. — 4. Blond. — 291, |
 
-: j é ar het LP PAR ES Fee 0 À TU
-\ met Bouffe-Tout. — 65. PO CT ARITE NP ra AS
-| Bouton d'Or. — 243. 244. Se er SAME à ER
-A Bouvier. — 334. à no ce HE RE à
-
-| Breuillé. — 66. 80. 81. 82. 86. QE AVEOTICR
-4x | ee de F7 Va
-
-| Caullet. — 359. Daubigny. — 195. 176 |
-| Cavalier. — 9245. Daudet. — 7: 359. ï io à Wa
-
-AS DU ur SN PAIE AE DE RC MR
-LE 2 dre LRU PS NE > RU NET Le PA PASSE
-FU 1 UE agen a ner al HE SR Enr Mes $
-#4 Dmitrieff. — 40. Gambon. — 100. qe 4 +
 D Dbromant 2708: Garnier-Pagès. — 119. é t De
-| ONÈSE Grousset (Paschal). — 32. 66. 166.
-|  Fesneau. — 106. Henriette. — 166. ; 4
-
-RAR A et nr ne rie Pa % |
-ESS ne Legrandais. — 100. jh HD TC
-K j Lemerre. — 51. pe ARS LE
-| | Kératry. — 4. 158. 26T. CARE.
-| Lætitia — 5. FU 0
-| Lannes. — 235. Macé. — 115. 118. 119. 120. & Fou pu
-
-| Masséna. — 23. Ollivier. — 67.
-
-| Massillon. — 35. Oudinot. — 235.
-
-| Massol. — 108.
-
-| Michault — 137. Passedouet. — 68. 80. 257.
-
-| Millière. — 88. Perrier. — 115. 122. 124.
 
 Moutard. — 87. Philippe (le père). — 24.
 
-| Pierre Dupont. — 172.
-
-| Ney. — 28. 29. 235. Plonplon. — 27.
-
-6 INTAEMES PRIS MENT nd ÊS a ha JE io ue général
-Le S AA =: Es 4 x fl AE an RCE OR Le AE
-RACE IE ON ee, EN
-# | 276. 216. 201. 25. D RER VE NE FA A
-| TS ; Ruchonnet. — 133 PME
-‘4 \ ee Salignac de Fénelon (de), — 359. qi
-Quinsonas (de). — 53. Hi < Par
-eu, L Soubeiran. — 66. Ds) ESS
 HTRVN Reclus (Elisée). — 180. ] EAN: le
-ni AS A Re Soufflet. — 21. 4 \f
-
-SR sn er A LPEN ET
-© Thomas d'Aquin. — 32. Ro LE # ir
-| Treillard. — 4. 48. 52. 93. PO DIV UN OU NES
-Le sx _ Tribalet. — 207. 222, fes EURE DR EU Lu
-5e A y Vinchon. — 21. de HS À
-
-ne ANNEES HART SRE Un UE S
-
-Nr ETEUR NE Rent FA CAO RES TS !
-
-L 3 NRARES LL Re Aie PRES
-
-AE s EN RENE VC LE 1 ARE ë ie Far da:
-
-Keae ?2: FE L s SN ne NT Je
-
-me AIR À Re PUR) Re ERA | LEUR
-Nu nv CN, f j ty FE PAR Ne YEN AU td
-
-RENE 1 is DE SUES L Lire PV RLOURS ARTE ee TA are t
 
 À On nous demande souvent de quoi se compose
 officiellement une collection complète des
@@ -157,12 +70,6 @@ B. — nos neuf premières séries sont énumérées
 C. — les conditions de l'abonnement à la
 … dixième série, qui est la série en cours, sont » énoncées ci-aprés;
 D. — Les conditions de l'inscription pour un » exemplaire du Polyeucte ont été énoncées en » tête du premier cahier de la présente série.
-| À. au large. — 6
-
-, Ÿ got ant Ja k NN DE it PTT) ji REC Le
-En ÉTIRSNRATRRES RSS PRE NE NS DA Pet D NRC PME td 4
-# k Cite x Le ) 1 UN PR ee
-L 21 28 MARIE me ne AP SR A LCD SEE CR
 
 à … Il a été tiré de ce cahier vingt exemplaires sur
 
@@ -192,8 +99,6 @@ sur whatman en dehors de l'abonnement; l'abonnement
 
 à francs pour tous pays.
 
-#
-
 4 Les Cahiers de la Quinzaine sont composés à la main, :
 
 . en caractères fin dix-huitième siècle (Didot) de la fon-
@@ -202,13 +107,6 @@ _  derie Mayeur (Allainguillaume, J. Saling et compagnie
 
 2 Es . « CE » successeurs), 21,rue du Montparnasse, à Paris, sixième
 
-FRS AVE un, P NAN TRUE FACE EN n$ ES
-#7 HN 4 ARR MIN VE PE
-La NN TN FT HRASATTE NET at
-ANTER ETC ART NE à ; A RE or tn
-prie M de Webi EU he }_ UE N FA PORE ri,
-DEN AMAR MON: à A Fra TRE Lu 'r F TES Ps
-
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 
 il suffit d'envoyer un mandat de trois francs cinquante
@@ -216,8 +114,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 
 _ arrondissement. On recevra en spécimens six cahiers
-de la deuxième, de la troisième. de la quatrième, de la
-cinquième, de la sixième, de la septième ou de la
 
 È Pour savoir ce qui a paru dans les cinq premières
 
@@ -239,16 +135,6 @@ est la série en cours, envoyer en un mandat à M. André
 
 . à leur date, les cahiers à paraître de cette dixième
 
-| série.
-
-US Faudel RARE EE 1 EE k 3 SEA De AUS ÿ
-| TORRES 1 fe ES Fe OR CHA UE
-Rat DU lt
-| OT ARR PAR LRU LUE
-CNE OT MERE at ' Le DO) Cr
-| KR 21) ANRONNNN
-
-F CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 | Nos Cahiers sont édités par des souscriptions men-
@@ -294,11 +180,6 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 - numéro du tirage réservé à chacun des souscripteurs :
 
 __ lédition sur whatman est strictement limitée au
-
-wi: PY L re LRTTER Se F3: LS AS SEAL LV
-ER " RER Et DATE re
-MR Tor LE \ A PRE TRANS Mann LEVÉ
-st PEbr jé AS Val | RAS CORRE ERA : mA SC RCA
 
 e _ Pour tout changement d'adresse envoyer soixante LA
 
@@ -348,70 +229,26 @@ __ cation, en toute propriété littéraire, sans aucune réserve,
 
 L non insérés ne sont pas rendus. 1
 
-ns TRIER HSE re FAN ER ROTEE RAS RS L
-BA ie ta: Er ALT LL) RTL D ME y EAU ONE L AYTEN
-- 217 RE Hu fu \ RO SEA ne TARN Fi CSA
-a i FAURE 1 ess Que Ita |A ILL LR Ms
-11 PAUL TC AUTOS ete LP ° L'UMTAWS: DEN
-
 . Notre catalogue analytique sommaire............ 978
-…_ DU MÊME AUTEUR aux Cahiers de la Quinzaine... 981
 MAXxIME VUILLAUME. — mes cahiers rouges.... 283
 | HCeux qui dénoncent... etes
-| Caiyarperquisitionner..".1.....1:..11.:...2 "287
-| oder de la)paix te RS a EE)
-*} Dire cour NRA NV ARS UNSS ARC
-= bon NE PO re re
 la'éhambre aux Prussiens . 7.147111.) 0830
-j Malin commissaires 322241000000 eue NN de À ù
-# 383 |
 
 Se Ve onsième cahier ee de a dixième série
-RAI AE vers le Jura; css His COPA SENS 3 210
-ao Ma At Contrebandier! 1:10," C3
 __  Ixoex alphabétique général des notices biogræ=
 MARS INDEX ALPHABÉTIQUE GÉNÉRAL des noms propres
 PS AE On nous demande souvent................ 33 w
-1 ge Wu IV a'été tiré de ce cahier:.:... "MA PRESSE IR
 HAN IT Pour savoir ce que sont... 7)! ..\\2 ON
 RAR Nos cahiers sont édités... .........1.... UNSS
 ER Nous avons donné le bon à tirer après corrections |
 | pour seize cents exemplaires de ce onsième cahier |
 Re et pour vingt exemplaires sur whatman le mardi
 
-‘ 1% ha Û Le gérant : CHARLES PÉGUY
 % f 6 Ce cahier a été composé et tiré par des ouvriers syndiqués # F.
 
 le travail du Zarathoustra
 à : paraissant le dimanche |
-| PARIS
 8, rue de la Sorbonne, au rez-de-chaussée 4
-
-ete e AA ve 2e DE Pute,
-RE DS de ST EN Li POTTER AREA
-
-METRE RER de TEE PE RAR SNS TUBES
-es et È S& 15 LA EAN CESSE
-
-FA LE S É M nn en
-D ne
-
-LE RERÉRN TE RTS" PAR 14e PER APE PU ES “os Mat à
-
-r 5 De ENT ee NE Dr. PIE PCT LÉ ete PE) Ce CRT Et UË SAV ETES
-FES Sera cs à RENE DES RPC UE RER EE AE DS at
-
-+ FN SRE 7 à ESA TIRE RES LOVE LUC Mer NE, RE 7 Yo ie) be É—
-
-PRE RU de LS SE
-er vu = à LS CAT RE Es
-SFR DS eye EUR D à En L ChEË VE 2
-
-+ Ne VALEUR RÉAL Sea at AE NPA LeS CEE PURE Path Eee
-+ CRT he ARTE MTS Fa 7 MITA ON AT CAN M RE NN PE Lure GOCCSNS 4
-| TT RAM RNA MEL ER FAO PT RER APE
-= FE AT RL COR RP real Ne TS up pr MUR NEC TN
-RAR ER EN er Re EE Re 0 5 00 ET a ee 0 ME 0 ARTE SRE ESS
 
 Nous avons publié dans nos éditions antérieures et.
 dans nos cinq premières séries, 1900-1904, un Si
@@ -451,26 +288,9 @@ série; toute personne qui jusqu'au 31 décembre 1905
 série : nous l'envoyons contre un mandat de cinq francs :
 à toute personne qui nous en fait la demande.
 
-|
-
-#
-
-|
-
-GE ve # PARU: ir À VOA EA 8 Ve ANA TE EN AA QUE Ha } Va , ÿ
-Hietx BE EN PE SI ï FE “UNE
-LE NT - Je RM ESSEAMNRRSPE Era
-
-LA ASTON Fa RS HE De P a api ie TX): EAN er AS Nr
-Leu \ è 7 ee MAN NE STE Br ; UE
-
-OT D PR PS NUM SH HAS RDC ne ROUE Sets
-
 | aux Cahiers de la Quinzaine PRES
 2. a À Le présent petit index donne automati la
 PR Nr quement pour tout volume et pour tout
-“ENT FOSSES cahier indiqué : Le
-SE 200 à a) le numéro d'ordre de ce cahier dans ANS
 2° ARC le classement général de nos collections HE
 Re ame ss le numéro d'ordre de la série
 | MÉNSANRES étant naturellement composé en grandes
@@ -479,82 +299,36 @@ LTÉE du cahier lui-même, dans la série ainsi à à
 LE ANRSCRENSS déterminée, en chiffres arabes, de sorte
 FQ (oi 2 que V-r7 par exemple doit évidemment se RES
 : ACCES lire dix-septième cahier de la cinquième +
-Re 1 x b) la date du bon à tirer, ou, à son dé Hi:
-ee ge LIMENRE) É faut, la date du fini d'imprimer, ou, à son
 LR ATEN défaut, la date du cahier même; : MA
-+: SE HER se c) le prix actuel; F1: Ve
 ‘40 v a A -d) quand il y a lieu, c'est-à-dire pour nos te La
 FA ER RS \ éditions antérieures et pour nos cinq pre
 SERRES ; mières séries, la page du catalogue ana- rer
 
 ‘ASC lytique sommaire où ce cahier se trouve Le”
-DR oi "a catalogué. < LE
 . TS “ _ Daniel Halévy, — Michelet et Quinet; — et dans le même Er
 _ cahier présentation des quelques textes (IV-21, mardi ie
 RARE — Histoire de quatre ans, 1997-2001 (V-6, mardi É
-| 9 décembre 1903........................ deux francs 300
 M Louis Ménard, une étude préliminaire à la réim- A
 - pression de Louis Ménard, Prologue d'une Révolution #
-CAC, . LE UR be su
 __  — — un épisode (IX-6, mardi 10 décembre 1907 ÉPUISÉ
 
-fé Er ph Tr à Le AS s À k 2 RCE HE Enr at A
-re A ROUE ‘ : Lx PL ESNERSS À NC Ce
-NURUTS : VUURLE Hé L tt PU h
-EE DUR tn ï AS PSE TPE Le
-L'ÉHARES ds ; f k SA HAE Fa S'PRNAS rt
-Mn > Mr à La NASA ie « ; CAPES L + “ é FES F4 AE à A % SES en
-| ARR Re
-FN UIOT 6 DAS af : . Ne LE ANUS PPERARE
-À ROUEN AT M ne
-
-| DU MEME AUTEUR
 | en vente à la librairie des cahiers
 DanrxeLzL HALÉvy. — Essai sur le mouvement ou-
 | vrier en France. — Société Nouvelle de Librairie et
-DANIEL HALÉvy ET RoBERT DREYFUS. — une traduction française (1893) de FRÉDÉRIC NieTzscHE. — le Cas
 | Wagner, un problème musical .......... deux francs
 d'après un travail inédit de madame Duclaux. Librairie
 à de Pages Libres. 1907............. cinquante centimes
 
-RE dit Nes Ar A NAT APE A LL
-PRIE O LEE Par HA CONTENT R LE L'IMNSTE n MEN EN Ass }
-117 NET ENEEER LA LH SN EN FSAUSUR ii
-
-se l RAR VE NE LR en 1
-Wei à du SE DS et AE AE EN
-
-L'LÉSRANER A ÿ il
 _ de travail du Zarathoust ve
-A CESR RU SEXE ÿ ae SA SE
-
-LE De PARA ARR NES és MR Fe TER
-
-| +, 4 à SU CM GE ES Ke NUE f" Ro,
-
-# . : \ Mo SE Lie SRE SR
-AT EUE Sn UT ÿ DEA PAEE enr Ne PÉAIUR EE
-
-AP Lo de dd ae PLIS MESESS
-
-ESS A ARS henis RE UN Cas jen à 06
-CN EE PE DÉPART DES Toul PAT AY LCR
-
-ae" : L die FT Li, C6 U0 1 TP ÉMRENEETS ARTE
-
-Qu À Dean Le
 
 SN TEEN mar et ete
-LE 2 CRUE Eee Eee) : ;
 
-| LA CONCEPTION DU RETOUR ETERNEL
 +4 En juillet 1881, Frédéric Nietzsche venait de publier
 ï _ ua recueil d'aphorismes, Aurore, où s'annonçaient enfin
 A ses dernières pensées. Libéré des religiosités wagné- |
 à riennes; libéré de l'ascétisme critique auquel il s'astrei1 gnait depuis six ans, il entrevoyait, par delà ces négaPo tions qu'il avait essayées, une multitude d'idéalités
 inconnues, de modes lyriques et moraux.
 Où voulons-nous aller ?
-écrit-il ; s ; |
 Voulons-nous franchir la
 __ mer ? Où nous entraîne cette passion puissante, qui prime
 pour nous toute autre passion ? Pourquoi ce vol éperdu dans
@@ -617,9 +391,7 @@ Nous devinons à travers ses lettres l'émotion dont il
 : sa solitude. Le docteur Paul Rée, un ami, qui admire
 Aurore,veut le lui dire et l'aller voir. Frédéric Nietzsche
 l'apprend et se désespère.
-Ma bonne Lisbeth,
 à écrit-il à sa sœur,
-je ne puis me ré-
 soudre à télégraphier à Rée qu'il ne vienne point. Pourtant
 je dois considérer comme un ennemi quiconque vient interrompre mon travail d'été, mon travail d'Engadine, c'est-à-
 dire mon devoir même, ma « seule chose nécessaire ». Un
@@ -631,7 +403,6 @@ Mademoiselle Nietzsche prévint Paul Rée, qui renonça
 à son projet.
 Il trouve enfin cette idée dont le pressentiment
 
-RL Me ltrabails du Zarathoustra De 1
 l'agite avec tant de violence. — Un jour qu'il allaità 4
 travers bois de Sils-Maria jusqu'à Silvaplana, il s'assit
 non loin de Surlée au pied d'un rocher pyramidal È à “3
@@ -758,8 +529,6 @@ son esprit? Cette deuxième hypothèse est la vraie,
 
 Il descendit à Gênes et continua d'être éprouvé par
 
-AT A le travail du Zarathouste ER
-
 les vents humides, les cieux bas dan au EE
 cieux. Il supportait impatiemment l'absence de lumière. ï ue.
 
@@ -796,9 +565,7 @@ s'était privé de musique. Cave musicam! écrivait-il. Il
 craignait, s'il s'abandonnaïit à la jouissance des sons, 1
 d'être repris par le magicien des sons, Richard Wagner.
 Mais il était enfin délivré de ces craintes. Son ami |
-on 20 RER ETRRES
 
-‘ad a | LA CONCEPTION DU RETOUR ÉTERNEL
 à _ Peter Gast lui avait joué, en juin, à Recoare, des chants
 4 et des chœurs qu'il s'était diverti à composer sur des
 à épigrammes de Goethe. Paul Rée avait dit un jour :
@@ -831,7 +598,6 @@ il restera à tous les répertoires d'Europe.
 | La découverte de Carmen est l'événement de son
 hiver. Maintes fois il en parle, maintes fois il y re21
 
-le travail du Zarathoustra Ni CR
 tourne : quand il a écouté cette musique franche et +4
 passionnée, il se sent mieux armé contre les séductions ê
 romantiques toujours puissantes sur son âme. « Carmen :
@@ -892,7 +658,6 @@ m'illusionne sur mon avenir, écrit-il, Cest par mon
 Au début du printemps, Frédéric Nietzsche, séduit
 par un caprice, fit marché avec le patron d'un voilier
 
-le travail du Zarathoustra LME Vin)
 italien en partance pour Messine et traversa la Méditerranée. Le passage fut terrible : il fut malade à mourir. |
 Mais son séjour fut d'abord heureux : il écrivit des |
 vers, plaisir que depuis plusieurs années il avait cessé
@@ -1051,7 +816,6 @@ Il pensait beaucoup aux fêtes de Bayreuth : mais il
 dissimulait ou n'avouait qu'à demi ses regrets. « Je suis
 bien content de n'y pouvoir aller, écrit-il à Lou Salomé. . a
 
-ce de à F : ttes sis DU RETOUR ÉTERNEL <
 5 x Et pourtant si je pouvais être à côté de vous, en bonne
 humeur de causerie; si je pouvais vous dire à l'oreille
 ceci, cela, eh bien, je pourrais supporter la musique de
@@ -1083,7 +847,6 @@ comme d'une certitude atroce. » Mademoiselle Lou
 et une émotion dont les pages qu'elle écrivit ensuite
 “ ne permettent pas de douter.
 
-: le travail du Zarathoustra RRRES C
 Elle conçut un hymne bref qu'elle dédia à Frédéric
 Comme l'ami aime l'ami, Mo
 Ainsi je t'aime, vie surprenante!
@@ -1091,7 +854,6 @@ Que je jubilé ou pleure en toi, ;
 $ Que tu me donnes souffrance ou joie, ;
 Je t'aime avec ton bonheur et ta peine : [y
 7 Et si tu dois m'anéantir, ;
-En te quittant je souffrirai Fe
 Comme l'ami qui s'arrache aux bras de l'ami. RE
 Je l'étreins avec toute ma force :
 Si tu n'as plus aucun bonheur pour moi *
@@ -1151,7 +913,6 @@ de Leipzig à Peter Gast : « Dernières nouvelles : le
 Deux mois après l'amitié est rompue. Qu'est-il arrivé?
 Nous le savons mal. Lou Salomé vint retrouver ;
 
-VE PAC le travail du Zarathoustr à TT RME
 Nietzsche à Leipzig, comme elle l'avait promis; ma is OU
 Paul Rée l'accompagnait. L'ancien ami, semble-t-il, SES
 
@@ -1241,7 +1002,6 @@ Ne seniez-vous donc point que lorsqu'un homme tel que
 
 (1) Cette poésie n'est pas celle que nous avons citée; mais linspiration est pareille.
 
-dE 2 Gite de travail du Zarathoustra We à 2: 0
 moi s'approche de vous, il a besoin de panne 14 00 :
 traindre ?.… Vous avez eu affaire à l'un des hommes les plus 4
 longanimes, les plus bienfaisants qui soient : mais contre |
@@ -1261,18 +1021,6 @@ Adieu, chère Lou, je ne vous reverrai plus. Gardez votre d'A
 cequi avec moi ne se peut réparer. 2H
 
 Je n'ai pas lu votre lettre jusqu'au bout, mais j'en ai ës
-
-Votre ;
-
-AH MPNEES A ce cb PA ME ER ŒUTNE AREA MUR
-Et AL RUADRE CALE AL ep LE LT CRAN TE SUN pt DAC RE
-AU ; ) SA A DA R TPE SOA RARES !Hrrve ANGERS pee
-
-< (ut N RAIE f\ s pi D CAN Le Mo FR à Le », VAN 13 ir ;
-|, FREE 7 à ox re « ONU PAN RE AT A ir HENERMNO Ke)
-NCA UR il PA 4 FRE RATS SH RTE SENS rt Ne
-
-TAC TAUPE PET ME JE \ ue AN À
 
 Son départ est prompt comme une fuite. Il passe et
 s'arrête à Bâle, chez ses amis Overbeck qui écoutent
@@ -1294,7 +1042,6 @@ Rapallo, Zoagli, étaient des sites inconnus des tou1 ristes, de pauvres bourgs,
 | chaque soir retiraient leurs barques au fond des anses
 et raccommodaient en chantant leurs filets. Frédéric
 
-le travail du Zarathoustra Du in à Ve.
 Nietzsche découvrit ces endroits magnifiques et choisit, | 2 " :
 pour y humilier sa misère, le plus magnifique, Rapallo.
 — Il raconte, dans une page fort simple, les circonstances de son séjour : |
@@ -1324,10 +1071,7 @@ Zarathoustra, l'idée du Retour Éternel ne paraît pas.
 Nietzsche suit une idée différente et contraire, l'idée du
 Surhomme, symbole d'un progrès réel qui modifie les È
 choses, promesse d'une évasion possible hors du hasard i
-et de la fatalité. f ;
 Zarathoustra annonce le Surhomme : c'est le prophète F
-
-LA ADR 1 VAINSI PARLA ar vd | S
 
 à d'une bonne nouvelle. Il a découvert dans sa solitude
 
@@ -1364,8 +1108,6 @@ Au cri de sa jeunesse : ist Veredlung môglich ?
 3 L'ennoblissement est-il possible ? Frédéric Nietzsche veut
 répondre et répondre oui. Il veut croire, il réussit à croire
 au Surhomme ; il peut saisir cette espérance. Elle con39
-
-le travail du Zarathoustra tj A).
 
 vient au dessein de son œuvre. Que se proposetil?
 Parmi tant de velléités qui la pressent, celle-ci est
@@ -1499,8 +1241,6 @@ patiente et modifie les projets de son été. Il désire entendre une parole hum
 D auprès de mademoiselle de Meysenbug, le devinant las
 (1) Lettre inédite, communiquée par M. Romain Rolland.
 
-le travail du Zarathoustra DRE d
-
 Let détendu, saisit l'instant pour essayer de le rappro-
 
 cher d'elle. Il ne se défend pas et promet sa venue, | à
@@ -1569,9 +1309,6 @@ r Je suis lumière; hélas! si j'étais nuit! mais ceci est ma
 solitude d'être entouré de lumière.
 Hélas, que ne suis-je ombre et ténèbres! Comme je boirais
 aux mamelles de la lumière!
-
-PES RE IAE A et TE NE AE A SRE
-| le travail du Zarathoustra M me
 
 .… Mais je vis dans ma propre lumière, je bois les flammes Ru.
 qui s'échappent de moi! + LR ORNE AN
@@ -1678,7 +1415,6 @@ définir une forme de vertu, un nouveau bien, un nouveau mal, comme il avait pro
 äpre et violente l'entraîne, et la vertu qu'il exalte, c'est |
 - la force nue, non fardée par les hommes, l'ardeur sauvage que les morales ont constamment voulu atténuer,
 
-ane ia | AINSI PARLA ZARATHOUSTRA e
 nuancer ou vaincre. Voici l'une des premières expressions de son paradoxe fameux :
 : Je stis bienheureux de voir les miracles ‘que fait éclore
 l'ardent soleil,
@@ -1866,7 +1602,6 @@ chacun de ses désirs l'éloignait d'eux et son esprit les
 le seul endroit au monde où subsistait pour lui, à con-
 | dition d'y rester peu, quelque douceur de vie.
 
-L le travail du Zarathoustra sa
 Il trouva la mère et la fille en dispute. Lisbeth aimait FR
 un certain Fôrster, agitateur, idéologue germaniste et. ds fé
 antisémite qui organisait une entreprise de colonisa- 21
@@ -1895,7 +1630,6 @@ autre climat me déprime, m'abîme les nerfs, les yeux, me
 fait tomber en mélancolie, en humeur noire — ivraie
 affreuse; j'ai dù la combattre en ma vie plus que les hydres ci
 
-he AINSI PARLA ZARATHOUSTRA
 | etautres monstres célèbres. Dans le petit ennui se cache le
 _ - plus dangereux ennemi, la grande infortune grandit... ;
 Vers la mi-novembre, Frédéric Nietzsche quitte
@@ -2012,10 +1746,7 @@ rompt, l'insulte.
 Un homme en l'entendant, se tue; un autre devient fou.
 Un divin orgueil de poète l'anime : tout doit être mis en
 
-| le travail du Zarathoustra ds A
 lumière. Et à l'instant où il annonce ensemble le Retour | LA
-
-Eternel et le Surhomme, il cède à la pitié a A
 
 Tous le renient. « Il faut, dit-on, étouffer cette doctrine et. #3
 
@@ -2054,8 +1785,6 @@ Eternel et le Surhomme, sont en désaccord. Le Retour ”
 pression de toute espérance — une âpre vérité. Le
 Surhomme est une espérance — une illusion. De Pun À
 à l'autre, il n'y a nul passage : la contradiction est | à
-
-us 10 | AINSI PARLA ZARATHOUSTRA
 
 RAS entire. Si Zarathoustra enseigne le Retour Éternel, il
 ne pourra pas susciter dans les âmes une croyance pas-
@@ -2102,8 +1831,6 @@ vi Se laisser instruire par les méchants, ne pas leur interdire
 la concurrence. Utiliser les dégénérés. — Le châtiment est
 justifié, quand le criminel est utilisé, comme objet d'expé-
 
-y NE NAS ÿ ot & se 15
-
 le travail du Zarathoustra
 
 rience (pour une alimentation nouvelle). Le châtiment est
@@ -2133,8 +1860,6 @@ neuf fois ses prédications, et enfin il annonce le Retour
 Enfin Zarathoustra parle au peuple; ses paroles ont
 un accent de prière.
 
-La grande question :
-
 Les lois ont été données d'abord. Tout est disposé pour la
 production du Surhomme — grandiose et terrible instant!
 Zarathoustra révèle la doctrine du Retour Éternel — qui
@@ -2144,8 +1869,6 @@ Zarathoustra révèle la doctrine du Retour Éternel — qui
 Moment décisif : Zarathoustra interroge toute cette multitude assemblée pour la fête :
 
 — Voulez-vous, dit-il, le recommencement-de tout cela ?
-
-Tous répondent :
 
 Il meurt de joie.
 
@@ -2186,9 +1909,6 @@ tragique; au même instant il manque les deux œuvres
 
 Ê capable de courts efforts, de chants lyriques et de cris.
 
-| È 61 Zarathoustra. — 4 ‘
-
-“ts le travail du Zarathoustra sh ns
 10.4 Il commençait tristement l'année 1884: le hasard de |
 quelques belles journées, en janvier, le ranima. Il p
 improvisa soudain : point de cité, point de peuple,
@@ -2226,31 +1946,21 @@ chaque instant a son Retour, chaque instant est éternel.
 — Quoi, répond la déesse, tu sais cela, Zarathoustra?
 Mais personne ne sait cela.
 
-| 62 EE
-
-4 " io an NE P4 RLA ZAS ad SU LR EN
 _ ensemble la prairie qui ondule dans la fraîcheur du
 soir; ils pleurent; puis, silencieux, ils écoutent et com :
 … prennent ensemble les ouze paroles du vieux bourdon k Au
 “qu sonne minuit dans la montagne. is
-ÿ F 4 O homme prends garde ! be RE
 
-LE Deux ! ns t Fi
 NE Que dit minuit profond ? 4 FOR
-PEL ne J'ai dormi, j'ai dormi, — So a
-AUS D'un rêve profond je me suis éveillé : — MAMA AUE TS à
-5 ok Le monde est profond, ; ni à ï
 * Et plus profond que ne pensait le jour. LE À
 
 | Profonde est sa douleur, — 7 ES {
 
-| Huit ! 4
 x La joie — plus profonde que laflliction. RUE
 Fo La douleur dit : Passe et finis ! L To
 
 TA Mais toute joie veut l'éternité -- À #4
 
-à ‘s ; Veut la profonde éternité ! RASE: à. ce
 ' Alors Zarathoustra se lève : il a recouvré la sécurité, al j
 la douceur et la force. Il prend son bâton de route et FE
 
@@ -2270,19 +1980,6 @@ ses conférences sur l'avenir des universités. « Cela
 | donne une soif terrible, lui disait-il; et, enfin, rien à
 boire. » Ces mêmes mots s'appliquent à son poème.
 
-LUS ET fs RP: QU NAN #4 dr ES FAR PRORUT
-EX S : PR NE 2 RE A DRE LENS Matos re 5 14 M IUT c
-AR ASE RE AN 7 HT GE LS Ma & an, fe ak PARC EURCS
-cs a HT CE ter ; GPA CIE TUE
-Doro # RTE MAUNEE TR SA | RENE RAA EEE
-Rte Fibre Une Fu M CEA
-le ra AA À SRE 9 DA AG NI SE FETES LE NRERE :
-“, ARE EL AIRE) TER T 0 HER Pr Lot Ce 474 és !
-ENTRE RARE EU dense MGR
-'MATER I CNE ÿ A te Le
-
-à il ANEMNE \ ‘ ner
-LA VISITE DE HEINRICH VON STEIN se
 -_ Au mois d'avril 1884, Frédéric Nietzsche publie simuk- je
 | ra ses deuxième et troisième parties. Il semble
 4 heureux alors. (ETRUR
@@ -2401,7 +2098,6 @@ causait une grande peine. Heinrich von Stein, cependant, lisait et appréciait s
 et s'en réjouissait ; il fut étrangement ému quand il reçut
 sa lettre. !
 Pourquoi Stein venait-il? Il avait semblé comprendre
-| ne Ft
 
 _ Ainsi parla Zarathoustra; avait-il senti quelque désir
 _ de liberté? Frédéric Nietzsche allait-il gagner à sa
@@ -2433,8 +2129,6 @@ _ une forme de pure beauté, une aventure spirituelle pure-
 ; hardiesse et timidité tout à la fois — ce n'est pas parce que
 + je suis wagnérien, c'est parce que je désire au Parsifal un
 eo auditeur tel que vous, et à un auditeur tel que vous, je
-
-le travail du Zarathoustra Fi or : o
 
 Cosima Wagner, qui n'errait pas en ses jugements,
 connaissait la valeur de Nietzsche : elle portait seule :
@@ -2478,7 +2172,6 @@ croyances du passé, germaniques, celtiques, païennes
 et chrétiennes. Cette jouissance est néfaste pour un
 esprit qui cherche. Voilà pourquoi je suis parti. Voilà
 pourquoi vous devez partir. Entendez-moi : je ne médis
-ni de l'art ni de la religion. Le temps de l'un et de
 Vautre reviendra, je le crois. Aucune des valeurs
 anciennes ne sera délaissée. Elles reparaîtront, transfigurées sans doute, plus puissantes, plus intenses, dans
 un monde éclairé jusqu'au tréfonds par la science. Tout
@@ -2629,7 +2322,6 @@ l'éditeur Schmeïitzner afin de connaître l'adresse de l'au-
 très solitairement en Italie. Écrivez-lui à Gênes, poste
 : restante. » Il avait ainsi fait, et le philosophe, sans
 
-Dee = le travail du Zarathoustra LORS : 4
 doute moins sauvage et'solitaire qu'on n'avait dit, avait FEES
 répondu avec promptitude et grâce : « Venez à Nicecet
 hiver; nous causerons.… » Ces lettres avaient été échangées durant l'automne 1883. Lanzky, n'étant point libre,
@@ -2653,7 +2345,6 @@ Les deux hommes sortirent ensemble. Lanzky avoua 4
 . sa surprise. É LEE
 L — Maître. dit-il. ; A
 — Vous êtes le premier qui m'appeliez ainsi, fit
-| Nietzsche en souriant. ‘ NE
 # Mais il savait qu'il était un maître ét ne s'étonnait
 — Maître, dit-il, comme on vous devine mal à travers
 vos livres; expliquez-moi.. £ DRE
@@ -2786,7 +2477,6 @@ hommes que j'ai jamais connus, je les haïs, indiciblement,
 y compris moi-même. Je dors bien; mais j'éprouve au
 réveil de la misanthropie, des rancunes. Pourtant il existe + à
 peu d'hommes mieux disposés, plus bienveillants que
-moi! S
 Lanzky remarqua, sans en deviner la cause, le
 trouble de Frédéric Nietzsche. La crise fut très dure:
 il ne se laissa pourtant pas accabler et travailla avec =
@@ -2866,7 +2556,6 @@ de votre père ? Le vent souffle; aucun nuage ne passe au À
 ciel, le monde dort. — O bonheur ! O bonheur! 4
 Frédéric Nietzsche ne maintint pas cette page dans É
 son œuvre : peut-être il eut honte d'un aveu si triste 3
-et si clair. °
 
 La quatrième partie du Zarathoustra ne trouva pas
 éditeur. Schmeiïtzner, qui peu de mois auparavant avait
@@ -2888,17 +2577,6 @@ et fidèle); Lanzky (bon compagnon de cet hiver); Rohde
 - ne prirent pas tous le soin de lire cette quatrième et
 . dernière partie, cet « intermède » qui termine, mais qui
 | n'achève pas, Ainsi parla Zardthoustra.
-
-FT TTSES Ÿ if : LT F1 2ré FAT Le
-ARTS ‘Es 113 Reese Ses RASE
-Sie Le Æ : INT DESCARTES Lx FE TS ES
-
-: "s NE Re ie it
-
-= 1,2 : s : L ARS AS Æ& Se se ae sie SN LTE
-SRE Per Bite, RE LE DAT Nero RABAT.
-
-ST ET ee Ra ne OT EE ATEN ET SET EN
 
 On nous demande souvent de quoi se compose
 
@@ -2931,11 +2609,6 @@ D. — les conditions de l'inscription pour un
 exemplaire du Polyeucte ont été énoncées en
 tête du premier cahier de la présente série.
 
-sie ee NIMES Es Ni à LES RS SF
-
-ESS CES PACE RES ou à EVE
-RU RS Ge QUE ture Medias CRE $
-
 Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués :
 * premier exemplaire de souche, exemplaire du gérant;
@@ -2948,28 +2621,17 @@ tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonn
 sur whatman en dehors de l'abonnement; l'abonnement
 - sur whatman à cette dixième série est de deux cents
 __ francs pour tous pays.
-|
 | Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon-
 - derie Mayeur (Allainguillaume, J. Saling et compagnie
 ; successeurs), 21,rue du Montparnasse, à Paris, sixième
 
-AE 24 > Fr. HAEe, Le + APR PR fa ir 7 Fe !
-
-dr or & US MERE le M: Ce ARS 2 PET or
-
-EURE 18 TES RTS EE ei FE
-
-RH MB UEIN ee EEE Ts NO de CE
 Nino on he ae
 # Fr Pour savoir ce que sont les Cahiers de la Quinzaine,
 _ il suffit d'envoyer un mandat de trois francs cinquante RS
 Fe M. André Bourgeois, administrateur des cahiers, LE
 … &,ruede la Sorbonne, rez-de-chaussée, Paris, cinquième és
 “ arrondissement. On recevra en spécimens six cahiers ë
-> 2 A es Fe
-_ de la deuxième, de la troisième, de la quatrième, de la Le
-“ cinquième, de la sixième, de la septième ou de la ee
 Pour savoir ce qui a paru dans les cinq premières de
 | séries des cahiers, 1900-1904, envoyer un mandat de FE
 … cinq francs à M. André Bourgeois, même adresse; on F
@@ -2983,14 +2645,6 @@ est la série en cours, envoyer en un mandat à M. André Se
 recevra les cahiers parus, et à leur date les cahiers à Re
 … paraître de cette dixième série. 2
 
-PIS ne APT RE Sn ER ROSE LS RS 2
-
-nf De s ÿ, OV VITAE de Port Fa
-à FRE de CET) A “e au LR PRES 5
-LATE rois HT ee F RS SA AXE
-| LA ÉTTAET AANE PR SA PENTI He SUR
-
-4 __ CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, |
 _ rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men- k
@@ -3026,18 +2680,7 @@ naturellement aux premières inscriptions; c'est ce numméro d'inscription qui d
 . numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
 
-SA RRQ Gue 2 FRE PERS LPS ANS Heu LL y CU CE LPR)
-Fes Re SRE RS DR UITE ARE EU Ne SALE OR Der
-LE ea b L'ELAR ET TENTE 2%
-# k - > Les 28e FF PEUR 2
-
-Les TABLE DE CE CAHIER
-
-# ee j | PAGES
-
 _ Notre catalogue analytique sommaire... ........ 2
-
-- DU MÊME AUTEUR aux Cahiers de la Quinzaine 5
 
 _ DU MÊME AUTEUR en vente à la librairie des cahiers. 7
 … Danez Harévy.—letravail du Zarathoustra. 9
@@ -3049,50 +2692,11 @@ Nous avons donné le bon à tirer après corrections
 
 “ pour treize cents exemplaires de ce douzième cahier » et pour treize exemplaires sur whatman le mardi
 
-#% Le gérant : CHARLES P£GUY
-
 a Ce cahier a été composé et tiré par des ouvriers syndiqués £
 
-LE AU WA LR der OT SR RE ÉATARE SAS
-
-| CHARLES PÉGUY
 à nos abonnés
 paraissant le dimanche
 8, rue de la Sorbonne, au rez-de-chaussée
-
-* nc é FHACUS ATP LP he LEP PANIER NE
-S Ka} k À #4 THE re Se Cet
-Te ÎLES À Sel Ta
-ARS DA RU TLC pose RO VE 2e LINE SES SES
-
-Fe TUE Ë ‘ SRE NE ee
-M M ee tu te ; Dane ve
-ST PR RE RE NE nn ta a à PACS
-
-RU RATES ATEAN Rois DR APT NE ne RACINE" ELU D Ts
-
-BI AUNE+> NE Pi HAE ET ee PRE re CITE ]
-
-ÉTEND ; EG is on
-
-AR LR ET en ne CNRC I, PR LORS EE NASA RM ISERE LMD
-| SU er ÿ N y APN (Er NE
-ki, 5 CHORERER i NE RSA en e4 0
-KA ESES Ty 4 ne c NAT PEN
-‘144 SIRET Mate È LE Let ETS LE dé V 4 BACS À
-TN LC, “pe + PÉTER se Ge EAU s PE A 4 A 4 RES PAS ALT 7
-| LR APE EREL AT US OR AN NES ARATIE PR D MA LIgENE AE LS RUES
-De cn Fon
-
-nie SRE CEE AT 27 RTE AR $ se HIS SA
-
-DA D Ce De et AO CARE NN HAE VAE
-PAC k PORTE RG de FRE:
-TRES LEE + os 1 LU DE ft DATE Ru ue =
-HAE Vénirs RAP , L'ATTS APIGPOTSRS Re SENS rt
-
-NAS (ne à rs HR ER TAN ni A 1) SUN
-FAIRE À Aa NE ns De: RE
 
 ; à nos abonnés. — Comme on a déjà pu le voir au bas :
 de la première page de la couverture des deux cahiers
@@ -3177,10 +2781,7 @@ pour travailler. N'est-ce point là la conséquence? la
 Qu'ils se détrompent. Et qu'ils se détrompent doublement. Qu'ils se détrompent en fait. Si en fait en ce
 temps de sabotage universel nous avons maintenu la
 décence et la propreté de la fabrication, de toutes les
-fabrications, de la fabrication intellectuelle et de la
 fabrication industrielle, de la plume et de l'encre, de la
-
-__ typographie et de la copie, du papier et de l'œuvre, ce
 
 n'est point que nous en ayons ni que nous en ayons (4
 jamais eu les moyens, c'est que depuis quinze ans nous
@@ -3358,8 +2959,6 @@ jamais, le devoir de ne pas capituler. Ii ne faut jamais .
 capituler. Il le faut peut-être moins encore d'autant que
 la place est plus importante et plus isolée et qu'elle est
 
-Lx vas | A NOS AMIS, À NOS ABONNÉS
-
 _plus menacée et que justement le pays est au pouvoir
 
 _ de l'ennemi. Cette place où nous tenons n'est point une
@@ -3406,7 +3005,6 @@ _ dans son ensemble, au corps de nos collaborateurs.
 
 ÿ certes, mais nous avons cru pouvoir et devoir la com-
 
-Charles Péouy PE LE Fi
 muniquer, montrer nos fiches et nos étiquettes d'envoi Z
 seulement à ceux de nos collaborateurs qui nous ie
 demandaient, qui voulaient savoir, comme ils en avaient
@@ -3434,8 +3032,6 @@ suspects, tant, dans cet envahissement des mœurs À
 n'en à pas les gens vous en demandent un, quand 3
 même ; c'est toujours comme à la porte des théâtres; il
 est vrai qu'en effet ce n'est que théâtre, immense
-
-A Nos AMIS, A NOS ABONXÉS
 
 _ théâtre et cabotinage; ils ont tellement le goût de la
 servitude, et Vignorance et la méconnaissance des
@@ -3503,8 +3099,6 @@ maîtres. Nous autres d'ici nous avons conduit la barque | ‘4
 au delà de ce que nous pouvions. Ceux de nos amis |
 qui m'ont assisté dans cette crise savent que mon idée :
 
-Le ns A NOS AMIS, A NOS ABONNÉS |
-
 | secrète, que ma tentation était la tentation d'un silence ÿ
 
 _ absolu. Entrer enfin dans une retraite totale. Nous
@@ -3518,8 +3112,6 @@ dis avec une certaine fierté, en un temps où de toutes
 . les cultures, la philosophie est certainement la discipline
 
 _ la plus exposée aux injures, aux ravages, aux mépris
-
-| ensemble et aux (pires) flatteries, et, ce qu'il y a de |
 
 pire, aux contrefaçons de toutes les démagogies.
 
@@ -3629,7 +3221,6 @@ des métiers en un temps où plus que toutes les disci-
 
 plines, avant toutes les disciplines, elle est exposée aux
 dérisions, aux lacérations du primaire, mon cher Halévy,
-de la démagogie du primaire, de la domination du primaire. Pl :
 Ce n'était pas seulement la tentation du travail.
 C'était aussi, c'était peut-être autant, il faut l'avouer,
 une tentation, une réalité de lassitude. Un grand épuisement de force et de santé, peut-être. Mais surtout un
@@ -3657,8 +3248,6 @@ qu'il ne voulait pas dire; mon intention n'est naturelle- ‘1
 ment pas de le compromettre ni même de le citer comme
 témoin. Le temps des témoignages n'est pas encore À
 
-» D à nos AMIS, À NOS ABONNÉS
-ta LT
 venu. C'était le temps où Bernard-Lazare mourait. La
 _ banqueroute frauduleuse de l'affaire Dreyfus dans la
 fourberie politicienne mettait une amertume sans fond
@@ -3673,7 +3262,6 @@ d'une chère santé, d'un homme dont la santé nous donnait déjà les plus grav
 _ dirai pas seulement d'un ami commun, mais d'un
 homme qui était pour lui un ami plus jeune, qui était
 pour moi un ami, moins jeune, un confident, de toute
-confidence, de toute pensée, de l'un à l'autre, de l'un et |
 de l'autre, et l'un des plus grands des prophètes d'Israël.
 Le plus grand que j'aie connu, avec notre Marix.
 _ J'étais jeune homme alors; je n'étais pas haut de
@@ -3685,8 +3273,6 @@ _ parole me frappa. Je ne l'ai certes point enregistrée
 l'oublierai jamais. Le maître, qui a beaucoup d'élèves,
 | oublie. L'élève, qui n'a pas beaucoup de maîtres, n'oublie : » pas: Contrairement à ce que l'on croit, c'est le maître
 . qui oublie l'enseignement. Et c'est l'élève qui ne l'oublie
-| pas. À
-je
 
 Le riche, aussi, oublie; le pauvre et le misérable
 n'oublie pas. 4 "x à
@@ -3778,7 +3364,6 @@ libre, le peu de place qu'il y a, aux efficiences concur- « rentes. Nous ne ser
 
 jamais connus; nous ne serons jamais inscrits. Nous
 ne serons jamais grands. Nous ne serons pas de l'ordre :
-même où il y a, où il peut y avoir de la grandeur, his- ”
 
 de. torique. L'histoire n'aura aucun moyen de nous mesurer.
 
@@ -3837,7 +3422,6 @@ donc en toute justice, en toute juste mesure, et j'ajou-
 
 ; terai même pour cette fois en toute impartialité, nous
 
-et Re
 rendre ce témoignage, et c'est un témoignage posthume,
 que nous valions des hommés qui ont eu les plus
 grandes fortunes historiques et que nous n'aurons pas
@@ -3868,8 +3452,6 @@ rendu et fourni, il n'a jamais rendu et fourni au monde
 et mis dans le commerce que du petit. Nous avons été
 grands, dans la réalité; mais nous ne l'avons été que
 dans la réalité. C'est commé rien. Nous ne l'avons pas :
-
-DM 1 À Nos AMIS, A NOS ABONNÉS
 
 _ été dans l'enregistrement, dans l'appareïl d'enregistrement, dans l'histoire. Et quand nous le disons nous
 parlons comme des imbéciles. Nous apparaissons
@@ -3908,7 +3490,6 @@ dience, et à la présentation à cette reine des temps 4
 
 Ÿ Maîtresse de tout jugement. Étant maîtresse de toute
 
-Reine de tout le temps. OT S RAR 4
 Va Reine du temps. Même. Regina temporis acti. Et
 ï terrarum et rerum praetereuntium. Eh
 Où sont, dira-t-elle, où sont les marques de votre |
@@ -3991,7 +3572,6 @@ du monde on a toujours nommé vulgairement des
 
 * jusqu'aux essieux. Seulement ce jour-là elle a compté,
 
-Ne en pi. CE
 la boue. Vous vous rappelez. Tout le monde se rappelle. a
 Hyena souvent, de la boue. Tout le temps elle embête ,
 les charretiers. Seulement, ce jour-là, un jour élu, elle
@@ -4066,7 +3646,6 @@ défense au coin d'un bois, du célèbre bois; et le mame-
 l'irrécusable moulin; et le général, et l'État-Major
 31 5
 
-de
 avec ses lorgnettes; le même État-Major bien entendu A
 qui devait (tant) trahir plus tard; mais quand ça va: à
 mal on dit qu'il trahit, on voit qu'il trahit. Quand ça va #
@@ -4158,7 +3737,6 @@ sillons. Je n'ai que du mépris au contraire pour les mucosités plus ou moins f
 dégoûtantes comme les tisanes elles-mêmes. Ce Lannes
 même au fond (un de mes enfants pourtant, maïs ai-je ;
 bien des enfants?) cesse de m'intéresser aussitôt que ;
-# ;
 
 par Fadministration d'un boulet de faible calibre il a la
 rotule droite brisée et le jarret gauche déchiqueté. Singulière destinée. Il ne m'appartenait pas avant, il ne
@@ -4223,7 +3801,6 @@ bord d'un autre fossé. Quelques sombres réflexions au +00
 © bord d'un fossé, la main sur les yeux, et les jambes
 croisées l'une sur l'autre... lorsqu'un petit beulet de
 
-ï ire A NOS AMIS, A NOS ABONNÉS ;
 à ‘ trois, lancé par le canon d'Ensersdorf, arrive en
 Ce fut alors qu'il commença de sortir de mon domaine.
 Il faisait très chaud pour une amputation. Il mourut dans
@@ -4286,7 +3863,6 @@ chal, qui ne voulait rien prendre que de ma main. Je le %
 veillai donc jour et nuit; … =
 D'ailleurs, il avait trop traîné, ce maréchal. Il avaït 4
 
-x ss A NOS AMIS, À NOS ABONNÉS
 _ traîné neuf jours. C'est trop. Ce qu'il me faut, à moi,
 c'est une mort avec une date. Baudin, par exemple, en
 voilà une (belle) réussite. Il n'a rien eu à faire de toute
@@ -4311,7 +3887,6 @@ faisait chaud ; un superbe soleil de juillet; il n'y avait
 qu'à se laisser faire, pour prendre la Bastille. Il n'y
 . avait qu'à se baisser pour la prendre. C'était de ne pas
 prendre la Bastille, qui aurait été dificile. Tout vient
-du moment où on tombe. Et, ce qui est le même, de la
 place où on tombe. Toutes les petites blanchisseuses
 de Paris étaient amoureuses de tous les garde fran-
 çaise. C'est connu. Nous avons tous appris ça dans
@@ -4398,7 +3973,6 @@ essayer de contempler d'un tout autre regard. à
 — De quel éclat brillaient dans la bataille.
 « Qui nous rendra, dit cet homme héroïque, “4
 Aux bords du Rhin, à Jemmape, à Fleurus, À 4
-Ces paysans, fils de la République, à F
 Sur la frontière à sa voix accourus? 1
 Pieds nus, sans pain, sourds aux lâches alarmes, Hi
 Tous à la gloire allaient du même pas. 2:
@@ -4429,9 +4003,7 @@ Ils chantaient, ils allaient, l'âme sans épouvante
 Et les pieds sans souliers!
 Avec de vieux fusils sonnant sur leurs épaules, Re
 
-| "1 Charles Péguy, NP
 Passant torrents et monts, it ï à
-Ils allaient | Fi (4
 (je ne me rappelle plus) 4
 Sans repos, sans sommeil, coudes percés, sans vivres, $
 Ils allaient, fiers, joyeux, et soufflant dans des cuivres
@@ -4458,7 +4030,6 @@ Victor Hugo est mon plus grand ami, vous le savez. Il |
 avait une telle affection secrète, une telle affinité profonde, une telle complicité avec moi pour les grandeurs É
 de l'ordre que j'excelle à mesurer. C'est un vieux com-
 
-| ! A Nos AMIS, A NOS ABONNÉS
 plice à moi. S'il a volé ce Béranger, c'est bien fait. Et
 6 il en avait cent fois le droit. C'est royal. Un homme
 . comme lui prend son bien partout. Mais j'aime bien
@@ -4483,7 +4054,6 @@ solvitur ; solutum est. Le siècle temporel n'attendra point
 le règne éternel pour se résoudre en cendre. Tous les
 jours du temps dans le présent nous le voyons qui s'y
 résout. À mesure même qu'il passe. Dans tout l'immense passé, dans tout le présent, à mesure que l'évé-
-# 4 amis. — 3.
 
 nement réel passe, nous avons vu, nous connaissons, À
 tout le monde a vu, sous nos yeux nous voyons tous les
@@ -4521,8 +4091,6 @@ plissent tous les temps. Sous nos yeux à mesure que
 tout l'événement, sur un seul front, sur un immense
 
 front (comme un immense camp d'Israël qui tomberait
-
-|
 
 constamment sur tout son immense front de bandière,
 | mesure que tout l''événement campé, sur tout ce front
@@ -4586,7 +4154,6 @@ faut autre chose et un autre regard, un tout autre, L
 n'étant peut-être même pas du tout faite pour être, pour 1
 devenir un objet de perspective, une matière de per- ;
 
-Fe À Nos AMIS, A Nos ABONNÉS
 | spective, pour être enfin mise en perspective. Et il ne faut
 assurément pas la mettre du tout. En rien. Ni en per_ spective. Ni, et notamment, en système.
 Laissons dire Clio, fille de Mémoire, sœur des huit

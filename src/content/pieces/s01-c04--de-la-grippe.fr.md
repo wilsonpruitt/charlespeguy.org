@@ -9,8 +9,6 @@ wordCount: 5092
 ---
 ## De la grippe
 
-## DE LA GRIPPE
-
 Immobilisé par une grippe soudaine, je ne pus aller voir d’abord le docteur moraliste révolutionnaire. Aussitôt que ma tête redevint un peu saine, je résolus de compléter le recueil que j’avais commencé de documents et de renseignements sur la préparation du Congrès socialiste national. Mais au moment où j’avais en mains les ciseaux pour découper ces derniers documents et ces derniers renseignements dans la Petite République, le citoyen docteur entra dans la cuisine, où je travaillais l’hiver.
 
 — Bonjour, citoyen malade, allez-vous un peu mieux ? — Je vous remercie, docteur: je vais un peu mieux.

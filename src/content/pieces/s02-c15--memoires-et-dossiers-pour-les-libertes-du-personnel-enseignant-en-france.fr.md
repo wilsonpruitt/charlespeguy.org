@@ -9,8 +9,6 @@ wordCount: 20213
 ---
 ## Mémoires et dossiers pour les libertés du personnel enseignant en France
 
-es SOCIÉTÉ DES UNIVERSITÉS POPULAIRES
-
 Les sociétaires peuvent s'exonérer définitivement de la
 cotisation en versant, en une fois, une somme de 200 francs.
 
@@ -66,7 +64,6 @@ sont valables, quel que soit le nombre des membres pré-
 sents, mais les Assemblées extraordinaires doivent
 comprendre au moins un nombre égal au quart des
 Démission et Radiation. — Dissolution
-ARTICLE 28. — La démission de membre de l'Association M à
 doit être adressée au Secrétaire général qui la transmet au
 ARTICLE 29. — La radiation est prononcée pour motifs
 graves par le Comité d'administration, le membre intéressé
@@ -131,7 +128,6 @@ commises de Tien-Tsin à Pékin.
 
 Je suis moins bien informé sur ce qu'ont fait
 
-. Lionel Landry ; CES É-
 autour de Pao-Ting les colonnes lancées par le
 général Baïlloud. Mon impression néanmoins est
 
@@ -295,7 +291,6 @@ contre nous, à la tête des Chinois. Il ne protestait
 pas, mais déclarait que l'intervention des Européens
 
 leur était très nuisible et qu'ils ne la souhaitaient
-pas. ee
 J'ajoute que je crois la question des missions dif- k:.
 Syrie, etc. Je crois que pour apporter une réponse
 motivée aux questions que vous m'avez posées au Re
@@ -314,7 +309,6 @@ lu dans les journaux que les corps expéditionnaires
 ami nous sera revenu, nous lui demanderons toutun
 cahier sur cette expédition. — Ce cahier passera dans Fa
 la troisième série.
-Le Gérant : CmArLes Péeuy ‘4
 Ge cahier a été composé par des ouvriers syndiqués
 
 Nous tenons gratuitement à la disposition de nos
@@ -452,7 +446,6 @@ Mais enfin nos institutrices, un peu curieuses, comme le - L
 sont généralement les femmes /Exclamations et rires}, se
 rendirent à ces conférences.
 M. Le PRÉSIDENT (1). — C'est une opinion toute person- * E
-nelle. /Rires) SM. LAverTuION. — Je la retire. ; Sc
 Messieurs, nos institutrices ou directrices d'écoles eurent
 le tort de se rendre à ces conférences ; une d'entre elles eut
 même l'imprudence de se faire présenter au conférencier,
@@ -871,7 +864,6 @@ cet universitaire avait librement émis son opinion dans « - son Manuel de l'Hi
 . J'avais demandé à notre ami Daniel Delafarge de
 vouloir bien nous éclairer sur ce débat. Nous publions
 
-Mon cher Péguy, À ?
 Je ne me trompais pas quand je te disais que l'Universitaire de la Petite République avait écrit sur
 M. Brunetière des articles inexacts. Je viens de relire
 ces articles, j'ai vérifié toutes les citations que j'ai pu,
@@ -1192,7 +1184,6 @@ Vous êtes particulièrement invité, Monsieur, ainsi que
 votre Famille, à assister à cette religieuse et patriotique
 cérémonie, où une place spéciale vous sera réservée.
 Pour la Conférence : s
-Le Président : G. JuzzioT
 Je me suis rendu immédiatement chez M. l'Archi- « prêtre, avec qui je suis dans les meiïlleurs termes, »
 De comme avec tout le clergé sénonais, du reste, etila
 bien voulu, par sympathie pour le Travailleur socialiste, « : me donner copie de l'allocution qu'il compte prononcer
@@ -1202,7 +1193,6 @@ Mes très chers frères, “à
 Au moment où les autorités civiles vous appellent à la
 caserne, il est de mon devoir de prêtre chrétien de vous
 
-ae ATTENTATS DANS L'YONNE
 révéler quelle est la pure doctrine évangélique à l'égard de
 toutes les violences, et de cette violence qui est la pire de
 toutes : la guerre, qui est la fin et le but du service mili- o
@@ -1274,7 +1264,6 @@ actuel ; ce pauvre clergé catholique, si étroit et si jouis-
 seur, se réveillera-t-il de sa torpeur intellectuelle et
 morale quand l'archiprêtre viendra pour la première
 fois faire vibrer à ses oreilles la parole subversive du
-- si ATTENTATS DANS L'YONNE
 La polémique s'engagea sur cette présomption. Voici
 ss la série des articles publiés par le Travailleur
 l'archiprêtre Olivier a pris au sérieux la plaisante allocution que notre camarade Sans-Patrie lui
@@ -1292,7 +1281,6 @@ que le catholicisme actuel n'a plus rien de commun avec
 la doctrine évangélique pour que nous ayons besoin
 des menaces de M. Olivier pour insérer sa rectification.
 La voici donc, dans tout son esprit de charité et de
-Mes chers amis,
 En répondant avec empressement à mon appel, vous
 témoignez que vous avez compris le sentiment profond,
 patriotique, émotionnant qui nous réunit dans le temple
@@ -1398,7 +1386,6 @@ pas de l'esprit de charité et de mansuétude évangélique qui
 exclut toute provocation, — et vous savez si elle est venue
 de moi — mais ne défend jamais d'y répondre : j'y suis
 Archiprêtre de la cathédrale de Sens
-Sens, Le 14 novembre 1900
 Monsieur l'Administrateur-Gérant
 En recevant le numéro du Travailleur socialiste que vous
 avez eu l'aimable délicatesse de m'adresser, j'ai bien pensé
@@ -1531,7 +1518,6 @@ vous haïssent et priez pour ceux qui vous frappent et
 Je pourrais ajouter que lors de l'arrestation de Jésus,
 
 l'un de ses disciples, portant la main sur son épée, en
-es ATTENTATS DANS L'YONNE
 frappa un des policiers et lui emporta l'oreille, ce que
 é voyant, Jésus lui dit, au témoignage de Mathieu : « Re-
 mets ton épée en son lieu, car tous ceux qui auront
@@ -1549,7 +1535,6 @@ l'archiprêtre n'est pas loin de le croire et de le dire. De
 - Il trouve que ma traduction « trop libre et très fantaisiste
 Vraiment! j'ai beau être depuis longtemps convaincu ne
 que le catholicisme et le christianisme n'ont plus rien
-de commun, je ne m'attendais pas à ce qu'un prêtre se
 catholique, non des moindres, fût assez peu familier
 avec l'Évangile pour ne pas reconnaître à première vue
 le texte authentique du sermon sur la montagne. Ma
@@ -1588,11 +1573,9 @@ mon texte à la disposition de M. l'abbé Olivier, ou de
 tout autre lecteur connaissant un peu le latin. Si ma
 traduction n'est pas, comme je l'affirme, exacte, fidèle, 4
 littérale, je consens à mettre vingt sous dans le tronc ke
-de saint Pierre ou de saint Antoine de Padoue et à en ge
 a donner autant pour l'œuvre des messes en faveur des
 ‘ âmes du Purgatoire.
 
-20% L'ARCHIPRÊTRE ET LES CONSCRITS ns.
 Nous recevons de M. l'abbé Olivier la lettre suivante: A
 Monsieur l'Administrateur-Gérant
 Oui, vous l'avez dit, je suis satisfait, deux fois satisfait, k
@@ -1625,8 +1608,6 @@ pas difficulté, — c'est justice, — d'admirer sans réserve ce
 vase de science, cette encyclopédie vivante et écrivante. Bien
 plus, je me demande, étonné, par quelles recherches pak
 quinzième cahier de la deuxième série
-
-te tientes, de bénédictin laïque, il a pu apprendre ce qu'on
 
 se avait toujours ignoré avant lui, ce que j'ignorerais encore
 
@@ -1921,7 +1902,6 @@ teront l'un et l'autre nos amis respectifs, assis sur des
 bancs divers, les miens à celui des calomniés, les vôtres à … 54
 celui des calomniateurs. ÿ : Fe
 Archiprêtre de Sens
-ref ee ATTENTATS DANS L'YONNE
 Cette fois, ce n'est plus une retraite, c'est une
 déroute : M. l'Archiprêtre, qui déjà esquissait un prudent mouvement en arrière et ne soufllait plus un mot
 du texte évarigélique que Sans-Patrie lui mettait sous le
@@ -2023,7 +2003,6 @@ lecteurs, que je ne suis pas l'auteur de l'entrefilet sans
 signature qui est à la suite de mon dernier article ?
 Tout ce que j'écris est signé — d'un lâche et honteux
 pseudonyme, c'est vrai, — mais enfin c'est signé
-Ux Sans-PATRIE
 Dans sa lettre d'aujourd'hui — sa dernière lettre,
 hélas! — M. l'abbé Olivier, au lieu d'essayer de réfute
 les objections graves que je faisais, il y a huit jours, E.
@@ -2043,7 +2022,6 @@ où M. l'abbé Olivier me déclare qu'il persiste à trouver
 de casuistique. En bon français, cette phrase alam-…
 biquée et entortillée signifie simplement que ma tra=
 
-Rés ATTENTATS DANS L'YONNE
 duction est exacte, mais que mon commentaire, mon
 interprétation du texte évangélique ne l'est pas. Autrement dit, l'Évangile dit bien : « Ne résiste point à la
 violence, mais si quelqu'un te frappe à la joue droite,
@@ -2067,7 +2045,6 @@ question de la non résistance par la violence, je montrerai prochainement leurs
 points aussi fondamentaux.
 Mais revenons à mon commentaire « trop libre et très
 fantaisiste » du sermon sur la montagne.
-Que M. l'archiprètre le veuille ou non, il n'y a que
 deux commentaires admissibles du texte que j'invoque;
 je le mets au défi d'en trouver un troisième soutenable
 et plausible.
@@ -2088,7 +2065,6 @@ ni des gens de petite foi, comme dirait Jésus. Il est s
 plus facile de débiter tout un chapelet ou de lire du
 bout des lèvres, pendant deux heures consécutives par
 jour, des litanies et des prières, que de faire violence
-à ses instincts de jouissance et de combativité et de se
 sacrifier tout entier au triomphe d'un idéal pareil.
 n'en resle pas moins vrai que cette soif d'idéal, des
 i _ hommes l'ont eue au‘point de pratiquer à la lettre
@@ -2163,7 +2139,6 @@ de la parole du maitre galiléen? Son devoir est tout
 tracé. Il doit rappeler à ces jeunes hommes que l'idéal
 à atteindre c'est la fin de toute haine nationale, de toute »
 guerre, de toute violence; que la défense du territoire de
-Frs ATTENTATS DANS L'YONNE
 peut seule justifier une violation des principes de .
 l'Évangile; mais que toute guerre offensive, toute guerre
 qui tend à détruire par la violence les foyers et les

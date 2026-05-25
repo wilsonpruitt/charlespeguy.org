@@ -11,65 +11,14 @@ a périodique paraissant tous les deux dimanches
 
 à 8, rue de la Sorbonne, au rez-de-chaussée
 
-Le ne
-
-1% je, D RSS UN SE APRTE Par UE El Er ha EE SES NX
-DRE er TS NS MES TRAME RAS MEET -
-RL Le EU EN SE as = ge) PE DIR. SES DT A Mt PO LUE
-
-* NT RER CRAN PRES A CE Te TS SRE PU en hd Te
-
-FESSES CA Des E
-
-SM ee ide Ce Doit
-ee: nn NO Tu Rue
-
-D Aube (V-9, mardi 2 février 1904). LES
-
-- I: — L'Adolescent (VI-8, mardi 10 janvier 1905). PSE
-
-1° RS Penct e- Se ne
-
-IV. — La Révolte. res
-
-es 2. L'ENLISEMENT (VIIL-6, mardi 11 décembre È SE
-
-Fe FE 3. LA DÉLIVRANGCE (VIII-9, mercredi 2 janvier se
-
-an-Christophe à ;
-
 … L — La Foire sur la Place (IX-13, mardi 17 mars ee
 
-- Antoinette (IX-15, mardi 31 mars 1908). ù Æ
 I: — Dans la Maison (X-9, mardi 16 février 1909; À S
-1 La Fin du Voyage, TROISIÈME PARTIE. LORS
-| L— Les Amies es
 L'ensemble de Jean-Christophe sera complet en dix volumes.
-Are : just 5 : re Ut LES
-
-Est Ne LATINE SMS RP RE SRE EEE
-
-ve - LE ETES
-
-TARA LR RES - rod 9 UN VEN CARO ES Are RSA OUEN LAIT Ve
-
-rs, SA L FES
 
 118.07
 
-PARA LE te AR DUT DT ME PES MSP E PR. EE
-MAPS r'Èe LE Feet : ANS
-LE Pos TU NN ER NE A TR NS TER Nice
-
-D A TRS EN OCR PE ROLE ie LRU Ales En de
-
-er RP te don Le VON ee VE US
-
 …_. les amies 0
-
-Mn ET de Sent HR PRIDE 10 a ST €
-
-PRE Lu niopiat . NE
 
 En dépit du succès qui se dessinait hors de France,
 
@@ -208,7 +157,6 @@ en Angleterre et en Allemagne ? Il ne semblait pas qu'il
 4 __ vent qui se prépare, et ce qu'il apportera demain. Dans
 s. cette grande ville nerveuse, où passent des frissons
 À électriques, il y a des courants invisibles de gloire, une
-# 1
 
 la fin du voyage PES
 célébrité latente qui précède l'autre, ce bruit vague de He.
@@ -276,13 +224,10 @@ _ fâcheux que leur musique le fût beaucoup moins. Mais
 7 Christophe, avaient moins d'importance que la critique
 … des autres. A Paris, quand on lit un article qui fait
 10 Véloge d'un homme, il est toujours prudent de se
-> demander : :
 _  — De qui dit-on du mal?
 
-Nr Br. de
 la fin du voyage LS
 Olivier rougissait de honte, à mesure qu'il parcourait
-le journal, et il se disait :
 — J'ai bien travaillé!
 Il eut peine à faire son cours. Aussitôt qu'il fut délivré, il courut à la maison. Quelle fut sa consternation,
 quand il apprit que Christophe était déjà sorti avec
@@ -313,7 +258,6 @@ pas eu le temps. :
 
 É Christophe lut. Aux premières lignes, il s'esclaffa.
 À — Ah! l'imbécile! fit-il.
-Ee IL se tordait de rire.
 À — Bah! continua-t-il, tous les critiques se valent. Ils
 ; ne connaissent rien.
 Ë Mais à mesure qu'il lisait, il commençait à se fâcher:
@@ -324,7 +268,6 @@ k Mais qu'on opposât son art « républicain » à « l'art de
 È sacristie » des maîtres venus avant lui, — (lui, qui se
 $ nourrissait de l'âme de ces grands hommes), — c'était
 E. — Bougres de crétins! Ils vont me faire passer pour
-D. un idiot !…
 “à Et puis, quelle raison d'éreinter, à son sujet, des
 musiciens français de talent, qu'il aimait plus ou moins,
 | — (et plutôt moins que plus), — mais qui savaient leur
@@ -349,7 +292,6 @@ Puis, toujours préoccupé, il dit à Christophe, en le
 regardant bien dans les yeux : Pis LES À
 — Christophe, tu n'as rien dit d'imprudent, au diner? 2
 — Mais non, fit Christophe en riant. ae FOR 2
-— Bien sûr ? RARE
 Olivier fut un peu rassuré. Mais Christophe ne l'était
 guère. Il venait de se rappeler qu'il avait parlé, à tot .
 et à travers. Tout de suite, il s'était mis à l'aise. Pasun
@@ -388,7 +330,6 @@ _ mis en verve par les vins généreux et la sympathie de
 ; - dirent rien. Seul, Christophe les avait oubliées, en
 > sortant de table. Et voici qu'à la question d'Olivier,
 É elles lui revenaient à l'esprit. Il sentait un petit frisson
-Jui courir, le long de l'échine. Car il ne se faisaitaucune
 és illusion; il avait suffisamment d'expérience, pour se
 _ douter de ce qui allait se passer; à présent que sa
 4 griserie était tombée, il le voyait aussi nettement que si
@@ -407,7 +348,6 @@ s _ faire dire qu'il reconnaissait bien là sa générosité de
 É fausses, attribuées à Christophe, continuèrent de se
 3 répandre, soulevant des critiques acerbes dans les
 
-la fin du voyage ÿ Si SE
 jourfaux parisiens, puis de là en Allemagne, où l'on
 s'indigna qu'un artiste allemand s'exprimât avec aussi |
 peu de dignité sur le compte de son pays. :
@@ -459,7 +399,6 @@ Christophe se passa la main sur le front :
 ; — C'est que je lui ai dit, en fermant la porte...
 — Quoi donc?
 ". — Le mot de l'Empereur. ;
-| — De l'Empereur ?
 — Oui, enfin, si ce n'est lui, c'est donc quelqu'un des
 
 — Malheureux! Tu vas le voir en première page du
@@ -562,8 +501,6 @@ riaient ensemble. Mais, tout en s'en moquant, ne voilà- |
 t-il pas que Christophe, ce Huron, se mettait à accepter 7.
 les invitations à diner! Olivier n'en croyait pas ses ,
 
-— Toi! disait-il. ;
-
 22 3
 
 _  — Moi. Parfaitement, répondait Christophe, goguenard. Tu croyais qu'il n'y avait que toi qui pouvais
@@ -602,8 +539,6 @@ dans sa grâce étudiée, qu'une mélodie parisienne. Les
 l Sous l'influence débilitante du monde, les énergies
 | s''émoussent, les caractères originaux s'atténuent et
 
-la fin du voyage NS à
-
 s'effacent, avec une rapidité effrayante. Christophe LE 4
 était frappé du nombre de morts ou de mourants qu'il A
 rencontrait, parmi les artistes : tel jeune musicien, plein s
@@ -636,9 +571,6 @@ Bien que Christophe ne fît que passer dans ce monde, e
 il en vit assez pour sentir le danger. Plus d'une, nat.
 rellement, cherchait à l'accaparer pour son salon, pour
 son service; et Christophe n'avait pas été sans happer
-
-D DU lee D à mp ur,
-LR Re AS D ne NU RE 9 MN un el
 
 à demi l'hameçon des aimables paroles et des sourires >
 _ prometteurs. Sans son robuste bon sens et l'exemple
@@ -712,8 +644,6 @@ et elle en tirait parti. Elle provoquait entre eux une
 ‘ premier n'avait accordé. Elle avait été indignement
 ….  gâtée; et il était heureux pour elle que sa nature n'eût
 
-S # AS Na ONE RE og 2 met DT NOR SN SON CS « ANR
-la fin du voyage Le CORRE |
 rien de mauvais, — à part cet égoïsme, commun à
 presque tous les enfants, mais qui, chez les enfants
 trop choyés et trop riches, prend des formes mala- de
@@ -735,7 +665,6 @@ de sensualité innocente, qui résonnait dans le lointain
 comme des cloches invisibles, là-bas, là-bas, de l'autre 4
 côté de l'horizon. On ne savait point ce que c'était. :
 Par moments, le vent en apportait des bouflées; cela - 2
-sortait on ne savait d'où, on en était enveloppé, on se :
 sentait rougir, la respiration vous manquait, de peur et +4
 de plaisir. On n'y comprenait rien. Et puis, cela dispa- à
 raissait, comme cela était venu. Rien ne s'entendait È
@@ -745,7 +674,6 @@ là-bas il fallait aller, aller le plus vite possible : là était
 
 le bonheur. Ah! Pourvu qu'on arrivât!… 4
 
-LL RSSS - LES AMIES » En attendant qu'on y fût parvenu, on se faisait
 | d'étranges idées sur ce qu'on allait trouver. Car la
 _ grande affaire, pour l'intelligence de cette petite fille,
 - était de le deviner. Elle avait une amie de son âge,
@@ -868,7 +796,6 @@ pour un grand acteur : il habitait près de chez elle; D.
 chaque fois qu'elle passait devant la porte, elle se
 Et une fois, elle eut la hardiesse de monter à son ‘4
 
-ss LES AMIES
 3 étage. Mais une fois là, elle prit la fuite. De quoi lui
 à eût-elle parlé? Elle n'avait rien, rien du tout à lui dire. » Elle ne l'aimait point. Et elle le savait bien. Il y avait,
 _ pour moitié, dans ses folies, de duperie volontaire.
@@ -1029,8 +956,6 @@ Jacqueline était incrédule. | “8
 
 — Non? vrai? tu es heureuse? : 4
 
-— Est-ce que tu ne le crois pas? à
-
 Jacqueline s'arrêtait. ce .
 
 — Quoi donc? $
@@ -1064,7 +989,6 @@ _ — Quelle idée ! On aime toujours, toujours.
 Marthe secouait la tête, d'un air de doute. ù
 — On n'aime pas, dit-elle. On veut aimer. Aimer est -
 la plus grande grâce de Dieu. Prie-le qu'il te la fasse.
-— Et si on ne m'aime pas?
 - ! — Même si on ne t'aime pas. Tu seras encore plus
 - |. La figure de Jacqueline s'allongea ; elle prit une mine
 - — Je ne veux pas, dit-elle. Cela ne me ferait aucun
@@ -1096,7 +1020,6 @@ l'attribuait à sa manie casanière, dont elle se moquaït
 ; souvent. Une ou deux fois, en venant faire visite, elle
 avait croisé le médecin qui sortait. Elle avait demandé
 
-S _. à la tante :
 4  — Est-ce que tu es malade ? |
 
 — Ce n'est rien.
@@ -1148,7 +1071,6 @@ pensait. Bientôt elle ne reçut plus personne que Jacqueline. Puis les visites 
 brèves. Puis vint le jour de la séparation. Marthe,
 étendue dans son lit, d'où elle ne sortait plus depuis
 
-la fin du voyage OS AMEL LS
 des semaines, prit congé tendrement de sa petite amie, $
 avec des mots très doux et consolants. Et puis, elle 4
 s'enferma, pour mourir. #
@@ -1219,8 +1141,6 @@ leur petit cerveau, ne surveillait pas trop ce qu'elle
 
 _ diment le visiteur :
 
-_. —Mon chéri.
-
 _ Elle s'en aperçut aussitôt. Il ne broncha pas plus
 
 … qu'elle; et ils continuèrent de causer cérémonieusement.
@@ -1244,8 +1164,6 @@ _ parlé elle-même en riant d'intrigues de ce genre,
 % éprouva une souffrance intolérable, quand elle vit que
 
 4 sa mère. Sa mère, non, ce n'était pas la même
-
-la fin du voyage TT AIR
 
 chose! Avec son exagération ordinaire, elle passa
 d'un extrême à l'autre. Elle n'avait rien soupçonné
@@ -1279,7 +1197,6 @@ Sauvez-moi! Sauvez-moi!….. 4
 Ce fut dans ces jours de délaissement fiévreux, de
 dégoût passionné, et d'attente mystique, où elle tendait
 les mains vers un Sauveur inconnu, qu'elle rencontra
-Olivier.
 Madame Langeais n'avait pas manqué d'inviter
 Christophe, qui était, cet hiver, le musicien à la mode. ï
 -* Christophe était venu, et, suivant son habitude, il ne
@@ -1319,7 +1236,6 @@ s'apercevait pas du plaisir que Jacqueline trouvait à ce =.
 sujet d'entretien. Il parlait aussi de lui-même, et elle à
 l'écoutait avec complaisance, bien que cela ne l'inté
 ressât nullement; puis, sans en avoir l'air, elle ramenait la conversation à des épisodes de sa vie où se
-trouvait Olivier. È
 
 Les gentillesses de Jacqueline étaient dangereuses
 pour un garçon qui ne se méfiait point. Sans y penser, ‘4
@@ -1335,7 +1251,6 @@ son mal, en lui racontant joyeusement, au sortir de
 L'idée ne venait pas à Olivier qu'il pût plaire à Jacqueline. Bien qu'à vivre auprès de Christophe, il eût acquis
 plus d'optimisme, il continuait de se défier de lui; il
 ne pouvait croire qu'il serait jamais aimé, il se voyait
-| Date
 
 | avec des yeux trop véridiques : — qui donc serait
 . digne d'être aimé, si c'était pour ses mérites, et non
@@ -1446,7 +1361,6 @@ presque devenir laide, afin d'être plus sûre d'être aimée
 
 À pour elle-même, pour l'amour dont son cœur était plein
 
-J la fin du voyage : PEL RER
 et dont il avait faim... Ah! certains jours, quand il était 2
 là, elle se sentait pâlir, et ses mains tremblaient. Elle L.
 affectait de raïller son émotion, elle feignait de
@@ -1571,8 +1485,6 @@ regarda Olivier. Et brusquement ils s'embrassèrent. O J
 bonheur ineffable! Religieux bonheur! Si doux et si
 profond qu'il en est douloureux!
 
-LENRR ESS EPS mm ses
-
 — Votre sœur vous ressemblait ?
 
 Olivier eut un saisissement. Il dit :
@@ -1581,7 +1493,6 @@ Olivier eut un saisissement. Il dit :
 
 _ siez donc?
 
-la fin du voyage Or "à
 Elle dit : PES A0 0
 — Christophe n'a raconté. Vous avez bien souffert? È
 Olivier inclina la tête, trop ému pour répondre. :
@@ -1648,8 +1559,6 @@ là une idée ancrée dans la tête de Christophe, que la 1
 richesse tue l'âme. Volontiers, il eût répété cette boutade
 d'un sage gueux à une riche oiselle, qui s'inquiétait de
 
-l'au-delà :
-
 — Quoi, madame, vous avez des millions, et vous
 voudriez encore, par dessus le marché, avoir une âme
 
@@ -1702,8 +1611,6 @@ peut encore réagir contre le fléau. Il a en lui une telle
 - brutalité native, un tel humus amassé d'instincts âpres
 +. et salutaires qui l'attachent à la terre, que seul, il a
 
-la fin du voyage Fe PE Fa
-
 encore des chances de se sauver. Mais la femme est …
 livrée au poison, et elle le communique aux autres. Elle É
 se plaît à la puanteur parfumée de la richesse, elle ne
@@ -1712,8 +1619,6 @@ cœur, au milieu de la fortune, est un prodige, autant 3
 qu'un millionnaire qui a du génie... Et puis, je n'aime
 pas les monstres. Qui a plus que sa part pour vivre est :
 un monstre, — un cancer humain qui ronge les autres +
-# hommes. Ë
-Olivier riait : à
 — Que veux-tu? disait-il. Je ne puis pourtant pas e
 cesser d'aimer Jacqueline, parce qu'elle n'estpas pauvre, à
 ni l'obliger à l'être, pour l'amour de moi.
@@ -1805,7 +1710,6 @@ monsieur Langeais, et plaider leur cause.
 
 Singulier avocat! Aux premiers mots qu'il dit,
 monsieur Langeais faillit le mettre à la porte; puis,
-le ridicule de la situation le frappa, et il s'en amusa.
 Peu à peu, le sérieux de son interlocuteur, son expression d'honnêteté et de conviction s'imposaient; toutefois, il n'en voulait pas convenir, et continuait à lui
 décocher ses remarques ironiques. Christophe feignait
 de ne pas entendre; mais, à certaines flèches plus
@@ -1856,7 +1760,6 @@ avec un sourire : 3
 — Comme tu es déjà loin! Ke.
 Olivier s'excusa, confus. Il était attristé de voir qu'il « se laissait distraire de ces derniers instants d'intimité
 avec son ami. Mais Christophe lui serra la main .
-et dit : {
 — Va, ne te contrains pas. Je suis heureux. Rêve, :
 mon petit. ee
 
@@ -1871,8 +1774,6 @@ bien t'attraper. Moi aussi, je pense à elle.
 
 — Mon pauvre vieux, dit Olivier, et moi qui pensais
 à toi! Et même... É ;
-
-Il s'arrêta. Ë
 
 Christophe acheva sa phrase, en riant :
 de — … Et même qui me donnais tant de mal pour
@@ -1931,9 +1832,6 @@ monsieur Langeais revinrent ensemble. Christophe dit,
 avec une malicieuse naïveté : |
 — Nous voici veufs, maintenant! |
 
-#
-
-| LES AMIES
 Monsieur Langeais se mit à rire. Il aimait bien Chris- |
 tophe, qu'il avait appris à connaître. Ils se dirent au
 ‘ revoir, et chacun alla de son côté. Ils avaient de la
@@ -1957,7 +1855,6 @@ recevait de lui peu de lettres, distraites, et peu à peu :
 plus lointaines d'esprit. Il en était déçu, mais non pas 5
 trop affecté. Il se persuadait que cela devait être ainsi; k
 et il n'avait pas d'inquiétude pour l'avenir de leur à
-amitié. L.
 
 La solitude ne lui pesait pas. Loin de là : il n'en 4
 avait pas assez, pour son goût. Il commençait à souffrir
@@ -2187,8 +2084,6 @@ cria encore, pendant quelques minutes, puis partit, en
 faisant claquer la porte. Alors, Cécile eut un soupir, et
 elle dit à Christophe :
 — Oui... c'est mon frère.
-Christophe comprit :
-— Ah! dit-il... Je sais. Moi aussi, j'en ai un.
 Cécile lui prit la main, avec une commisération
 — Vous aussi?
 — Oui, fit:il... Ce sont les joies de la famille. :
@@ -2206,7 +2101,6 @@ _ valait mieux dormir, — ou faire sa tâche... :
 En attendant qu'elle eût son château en Espagne, elle
 . louait pendant l'été, dans la banlieue de Paris, une mai73 coyage. — 5
 
-Rae la fin du voyage he
 sonnette qu'elle occupait seule avec sa mère. C'étaità
 vingt minutes, par le train. L'habitation était assez
 loin de la gare, isolée, au milieu de terrains vagues,
@@ -2317,7 +2211,6 @@ passions du reste de l'humanité, ou qui s'en faisait un |
 jeu. La belle gloire de s'amputer de la vie, pour ne pas %
 ressembler aux autres! Que la mort les prenne donc!
 Nous, allons avec les vivants, buvons aux mamelles de
-la terre, à ce qu'il y a de plus profond et de plus sacré
 dans nos races, à leur amour de la famille et du sol.
 Aux siècles les plus libres, dans le peuple qui avait le
 culte le plus ardent de la beauté, le jeune prince de la
@@ -2331,7 +2224,6 @@ vous voulez donner des chants à vos écoles, vous en
 
 _ votre art, de la base à la cime...
 
-_ la fin du voyage É Se LS > 3
 Christophe correspondait avec Olivier, à présent in- Ë
 stallé dans une ville de province. Il tâchait de maïntenir
 entre eux, par lettres, cette collaboration qui avait été ‘4
@@ -2422,7 +2314,6 @@ mon garçon, ne sont là que pour enregistrer la victoire 4
 ou la défaite. Sois seulement vainqueur... Je me suis }
 bien passé d'eux! Apprends à t'en passer aussi... 4
 Mais Olivier avait appris à se passer de bien autre ;
-chose! Il se passait de l'art, et de Christophe, et du
 reste du monde. En ce moment, il ne pensait plus qu'à 1
 Jacqueline, et Jacqueline ne pensait qu'à lui. |
 
@@ -2626,8 +2517,6 @@ trouva grotesques et odieux; et elle se rejeta dans son
 isolement à deux, cherchant à se persuader, par ces : 3
 épreuves malheureuses, qu'il n'y avait décidément de <<
 
-É PAR er LES AMIES
-
 - bon que l'amour. Et, pendant quelque temps, elle
 
 __ sembla en effet plus amoureuse que jamais. Mais
@@ -2662,7 +2551,6 @@ La porte était ouverte entre les deux chambres; ils
 étaient si près l'un de l'autre qu'ils auraient pu entendre
 leur souffle. Et dans les demi-ténèbres, tous deux, amè-
 rement, en silence, pleurèrent. Ils appuyaient leur main
-| 87 È
 
 la fin du voyage R
 sur leur bouche, pour qu'on n'entendit rien. A la fin,
@@ -2711,11 +2599,7 @@ coutume, quand le son des paroles leur faisait peur :
 
 — Ma chère petite Jacqueline.
 
-— Men aller d'où ?
-
 __ — D'où nous nous sommes aimés.
-
-— M'en aller où?
 
 — Où nous serons plus vieux.
 
@@ -2724,12 +2608,6 @@ __ — D'où nous nous sommes aimés.
 — Mais jamais tant s'aimant.
 
 — Toujours plus.
-
-— Qui le sait?
-
-— Moi, je sais.
-
-— Moi, je veux.
 
 Alors, ils firent deux ronds au bas du papier, pour
 dire qu'ils s'embrassaient. Et puis, elle essuya ses
@@ -3005,7 +2883,6 @@ l'église, et pratiquait, avec une ponctualité indifférente.
 Elle ne se tourmentait plus de savoir si cela était vrai, :
 au fond : elle avait d'autres tourments plus positifs; et
 
-la fin du voyage Ar, à
 elle pensait avec une pitié ironique à ses révoltes À
 mystiques d'enfant. — Cependant, son esprit positif
 d'aujourd'hui n'était pas plus réel que son ancien idéaæ
@@ -3194,7 +3071,6 @@ Le _ après un moment.
 se — Non, la vie n'est pas triste, dit-il. Elle a des
 <- Madame Arnaud reprit, avec une amertume voilée :
 É _ — On s'est aimé, on ne s'aime plus. À quoi cela a-t-il \
-Christophe répondit :
 È — On s'est aimé.
 B. Elle dit encore : s :
 _ — Vous vous êtes sacrifié à lui. Si du moins votre
@@ -3225,7 +3101,6 @@ quelque chose; et il dit : 3
 moi. Restez encore, voulez-vous ? é
 Elle dit : : ;
 — Non, je ne peux pas... Merci... :
-Elle partit. =
 Ils restèrent quelque temps, sans se voir. Elle ne lui
 donnait plus signe de vie; et lui, n'allait pas chez elle, |
 non plus que chez Philomèle. Il les aimait bien; mais il :
@@ -3383,7 +3258,6 @@ aviez l'air de souffrir. :
 — C'est plus fort que moi. Si vous voyiez quelqu'un
 se noyer, est-ce que vous ne lui tendriez pas la main?
 
-pe RENE LES AMIES
 ce _ — Moi? Pas du tout, dit-elle. Je lui enfoncerais plu-
 : … tôt la tête sous l'eau, pour que ce fût plus vite fini.
 . Elle dit cela, avec un mélange d'amertume et d'humour; et, comme il la regardait, d'un air interdit, elle
@@ -3408,7 +3282,6 @@ L elle, il se leva indigné, ouvrit la portière, et voulut
 L sortir, bien que le train fût en marche. Elle l''empécha,
 …_ non sans peine. Il se rassit furieux, et referma la por-
 -_ ‘tière, juste au moment où le train passait sous un
-| tunnel.
 
 3 — Voyez, dit-elle, vous auriez pu être tué.
 
@@ -3447,8 +3320,6 @@ tophe. Mais je leur fais toujours crédit.
 
 — Je vois bien, vous devez être né gobe-mouches. F
 
-Il se mit à rire : |
-
 — Oui, j'en ai avalé pas mal, dans ma vie; mais cela ;
 ne me gêne pas. J'ai bon estomac. J'avale aussi de plus
 grosses bêtes, la vache enragée, la misère, et, au besoin, ?
@@ -3460,18 +3331,11 @@ vous.
 
 — Et vous, vous êtes femme. 4
 
-Ent LES AMIES
-
 — Ce n'est pas grand chose.
 
 — C'est très beau, dit-il, et ça peut être si bon !
 
-Elle rit :
-
 — Ça! dit-elle. Mais qu'est-ce que le monde en fait,
-de ça?
-
-— Il faut se défendre.
 
 — Alors, elle ne dure pas longtemps, la bonté.
 
@@ -3490,8 +3354,6 @@ l'heure.
 êtes bon, que vous êtes sincère. Merci. Seulement, ne
 me dites rien. Vous ne pouvez pas savoir... Je vous
 
-| remercie. À
-
 Ils arrivaient à Paris. Ils se quittèrent, sans se donner
 leur adresse, ni s'inviter à venir.
 
@@ -3503,15 +3365,12 @@ peu avec vous. J'ai pensé à vous quelquefois, depuis
 
 notre rencontre.
 
-Elle s'installa.
-
 | — Un instant seulement. Je ne vous dérangerai pas
 
 à Il commençait de lui parler. Elle dit :
 
 L — Une minute, voulez-vous ?
 
-_ la fin du voyage PAR Eu
 Ils se turent. Puis, elle dit, en souriant:
 — Je n'en pouvais plus. Maintenant, cela va mieux.
 : Il voulut l'interroger.
@@ -3537,7 +3396,6 @@ lui faisaient de la peine, l'histoire de son amitié,
 Olivier qui s'était séparé de lui. Elle l'écoutait avecun
 sourire compatissant et ironique. Brusquement, elle
 — Quelle heure est-il? Ah! mon Dieu! Il y a deux « heures que je suis ici!... Pardon... Ah! comme celam'a
-Elle ajouta : ê
 — Je voudrais pouvoir revenir. Pas souvent
 Quelquefois.. Cela me ferait du bien. Mais je ne vou- 1
 112 1

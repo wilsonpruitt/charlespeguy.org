@@ -269,8 +269,6 @@ du fleuve de vie. Mais en réalité le socialisme est très !
 éloigné d'une telle absurdité. x:
 Rien d'humain ne doit être étranger à la politique de la
 classe ouvrière, elle doit vivre toute la vie de la nation et
-de l'humanité, la remplir de plus en plus de sa pensée et "à
-de son sentiment et s'efforcer de se mettre à la tête du d:
 mouvement dans toutes les questions qui agitent le pays. Fe
 Une seule occasion, où elle réussit de la sorte à montrer
 à tous d'une manière saisissante la portée et la force civi-
@@ -496,8 +494,6 @@ néraux aux éperons sonnants foulent aux pieds les droits
 de l'homme, l'humanité se réfugie sous l'égide des senti- 1,
 ments généreux du peuple. Si le parti prolétarien, quel que “
 
-RABAT ; ñ tel L RAR NET
-
 soit son motif, reste insensible à sa voix, tous ceux à qui
 l'humanité est chère se détourneront de lui.
 
@@ -589,7 +585,6 @@ la petite bourgeoisie et des ouvriers, on peut gagner
 quelques courtes victoires pour les perdre bientôt après par
 suite du peu d'étendue de sa sphère d'influence, par suite
 surtout du manque de connaissances solides, du manque
-d'appréciation vraie de la situation, et de la tendance à se
 laisser entraîner par quelques phrases bien sonnantes. .
 
 Il n'y a que ceux qui s'imaginent voir dans la tactique de
@@ -914,6 +909,4 @@ Dreyfus. Ce qui aurait surpris dans un tel combat, ç'aurait
 l'énergie vitale du mouvement socialiste repose dans cette
 idée que nous combattons partout et toujours pour la justice.
 Recevez, chers citoyens, mes salutations fraternelles.
-Le Gérant : CnarLes PÉGuy
 Ce cahier a été composé par des ouvriers syndiqués
-Le pue

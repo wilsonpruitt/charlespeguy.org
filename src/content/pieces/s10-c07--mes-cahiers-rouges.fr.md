@@ -11,22 +11,6 @@ wordCount: 33643
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ù À Le his D vu WTA à Li PAU “TAN
-| | | ! MAT AUS MTS E
-| ' : | 54 PA RAI
-, | ni! IN AO pr
-| ; - à { INAYI 1ORR Net
-
-ag à DE db * i
-
-ARAUTIUT AR si ". ce
-
-# /? « “
-
-Lit ue Le”
-
-| APRES Commune, — 1 | À
-
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
@@ -44,7 +28,6 @@ sommaire, 1900-1904, de nos cinq premières séries. \
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-ne me RER
 … une idée, abrégée, mais complète, de nos éditions anté-
 s ‘rieures et de nos cinq premières séries ; tout y est classé
 _ dans l'ordre; il suffit de le lire pour trouver, à leur
@@ -58,13 +41,6 @@ al sixième série et nos abonnés l'ont reçu à sa date, le
 9 i s'abonnait rétrospectivement à la sixième série le receHa vait, par le fait même de son abonnement, en tête de la
 … série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
-
-RTE EE ET Ne NOESIS AU EE CASE LE PE ESS eee CE UE AE 2 tre e
-SAR DR 0 A Dane Je ALAN AO EME IN AN ARR ENTER VARER te à
-TES LAN AR MT EE ns RER PSN A sent PR GR TEE
-
-ARE PA DE LUE NE A rer SE A RTE SD SP Re dns de SP RES
-RUN CE FAT Vess 2 à (re TE UE FLE ARCS
 
 … SCENE aux Cahiers de la Quinzaine
 "_  MaAxIME VuILLAUME. — mes cahiers rouges. — I. —
@@ -83,8 +59,6 @@ une journée à la cour martiale du Luxembourg:
 
 4 ER ” « le Socialisme »; un prêtre; le Prévôt; sur deux
 
-Le rangs ;
-
 Il: — devant le tribunal; le Sabre; Interrogatoires; à la +
 ‘FA queue; ceux qui attendent; pensées; Ë » IV. — lueur d'espoir; pourparlers; angoisse; loin de
 
@@ -98,16 +72,8 @@ d à lots; le charnier de Charonne; le puits des Fédérés;
 
 408 ; le compte des morts;
 
-#2 '
-
 - un cahier blanc de 108 pages, marqué... deux francs
 
-A RE RS ES SES Pa ren el ME ACT
-6 ta Rte RENT CRTREe) Re HE te a :
-aN DE ; # Lis FÉES ti ie
-r L "NI TRS Len
-
-à OEPP TES L re À NE
 DA aux Gahiers de la Quinzaine
 …. Maxime VusraumE. — mes cahiers rouges.— Il. —
 … un peu de vérité sur la mort des otages. — 24 et
@@ -128,14 +94,6 @@ Belleville; Rue de Paris; Rue Haxo; le mur; le massacre;
 … Je compte des morts; celui qui est de trop; Devant les juges;
 b: un cabier blanc de 132 pages, marqué.... deux francs
 
-RAR PA OR NUE de ES BEA UE RARE TN RS AR Be Lu NT at
-
-HELSE RTE RER PE SON AOC ES A A de OA A TI EN nue THAT
-TR AN PRE ARE Le Do E ENG AE FÉPUERR DE ALT E ER LUE orale ee 1e
-
-# D : su 17 SANS RES |
-4 k LA Done Labs |
-
 - CR aux Cahiers de la Quinzaine
 
 n  MaAxIME VurLLAUME. — mes cahiers rouges.—Ill. —
@@ -143,24 +101,18 @@ n  MaAxIME VurLLAUME. — mes cahiers rouges.—Ill. —
 _ quand nous faisions le « Père Duchéne ».— mars-
 …_  avril-mai 1871. — douzième cahier de la neuvième
 
-+ LA RÉPUBLIQUE OU LA MORT !—1I.— Je rencontre Vermersch ;
-
 à Colonne en fête; II. — La République ou la Mort! la mère
 -  Gaittet; l'argent; IL. — Il esi bougrement en colère; IV. —
 Mort et Résurrection; +
-#4 1 a. .
 
-L: NOS APRÈS-MIDI. — I, — dans la Fournaise; II. — la Com-
 #4 mune proclamée; Celui qui n'est pas là; Jusqu'à la mort;
 …. JL. —le Canon du Père Duchène; des Héros ; IV. — Henriette
 n la jolie cantinière; à Beaujon; Funérailles rouges;
 
-“3 QUELQUES AMIS. — I. — Félix Pyat; II. — Rogeard; IL. —
 En. Rossel; IV. — Raoul Rigault; V. — Déjeuner chez Protot;
 
 #e VI. — notre citoyen curé; VII — Gaietés;
 
-E LE BATAILLON DU PÈRE DUCHÈNE. — 1. — Si nous formions
 > un bataillon! Brillant uniforme; Ça ne va pas! chez Rossel;
 
 _ Déjeuner à la Caserne; II. —Bataille; Jusqu'au Père-Lachaise;
@@ -170,10 +122,6 @@ _ Déjeuner à la Caserne; II. —Bataille; Jusqu'au Père-Lachaise;
 ñ Lupicin ; I. — notre fortune; Collectionneurs, ouvrez l'œil;
 
 ‘2 un cahier blanc de 144 pages, marqué.... deux francs
-
-Le PA + mt ARS QUES Von LS à 7? “ Pt oc R
-Le eo à SH de ue fé EU “e
-228 TR PES MU ÉRSE SFr Labs sr a PCR UM PAS Ur us S: Maure D
 
 _ Pour les personnages qui ont été cités déjà l'année |
 de nière dans les trois premiers cabiers rouges, ci
@@ -187,81 +135,9 @@ b_ de la neuvième série, contenait, page 365, un Index |
 Vdes noms propres cités dans tous les trois premiers +;
 - On ne trouvera dans les trois cahiers de cette année ”
 _ que les notices biographiques individuelles des person-
-| nages nouveaux.
-#? 1
-|
 
-ARS CR GS NEE Pa ses se ee Le ire LR ANT de
-
-RAR RE ASE Ness VS VIP ET a ER 0 AE A A
-
-NE A RAS D ts MAO DA PIE EUR FA SRE =:
-
-AT CEA Dai 2 Se Era qe Ra LAS SRE “ et
-
-er AE LRE Neue LR TES 5,7" 1
-me re à en it “ie ESA : ALT Repas FE DE PAS 222
-20 Peine TS dé 2 ER CAR 7 SR PER the
-LR és Tu LC ANET re = she at OIL PT, PPS PER
-2 PRESSL El Ur De — hrs RE AT
-LEP ONEES ne die mg “ \ QUE
-AA AR FA Le dE er
-# VER i" noue. (UE
-+ SRE Let ar ts Le
-
-LS ea AT RO ASTRA RENE ur OL Le EL PR DO NS RE
-Be on NT
-AN NN ON A ne Le ei ERA |:
-FE ie D A ren NS AN AAA RS AE SANS DATA ob Me ne
-AN ? ' au { j tbe LA CONSNNE
-L \ er 4 " fe AN LE RE
-
-i GANT nr ASE PE DU DEN DEAR ART SRE GPS
-LE BE DHARLA sa PERS Lo x TT sr LR LE N A Fa
-or R PRES A à À Pere A TR et 4 Sr Sert SE Ur
-RE I man Le pui ARE RES SE je pare 1
-D A ET D RD EM MR PT, D Tee nu
-DA a à AR L en UE ee
-Dr: et
-NE US lé
-
-En RE. RÉ E A tout Meet At RE HS
-
-RASE 75 aq SE EN AT UE FN He Ne SAN nee SSSR EME SLA EX ASC
-
-SRE PR EE PAS RS RE MN ee VE
-
-PAENUES DT st SU Ne Ÿ REC KO à y FSSS3S ac EME SRE NO) de
-
-Eu ne te RE RE RRRSERE URSS FANS ASRUERE SN
-
-AA de : HER Dune.
-
-LATE SNO AE Re mr. 72 ER en à EM à de
-RS D ne RE ES WA 6e pi
-RL En à At L'ARE 4 LIEN “ail - à pure a # RER AT SE se €
-7 Ass A PIRRET ne RAR AE ST EE
-z vor F2 ET ROLE LR RME EE RATE Pr HETS
-‘ e. Ps VE AE Res : PR re x Ts pe ET +85
-. FRS EEE ta
-1508 de la Commune
-#4 * di +: de
-# 4 * * AS
-res LA
-Don: ni 1
-
-LAS ne EAN Vas
-DRAP RNACE TE E AE (es RATES RS MU Vas FUN 1e A ET ONE DL
-à Re RON on ë ne KES ONE AE NN pi
-Re RAR AC UE D ie QUE ae un.
-RAR ne CARE : à à que \ ‘Hit 00e
 s Naud SV où
 
-tu
-SR Ce eut, NE en D Re met RER VOUS
-Re Cr elite RS PA SR ON Mn
-
-ne RAOUL RIGAULT
 Mercredi 24 mai. Midi. La fusillade crépite tout à
 lentour. On attend l'attaque. Dans une heure, deux
 heures au plus, ce sera la bataille.
@@ -272,8 +148,6 @@ voiture vidée, on détèle le cheval blanc, pour l'atteler
 à une mitrailleuse restée en panne. L'attelage grimpe
 le boulevard.
 . L'ami Maitre, notre chef de bataillon des Enfants du
-* Père Duchéne.
-_— Où vas-tu?
 ee Sont-ils loin?
 _ — Toujours rue Vavin, où Lisbonne (1) les arrète…. L
 Nous longeons en causant le lycée Saint-Louis. 1
@@ -320,7 +194,6 @@ _ lames ensoleillées s'échappent des jointures des volets.
 | Séverin, Huet. Il a, je m'en souviens, de hautes bottes
 …. de cuir jaune, qu'il étend sur une chaise, à demi
 . endormi. Je ne connais pas le troisième. Maître est
-…_ en chef de bataillon. Moi en civil et képi de lieuRycienant.
 44 D'un trait, Rigault avale le verre de grenadine qu'il
 s'est fait servir. Il me frappe sur l'épaule.
 | — Tu sais... Eh bien!
@@ -328,7 +201,6 @@ Il scande ses paroles.
 b — Cette nuit...
 …_ — Eh bien, cette nuit?
 …—._ —Eh bien... Je l'ai fait fusiller.…
-__  — Fusillé.. Qui?
 _ Maître n'a jeté un regard rapide. Huet n'a pas
 _ bougé... Il est toujours somnolent.… Il doit être au cou-
 À rant. Peut-être — sa fatigue semble l'indiquer — n'a-t-il
@@ -342,10 +214,8 @@ _ Je voudrais parler... savoir.
 
 quelques-uns de la Commune
 qu'il avait détaché pour frapper aux volets... Nous
-sortons. si D: Le +
 — À tout à l'heure... Au Panthéon. | ÉRRRSS
 Le lendemain. Sept heures du matin. Je descends hâtivement la rue Gay-Lussac. Partout des moris. Morts
-de la veille, morts de la nuit, morts du combat ou de ee
 la fusillade, Au pied du haut mur du couvent des
 Dames Saint-Michel, au carrefour de la rue Saint.
 _ Jacques, toute une file de morts. Les faces cachées sous
@@ -383,8 +253,6 @@ linge, collé sur l'affreuse plaie.
 à A Légende et Vérité
 
 “ La mort de Raoul Rigault a été maintes fois ra-
-
-| contée.
 
 A Dès le début de l'exil, plusieurs versions circulaient.
 Celle que je vais donner ici — déjà publiée par moi
@@ -449,13 +317,11 @@ L'un prend son sabre, l'autre son revolver.
 ._ cade de la rue Royer-Collard, on croise un groupe d'où
 se détache un officier : -
 _ — Quel est cet homme ? » — Je suis Raoul Rigault, procureur de la Commune
-_ de Paris.
 ï _— Ah! vous êtes Rigault. Eh bien! vous allez crier :
 > « À bas la Commune! »
 : _ Le prisonnier eut un sourire de dédain. Certainement,
 à ce moment suprême, l'ombre de son aîné, Chaumette,
 * le procureur de la grande Commune, passa devant ses
-| yeux.
 . _ — Vive la Commune! cria-t-il d'une voix forte.
 8  Rigault tomba, le crâne fracassé. L'officier, disent
 . les uns, un sergent de chasseurs de l'escorte, disent les
@@ -518,8 +384,6 @@ ne laissaient aucun doute sur l'identité. Lt
 
 Je fis immédiatement mon rapport au colonel X.
 
-# see ER ANR EN Mer find Pre
-à er MORE REESE L e 4e
 Mi Du récit du lieutenant Ney, il ressort que Rigault fut
 | tué, sans que personne de ceux qui l'accompagnaient a
 —on le conduisait certainement à la cour martiale déjà
@@ -531,7 +395,6 @@ mon confrère E.-A. Spoll, devant qui il fut fait.
 _ Pour la mort au pied de la barricade de la rue Royer_ Collard, j'ai retrouvé un témoin, (1) non seulement de
 . l'exécution elle-même, mais des faits qui suivirent, après
 _ que Rigault eut été abattu par le coup de revolver du
-| sergent.
 …_  — J'avais quitté vers trois heures — me raconta Charles
 … Jolÿ—la barricade de la rue Saint-Jacques, en face de l'AcaF4 démie. J'étais rentré chez moi, rue Royer-Collard, n° 14, à
 _ l'hôtel Royer-Collard, rasant les murs pour éviter le feu des
@@ -597,8 +460,6 @@ w: Vermorel n'a pas achevé, que je sens son bras s'appuyer
 _ sur mon épaule. Il chancelle, pälit, Une balle l'a frappé au
 - haut de la cuisse, tout près de laine, trouant l'écharpe
 
-> AE 2 LE RNA
-
 quelques-uns de la Commune
 
 , rouge. Theisz et moi le soutenons pendant que des fédérés Me.
@@ -649,9 +510,6 @@ général du délégué aux relations extérieures (Paschal Grousset). a
 Condamné à la déportation enceinte fortifiée. S'évada avec Roche- ,.
 fort de la Nouvelle-Calédonie.
 
-#
-
-A Re en Ma es .
 3 e lendemain. Mais le lendemain, la place du Trône était
 2 occupée par les troupes de Vinoy, et je dus renoncer à
 . prendre des nouvelles de mon malheureux ami.
@@ -690,8 +548,6 @@ brochés. Un maigre mobilier en acajou.
 
 La vente dut produire quelques centaines de francs.
 
-1 LE Ar ÉRIC EP NOR « tn ï ; > k ae es
-
 : un nouveau Baudin !
 
 #4 Quand le corps de Delescluze fut trouvé, le vendredi
@@ -704,7 +560,6 @@ __ En fouillant les vêtements du mort, on retrouva sa
 
 _ nomination de délégué à la guerre. Divers menus
 objets, un crayon à manche d'ivoire, sa montre d'ar-
-|
 
 _ gent, la canne à pomme d'or qu'il portait depuis long-
 > temps, le firent reconnaître, dans un tas de vingt-huit
@@ -787,8 +642,6 @@ son nom gravé?
 > — Non, non. Il n'avait absolument rien quand on l'a
 * apporté idi, où il resta quarante-huit heures, avant
 W N d'être transporté, avec les autres, au square du Temple,
-
-et de là au cimetière Montmartre.
 
 4 l'anneau de plomb
 W. Quand on porta au square du Temple le cadavre de
@@ -918,12 +771,9 @@ S Pas un mot ne sortit de ses lèvres.
 L J'ai toujours le souvenir de ce dernier regard. J'en suis
 À encore tout pénétré de douleur. N'avions-nous donc pas
 assez fait pour mériter son adieu suprême ?.…
-| ; autre récit
 | Alavoine, qui accompagna Delescluze jusqu'à la rue
 | d'Angoulême, m'a donné ces quelques détails.
 l me dit Alavoine,
-de de passer le seuil de la
-| mairie,
 À Dans l'une des salles du bas, je vois Ferré, plongeant
 les mains dans un tonneau plein de pièces de cent sous
 
@@ -964,12 +814,6 @@ Je ne sais plus rien de lui, à partir de ce moment...
 
 Quelques pas plus loin, Delescluze trouvait la mort
 qu'il était allé chercher.
-
-je He An DRE A de A TO AN GR QE ACIER |
-si ARE MON TNT RUN NS NÉE "a eve CURE NAT AGP d'a ATV ES « RNA SU CARLA A QUE RAR AT FL DA Er 4 MN
-Ds RO de FN ! pi tu AN PR NTM
-VOS nef |
-| Mu N Et ue DAS PEN À
 
 : Cigares d'un sou
 F Rue de Grenelle, le lendemain du 18 mars. La grande
@@ -1024,8 +868,6 @@ de musique. Paget me présenta à un haut fonctionnaire
 du ministère — de l'ancien — qui, un peu gêné, honoraït
 de sa présence les salons du nouveau ministre.
 
-LÉ PRET), be ec 7.2 PAS UE re PL LL
-2 Faute | DEUX AMIS DU PÈRE DUCHÈNE s à
 Réception bourgeoise. Canettes de bière, sirops mul- de
 V2 ticolores, montés par le mastroquet d'en face. Cigares
 _ d'un sou. Paget ne voulait pas qu'on dépensât l'argent {4
@@ -1036,7 +878,6 @@ _ ici, avait-il ordonné impérieusement. :
 furent remplacés par les petits bordeaux. Seule réforme
 __ qu'eut le temps d'introduire rue de Grenelle le premier
 ‘2 grand maître de l'Université de la Révolution de 1871. (1) )
-L: au Parvis
 4 Milieu de mai. Une après-midi, nous voyons flamber,
 _ à la porte de l'échoppe de la rue du Croissant, où nous
 pe vendons le Père Duchéne, la face ronde et fleurie de
@@ -1097,7 +938,6 @@ Une commission est instituée pour substituer de nouveaux noms dans toutes les s
 
 Le directeur de l'Assistance publique, :
 
-#3 Le (LH DEUX AMIS DU PÉRE DUCHÈNE
 14 Pur n'a pas perdu de temps.
  — Ah! les saints! Ce que je les ai. badigeonnés! Ça
 - n'a pas été long... Ils n'y reviendront plus. ;
@@ -1112,7 +952,6 @@ oublié son maitre.
 D — Au moins, lui dis-je, tu as eu soin de ne pas mettre
 > trop près l'un de l'autre Barbès et Blanqui.
 É Paget me lança un coup d'œil qu'il chercha à rendre
-_ sévère. Et subitement : |
 | — Et ce n'est rien que cela. Vous allez voir mes
 É la gloire de Paget
 Le Paget nous a fait préparer, dans une embrasure de
@@ -1148,8 +987,6 @@ Paget, qui avait douté un instant de la stabilité de sa
 direction, sembla satisfait. Nous avions fini le déjeuner.
 
 à — Et maintenant, venez voir mes bonnes sœurs.
-
-— Tes sœurs!
 
 — Eh oui! si vous le voulez, mes « citoyennes ».
 
@@ -1200,8 +1037,6 @@ Nous restions ébahis.
 Ce Paget ! Était-il malin !
 
 NN Mais nous n'en avions pas fini de nos étonne-
-
-| n ents.
 
 | F— Là-bas... ces grosses gerbes de fleurs... continue |
 
@@ -1292,8 +1127,6 @@ d Lupicin. Il y avait là quatre internes en pharmacie. Ces
 
 4 Le général en a-til connaissance ?
 
-— Je n'en sais rien,
-
 ‘ répond le général Appert.
 
 4 tion se fait à Paris. (1)
@@ -1346,8 +1179,6 @@ de longue durée. Un journal du Valais, que j'ouvris un
 jour dans un café, à Zurich, annonçait la mort subite
 du « docteur Paget, le sympathique proscrit ».
 
-PRO, ON Foie
-
 15 mai 1871. Au ministère de la justice. Cinq heures.
 
 [La colonne est par terre. Je ne m'en irai pas sans dire
@@ -1380,7 +1211,6 @@ Feuillantines, vers 1863.
 
 M — Allez donc au quai d'Orsay, me dit Moutier. On y
 fait maintenant des cartouches au lieu de tabac. Vous
-y verrez X... de ma part.
 
 Voilà comment je fis des cartouches jusqu'au 22 janvier. Le lendemain, ma foi, je jugeai plus prudent de
 ne plus reparaître à mon poste. N'avais-je pas promis
@@ -1427,7 +1257,6 @@ L 4 Je revoyais Besson chaque fois que j'allais voir
 A Un jour, c'était dans les premiers de mai, Besson me
 “prit à part et m'emmena dans le jardin, ayant, disait-il,
 à me confier quelque chose de grave.
-À" — J'ai besoin de ta protection, me dit-il. Il y a ici
 ù ‘une bonne place libre. Le vieux réactionnaire qui était
 ï encore concierge ces jours-ci à la porte de la rue
 Cambon s'en va. Ce n'est pas trop tôt. On peut me
@@ -1523,15 +1352,6 @@ Versailles, ni en Calédonie, ni en exil.
 édition en un volume in quarto, page 295. Déposition de M. le comte
 de Mun (orthographié par erreur, dans cette édition, de Mung).
 
-En ri Le ë ET te D LADA AR 18
-UN AU a je S RE pe RAA US
-NRA 10 AC Nu se JE os ARRU ANDREAS FE FH FU
-
-M AE NE AU Lure gra fn Ets
-k (7 MU AD el pu 6 ir RC d } l ADI it A th
-L sn. MT ee 4 ANG
-
-| “
 R Janvier 1870. Une petite brasserie. Au coin de la rue
 | Monsieur-le-Prince et des escaliers de la rue AntoïneDubois. La maison, disparue, a fait place aux bâtiments
 de l'École pratique de médecine.
@@ -1564,7 +1384,6 @@ canettes, Rebecca s'accoude à la planchette du piano. uk À
 L'accompagnateur, qui plaque ses accords rétribués par 3%
 une demi-douzaine de bocks gratis, quitte son verre 4
 entamé, et, la pipe fumante aux dents, s'assied au 210
-tabouret. LE
 Rebecca revêt, pour la soirée chantante, un vague A
 costume de Suissesse, jupe rouge et corsage de velours : 4
 noir à chaïînettes d'argent, suffisamment décolleté pour x
@@ -1585,7 +1404,6 @@ la soirée.
 Rebecca, elle, s'en va. Son service est fini. Elle
 occupe là-haut, dans les combles, une chambre débarras, où elle remise son costume de Suissesse et où,
 
-0e 4 td CEUX DU QUARTIER .
 spi | dit-on, elle n'est pas trop cruelle au client qu'elle a su
 charme. Parfois, elle ne fait que sauter de la porte
 _ d'Huber à celle d'en face, de l'autre côté des marches
@@ -1623,8 +1441,6 @@ rue Casimir-Delavigne, une de ses retraites favorites.
 
 Maroteau, Humbert, Francis Enne, Longuet, étaient
 des fidèles de chez Huber. Vermorel y faisait de
-
-|
 
 quelques-uns de la Commune De:
 courtes apparitions, restant debout dans sa longue 2%
@@ -1683,9 +1499,7 @@ voyage ofliciel en Tunisie, m'apporta, un jour, le salut
 amical de l'ancien camarade. Et, pour un instant,
 je revis, devant moi, chez Huber, Fermé, en frac et
 cravate blanche, qui revenait de chez Ollivier.
-|
 
-à Un je ne ta US HA AA UE
 4 Place Saint-Michel. A langle du quai des l
 Pi! Les deux cadrans sont toujours là. A certains jours,
 quand on avait assez de la chanson de Rebecca, on se 2 f
@@ -1696,7 +1510,6 @@ ie Paget-Lupicin logeait dans un hôtel meublé du quai 3)
 l voisin, l'Hôtel de Suède. Il était tout de suite aux
 LOTS Le mot d'ordre se donne, le matin, au déjeuner: ‘0
 — Ce soir, on ira aux Cadrans. Dans la salle du 1
-Je ie
 C'est dans cette salle du haut des Cadrans que nous ae
 passâmes l'une des plus tragiques soirées de cette der- ï
 À nière année de l'Empire. QU ne
@@ -1714,12 +1527,6 @@ Paris. C'est aux bureaux de la Misère que fut mise en vente la bro-
 | Sornet se précipite. Il pose son chapeau. Son crâne,
 
 _ d'habitude couleur de bel ivoire laiteux, est rouge. Il
-
-| flamboie.. ;
-
-_.  — Qu'y at-il donc?
-
-LUE Il y a... Mais, tu ne sais donc pas... Il y a que
 
 | Sornet, qui vient du Corps législatif, y a appris la
 terrifiante nouvelle. Il me prend le bras, me fait dégringoler l'escalier.
@@ -1755,8 +1562,6 @@ près de nous. Il demande un journal, le déplie, s'abrite
 derrière. Sûrement, il nous écoute. Roullier, qui, comme
 Rigault, se pique de flairer le mouchard à cent pas,
 
-|
-
 quelques-uns de la Commune 2
 
 s'inquiète. Sa barbe d'insurgé s'agite. Il apostrophe le a
@@ -1766,8 +1571,6 @@ lecteur peu pressé. Son mufle de gnaff toujours rugis- \
 — Monsieur, vous écoutez notre conversation... Est-ce À
 
 : que, par hasard, tu serais de la maison d'en face?
-
-Tapage. On va se colleter. N
 
 Nous ne revinmes plus aux Cadrans. 1 À.
 Quelques amis avaient déjà choisi comme repaire la
@@ -1791,7 +1594,6 @@ Dénoncé à l'entrée des troupes, conduit à Versailles,
 Huber fut mis aux Chantiers, d'où, fort heureusement
 pour lui, le fit sortir une ordonnance de non:-lieu.
 
-su CHEZ KRŒBER is
 f Mai 1870. Boulevard Saint-Germain. Face, ou à peu FER
 près, au théâtre Cluny. Au coin de la rue Saint_ Jacques et d'un cul-de-sac, longtemps occupé par un |
 4 marchand d'antiquités médiocres, disparu à la suite du
@@ -1846,8 +1648,6 @@ entendu, ni d''Eve ni d'Adam. Mais de Ponnat s'est mis
 
 ! en tête de faire de la propagande. Il la fait à toute occasion, envers et contre tous, s'il le faut. Personne ne l'empêchera, le mort arrivé à la fosse, de prendre la parole
 et de jeter sur le cercueil le bouquet de fleurs d'immor-
-
-j ASS Pere CEUX DU QUARTIER :
 
 _ telles symbolique. La légende veut que le baron, pour
 _amorcer l'assistance, commence son éloge funèbre par
@@ -1915,7 +1715,6 @@ partageâmes désormais nos loisirs entre ce que nous
 appelions toujours, par habitude, chez Kræber, et la
 brasserie Saint-Séverin, que le siège et la Commune
 
-| CHEZ HOFFMANN
 Place de l'Observatoire. Au coin du boulevard Mont_ parnasse et de l'avenue, bordée de grands marronniers,
 qui conduit à la grille de l'établissement scientifique.
 Au rez-de-chaussée, deux salles meublées de tables et
@@ -2105,7 +1904,6 @@ _ — une prise, hein!
 sous nos rires.
 > Nous causons, trois ou quatre. Entre un ami. Il est
 _ accompagné d'un tout jeune homme, brun, pâle, mous_ tache fine.
-cs — Un ami... Antoine.
 L Antoine est neveu de Blanqui. Le fils de l'admirable à
 4 sœur de l'éternel prisonnier.
 # Le lendemain, je vais voir Antoine,
@@ -2116,7 +1914,6 @@ Le logis qu'occupait la sœur de Blanqui a disparu.
 | Barrant le boulevard Saint-Germain, à la hauteur de la
 rue Hautefeuille, des bâtisses vermoulues que les opérations de voirie ont depuis jetées bas. Un tout petit passage fait communiquer le tronçon de boulevard avec les
 petites rues, disparues, elles aussi, les unes en partie,
-|
 
 quelques-uns de la Commune CA
 
@@ -2146,7 +1943,6 @@ Attenant au salon, une petite pièce, un couloir plutôt.
 Une table, deux chaises.
 
 — C'est le cabinet où travaille mon frère, — quand il
-est là.
 
 Dans un coin, appuyés au mur, deux grands volumes,
 reliés, qui sont à Blanqui. L'année 1848 du Journal des
@@ -2159,8 +1955,6 @@ des Débats que Blanqui fit paraître sa belle et poignante
 C'est Longuet qui nous apporte cette nouvelle.
 
 Rogeard a terminé les cinq ans de proscription
-
-et 2 ren UT ?
 
 e de sa condamnation de 1865 pour les Propos de La-
 
@@ -2177,8 +1971,6 @@ un gros homme, grisonnant, chauve, la face rougeaude,
 l'air timide.
 
 - Rogeard balbutie quelques paroles en réponse à notre
-
-| accueil enthousiaste.
 
 Et, comme il tient toujours à la main un immense
 chapeau mou, qu'il ne sait où poser, Vallès, d'une voix
@@ -2232,8 +2024,6 @@ Après le Quatre-Septembre. Les commissaires de |
 police du quartier, qui ont donné à quelques-uns d'entre ‘
 nous pas mal de fil à retordre, sont toujours là. Com- Ÿ
 
-Fa FASO A Per et FPE ES: GS
-RS TR NE sites Gr
 se ment! Barlet est encore à son bureau de la rue des
 
 2 0EE Noyers! Allard, rue Suger ! Allons chez Barlet. Et nous
@@ -2269,7 +2059,6 @@ Les deux énormes aïgles en plomb, qui, aux deux 3
 angles de la corniche, tout là-haut, étendent leurs ailes, À
 sont bien là. *
 Nous levons le nez... 4
-Un groupe se forme. $
 Bientôt, ce n'est plus une demi-douzaine de nez, mais ‘
 . une centaine, qui se dirigent, menaçants, vers les LE
 aigles déjà condamnées. L
@@ -2310,8 +2099,6 @@ m'approche. Tridon cause avec un petit homme au nez
 
 chée, l'œil noir extraordinairement perçant.
 
-C'est LUI.
-
 Je m'approche. Tridon me serre la main, dit mon
 
 Déjà, à la tribune, devant la table, un homme parle
@@ -2338,7 +2125,6 @@ et disparaît.
 
 quelques-uns de la Commune
 Trente et un octobre. Tout le monde est à l'Hôtel -
-de Ville. 4
 Minuit. Quelques-uns sont déjà rentrés. On cause 5
 autour du poêle de Glaser. Au dehors, le rappel bat
 encore dans la rue de La Harpe. 1
@@ -2368,10 +2154,7 @@ Enfin, à trois heures, nous partons.
 La nuit est tout en brouillard.
 A la hauteur du jardin de Cluny, à deux pas de moi,
 
-L PR sa Set Lu FE PTE HE sx TES É
-mt n ami, que j'ai vu la soirée à l'Hôtel de Ville. Ur
 it fidèle de Blanqui. Il pleure et sanglote. D MEPLLE,
-3:50 — Eh bien! qu'y a-t-il donc? | ARRETE.
 _  —lly a. Ily a, mon vieux, que la Commune est
 “LS Une figure. Benjamin Flotte. Un ancien des grands St
 _ jours. Ami, ombre, séide de Blanqui. Flotte, les cinq
@@ -2390,7 +2173,6 @@ _ salon que tu connais bien, — mon cœur battait... Je le
 a __ reconnais... Il est là, assis devant une table. Il lit...
 _ Nous allons nous jeter dans les bras l'un de l'autre...
 nous embrasser en vieux frères d'armes. Songez,
-#3 j'étais à côté de lui, le 15 Mai, à la tribune de la
 « à Chambre... J'étais à côté de lui partout... ;
 ur: Et Flotte s'arrête un instant.
 1 — Non... il ne bouge pas.
@@ -2401,11 +2183,8 @@ eY main que je serre... Ce fut là toutes nos effusions… »)
 quelques-uns de la Commune
 . — Tu lui en veux? dis-je à Flotte. s
 
-— Moi?.…. Pourquoi? ;
-
 Et, moitié riant, moitié attristé : À
 
-— Pourquoi lui en voudrais-je?... Non. je ne le
 pourrais pas.
 
 Flotte, qui touchait à la soixantaine, — visage long, :
@@ -2513,7 +2292,6 @@ escaliers (disparus) qui, de la voie en contre-bas, mon- |
 taient à la rue Soufflot. Une grande salle, nue, étroite |
 et longue. Dans un coin, on à poussé des barres paral-
 
-si : me Ps CEUX DU QUARTIER
 _ lèles sur lesquelles s'exerçaient, avant le siège, les
 _ gymnastes. Je me hisse pour jouir du coup d'œil.
 BE _ Foule. Des femmes. A la tribune, — une estrade, —
@@ -2527,7 +2305,6 @@ _ à ses périodes classiquement ordonnées.
 = la mort... Paris s'ensevelira sous ses ruines. Nous
 _ perdrons tout, sauf l'honneur.
 Fi Ce sont des applaudissements, des voix qui crient et
-dé — Oui... Oui... Nous combattrons.
 as Briosne attend. Quand le bruit s'est apaisé, il reprend, 3
 de sa voix grave, à l'accent prophétique :
 er — Citoyennes et citoyens. Quand Jérusalem fut
@@ -2553,7 +2330,6 @@ dessus de l'estrade. En
 — Vous avez entendu le citoyen Briosne, commence ÿ.
 Roullier.. Eh bien! jurons tous ici de mourir plutôt Ë
 que de nous rendre aux Prussiens. |
-é Des mains se lèvent.
 — Oui. Nous mourrons tous... D'abord, avant de
 nous rendre, nous mangerons tout. Nous mangerons
 les chats... Nous mangerons les chiens... Nous mangerons les rats... ;
@@ -2576,7 +2352,6 @@ d'autres, que deux mois d'insurrection ont accumulés.
 Les lettres de l'archevêque à M. Thiers.
 E Quand il fut question de publier dans le Journal
 officiel — le nôtre — le récit des pourparlers engagés
-js à entre la Commune et le gouvernement de Versailles (ce
 5 récit a paru, sous ma signature, dans le numéro du
 27 avril 1871), l'archevêque remit à Flotte, qui était allé
 le voir dans sa cellule de Mazas, une copie, de sa main,
@@ -2592,8 +2367,6 @@ Lagarde — daté de Versailles — de se rendre à l'appel
 pressant du prélat prisonnier.
 Que vais-je faire de ces trois pièces, intéressantes
 pour l'histoire future”?
-Les détruire”?
-Les conserver?
 Impossible. Je puis être pris.
 Je décide de les remettre à Flotte.
 Je rencontre Flotte chez lui, dans son petit hôtel
@@ -2601,9 +2374,7 @@ meublé de la rue de la Huchette.
 Nous descendons tous deux. La rue Saint-Séverin est
 à deux pas. Nous entrons chez Glaser.
 
-RXRE MS ne Tree ER R HER AT # RP REY JUS PER à LEUR :
 Où sont les uniformes, les galons, les écharpes BEST
-_ rouges? $ LE DS SLRE SES
 "e Nous nous asseyons, silencieux, le cœur serré.
 Je remets à Flotte les lettres de l'archevêque et le
 2 -pulet de Lagarde. : “KR
@@ -2620,15 +2391,6 @@ _ vert, de la brasserie de la rue Saint-Séverin — de chez. RUE
 nonçait, sur le bord de la fosse, quelques paroles d'adieu au med.
 vaillant camarade (Glaser était capitaine dans un bataillon d…  _..
 _. marçhe de la garde nationale) un obus éclata tout près, au milieu
-des ES + PER
-
-FE) NE RRQ A CON ES Aa LRU A mi GRAS as Fe
-fu SEE NE NE, i Aa DS Re AD RES Gi Mate RDA D 7 URES
-HA CAES Le PEL AE, ue FR rl PT SR RUNr UD AUTES: FEES LC
-4 F3 RS ER NA LaR r DU TE RAD ER rw LR WE Ne ï « st #
-De (A A RU RENE SNA ERR ; ASS es (LE MARNE FE ra
-ni nus TR Ne di NE TRE LT 404
-AT a : à sa er ER PL ce HONTE
 
 Juillet 1871. — Le matin. Je suis à Genève de la veille.
 | Quelle bonne nuit — la première tranquille depuis les
@@ -2759,9 +2521,6 @@ par le treizième arrondissement, le colonel doré, botté
 et éperonné, aujourd'hui retourné à ses cuivres, à ses
 robinets, à ses marmites, dont l'atelier est plein, reluisants ou vert-de-grisés.
 
-ni
-
-hs RP CEUX DE L'EXIL <
 Dès qu'il m'a vu, Chardon s'est précipité.
 — C'est toi, petit. Nom de Dieu... Ce que je suis
 
@@ -2805,7 +2564,6 @@ de vert — le vert-de-gris du cuivre, sur iequel il battait
 sans relâche. : : 1
 
 À quoi songeait, pendant ces longues heures, l'ancien . RE:
-membre de la Commune ? É us
 
 Je le lui demandai un jour. 4
 
@@ -2877,7 +2635,6 @@ où visitaient des gens suspects, comme Raoul Rigault.
 
 Bazire prend place. Massenet finissait son récit.
 
-fe le CEUX DE L'EXIL
 ‘4 — Moi, commença Bazire, c'est bien plus drôle. Je
 suis venu ici dans un corbillard..
 Nous partons d'un éclat de rire. D'autant plus sincère
@@ -2950,9 +2707,7 @@ Gaillard, ces innocentes plaisanteries…
 
 Claris a rencontré le père Gaillard — car c'est bien
 
-ou sr +
 lui — rue du Mont-Blanc. Le vieux barricadier — ‘RE
-, _ Gaillard, qui a été de 48 et de 51, a dépassé la cinquan- & e a: +
 _ taine, ce qui, pour nous, jeunes gens, est être déjà très
 _ vieux — cherchait depuis le matin où pouvaient bien LE
 mi cher les amis réfugiés à Genève. SR
@@ -2962,7 +2717,6 @@ mi cher les amis réfugiés à Genève. SR
 _ Bazire l'a rencontré sous l'Empire, à la Marseillaise. PES
 … Moi, je l'ai vu dans les réunions publiques. Une entre Es
 autres, à Belleville, le soir même du Quatre-Septembre. 53
-. La scène se représente à ma mémoire. RCE eh
 Dans une salle de café-concert, une foule houleuse. Trèr :
 _ J'étais entré avec Vallès. Nous avions pris place tous
 deux au bureau, comme assesseurs. À
@@ -2980,7 +2734,6 @@ _ pour une porte ouverte. La glace se brise. L'homme J
 L — Si nous fichions le camp ? me glisse Vallès. ;
 #4 Nous filons par la porte des artistes.
 + . Nous tombons dans une cour plantée d'arbres.
-ü Mes 109 Commune. — 7
 
 quelques-uns de la Commune dE
 
@@ -3010,8 +2763,6 @@ la barbe, qu'il portait d'habitude entière. Tête nue,
 comme toujours, la crinière au vent, il déambulaïit d'un
 pas alerte. Une serge à La main.
 
-— Où vas-tu?
-
 — Eh, parbleu! Je vais chercher de l'ouvrage.
 
 Le père Gaillard s'était, comme Chardon, le chaudronnier-colonel, vite remis au travail. Cordonnier
@@ -3019,10 +2770,6 @@ habile, véritable artiste en chaussures, la clientèle vint
 rapidement le chercher. Il fut de mode, à un moment,
 dans la haute société genevoise, de se faire chausser
 chez le communard.
-
-| EN 2
-
-LE El ee à
 
 Je ne me rappelle plus pourquoi le père Gaillard
 
@@ -3063,7 +2810,6 @@ PR appartenant à la Ville. Callet lavait fait nom mer à la
 place des Petits-Pères. 1/16 TRACER
 AT J'allai voir le père Gaillard. Chaque fois que je passais par là, je m'accoudais, pour causer, aux jours de.
 FE la belle saison, sur le rebord de la large baie derrière.
-> ax À & FA LEE
 on laquelle il tapait sur la semelle sans répit.
 Je le rencontrai pour la dernière fois sur le quai ie
 PR marchait devant moi, droit et sec, le chef tout blane
@@ -3076,7 +2822,6 @@ es — Vois-tu, me répondit tristement le vieux frère :
 De d'armes, je vieillis — il était plus qu'octogénaire. Je: ne
 vois plus clair. Ù motos FC
 He Je le regardai. Ses prunelles étaient comme déco- « à lorées et vides. Nous fimes ensemble une cinquant aine
-à de mètres. M |
 | — Allons, à un de ces jours. :| APN
 : Quelques semaines après, ouvrant le Temps, je trouvai
 Ja nécrologie du vieux barricadier. Le brave père Gaillard
@@ -3086,8 +2831,6 @@ qu'il avait baptisé des prénoms de Jean-Paul, en l'hon
 neur de son maître, l'Ami du Peuple. Fr
 : Par une ironie du sort, Gaillard, lui, le révolution- =
 naire, maratiste fervent jusqu'à sa dernière heure,
-
-| DIMANCHE A LA FRONTIÈRE
 
 | Premiers jours de septembre 1871. — Nous nous
 sommes donné rendez-vous, une douzaine, sur le pont
@@ -3223,7 +2966,6 @@ qui bordent la route. Il y a huit jours, il était encore en:
 enfermé dans sa cellule de la prison de Genève, le 4
 | gouveruement français ayant réclamé son extradition. Dee
 
-ee CEUX DEL XIE 0 De a
 Me Pelite souflle et s'éponge le front, tout en me contant,
 pour la vingtième fois, ses prouesses du 22 janvier, sur 5
 . place de l'Hôtel-de-Ville. : te,
@@ -3236,7 +2978,6 @@ canons des fusils. Les lâches! pour tirer, ils se
 4 _ envoyais, des pruneaux... Je les entendais éclater, d'un
 Re. coup sec... Paf... Paf... Je n'ai foutu le camp que quand ee
 _ j'ai vu, par le quai, arriver Clément Thomas (1)avee
-4 la troupe. :
 _ Pendant que Petite parle, je me rappelle, moi aussi,
 ie ses bombes du 22 janvier. Il lui en était même resté.
 Le soir, à la brasserie Saint-Séverin, où nous avions
@@ -3258,7 +2999,6 @@ S (r) Clément Thomas, commandant en chef des gardes nationales
 p< de la Seine (4 novembre 1850). Arrêté à Montmartre le 18 mars, il
 É fut fusillé rue des Rosiers avec le général Lecomte.
 
-|
 quelques-uns de la Commune | #
 voir comme tout le monde se foutait à plat ventre 3
 derrière les tas. Dame! la peau avant tout. Ça se com- 3
@@ -3268,7 +3008,6 @@ aplati comme une punaise... Un commandant, mon
 vieux. Oui, un commandant... Avec une vareuse à longs
 poils et ses quatre galons d'argent cousus dessus... Je
 l'empoigne par la peau du... dos. Je lui fais faire demitour. Je le mets debout. $
-— Eh bien! Ah! non! Je ne sais pas si je dois te le +
 dire :
 Razoua s'était rapproché.
 — Eh bien! C'était. ù
@@ -3375,7 +3114,6 @@ voilà donc.
 — Il n'est ici que depuis cette nuit... Je te l'amènerai
 
 quelques-uns de la Commune "
-ce soir. Je l'ai vu ce matin avec Perrier... Ah! ce qu'il di
 Et Brunereau, en quelques mots, me dit la poignante 1
 histoire. Protot, jeté bas derrière les pavés, par une LP
 affreuse blessure à la joue... Porté à l'ambulance…. ; ;
@@ -3401,8 +3139,6 @@ porte, je traverse une autre chambre, puis une autre
 encore. J'ouvre une dernière porte. Suis-je donc halluciné? Le flambeau oscille dans ma main. Devant moi,
 pendus aux murs, des personnages revêtus de costumes,
 étincelants ou modestes. Des seigneurs aux pourpoints
-
-ni cc CEUX DE L'EXIL
 
 | brodés d'or, des femmes aux corsages plaqués de
 
@@ -3443,7 +3179,6 @@ c'est que je suis là, Quand je pars à la pêche, je le
 Le drapeau rouge de ce brave Miot ne blesse personne à Genève. Personne ne l'a, à coup sûr, remarqué.
 Nous, il nous remplit de joie... De la terrasse du café
 
-A  d clquesuns de la Commune Ses
 Perdu Nord, nous le voyons tressaillir au v nt, € omme
 s-Tautre, célui qui m'est plus. 77 Nr US
 à Le soir. Chez moi. Le couvert est mis sur là nappe DE
@@ -3486,8 +3221,6 @@ Mais si. Des brassards tricolores. Quelques-uns du
 moins... Nous sommes trabis..… Vite en arrière. Le
 cocher fouette son cheval. Nous l'avons échappé
 
-# belle.
-
 C'est Chardon.
 
 Les deux colosses — Protot et Chardon ont chacun
@@ -3503,8 +3236,6 @@ les joues de Protot.
 
 Le blessé soulève l'armature de toile, et, le doigt sur
 la joue gauche :
-
-— C'est là.
 
 Nous voyons la balafre qui coupe la joue, profonde,
 fraîche et rose encore.
@@ -3530,7 +3261,6 @@ remplacés par des vêtements civils. Transporté dans |
 une maison proche. À peine mes sauveurs avaient-ils, À
 avec moi, quitté l'ambulance, qu'un officier versaillais |
 arrivait. (Qu'avez-vous fait de l'homme que nous avons TES
-vu tomber? Nom de Dieu! C'était un membre de la ES
 Commune ! » Les infirmiers firent les ignorants. Ils À
 n'avaient rien vu... On me banda le visage... Constam- KL
 ment, le mari, mon sauveur, se tenait près du lit, simulant le médecin... Un jour, un piquet de soldats vint À
@@ -3581,8 +3311,6 @@ tire de sa poche un petit carnet, sur lequel il note à la
 bâte, au crayon, quelque impression. Il ferme son carnet, le remet en poche, le sort de nouveau, écrit autre
 — Un article pour Paris ?
 — Non. Une autobiographie. Mes mémoires, si vous
-— La Commune?
-— Non. Mon enfance.
 
 À * Ces notes sont pour Jacques Vingtras.
 
@@ -3595,7 +3323,6 @@ paru sur la scène des concerts organisés par la Commune aux Tuileries — pour
 
 journaux, a organisé une tournée en Suisse. Elle est à
 Lausanne depuis quelques jours. Le soir même, on joue
-x Horace — ou le Cid.
 
 Vallès nous raconte que n'ayant pas trouvé Agar chez
 elle, il l'a cherchée au théâtre. É
@@ -3636,7 +3363,6 @@ se heurtent et se soulèvent comme sur l'Océan. Le *
 bateau est en retard. Nous pointons la lorgnette sur à
 Ouchy. Pas de bateau. Une demi-heure, une heure. à
 Toujours pas de bateau. Un de nous descend jusqu'au :
-port. Il remonte : ;
 — Le bateau a eu beaucoup de peine à aborder à :
 Évian. Le capitaine n'a pas osé traverser. Bateau et
 passagers ne passeront le lac que demain matin.
@@ -3651,7 +3377,6 @@ Les gendarmes pouvaient monter à bord, se saisir des :
 deux passagers. Ils en avaient le droit. Le capitaine, |
 bon enfant, a brûlé la station. À
 Toute la nuit, ce sont des transes. Slom nous arrivera-t-il par le bateau du matin ?
-Le voilà !
 
 Notre ami a couché tranquillement dans une petite |
 
@@ -3690,7 +3415,6 @@ courageusement sa médecine (il mourut en 1888, assis-
 ; tant du docteur Bourneville à Bicêtre). Slom, déjà
 nommé, qui fait la navette entre Genève et Lausanne.
 Moi. Des amis viennent après diner. Emmanuel Delorme,
-le chansonnier. Un camarade de la Rue de Vallès (la
 petite quotidienne). Engagé comme franc-tireur, je l'ai
 rencontré, quelques jours après l'armistice, en costume
 de commandant, la casquette au quadruple galon d'or.
@@ -3731,7 +3455,6 @@ mais j'ai toujours l'enveloppe. Une grande enveloppe
 jaunie, jadis blanche, sur laquelle se détache un cachet
 timbré en noir. Dans l'ovale du cachet : « Canton de
 
-0 ceux DE Lex +. RER ET LS
 . Vaud. Affaire officielle. Préfecture de Lausanne. » Le
 timbre de la poste est daté du 20 novembre 18792 Se
 Nous ouvrons les enveloppes. Nous nous regar- Le
@@ -3753,7 +3476,6 @@ _ nous allons la plupart du temps à la bibliothèque.
 _ flocons. Le matin, avant de sortir, pour consolider nos
 _ semelles amincies par le long usage, nous fourrons
 _ dans nos souliers des journaux pliés et découpés. $
-| Nous partons. ;
 ù Quelques mois après notre expulsion du canton de
 Vaud, je transportais mes pénales à Altorf, où je restai
 | ” jusqu'en 1879, altaché à l'entreprise du percement du
@@ -3766,7 +3488,6 @@ Favre est absent. Je fais avertir le président, qui, fort
 
 quelques-uns de la Commune ;
 -  aimablement, m'invite à partager son déjeuner à l'hôtel
-de la Clef d'Or. ;
 
 Tout en déjeunant, je raconte à Cerésole mon expulsion de Lausanne. c
 
@@ -3796,12 +3517,9 @@ Et je pense au jour où, à Lausanne, pauvre oiseau de
 passage, je rembourrais mes souliers, bâillant à la |
 neige, avec des semelles taillées dans de vieux journaux.
 
-|
-
 ÿ Octobre 1874. Vermersch arrive ce soir. Voici une
 dizaine de jours qu'il a été expulsé de Belgique. Il s'est
 réfugié à Maëstricht, puis à Aix-la-Chapelle. C'est de
-là qu'il vient de me télégraphier.
 
 Trois heures. Au débarcadère du bateau à vapeur du
 lac des Quatre-Cantons, à Fluelen. Le bateau est en vue.
@@ -3810,9 +3528,6 @@ Vermersch depuis les derniers jours de la Commune. Je
 
 . me fais une fête de l'embrasser. Le bateau aborde. Le
 voilà, avec sa femme et son jeune enfant.
-| — Tes bagages?
-
-— Mes bagages ?
 
 Et il me présente, en riant, sa petite famille.
 
@@ -3838,8 +3553,6 @@ de Paris? LAN
 
 Tout le monde, bien entendu, à Altorf, sait que j'ai L
 été de la Commune. à
-
-: — Non. Il vient de Belgique. re
 
 Ma foi, je n'ai pas osé avouer au curé que son nou- :
 veau locataire était, lui aussi, un communard. À
@@ -3929,7 +3642,6 @@ Vermersch est le plus casanier des horimes. Tout le
 jour plongé dans son dictionnaire latin. I! traduit alors
 Juvénal, qu'il ne quitte que pour s'aticler à l'ingrate
 
-pape CEUX DE L'EXIL
  besogne qui lui permet de vivre. Il rédige presque en
 cE entier, pour l'éditeur Madre, de la rue du Croissant, le
 Grelot, journal hebdomadaire illustré. Quand il a fini
@@ -3965,8 +3677,6 @@ vieux jours. Facile à s'émécher, il se lève, frappe sur la
 — Vois-tu, mon vieux... Eh bien... On dira ce qu'on
 
 © quelques-uns de la Commune
-Has SE des PER RU TS Ne OR RTE CMS PU en. à
-voudra... Nos noms sont gravés sur le bronze de l''HisMu © TOITE.:: z Nas FUEL HP TTENNSERES
 Il se rassied, tirant de sa pipe d'énormes bouffées,
 _ frisant, d'un geste familier, sa moustache blonde € CHERS à
 __ .  Etles bons Suisses qui nous entourent regardent d'un AS à
@@ -3976,7 +3686,6 @@ en Pourquoi diable fait-il, ce soir-là, tant de tapage?... FE
 re _— Tu sais, me dit Vermersch une après-midi,
 a Lonclas (1) arrive demain. Que ASE
 FRE . Lonclas, le membre de la Commune du douzième. Je Dors
-a _ne J'ai pas connu à Paris. FREE us
 be Le lendemain, Vermersch m'amène un gros garçon, à
 l'allure réjouie. Il ne reste à Altorf que quelques jose À
 Il se rend à Vienne, pour affaires. Autant qu'il me sou
@@ -3995,8 +3704,6 @@ chez Wiget. RES ss
 sement), chef du 93° bataillon de la garde nationale. Membre de n À
 la commission militaire (16 mai). 4 ue
 
-RU Nos va
-EEE re ie nes CEUX DM AXIE “F7 0 Ne Le
 LE | Wiget, c'est la brasserie, le Schützengarten, où nous
 __ allons bavarder le soir. de
 SD ee En voyage donc pour la Furka. A Gœschenen, nous
@@ -4012,8 +3719,6 @@ _ des touffes de roses des Alpes, qu'il lie à son alpenstock, ;
 4 chanson de route du siège, la même que scandaient,
 p" rue de Belleville, ceux qui conduisirent les otages
 _ jusqu'au mur de la rue Haxo :
-s. ” Y a la goutte à boire là-bas,
-pe Y a la goutte à boire...
 3% ge Quoi! ce bon garçon, travailleur et joyeux, c'est ce
 à £. même Lonclas de qui les journaux ont dit mille
 “4 horreurs. Jusqu'à imprimer — cela a été reproduit dans

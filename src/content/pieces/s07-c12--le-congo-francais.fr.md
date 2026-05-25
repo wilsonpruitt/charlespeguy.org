@@ -7,18 +7,8 @@ author: felicien-challaye
 isAvertissement: false
 wordCount: 37565
 ---
-| EST SES LA Pots Me TRES
 ‘ce AU paraissant vingt fois par an 4
-| HATE
 8, rue de la Sorbonne, au rez-de-chaussée 4
-
-2e Fe ARE RE pe FE REN SE F2 Ver, me L'ART MEELETEER
-ï F0 Le 4 VRAI LEUT RENTE ne se
-tp'af 5 L ; PES
-ARLES n sg D Le TV ait
-
-\ÿ HR JAI \ ge" de PES À PR ETES } CON AR ex PACE PR
-| FREE ie 1 KA EN
 
 Fat Nous avons publié dans nos éditions antérieures et \”
 14 , dans nos cinq premières sérieS, 1900-1904, un S de ‘
@@ -67,17 +57,12 @@ NS personne qui s'abonne à la septième série, qui est la #
 … série en cours, le reçoit, par le fait même de son abonne- =,
 a ment, en tête de la série; nous l'envoyons contre un T8
 . mandat de un franc à toute personne qui nous en fait D:
-V la demande. A 3
 72 Pour la sixième série, année ouvrière 1904-1905, et de:
 N: en attendant que paraisse le catalogue analytique som- ‘2
 maire de nos deuxièmes cinq séries, 1904-1909, on pt
 peut consulter, — provisoirement, — la petite table Mt.
 _ analytique très sommaire que nous avons publiée en fin : 4
 _ de ce cahier index. F
-
-RARES": L ei L PR AA DÉUTE TE RTE CUT AT
-- 42 - E PAGE de ON RAT : LME ER ve
-de de À et. X HN MAS Son que 14 ER À
 
 cahier pour la publication î
 des décrets
@@ -114,8 +99,6 @@ que les territoires français demeurent territoires fran-
 çais, que les pays de la domination française demeurent
 pays de la domination française est en effet qu'en ter-
 
-| 7 i
-
 ni dti ‘Charles Pégoy 7 NAS
 4 ritoire français, en pays de domination française nous + TA
 hr pouvons introduire de la justice, de l'intelligence, de + ‘1
@@ -146,8 +129,6 @@ le Congo français
 
 Il ne faut pas que le Congo français 1
 devienne une nouvelle Mongalla. :
-#
-|
 [Samedi 10 février 1906. — Ce cahier formant ;
 témoignage, nous le publions exactement tel qu'il était :
 arrêté à sa date, avant la publication des décrets, 4
@@ -167,18 +148,13 @@ l'Université de Paris (Fondation Albert Kahn). — 4
 Pages 109-145 : L''Indo-Chine Française, par FÉLIGIEN, :
 Au Japon et en Extrême-Orient, par FÉLICIEN | |
 Et du même auteur aux Cahiers de la Quinzaine :.
-du
 n'est plus mis en vente que dans les collections complètes:de la troisième Série....:..........°...-4+ 00e
 - —  — la Russie vue de Vladivostock, journal
-DL EXpUISé. un. de 2e 04 M EE SORA ENST ,
 —  — impressions sur la vie japonaise.........
-un franc 147
 _— — Second courrier d'Indo-Chine, un france 205
 —  — impressions sur Java, — fragments de
 —  — la France vue de Laval..... deux francs 341
 
-| NES APE ARE UNE Ue ji ! Ê QE" ”
-Les derniers jours de M. de Brazza ÿ
 Le matin du 17 septembre, en arrivant à Santa-Cruz
 de Ténériffe, la Mission Brazza apprit, par un télégramme
 de Dakar, la mort de son chef. Ce brutal message nous ;
@@ -226,7 +202,6 @@ Pal habituelles pensées. A la table commune, où madame
 par une remarque inattendue, il orientait toujours la
 | discussion vers l'unique objet de ses réflexions et de ses
 | naire, ne laissant aucun répit à cette intelligence |
-| surmenée. |
 Une immense tristesse vint alourdir encore le poids |
 
 de toute cette fatigue physique et intellectuelle. M. de À
@@ -293,27 +268,10 @@ A bord du Maceio, qui nous ramène en France, les
 docteurs qui soignent M. de Brazza se taisent par dis-
 | 16
 
-| on :
-|
-| |
-il L
-|
-| |
-|
-.
-|
-
-|
 .
 
-s la it A
-| A ee F
-| CUS
+.
 
-: si de ÉRert
-| ms Le ne st Le CS
-
-Un a LE dis VMS PATENT L'APPATO NE RL ENT pi:
 crétion professionnelle; ils ne peuvent s'empêcher de
 à un réel danger. M. de Brazza nous a jadis conté, en
 riant, qu'il a été plusieurs fois condamné par les médecins et qu'il ne s'en porte pas plus mal. Une fois, parais- 4 is
@@ -346,7 +304,6 @@ M: à plusieurs reprises : « Il ne faut pas que le Congo ti
 Es unanimes à juger qu'il importe de soigner M. de Brazza 1
 4 en un grand hôpital, muni de tous les médicaments Me.
 4 nécessaires et de l'indispensable confort; ils décident 240
-ne Le PRE T8
 1% que M. de Brazza devra s'arrêter à l'hôpital de Dakar. 1110
 Vi Madame de Brazza et l'un des membres de la mission
 2 resteront près de lui. 178
@@ -370,9 +327,7 @@ W d'ardente lumière joyeuse, qu'on transporte à l'hôpital À il
 # d'une maigreur squelettique ; son visage est livide; ses A
 51 yeux sont fixes et vitreux ; sa barbe a poussé, inculte et A,
 LA blanchâtre. Le grand homme n'est plus qu'un cadavre NU
-ne A
 
-ie LES DERNIERS JOURS DE M. DE BRAZZA YA
 $ à _ encore un peu vivant... Étendu sur la civière, M. de 4 D
 Ds Brazza répond d'un geste vague au salut d'adieu des A
 Re membres de la mission. Au passage, je peux serrer, D:
@@ -396,16 +351,11 @@ fu de la justice. Son nom symbolisera, dans l'histoire du Du”
 gence psychologique, de sympathie et d'équité : la M:
 seule méthode coloniale qui puisse convenir à une ne -
 démocratie comme la nôtre, civilisatrice et libératrice. 1 k
-L pes
-| Î Ve:
-
-# A RS “UE és Lu ne
 
 Ru Pour arriver à résoudre les problèmes qui se posent 118
 Le actuellement au Congo Français, il faut étudier à part 0
 _ les trois groupes d'hommes qui s'y trouvent en pré- #
 ah sence : les indigènes, les commerçants, les fonction- 11
-ne paires. “'N
 14 Les indigènes du Congo Français AN
 a: Quelques remarques PUR. ne.
 4 psychologiques et sociologiques ne
@@ -432,7 +382,6 @@ taux et sanguinaires.. L
 cs 1 différences : il y a entre tous les noirs du Congo
 AE: assez de ressemblances pour qu'on puisse caractériser |
 hi. en termes généraux leur vie psychologique et leur vie
-#4 sociale. (1) ÿ Ve
 nav Les noirs du Congo appartiennent aux races ies ï
 Br plus primitives qu'il y ait au monde. L'influence du
 72 milieu et celle de l'hérédité expliquent que leur sensi- !
@@ -487,7 +436,6 @@ __  qu'ilse rappelle ce qu'il imagine, et se laisse prendre
 Ê _ de se représenter à l'avance ce qui sera. au
 | Ainsi l'exclusive sensation présente et le tyrannique }
 100 4
-ÊÈ Ne k e ya
 
 Don désir de la jouissance immédiate chassent de cespetites
 #7 âmes le souvenir du passé et l'attente de l'avenir. On
@@ -509,12 +457,10 @@ nie autres sentiments sont beaucoup plus fragiles : l'amitié { k
 1 crainte passagère. Trop souvent, le noir se montre dur 4
 ne: envers ceux qui n'appartiennent pas à sa famille, à son |
 7118 village, à sa tribu. Trop souvent, il confond bonté et ï
-RE à faiblesse. S'il manque de bienveillance, il a un assez À
 : 1 clair sentiment de ce qui est juste : &« Une punition F.
 NULL sévère, infligée à propos, ne provoque pas le ressenti- JA
 48 ment. Notre indigène en admet très volontiers le prin- l
 1 cipe, conforme à ses idées en matière de justice et |
-je fs. d'autorité. » (2) À
 L M Comme les autres sentiments de luxe, les sentiments
 © esthétiques sont peu développés. N'ayant pas d'écriture, ;
 
@@ -551,7 +497,6 @@ de peuplades, l'individu soupçonné d'avoir causé par
 
 ÿ ses maléfices la maladie ou la mort de quelqu'un doit 4
 ; boire un poison d'épreuve qui, selon la manière dont és
-| 25 Congo Français. — 2
 
 S il est supporté, révèle la culpabilité ou l'innocence, Il y |
 à a des féticheurs (nganga) qui préparent ces poisons
@@ -560,7 +505,6 @@ ne les maux de la vie, maladies ou accidents:ils indiquent
 ë à par quels moyens magiques on peut obtenir une belle
 #4 récolte ou une pêche abondante, éviter les voleurs, À
 - vaincre l'ennemi, rendre les femmes fécondes oufidèles….
-Ni Nul ne met en doute la puissance du féticheur. La
 ‘118 droite raison fait défaut à ces têtes mobiles, étourdies,
 4 3 versaltiles, tout à l'impression du moment et que préoc- é
 4 \ cupent seules les nécessités de l'existence. » (1) 3
@@ -582,7 +526,6 @@ x le christianisme, introduit au Congo dès le dix-septième
 La: ne doit aucune tradition à ses ancêtres; privé du
 12 (1) Docteur Cureau. Article cité. d de
 
-| LES INDIGÈNES DU CONGO FRANÇAIS di? 7
 secou de ceux qui l'environnent et de ceux qui l'ont à S J
 | précédé, il n'a aucune occasion de développer ses - 4 À
 … facultés intellectuelles et sentimentales. Réduit à sa T3
@@ -639,7 +582,6 @@ R la chicotte dont je me sers pour cravacher mon cheval. À
 À les chefs de villages, grands ou petits, imposent à leurs (
 : sujets leur domination. C'est par la force qu'un puissant
 4 tyran noir, comme Rabah, a jadis réussi à constituer un d
-ï vaste empire. ‘LE
 | De là trois phénomènes caractéristiques des sociétés
 
 : congolaises: la polygamie, l'esclavage, l''anthropophagie.
@@ -686,10 +628,6 @@ A Vesclavage. » Le Père Rémy, Le Catholicisme et la vapeur au centre RS
 
 R de VAfrique. Cité par Cousin, Concessions Congolaises (Chalamel, ps
 
-| 1901), page 7. dre
-Ce 29 Congo Français. — 2. +
-
-je Fee _ Félicien Challaye 1 ie MER
 a ‘ La plupart du temps, les esclaves n'avaient aucune ‘4
 pe. envie d'être libérés. Un ancien administrateur de
 : 28 ! Brazzaville m'a conté qu'un jour il voit arriver au poste  :
@@ -730,13 +668,9 @@ Fe oilà toute la différence! Il y a à peu près entre un noir : :
 
 LS ; | morale qu'entre un blanc carnivore et un bouddhiste 54
 
-| _ végétarien. ECS
-
 | Ne Au reste, toutes les tribus du Congo ne pratiquent "
 
 | ‘4 pas l'anthropophagie; et parmi celles qui la pratiquent, ne
-
-Mu il y a bien des différences à signaler. Le Pahouin ne de
 
 |. mange que l'ennemi tué à la guerre, et ‘c'est, paraît-il, dl
 
@@ -784,7 +718,6 @@ M ea jambes est gangrenée. Le docteur fait immédiatement |
 ‘ l'opération nécessaire. Alors les tirailleurs, montrant la 4
 £4 — Tu ne fais rien de cette viande? disent-ils au
 en docteur; donne-la-nous à manger. ‘ 4
-f < Le docteur, stupéfait : 4
 k 4 — Mais elle est pourrie, cette jambe; elle sent mau- 4
 ; : — Ça ne fait rien, on ne mange pas l'odeur. AR.
 ji A Le docteur essaye vainement d'expliquer aux tiraik M
@@ -806,9 +739,6 @@ Ke ; prétendre imposer immédiatement à des sauvages les * è
 
 9 1
 
-{ NT DOTE CAN NE k À HI de AM
-_ Le commerce et l'agriculture au Congo ï ü
-| ; 15 Les Compagnies concessionnaires Au à
 {T0 et la situation des indigènes M
 | D Le Congo Français possède des richesses naturelles #
 - considérables. C'est un pays chaud, —situé exactement à Fe
@@ -834,7 +764,6 @@ ae (1) Certains arbres et certaines herbes renferment aussi du caout- : |
 “30 Enfin le sol fertile du Gabon, couvert d'une PAL
 #8 couche d'hurus, chauffé d'un soleil ardent, arrosé de
 ie cultures riches comme celle des cacaoyers. :
-Lee En 1904, le caoutchouc représente 50 o/o et l'ivoire
 ci L 4x1 0/o des exportations du Moyen-Congo: n
 
 “ee Les autres exportations sont moins importantes : les ‘4
@@ -858,7 +787,6 @@ W 4 naturelles du Congo. La comparaison des chiffres d'ex- . Ni ,
 * est surtout appréciable au Moyen-Congo). L'ivoire passe i
 … 14.572 en 1904 (le progrès n'est sensible que dans la zone à
 . côtière). Le cacao exporté passe de 8 tonnes en 1897 à ï
-1 du Gabon. !
 a Si maintenant nous comparons l'ensemble des expor-
 “ tations dans les dix dernières années, nous les voyons #
 x croître régulièrement, passer de 4.700.000 tonnes en î
@@ -874,7 +802,6 @@ _._ valeur réelle des exportations du Congo Français, ;
 pa LC: En même temps que les exportations, les importations 1 k
 —. croissent aussi, d'un mouvement régulier, mais plus 4 ÿ
 | à en 1900, l'année de l'installation des Compagnies con- te
-| rs
 
 as commerce total a doublé en dix ans. Et l'année 1905 a
 a s'annonce encore plus favorable que l'année 1904. 4
@@ -905,7 +832,6 @@ TR buées à quelque grande Compagnie, il y a de petites
 : pe à Français peut être accordée, lorsque la superficie de cette concession
 AUS ne dépasse pas 10.000 hectares, par le Commissaire-Général du
 
-LE co MMERCE ET L'AGRICULTURE AU CONGO FRANÇAIS X fi À
 “Au . colons qui vivent et travaillent dans le pays même. Ils “
 ; | s'occupent à établir des plantations de cacaoyers, de à
 ‘_ vanilliers, d'arbres à caoutchouc. Cette création de de
@@ -943,7 +869,6 @@ la grande préoccupation des Pahouins, il a acheté des femmes aux #4
 ... mérce du boïs, et il s'est acquis ainsi leur obéissance, leur concours AN
 34 fidèle. — Un spectateur impartial me vante l'œuvre atcomplie au è À
 
-“YU 170) HE) REA 1e 1 F PONS Enr a dE fe. pa HAT RATES] ji LR
 ee avaient a exploiter la région côtière, lente- 4
 Te ment, peut-être, mais progressivément, avec méthode
 118 : La création des Compagnies concessionnaires, dé-
@@ -980,7 +905,6 @@ na production et de consommation... Ce qu'il faut redouter par dessus g
 R l'intervention de la force dans une œuvre préparée par la patience A
 W 1 ! et la douceur peut tout perdre d'un seul coup. » (Discours à
 : AR l'Assemblée extraordinaire de la Société de Géographie. Bulletin
-FER de la Société de Géographie, 1886, pages 82-83) Ê 4
 
 REX] loiter les richesses naturelles des colonies en général, Ù je *
 ï du Congo particulièrement. On travaille à répandre (TER
@@ -1019,7 +943,6 @@ dispensable de la faire accepter par l'opinion publique en présentant 1; FRS
 . tion financière, mais comme une entreprise d'intérêt général. » MAL
 Capitaine Renard, secrétaire général de l'Union congolaise, 4 + 3 » La Colonisation au Congo Français, page 3. (Paris, Kugelmann, Ve
 
-DO ne 0 en ere te NN De COUR
 $ l'œuvre d'un décret simple, sans aucun contrôle, sans #
 aucune intervention du Parlement, ni même du Conseil 4
 Ce projet scandaleux sacrifiait résolument les droits +4
@@ -1113,7 +1036,6 @@ TE 58, et H. Cuvillier-Fleury. La mise en valeur du Congo Français 3
 4 francs. L'indemnité était à la charge de la colonie, dont le gouver-* 1
 x neur s'était opposé à l'octroi de la concession. « L'opération était
 de lucrative pour le concessionnaire et désastreuse pour le budget de 1 » la colonie. » J. Lefébure, id., page 53. : 23
-où
 
 lui-même, soit par les grandes Compagnies privilégiées,
 véritables filiales de l'État. Pourquoi, au Congo Français,
@@ -1158,7 +1080,6 @@ primé, en fait, la liberté du commerce à l'intérieur de F
 13 suivit son exemple, pour qu'elle fût obligée de défendre
 | devant les autres nations la thèse juridique du Congo ;
 Belge, au cas où se réunirait une nouvelle conférence ;
-| internationale africaine. (1)
 ‘ En juillet 1898, M. Trouillot, successeur de M. Lebon, F
 nomme une Commission administrative des concessions,
 ñ pour étudier le mode de constitution des futures Compagnies concessionnaires.
@@ -1213,11 +1134,7 @@ tête d'éléphant domestiqué et entretenu. (Cahier des
 En échange de ces avantages, la Société est tenue à
 | verser, pour prix de la concession, une redevance fixe
 annuelle et quinze pour cent de ses bénéfices. (Décret,
-Ce 45 Congo Français. — 3.
 
-ni SE HIER RS pe D)
-
-ne | Félicien Challaye î Fe A FIRE
 ‘ : article 6) Elle doit déposer un cautionnement, (Décret, he
 ‘ article 18) Elle doit participer à la création des postes
 # de douane rendus nécessaires par ses opérations 4
@@ -1252,8 +1169,6 @@ de décret et du cahier des charges. Elles recommandent à 1
 j! l'administration de ne rien négliger pour faciliter la n.
 1 réussite des Compagnies et de traiter leurs agents À
 
-| LA du ale  Eat A AT PME SOMME RITER ji
-be LE COMMERCE ET L'AGRICULTURE AU CONGO FRANÇAIS ju
 __ « comme des collaborateurs qu'elle a le devoir d'aïder ui
 __ dans leur tâche ». (Paragraphe 4) Elles précisent ou 4
 ii ‘plutôt limitent les droits des tiers et ceux des indigènes. ti
@@ -1267,7 +1182,6 @@ Fi l'intérieur de la concession. (Paragraphes 7-8) Ils n'ont \
 _ pas le droit non plus de s'approprier d'une manière ah.
 L, détournée les produits de la concession en les faisant ‘HN
 A. cueillir par les indigènes. (Paragraphe 9) — Quant aux a
-| 210 SE . . . Ps
 ne indigènes ils ont droit aux superficies qui leur sont ) ja
 de nécessaires pour les cultures vivrières correspondant ne
 | = aux besoins de leur alimentation; à une certaine étendue 1 VU
@@ -1300,7 +1214,6 @@ Pur quarante concessions congolaises. Leur domaine varie
 les deux concessions antérieurement accordées, (celle du ;
 Kouilou-Niari et celle du Haut-Ogôoué), on constate que
 les dix-neuf vingtièmes de la colonie ont été con-
-| cédés. (2)
 Ce furent surtout des capitaux belges qui alimenterritoire de ces réserves, 1/10 sera considéré comme nécessaire à
 l'édification des villages, 3/10 seront destinés aux cultures vivrières
 et aux pâturages, 6/10 seront des portions de forêts que les indigènes pourront exploiter. Les indigènes disposeront désormais
@@ -1322,10 +1235,7 @@ contre cet arrêté et se sont pourvues devant le Conseil d'Etat.
 concessionnaires, la superficie concédée, le capital minimum, les
 (2) J. Lefébure. Le régime des Concessions au Congo, page 73.
 | 48
-|
-| ÿ)
 
-|. eS Nr COMMERCE ET L'AGRICULTURE AU CONGO FRANÇAIS ;
 4 tèrent les Sociétés concessionnaires du Congo Frans h .
 FL La création de ces Compagnies donna lieu à des spé-
 culations effrénées. Les promoteurs de plusieurs de ces .
@@ -1358,13 +1268,11 @@ Nombreux exemples cités par J. Lefébure. Le régime des Concesj sions au Congo
 : (3) La Compagnie franco-congolaise de la Sangha; la Compagnie
 coloniale du Gabon (substituée à la Société du Bas-Ogôoué); la
 gi} Compagnie française de lOubangui-Ombella; la Société de
-le:
 
 k et administrées, dépensant une trop grande partie de ne:
 “14 commencent à réussir, leur succès actuel présage de k
 ne gros bénéfices pour l'avenir. (2) 1
 
-#1 A
 ‘ ! Que penser de l'expérience faite au Congo? Quels h
 ui sont les avantages, quels sont les dangers du régime Li
 
@@ -1387,8 +1295,6 @@ _ 20 Sociétés perdent 1.195.000 francs, soit un excédent de bénéfices de
 ‘ER 1.720.000 francs (environ 5 0/o du capital engagé, 35.000.000 de francs).
 
 J'AI Les intéressés prévoient pour 1905 un excédent de bénéfices de plus k
-
-ni de 3.000.000. (Discours de M. du Vivier de Streel à la Société d'éco-
 
 54 _  nomie industrielle et commerciale. Dépêche Coloniale (4 décembre \
 
@@ -1467,8 +1373,6 @@ L'Acte de Berlin, — traité conclu à la suite d'une
 (1) La Société du Haut-Ogôoué dès 1899; la Compagnie du Congo
 (2) Capitaine Renard. La colonisation au Congo Français, page 29.
 
-| L
-
 ' toutes les puissances intéressées à maintenir une
 absolue liberté commerciale à l'intérieur du bassin du
 Congo (article 1). L'article 5 de ce traité prescrit qu' « il
@@ -1510,7 +1414,6 @@ he commerçant. Le monopole des Compagnies concession- 1
 4 _ ‘un monopole de commerce. La liberté du commerce F
 # subsiste : il n'y a pas de droits différentiels à 1
 GA entrée ou a sortie, selon la nationalité du commer- L
-Het l'entré à 1 ti lon 1 t lité d
 1 £ çant. Nationaux et étrangers gardent le droït d'importer #
 É _ leurs marchandises et d'acheter aux indigènes les pro- b|
 +4 duits de leur travail. (1) 4
@@ -1538,7 +1441,6 @@ ER concessions au Congo, pages 247 et suivantes. H. Cuvillier-Fleury.
 Le: + La mise en valeur du Congo Français, pages 194 et suivantes. È
 > LEUR (2) La thèse a été soutenue surtout par E.-D. Morel, en partieu- 1
 k D lier dans un livre The british case in french Congo et dans de Ê
-“AQU LH ni
 
 _ Une nouvelle conférence internationale africaine, si ‘2
 _ elle se réunissait, (1) comment résoudrait-elle le pro- de
@@ -1557,7 +1459,6 @@ LÉ Le grave danger national résultant des difficultés à
 5 régime des grandes concessions à l'intérieur du bassin |
 À conventionnel du Congo, n'est pas compensé par les s
 à minces bénéfices que retirent, de ce régime, le com- ÿ'
-h. merce et l'industrie de la métropole. h'
 Es Au point de vue économique, c'est un autre danger : à ni
 jt les Compagnies concessionnaires, au lieu d'accroître les
 { richesses du pays, les diminuent peu à peu, finiront par
@@ -1646,7 +1547,6 @@ caoutchouc, et le prix de cette matière première croît tous les
 jours. Pour wen citer qu'un exemple, la sorte du Congo Belge,
 dite Kasaï rouge, qui valait8 francs le kilogramme en 1902, atteint
 
-ET _ Félicien Challaye fs RATER D
 DA" La conséquence fatale, c'est l'épuisement intensif du |
 pays. Il n'est pas étonnant que les exportations de |
 _: caoutchouc et d'ivoire croissent, que le commerce soit 1
@@ -1659,7 +1559,6 @@ Dan: _ que les Compagnies concessionnaires méritent les plus 1
 ni Let vives critiques. Rémunérant trop mal le travail des ‘à
 41 noirs, elles ne peuvent compter sur leur coopération 3
 VA volontaire; elles sont conduites ainsi à employer la (
-TS menace ou la violence. À
 1 Dans les pays jouissant d'une absolue liberté com- 4
 11e merciale, la concurrence qui s'établit entre les commer- n
 ‘ER çants européens les oblige à acheter à un prix relati- 4
@@ -1675,16 +1574,13 @@ V0 créer des plantations. Le Mouvement Géographique de Bruxelles, 4
 ï A _ dans son dernier numéro, montre les éfforts heureux du gouver- H'
 ES | nement léopoldien dans ses possessions du Congo. Grâce à une }
 on action énergique exercée sur ses fonctionnaires et sur les Sociétés :
-el concessionnaires et à un système d'amendes draconiennes, il a D
 À fait planter, en quelques années, 12.500.000 pieds de caoutchouc ». \
 4 REQE En revanche « dans notre Congo, les plantations de caoutchoue à
 ANA réstent très insuflisantes ». (Temps, 33 janvier 1906)
-Re 1 “ () « Je me rappelle qu'en 1890, à la côte occidentale d'Afrique, le 4
 FAAUS caoutchouc s'obtenait au moyen du troc, c'est-à-dire que l'on don- 1:
 1114 1 nait au noir, en'échange d'un kilogramme de très beau caout- At
 44 choue, 2 francs 5o en marchandises comptées à environ 300 o/o du 1
 
-| LE COMMERCE ET L'AGRICULTURE AU CONGO FRANÇAIS 1
 le monopole de l'achat des produits du sol, fixent elles- Qt
 . mêmes, aussi bas que possible, le prix du caoutchouc 4
 qu'elles achètent. Considérant que le latex leur appar- : FA
@@ -1718,8 +1614,6 @@ A nécessaire à la récolte du caoutchouc; mais elles supposent le
 les bêtes fauves. Ce sont ces circonstances extérieures qui rendent
 souvent pénible la récolte du caoutchouc.
 
-ET en NT EP SDS RER RESTE ES DIET ESA
-
 ; considérer comme une sorte de monnaie, — est évalué
 k, au moins à 5 francs le kilogramme, alors qu'il revient à |
 ner 1 franc ou 1 franc 25, frais de transport compris (une
@@ -1734,7 +1628,6 @@ x Ainsi, en échange de caoutchouc, évalué à un prix 1
 Ke concessions est le plus sérieux obstacle au développe- £
 4 : ment normal de ces races inférieures. Le bien-être et le |
 je progrès des indigènes sont intimement liés à la liberté 1
-t du commerce. (1) |
 À Sauf circonstances exceptionnelles, (2) les Compagnies |
 ne peuvent compter sur le travail volontaire des noirs. à
 à ) ( ») C'est la thèse constamment soutenue, dans ses livres et ses
@@ -1755,7 +1648,6 @@ Li sérieuse de travailler. Ils sentent d'autant plus vivement (voir la |
 - note précédente) la différence entre le régime d'autrefois (com- d
 A merce libre) et le régime d'aujourd'hui (concessions). — La Société |
 
-| LE COMMERCE ET L'AGRICULTURE AU CONGO FRANÇAIS Î
 y Aussi ont-elles, dès l'origine, réclamé à grands cris le $
 À droit de forcer les indigènes à travailler pour elles. x
 ] Ayant reçu en concession les produits du sol, elles \
@@ -1787,11 +1679,7 @@ Ki (2) Quand elles s'adressent au grand public, les Compagnies
 + de l'Union Congolaise, général Leplus, écrit à la Revue de Paris
 ® (= janvier 1906): « Nous n'avons à notre disposition d'autres
 # moyens que la douceur et la persuasion ; nous n'en souhaitons point
-# < 61 Congo Français, — 4
 
-: A Fa NE OR fe} ri LE { v
-KE YOANN ET EE pr Val DAT Lan (NL ELA DT Er ca br AA 27
-à Ÿ A .  Félicien Ghallaye FAN PAR Li
 A He ï « puissent « continuer ces pratiques » (page 60), c'està-dire Æ at
 15 constituer à leur profit une nouvelle forme d'esclavage.
 _ Et il ajoute : « Si le mot esclave choque et paraît mal- L
@@ -1817,15 +1705,11 @@ LL je f. _ exigerait'un travail continu dont le maître noir n'a pas
 21 de l'esclavage américain. — Si le travail volontaire est 4
 KE: un principe de moralité, le travail imposé n'améliore |
 Hi) pas l'individu; la servitude l'avilit. — A supposer que 4
-L'atee és À è SAS {
 + sp l'Etat doive exercer une pression sur les indigènes pour {
 a à () Cité par H. Cuvillier-Fleury. La mise en valeur du Congo M)
 Da Français, page 235. Cf. J. Lefébure, Le régime des concessions au |
 10 Congo, page 103 : autre lettre de concessionnaire. ‘|
-à A ‘ + el k L és PRE
 
-| A En PA A AE MR AA ALT I Va SA
-TIR f ŒETAU vus TA
 _ | les amener à travailler, le travail auquel il les contrain- 1
 ke . Grait devrait, en bonne justice, leur permettre de mieux KE:
 | cp _ satisfaire leurs besoins, (1) et non pas servir seulement nn
@@ -1859,7 +1743,6 @@ un grand nombre d'indigènes demandant à être engagés par elle. À
 de # (4) Jexpliquerai plus bas comment l'organisation de l'impôt et
 pe Surtout le récent projet imaginé par l'administration actuelle du
 Wa __ Congo réalisent une partie des désirs des Compagnies conces- |
-hé L
 
 ni agents, — procès où l'agent fut acquitté et la Compa-
 | gnie condamnée à mille francs de dommages-intérêts L
@@ -1966,12 +1849,10 @@ AE ST " (2) Les Compagnies concessionnaires ont essayé de soutenir que …
 Fr CH ces révoltes ont été provoquées par les exigences de l'Etat récla- |
 “3ie QUE mant limpôt. L'Etat a bien des torts envers les indigènes (voir .
 Dent. lus loin le chapitre sur l'administration) : mais sur ce point il est
-RE Ve p sa
 FCNSANIAN innocent. Les révoltes les plus graves éclatèrent précisément dans |
 ATL je les régions où l'Etat n'avait jamais cherché à prélever limpôt, M
 À ES Bt! Haute-N'Gounié, Ibenga, Lobaye. La région de la Lobaÿe, où ilya, M
 " Fe dit-on, 800.000 indigènes, n'a pas un seul poste administratif, Cest »
-LE SALE n UE, D! 1 { \ n y PAL TN tré cu ñ
 
 L: 5 un agent blanc de Compagnie concessionnaire razzie Bt:
 des hommes, qu'il relâche ensuite contre une certaine Me:
@@ -1985,7 +1866,6 @@ KA Au Moyen-Congo, une révolte éclate dans la région de js
 HA la Sangha, dès 1902, tout de suite après l'installation “4
 « 5 des Sociétés. Récemment les indigènes de la région de gi
 # l'Ibenga, tyrannisés par quatre agents blancs de Com- aËs
-4 ga; t} par qu g AS
 Li J d'eux, tuent tout de suite les deux employés subalternes ÿ
 bte qui leur ont fait le moins de mal, supplicient les deux Ÿ
 Ai autres avant de les tuer, puis mangent les quatre ;
@@ -2002,13 +1882,10 @@ Ke Compagnie. Les Européens qui ont été ensuite réprimer G
 Lt “la Compagnie concessionnaire qui administre le pays, sans aucun 1
 À à contrôle de l'Etat! Son directeur en Afrique est un Belge, ancien
 lt agent de la force publique de l'Etat Indépendant, employé anté-
-Li: L ploy
 l'E rieurement par la Société l'Abir, célèbre par ses cruautés.
-ÿe L
 
 HE des indigènes les crânes de ces traitants remplis de È
 n boules de caoutchouc. Saisissant symbole, exprimant )
-| y > EXP À
 À bien l'unique cause de ces barbares et justes révoltes!
 se L'étude des Compagnies concessionnaires montre que 4
 q les avantages de ce régime sont plus apparents que
@@ -2018,13 +1895,11 @@ ke de vue international, au point de vue économique, au
 } point de vue de la politique indigène, cette méthode de ù
 7: colonisation est dangereuse. — Quelles conclusions s
 4 ; pratiques tirer de ces constatations ? 6 }
-ï# Certes on aurait le droit de souhaiter qu'au nom de la à
 à Justice, supérieure à la loi, l'Etat puisse rompre immé- i
 4 diatement les contrats injustes qui le lient aux Com- 4
 à pagnies, supprimer leur monopole, rétablir l'absolue
 liberté du commerce. Mais pour agir sur le réel, il faut K
 £ tenir compte de tout le réel : c'est un fait que notre à
-# : . 2 : J
 £ conscience publique n'est pas encore assez révolution- |
 ; naire pour admettre cette solution simple, définitive et à
 à parfaite. Au point de vue légal actuel, l'Etat ne pourrait !
@@ -2139,9 +2014,7 @@ la raison pour laquelle la plupart d'entre elles s'opposent au
 des Compagnies, l'Etat les oblige à payer le caoutchouc, — ou, si f
 _ l'on veut, le travail nécessaire à sa récolte, — un prix minimum
 fixé par lui.
-pr ne
 
-11 : Félicien Challaye L
 ‘4 résultent de l'acte de Berlin. I suflirait que des instruc-
 ( tions ministérielles nouvelles modifiassent les instruc14 tions de M. Guillaïn, interdisant aux tiers (en dépit de
 ; 44 toute justice) d'établir des factoreries sur les terrains
@@ -2176,9 +2049,7 @@ réaliser cette réforme. Elle a vainement cherché à obtenir de
 1% la bonne volonté des Compagnies le paiement en argent. Elle a
 Y été jusqu'à leur promettre, pour leur éviter toute perte, de prendre
 | 72
-|
 
-7 PARTS ATRUSE TA pain 7 ne à Chpt 1 las AM: PURE" PI DANCE 4 14
 …. Enfin, il faut que l'administration surveille de près 5
 _Jes Compagnies pour les empêcher d'avoir recours à la 11
 violence, pour les obliger à commercer honnêtement. È
@@ -2213,7 +2084,6 @@ _ de commerce.
 “… la colonie, ni à l'Etat, en raison des dommages qu'ils pourraient
 4 éventuellement éprouver par le fait, soit de l'insécurité du pays,
 % soit de l'émeute ou de la révolte des indigènes. » (Article 29)
-Et 73 Congo Français. — 5
 
 EN puissante; ils craignent d'être à leur tour victimes de
 AD pareilles disgrâces. Cette crainte les paralyse; elle les 7
@@ -2221,35 +2091,26 @@ AD pareilles disgrâces. Cette crainte les paralyse; elle les 7
 _ le gouvernement de la métropole, échappant à dehon7 __ teuses influences, réveille le courage de fonctionnaires …
 } ne trop timorés, manifeste énergiquement sa volonté de
 aus 5e mettre fin à un régime d'injuste monopole et de tyran-
-| 5 nique violence. À
 pue Surtout, de la faute commise au Congo, tirons une
 Mere leçon pour l'avenir. Les Compagnies privilégiées de
 11e colonisation méritent d'être enfin et pour toujours con10 damnées. C'est une expérience manquée, à ne recomAIRE mencer jamais, nulle part. f
 
-Re de F
-
 _ Tablea des Compagnies concessionnaires À
-| à AV ' X ë
 
 C4 1 | Ritaine-Descamps .............. | Société de l'Afrique Française ......
 Li ea 2 | Tréchot frères .................. | Compagnie Française du Haut-Congovf) 3 | Gimmig et Campagne .......... | Compagnie de la Sangha.......... En
 Le" 6 | Nouzaret........................ | Société Commerciale et Agricole ac
 "À 7 | Nicol Bernain................... | Société de l'Afrique Equatoriale...
-| nier ........................... | Compagnie des Caoutchoucs et prod
 We FOUDRE PERRET Société de la Haute-Sangha.........
 12 | Faure et Boutelleau, Desbrières | Compagnie française du Congo. :...s
 ÿ 13 | Jacta-Decourcelles. ............. | Société Agricole et Commerciale de pe:
 15 | Siegfried, Baverat, Mollier et
-| Dessorbs. secs. | SOCIéL6 CE TIRER RUE
 (1) J'emprunte ce tableau à l'ouvrage de M. Lefébure : Le régime des concessio
 
-| Ÿ
 : 23 | Vergnes, Lindeboom et de De- {
 lignau......................... | Compagnie Française du Congo Occid
 # 26 Ve pro Française du Congo L4 et des Colonies Africaines ... | Compagnie Commerciale de Colonis
-et'Génestal.:: 472... LRO AU RER ER |
 30 | De Brancion, Seguin et Mont- ) È |
-| 32 | Normandin..….................... | Société de la Mambéré Sangha…
 33 | Bouvier........,................ | Compagnie Agricole, Industrielle et
 34 | Société du Bas-Ogôoué......... | Société Agricole et Commerciale @
 Mo Bareneti: ie dists tu à Compagnie du Littoral Beviic). CR
@@ -2257,8 +2118,6 @@ F 36 | Mimerel, Paquier, Kunkler..... | Compagnie de la N'Goko Ouesso...:
 33 | Bouchard, Couvreux, Watel,ete. | Sultanats du Haut-Oubangui........ 4 1"
 | 39 | Laroche-Robin.................. | Compagnie Française de l'Oubangui-On » | 4o | Flachon, mandataire de de |
 ‘3 Béhagle....................... | Compagnie Française de l''Ouahmé et di
-
-TERRITOIRE CONCÉDÉ en MINIMUM Tr TES
 
 | -.1
 L'administration et la politique indigène à
@@ -2283,7 +2142,6 @@ ambition qui n'est pas sans grandeur, ni même sans 1
 quelque vaillance : désireuse d'éblouir la métropole par K
 ù de brillants résultats obtenus en peu d'années, l'admi- ;
 
-| L'ADMINISTRATION ET LA POLITIQUE INDIGÈNE
 | nistration congolaise n'a pas osé lui avouer toutes les L
 difficultés de sa tâche; elle a hésité à confesser cette
 vérité décevante, — qu'il faut se décider à proclamer |
@@ -2294,7 +2152,6 @@ ménage l'avenir, — sol et main-d'œuvre, —) ne pourra
 se développer que très lentement. Comme le dit l'un des
 hommes qui ont le plus intelligemment écrit sur les
 centrale, ce n'est pas le lièvre qui remporte le prix, c'est
-| la tortue. » (1)
 , Essayons de caractériser l'administration du Congo,
 en insistant sur ce qui est à réformer plutôt que sur ce ;
 qui est à conserver, — de même que le médecin étudie
@@ -2342,8 +2199,6 @@ régime douanier du bassin conventionnel, établi par lacte de
 Berlin. La région de la Haute-Sangha est rattachée au Moyen- 4
 Congo et non à l'Oubangui-Chari, parce que les communications !
 sont plus faciles et directes.
-| 82 |
-|
 
 dent à Brazzaville; de juin 1904 à juin 1905, en un an,
 sept chefs de poste se succèdent à Cap-Lopez. Impos- |
@@ -2361,8 +2216,6 @@ Il faut absolument accroître l'autonomie des quatre
 (1) M. de Brazza a toujours insisté sur la nécessité de maintenir
 l'influence continue des mêmes hommes dans les mêmes régions.
 
-- Il disait dès 1886 :
-
 « L'influence personnelle est grande maîtresse en ces questions ;
 aussi, à des influences changeantes et variées il faudra préférer
 Paction continue et persistante des mêmes hommes qui conduit à
@@ -2372,11 +2225,6 @@ temps personnifient en ceux qu'elles connaissent l'idée vague du
 pays lointain dont on leur parle. Voilà pourquoi il faudrait, autant
 que possible, les mêmes/volontés à la même tâche, sur les mêmes
 lieux, les mêmes dévouements aux mêmes intérêts. Faute de similitude dans les procédés dont on use envers eux, les indigènes
-perdent rapidement confiance, et de la méfiance à la peur et à la
-
-h méchanceté, il n'y a qu'un pas. » (Bulletin de la Société de Géogra- ï
-
-| phie, 1886, n°° 2-3, page 83)
 
 | (2) Dans une lettre à un ami, publiée par Le Temps (23 septembre
 1905), M. de Brazza se plaint des entraves apportées à son enquête
@@ -2421,7 +2269,6 @@ qualité, dans tous les services, administration, travaux 4
 publics, postes, douanes, etc. En mai 1905, il y a 101 {
 | fonctionnaires civils dans tout le Moyen-Congo, dont )
 54 à Brazzaville, 12 à Loango et 1 au Congo Belge; il 4
-|
 
 ne reste que 34 agents pour 31 postes. (1) Il en résulte |
 qu'il y a dans bien des postes un seul blanc; que des S
@@ -2446,7 +2293,6 @@ des détachements de gardes régionaux encadrés
 Longtemps la situation financière de la colonie a été
 déplorable. Le Congo devait subvenir à l'entretien de
 missions d'exploration ou de conquête étendant vers le
-Tchad ou vers le Nil le domaine de la France. De là
 nécessairement des troubles dans les finances d'un pays
 
 Q) Il y a dans le Moyen-Congo, seulement trois médecins, sept « fonctionnaires des travaux publics, etc.
@@ -2476,12 +2322,10 @@ par une commission des mercuriales : pour le « bassin À
 conventionnel », elle est déterminée une fois pour toutes *
 par le protocole de Lisbonne (1892); la valeur officielle Ki
 est bien inférieure à la valeur réelle (4 francs le kilo- {
-#.
 (1) Au 1* janvier 1904, la totalisation des livrets de solde permit !
 de constater que la colonie (Gabon et Congo) avait à payer envi- Ÿ
 ron 200.000 francs. Il y avait des gardes régionaux qui n'avaient
 pas été payés depuis 1893! L
-(2) Actuellement 700.000 francs. L
 
 gramme de caoutchouc, alors qu'il vaut de 8 à 10 francs).
 Ces droits de douane produisent des ressources croissantes, par suite du développement du commerce :
@@ -2535,8 +2379,6 @@ Bangui, etc.), et ports de la côte (carte, balisage, a"
 wharfs, flottille). Ensuite, viendra l'établissement de (
 à lignes télégraphiques (de Brazzaville à Bangui, puis à 1
 Fort-Sibut et Fort-Lamy). Enfin, en dernier lieu, au
-
->) _ L'ADMINISTRATION ET LA POLITIQUE INDIGÈNE
 
 point de vue de l'urgence, on peut placer la construction ;
 | d'un chemin de fer Gabon-Congo, si les études actuelle-
@@ -2603,7 +2445,6 @@ chemin de fer que si les Compagnies qui l'utiliseront, contribuent,
 
 pour la plus large part, aux frais d'établissement. |
 
-| Félicien Challaye 2 f
 | Qu''a-t-on fait pour les indigènes ? Qu''a-t-on fait des #
 indigènes ? Quels services leur avons-nous rendus ? É
 Quelles charges leur avons-nous imposées ? à
@@ -2701,7 +2542,6 @@ ARE obligeant l'employeur à soigner gratuitement l'employé en cas de L
 :N leurs. Les Bakongos, employés à installer la ligne télégraphique
 ER! Bangui-Impfondo, touchent o franc 35 centimes par jour pour
 & indemnité de vivres (en un pays très pauvre), et ne reçoivent
-ñ aucun salaire. L.
 Pur (2) Il est possible même que l'état sanitaire des indigènes ait
 ne empiré depuis l'arrivée des blancs. L'alcoolisme et la syphilis ‘4
 + détruisent les populations de la côte. Nos exigences aussi troublent
@@ -2744,10 +2584,8 @@ instruction religieuse; les travaux manuels accomplis par les
 élèves ont moins pour objet de leur apprendre un métier que de
 contribuer à la prospérité matérielle de la mission.
 
-| Félicien Challaye ds
 | paiement de certains impôts, et, dans bien des régions, 1
 l'exécution de certaines corvées, pagayage ou portage ‘7
-obligatoire. L
 4 Il y a des impôts qui sont à la fois ridicules et vexa- 4
 toires. Les seules distractions des indigènes, ce sont les ‘4
 danses collectives qu'on appelle là-bas des tam-tams.
@@ -2814,12 +2652,10 @@ Colonies. (Lefébure. Le régime des Concessions an Congo, page 134)
 (4) Ils varient de un franc le kilogramme (Oubangui-Chari) à
 trois francs le kilogramme (Loango). Le kilogramme de caoutchouc vaut en Europe de huit à dix francs au moins.
 
-F Félicien Challaye ENT ONU l
 Ë vainqueur, s'étonnent d'être obligés de la payer chaque 1
 | année. Ils ne conçoivent pas la nécessité de contribuer À
 j aux dépenses de l'État : comment la comprendraient- 1
 518 ils, puisque l'État ne leur rend aucun service appré- ï
-| ciable ? :
 14 L'impôt de capitation est perçu très irrégulièrement : |
 l ici c'est seulement les hommes adultes qui le païent, là
 ï à les hommes et femmes adultes, ailleurs tous les habi- 1
@@ -2875,8 +2711,6 @@ un monstrueux drame. En avril 1904, un administrateur, i
 cette-phrase d'une bassesse révoltante : « Ma décision, je vous la
 donne : faire mon possible pour faire de limpôt, ce qui est mon
 
-D tv L ni pe %, | & EMI EU AU ie RUE sl \
-# Félicien Challaye TANT TINNE
 Nr Ce commis, accompagné d'un agent de la Compagnie
 se concessionnaire, (1) fait enlever, dans deux villages mau- ‘4
 4 vais payeurs, 68 otages, dont 58 femmes et 10 enfants. 1
@@ -2941,7 +2775,6 @@ qui les ont violées. i
 Comme si ces horreurs ne suffisaient pas, la haute
 administration élabore un nouveau projet d'impôt,
 
-L ' Félicien Challaye NV
 Le destiné à faire peser sur les indigènes une tyrannie ÿ
 + P Y 4 » encore plus lourde. Elle propose de confier aux Compa- j
 4 gnies concessionnaires elles-mêmes le soin de lever,
@@ -2962,8 +2795,6 @@ a une certaine quantité de ces racines pour s'acquitter de ;
 n d'étendre cette méthode de perception à toute la co- 4
 I On comprend la raison secrète, le but caché d'un ï
 | pareil projet. Les noirs du Congo ne se font aucune {
-je L
-l'E ARE RC TES PEER nv
 À É " (1) M. Gustave Rouanet voit dans cette mesure un effort « pour |
 favoriser les intérêts de M. William Guynet, membre du Conseil Ni
 1 supérieur des Colonies, où il représente le Congo ». (L'Humanité, l
@@ -2998,7 +2829,6 @@ exploitait à mon encontre l'équivoque posée par M. Gentil.
 _ adressée à ce sujet au Ministre; mais en réalité, on les contrai- £
 gnait à apporter de lPécorce d'herbe et on avait négligé de leur
 parler de cette liberté. » (Lettre de M. de Brazza, 24 août 1905.
-Temps, 23 septembre 1905)
 (1) Les Compagnies disent que l'avantage de cette méthode serait ÿ
 que les indigènes payeraient l'impôt sans le savoir. Supposez qu'un
 indigène récolte 5 kilogrammes de caoutchouc par an : actuellement il verse à l'Etat (pour l'impôt de 3 francs) 3 kilogrammes de
@@ -3039,20 +2869,16 @@ F « Je rentre avec le sentiment que l'envoi de ma mission était.
 ss nécessaire. Autrement, dans un laps de temps court, nous aurions
 4 eu des scandales pires que ceux de l'Abir et de la Mongalla belges.
 11 4 Nous en avions pris carrément le chemin. » (Lettre du 24 août 1905.
-At. — Temps, 23 septembre 1905) È
 it (3) Par exemple les pagayeurs, sur la Tomi, de Fort-de-Possel à
 Lee Fort-Sibut, reçoivent pour salaire o franc 50 par jour à la montée,
 1 Ÿ o franc 25 à la descente, soit 6 francs 5o par homme pour un”
 
 ñ voyage de 15 jours. là
 
-LA ni NAGER
-
 aller de l'un à l'autre de ces bassins. On est obligé de q
 faire passer par là les vivres et les munitions destinés k
 aux troupes du Tchad, qui protègent la colonie contre k
 les attaques et les razzias de belliqueuses populations :
-musulmanes. (r) Or, il n'y a dans le pays ni bêtes de l
 
 à somme, ni moyens mécaniques de transport. Tous les ÿ
 
@@ -3146,7 +2972,6 @@ de nouvelles souffrances, s'ajoutant aux souffrances 4
 : L'administration est toujours obligée de réquisitionner |
 des porteurs dans cette région presque dépeuplée. (2) A ei
 la suite du scandale provoqué par l'affaire Toqué-Gaud, |
-(1) Les instructions ministérielles de M. Clémentel à M. de à
 Brazza portent : « J'ai décidé, d'accord avec M. le Commissaire- de
 Général, que le portage, élément perpétuel de trouble parmi ces à
 populations indigènes, serait immédiatement et radicalement
@@ -3183,7 +3008,6 @@ e' aucun service, les accable d'impôts et de corvées. Au F.
 ) alors qu'autrefois les indigènes y formaient des groupe- M
 y ments nombreux. Des régions, que les premiers explorad teurs nous ont décrites peuplées et fertiles, sont devenues 4
 1 À des déserts. Ÿ
-1 ; Il y a là un immense danger. Au Congo, le climat M
 4 interdit tout travail manuel aux Européens; aucune
 l, œuvre durable ne pourra se faire que par la coopération À
 j volontaire des noirs. Dans l'intérêt de la Colonie elle-
@@ -3306,11 +3130,7 @@ Li Vadministration se charge d'assurer ses transports, à un prix fixé dl
 Fe son transit s'élèvera à 120 tonnes. Les transports de l'administra- EU
 si tion s'élèvent à 30 tonnes. Ce serait au moins 150 tonnes, soit EUR?
 LV 4S 6.000 charges, qui continueront à passer par la voie du portage LT
-_ obligatoire. LE
 
-# 109 Congo Français. — 7 MT
-
-br j Félicien Challaye LA
 ie traînées par les chevaux qu'on trouve en abondanceet
 “a à bas prix dans la région du Tchad.(1) C'est là unedes
 # œuvres urgentes auxquelles la colonie doit, avant toute
@@ -3346,10 +3166,7 @@ fr L'administrateur de Fort-Crampel estime qu'on trouverait sur place
 ; un nombre suflisant de porteurs volontaires en leur donnant la *
 1100 ration en nature el un salaire de o franc 60 par jour de portage et À
 ; 0 franc 30 par jour de retour à vide. Ÿ
-4e £ et Lan
 
-RE Rae METRE un jte
-LE JUN AR RER RES ÿ < mes
 çaise. Ayant appris un métier, ils travailleront, s'enri- fs +
 chiront, mèneront une vie plus large et plus libre; pu
 sachant le français, ils pourront mieux défendre leurs 5 \
@@ -3413,13 +3230,6 @@ formes et tous les ménagements que comportent la reconnaissance |
 pour les services rendus par M. Gentil, aussi bien que le souci de
 notre dignité. » (Lettre de M. de Brazza. — 24 août 1905. — Temps,
 
-ATEN D MT ARRET ut JUAN AE A Je Fe
-
-D ns A UN
-Rire À « KE è + L ha Or. as
-4 FRS <é fai HS % “A sa “ Ê PRE") ie i
-
-UT CAHIERS DE LA QUINZAINE, 8, rue de la SOON F0)
 ‘1 À rez-de-chaussée, Paris, cinquième arrondissement. “Al
 4 td Nos Cahiers sont édités par des souscriptions men-
 : 11 | suelles régulières et par des souscriptions extraordiEs naires ; la souscription ne confère aucune autorité sur
@@ -3454,11 +3264,6 @@ di ce numéro d'inscription qui devient automatiquement le
 fe l'édition sur whatman est strictement limitée au
 
 Le nombre d'exemplaires souscrit à chaque instant. 1
-
-PAT EN Es LS NPA LE ATUU on PE 7 A FAUNE E “ti Er Ant A fi pi,
-i a TEE ANT RUES it Ti ane QAR METRE A ENT ne x
-| A net nl 2 Le * TER 508
-| "4 à c j N M? ñ
 
 EH: Pour tout changement d'adresse envoyer soixante
 DS: centimes, quatre timbres de quinze centimes. ‘ 4

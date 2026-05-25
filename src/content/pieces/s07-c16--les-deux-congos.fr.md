@@ -12,20 +12,11 @@ wordCount: 27894
 L : ns |. paraissant vingt fois par an x 0
 _B, rue de la Sorbonne, au rez-de-chaussée
 
-4e VERTE ANDRE, FM MAN EN HRTAURNCE Ne 0 Gil nf ir
-Re ne RSR NS AR RUN à Fat PE ES DER ps (EME Sr \
-
-TAN PPS “és Can de à ; MOD UENS STATS ch
-
-sis SAT EE Are En tin 4 EM | L | NE CENTER
-#63 ire 1,3% À Ci
-| LME à À
 È “ de les deux Congo He
 
 10 pe Nous avons publié dans nos éditions antérieures et.
 EM dans nos cinq premières séries, I1900-190/, un si.
 er à grand nombre de documents, de textes formant à ns $
-RAR siers, de renseignements et de commentaires ; — un
 
 He si grand nombre de cahiers de lettres, — nouvelles, M
 # de | romans, drames, dialogues, poèmes et contes; — ar À
@@ -45,12 +36,10 @@ BAS le catalogue analytique sommaire, 1900-1904, de nos
 Ro ï autant qu'il se pouvait, une image en bref, un raccourci, ne
 ne une idée, abrégée, mais complète, de nos éditions anté- « LE rieures et de nos cinq premières séries ; tout y est classé mA
 A dans l'ordre ; il suffit de le lire pour trouver, à leur
-Re ne
 0 place, les références demandées. ANS
 Mr. Ce catalogue, in-18 grand jésus, forme un cahier
 , d très épais de XI1+408 pages très denses, marqué cinq
 
-MR PES ROUE ee OU TEE
 fran s ; ce cahier comptait comme premier cahier de la #3
 sixième série et nos abonnés l'ont reçu à sa date, le !
 D octobre 1904, comme premier cahier de la sixième #
@@ -81,14 +70,6 @@ _ la demande. e
 analytique très sommaire que nous avons publiée en fin
 | _de ce cahier index.
 
-ÿ is ä na Qu TA)
-2 CUS NE ne ji PR PRET
-| ct Fil EM NA » APRES WAR NA cher  N fi pi iAUL ie AUTRE
-
-ni re. BOAT NS rt “2 À
-
-ATEN j j! "et VERRE ant
-
 les deux Congo 14
 10 2108
 
@@ -97,7 +78,6 @@ les deux Congo 14
 \ 0 premier exemplaire de souche, exemplaire du gérant;
 NS deuxième exemplaire de souche, exemplaire de l'ad-.
 PS troisième exemplaire de souche, exemplaire de lim-
-(ts CE DT
 RS et dix exemplaires d'abonnement, numérotés de t.
 Dei: Tous nos exemplaires sur whatman sont numérotés
 bi à la presse et imprimés au nom du souscripteur; nos
@@ -122,18 +102,9 @@ On trouvera notamment en tête de ce cahier : |
 un simple extrait de ce premier petit index alphabé-
 et un simple extrait de cette première table analytique très sommaire.
 
-De É SORT 45e Qt D'APAUERRS an NUE à
-
-TS Sa PC UNE RU EN Ro: ae PIE DEN
-
-#13 PR AUXR? + MURS
-ane LES DEUX CONGOS 4 !
-
-#1 ne
 Ex Voici déjà deux cahiers que nous publions sur la .VReN
 question des deux Congo; et elle a pris encore un tel ET
 ‘à _ développement que nous en éditons aujourd'hui un He:
-troisième. ‘La
 _ En Belgique, l'entrée dans la lice, la conversion à RS,
 _ notre cause, pourrait-on dire, des missions catholiques, (+20 44
 
@@ -152,9 +123,6 @@ Pour ce qui est de la France, c'est une tâche qui (22
 | revient de droit à M. Félicien Challaye. Le Cahier 4
 +. Ye 9 les deux Congo. —1. A
 
-| ANR at
-
-|
 dont ïil est l'auteur a servi très utilement la cause, à
 non seulement de l'humanité, mais aussi des véri- ;
 tables principes de la colonisation. Et il a réalisé EU
@@ -342,8 +310,6 @@ j Dans le territoire de la Haute-N'Gounié, la société
 _ concessionnaire entretenait des miliciens, — prêtés par
 fe la colonie, dit-elle. — En tous cas, il n'y avait sur
 
-| Pierre Mille SU
-
 place aucun agent de l'État pour donner des ordres 24
 
 à ces miliciens. Ils ne relevaient que de la société. : Ve
@@ -420,7 +386,6 @@ h à nous reprocher. La question du Congo Français se é
 } que si elle a fait, d'avance, toutes les réformes
 !, suffisantes. Et on ne lui demandera pas trop, pour beauk coup de raisons, dont quelques-unes sont du domaine
 À de la politique extérieure générale. Telle est l'exacte |
-| * vérité, et il ne faut aller ni au delà, ni en deçà. M. Clé-
 
 mentel avait envoyé au Congo M. de Brazza : je compte
 bien qu'on ne fera pas faillite au testament de ce grand
@@ -446,8 +411,6 @@ au Soudan et en Guinée française. Il faut citer ici M. Émile
 Maurel, de Bordeaux, et M. Bohn, administrateur-directeur de la Compagnie française de l'Afrique Occidentale. Celui-ci écrivit alors une brochure qui reste un |
 modèle de sens pratique et de clairvoyance, en même ï
 (1) Notre Colonie du Dahomey, par G. François. Larose, éditeur.
-
-#2 hi #4 =
 
 144 temps que d'humanité. Nous autres, qui parlons ou
 
@@ -501,8 +464,6 @@ taine. Encore quelques mois, et toute la France intelligente saura, non seulemen
 mais ce qu'il y faut faire. Et comme nos exigences
 sont sages, politiques, modérées, nos adversaires n'auront qu'à céder de peur de tout perdre.
 
-|
-
 Des mêmes auteurs, et dans le même sens, en vente |
 
 à la librairie des cahiers :
@@ -553,7 +514,6 @@ t trait de porter le jugement le plus sévère sur le régime *
 | des Compagnies à monopoles. D'après le compte rendu #1
 analytique du Petit Temps (daté 20 février 1906),
 on. M. Clémentel aurait dit à Rouanet, à propos du rapport 1
-de Lanessan : £ ÿ
 | Les choses dont vous me parlez ne devraient pas être è
 portées à la tribune. J'ai montré à diverses personnes, à +
 fe M. Deschanel notamment, ce rapport, dont la publication M
@@ -695,8 +655,6 @@ me colonie, un Conseil d'administration assistera le gou- + … 4
 verneur. (1) Quant au commissaire-général du gou- ER
 * vernement, dégagé de l'administration directe du PUR
 
-\ 12) af fa es sa te Kite ANUS PAUSE AN ES 5: | }
-
  Moyen-Congo, il sera désormais « investi de fonctions ni ‘4
 
 n de gouvernement plutôt que d'administration » et aura A ti
@@ -704,20 +662,16 @@ pour rôle « de donner une commune impulsion aux k 4
 : "4 différentes parties de l'Union Congolaise: ». (1) Les NA à
 _ trois colonies auront chacune un budget local; il sera 5
 a créé un budget général pour l'ensemble de la colo- |A
-| nie. (2) : Re
 11 _ Trois nouvelles justices de paix à compétence étendue nt ps
 _ seront créées à Fori-de-Possel (la capitale de La nou- 5,00
 . velle colonie de l'Oubangui-Chari-Tchad), à Ouesso et NL
 5 . Le Ministre annonce un emprunt de 75 millions affecté : 18
-à à la création de routes et de chemins de fer, à l'amélio- FAR (4
 . ration des voies fluviales. La métropole garantira cet Le
 
 . emprunt et aidera la colonie à en payer les annuités ! 4
 nd intérêt et de remboursement. Le budget de l'État dis- 520
 | posera en faveur de la colonie d'une somme de AU
 = 1.500.000 francs se décomposant ainsi : “x
-“ AN Maintien de la subvention jusqu'à SAR FH
-| présent allouée........:..............+ 900.000 francs * 14
 … Économie résultant d'une modifica- ï Bh
 _ tion des effectifs et du ravitaillement ny
 … (n) Instructions Ministérielles du 11 février 1906. ne
@@ -731,9 +685,6 @@ droits de douane à l'entrée et à la sortie, produit des terres doma- + LAN
 - … structions Ministérielles de la création, pourtant si utile, de budgets (F0
 LA _ () Instructions Ministérielles du 11 février 1906. è a
 a PAIE 29 les deux Congo. — 2. LR
-
-ji us RME ATEN M MSN DIT CORIRIIREES Fe
-Félicien Challaye JE
 
 Le Ministre laisse au gouvernement local le soin de ; à
 déterminer l'ordre des travaux à accomplir. ê Fi
@@ -789,7 +740,6 @@ Ré _ Jai insisté auprès des Sociétés concessionnaires pour : ja
 qu'elles créent chacune dans son ressort des écoles élémen- 3
 _  taires dont l'influence leur sera d'ailleurs en premier lieu É
 P* _ profitable. Elles pourront y trouver les ouvriers dont elles \
-auront besoin. (2) L 5
 CALE Projet extrêmement. dangereux, inacceptable à qui F
 -_. connaît l'esprit bassement mercantile des Compagnies ka
 14 d'école, abuseront de leur autorité pour exploiter sous 4
@@ -799,7 +749,6 @@ M gènes, sous prétexte d'instruction professionnelle, à D
 …._ (1) Anstructions Ministérielles du 11 février 1906. A
 % F2 (2) Instructions Ministérielles du 11 février 1906. A 3
 
-Le Félicien Challaye AE NS
 faire gratuitement les outils, les machines, les bâtiments
 û dont la Compagnie a besoin; sous prétexte d'enseigneMi ment agricole, à créer gratuitement des plantations … 24
 pour la Compagnie. Qu'on n'augmente, sous aucun pré
@@ -813,7 +762,6 @@ fe & ceux des impôts locaux qui sont le plus vexatoires et le : & à
 _ ) plus scandaleux. (1) à “ES
 su En ce qui concerne l'impôt de capitation, le Ministre
 4 le projet de M. Gentil associant l'État et les Compagnies +4
-à la perception de l'impôt, et il se rallie au point de vue à
 de M. de Brazza, qui « a stigmatisé cette manière de ‘18
 Ke procéder ». Critiquant, sans la nommer, une circulaire (0
 célèbre de M. Gentil, il déclare que ‘la perception de 5
@@ -864,7 +812,6 @@ _ M: Clémentel à la Chambre des députés (Journal officiel du #1
 | approuvé cette réforme de l'impôt. Interrompant M. Clémentel, il a ns
 dit: « Cest le désaveu de la politique de M. Gentil. Je vous en ‘3
 félicite. » (Journal ofjiciel du 22 février 1906, page 993) :
-| À 33 |
 
 quels elle devra payer « un salaire rémunérateur ». D.
 Enfin plus tard on établira un chemin de fer Decauville 4
@@ -877,14 +824,12 @@ une large mesure les vives souffrances des noirs du
 | Congo. Il est regrettable qu'elles ne soient pas accom- #4
 pagnées de réformes économiques améliorant le détes- É
 table régime des grandes concessions. x
-# * 4
 | Mauvaises journées pour les Compagnies concession … ?
 naires que celles des 19, 20 et 21 février. Devant l'opinion È
 publique, leur cause est bien compromise. À la Chambre,
 nul n'a osé les défendre contre de rudes attaques : ni ÿ
 M. Étienne, sous l'inspiration duquel elles se sont
 ; constituées, ni M. Guillain, qui a signé les décrets les NM
-établissant, ni M. Motte, concessionnaire, ni M. Mou- (
 geot, nommé tout récemment président du Conseil
 d'administration de la Haute-Sangha. M. Clémentel,
 qui a subi si docilement leur pression, n'a rien dit *
@@ -965,7 +910,6 @@ gnies concessionnaires, (très bien! très bien! à gauche), mais pour de
 défendre d'abord les intérêts de l'Etat. » (/d. page 914) VHS
 $ (5) Journal officiel du 22 février 1906, page 914. 7.
 
-me : LA RÉORGANISATION DU CONGO FRANÇAIS hi
 _ de la Lobaye provoquée par les agissements de la 4
 à - Compagnie, il a lu une lettre, adressée au Ministère des 1
 de colonies par M. Gentil, dans laquelle celui-ci constate k
@@ -988,7 +932,6 @@ mais cela prend du temps, beaucoup de temps; et l'im- ÿ
 ; dividendes tout de suite... On commence par inciter |
 l'indigène au travail, puis on veut l'y contraindre. Pour
 ul y parvenir, on abuse, et des abus aux atrocités que l'on |
-; vous a décrites, il n'y a qu'un pas. Insensiblement on le
 franchit ». (Applaudissements) Et M. Caïllaux montre,
 £ en particulier, comment l'organisation actuelle de l'impôt
 À profite aux Compagnies concessionnaires : « L'indigène ÿ
@@ -1012,7 +955,6 @@ Fo nouvelle concession. (4) S'il était resté ministre, aurait
 Re: il tenu cette promesse? Ses successeurs se considére- me h
 1 ront-ils comme engagés par cette parole? L'expérience Ft
 ru du passé justifie pour l'avenir tous les doutes, toutes les | “a
-# craintes. — A la séance de la Chambre, M. Clémentel a e
 re déclaré (tous les auditeurs s'en souviendront) qu'il ma nn
 Ln personnellement jamais accordé de concession. La
 Dr. hrase est supprimée dans le compte rendu sténogra- :
@@ -1062,10 +1004,8 @@ K _ Conseil Supérieur des Colonies.
 1e . (6) Instructions Ministérielles du 11 février 1906.
 Le (4) Journal oficiel du 21 février 1906, page 891.
 
-FE ne AAA
 quand il demande au-Ministre de choisir les contrôleurs 4
 des Compagnies parmi les administrateurs « les plus 4 À
-tu
 honnêtes et les plus droits »; il ajoute : QU
 ï Ils auront une mission très difficile à remplir; ils ont ‘3
 besoin d'avoir l'esprit d'indépendance indispensable si vous M
@@ -1132,7 +1072,6 @@ Ne que le décret réglant les conditions du travail soit modifié : « Les PA
 [ve garanties données aux colons furent singulièrement exagérées. »
 F4ù (4) Cf. Félicien Caitier. Etude sur la situation de l''Étut Indépen- »} . dant du Congo, pages 96-97.
 
->12 “34
 d'établir des factoreries sur les terrains concédés et 400
 même sur les terrains réservés aux indigènes. A EE
 C'est en vain que M. Le Hérissé, reprenant les termes =
@@ -1329,30 +1268,21 @@ le problème de la liberté commerciale ne sera pas
 résolu, — même d'une solution provisoire et partielle,
 — la question du Congo continuera à être posée.
 
-1 Ste BE Perte de T Das MRC M AP EN à
-: RAT ds $ ff + ARE LA
-| DANFQES Peur V4 JE LORS 7 14 ju) ff PS
-
 en vente à la librairie des cahiers Ni:
 Autour du monde, par les Boursiers de voyage de |
 l'Université de Paris (Fondation Albert Kahn). — |
 Pages 109-145 : L'Indo-Chine Française, par FÉLICIEN |
 Au Japon et en Extrême-Orient, par FÉLICIEN
 Et du même auteur aux Cahiers de la Quinzaine : » Pages
-| du
 n'est plus mis en vente que dans les collections complètes de la troisième série: #1... 6e RES
 — — la Russie vue de Vladivostock, journal
-d'un expulsé. *...:.024.Meu-e Rec CNE FORCER
 — — impressions sur la vie jJaponaise.........
-un franc 147
 — — Second courrier d'Indo-Chine, un france 205
 | — — impressions sur Java, — fragments de :
-journal; 6.000 eesCeRR PSE ET ERA EEE
 _ — la France vue de Layal..... deux francs 341 ,
 
 en vente à la librairie des cahiers ;
 PIERRE Mirce. — De Thessalie en Crète, — impressions de campagne avril-mai 1897, — avec 16 gravures
-| hors texte, Berger-Levrault, 1898......................
 Prerre Miice. — Au Congo belge, — avec des notes |
 et des documents récents relatifs au Congo français,
 | Et vient de paraître, en vente à la librairie des cahiers :
@@ -1401,11 +1331,9 @@ même un cardinal, pour vanter « son œuvre de civilisa6 tion ». Car la rivali
 catholique, au Congo, à contrecarrer les efforts des
 protestants; et ils espéraient de plus obtenir de la sorte
 un traitement de faveur, des concessions privilégiées,
-eux aussi, comme l'A. B. I. R. ou la Mongalla, en
 échange de leur alliance, ou de leur silence. Mais les :
 ù missions catholiques ont été déçues. Les lecteurs de ces
 
-Let on ét APR À
 \ ÿ Cahiers sont, je suppose, trop indépendants pour ne pas 4
 … reconnaître qu'il y a dans le christianisme, quelle que
 a soit sa forme, un principe supérieur à la triste férocité |
@@ -1502,10 +1430,6 @@ Il est parfaitement vrai qu'il ne le paye point avec
 
 clauses de cet acte, se sont émerveillés qu'il eût res-
 
-| pecté celle-ci. Ë
-
-# x
-
 jà J'ai dit tout à l'heure que la Commission instituée par D
 
 fi le roi-souverain pour trouver un plan de réforme sur les M
@@ -1555,19 +1479,15 @@ et continue à observer la discipline que lui a inculquée son
 
 ' M. Fivé, ancien inspecteur d'État, explorateur de salon,
 
-|
-
 Fi qui avait mission de signaler les abus de l'administration 1
 ' Congolaise et n'a jamais rien vu, rien entendu ; j
 pe Ajoutez à ce salmigondis, quelques coloniaux obscurs et \v'
 \ sans expérience, MM. Chenot et Tombeur. Ajoutez M. Gohr, ;
-E directeur de la justice, et voilà la majorité de la Com- \
 mission assurée, leurs votes certains, tout danger écarté. « 7°
 a / Quant à MM. de Hemptinne, Mols et Davignon, c'est sans N
 f doute leur grande compétence des affaires coloniales qui les '
 k a désignés pour collaborer à la grande œuvre régénératrice. ;
 fr En réalité, les deux premiers y représentent les intérêts de
-W la Société du Kasaï et de l'ABIR, le troisième, à ce qu'on
 1 nous assure, n'y représente que le vif désir de devenir
 J'ignore si M. Davignon a de ces ambitions nobiliaires. ‘
 Mais il y a un fait que je puis aflirmer : c'est que, dans Gé
@@ -1623,7 +1543,6 @@ S pourrait renoncer sans encourir une grave déchéance
 L'annexion immédiate m'est bientôt apparue comme la
 seule issue honorable à la situation actuelle. Elle s'imposera
 
-OU NMNNNAN RS trs nr Su TERRES
 n° demain, dans des conditions difliciles pour la dynastie,
 É lorsque s'ouvriront les successions aux trônes de Belgique
 “_ ct du Congo. Elle peut être réalisée aujourd'hui sans
@@ -1747,7 +1666,6 @@ publie les noms des notaires chez lesquels les actes ont
 Bruxelles et d'Ostende. Le reste aurait été employé : 4
 1° à la construction du palais de Laeken, qui a coûté À
 
-Fr 30 millions; 2 à la construction de l'Arcade du Cin- |
 É quantenaire, à Bruxelles; 3° à la création d'une École À
 24 coloniale à Tervueren; 4° à la création d'un bureau de k
 a la presse, qui distribue des subsides à la presse belge
@@ -1995,7 +1913,6 @@ il ne fut versé que 232.000 francs. Or, en 1900, les actions M
 de cette société, si modeste au début, rapportaient 2.100
 francs de dividende et cotaient 25.250 francs; en 1903, elles
 
-, exclamations) Le
 4 Moici comment ces bénéfices ont été reeueillis; je cite le
 _ rapport de la Commission d'enquête :
 Êr = « Il n'a guère été contesté que, dans les différents postes
@@ -2023,19 +1940,15 @@ un magistrat belge, M. Van den Heuvel, ministre de la
 ; moment un magistrat belge a dirigé ce Bureau; enfin, j'ai
 —… constaté qu'un journal de Bruxelles avait été acheté par ce
 ra Bureau : vous ne me ferez pas dire autre chose, et c'est bien
-k M. Van DEN HEUVEL, ministre de la justice. — Il ÿy a dans
 | vos paroles une équivoque perpétuelle. /Nouvelles protesta- { \
 « tions sur les bancs socialistes) Si vous accusez quelqu'un,
 _  dites-le catégoriquement !
 
-| Pierre Mille FER
 M. VANDERVELDE. — Quelle que soit l'importance épisodique de ce débat sur l'existence d'un Bureau de la Presse,
 ce qui domine tout, c'est l'institution de ce fameux Domaine r$
-de la Couronne... ‘4
 M. VAN DEN Heuver, ministre de la justice. — Vous vous
 dérobez de nouveau ! /Bruit)
 M. Loranp. — C'est vous qui vous dérobez. {Le bruit %
-M. VANDERVELDE. — L'institution de ce Domaine a per- “0
 mis la résurrection d'un pouvoir personnel qui fausse notre
 On allègue que l'argent du roi profite à la Belgique et que
 ses biens nous reviendront. Mais, à côté de ces cadeaux, il 1
@@ -2062,7 +1975,6 @@ Congo, la Belgique pouvait se faire renseigner sur la situa- #.
 de MM. Beernaert et De Lantsheere, ce contrôle fut sup- $
 primé par le parlement à la demande du gouvernement. À
 La dette congolaise s'élevait, en 1898, à 2.283.000 francs;
-ne
 
 … 1905, 80.631.000 francs! /ÆExclamalions sur les bancs socialistes) Et à ce chiffre, il faut ajouter les 32 millions prêtés
 par la Belgique et 50 millions, produit net de l'emprunt à
@@ -2098,8 +2010,6 @@ la Revue de l'Université de Bruxelles. À M. Rolin, j'oppose
 “ M. Rolin m'a pris à partie et m'a traité de radical. Si c'est
 être radical que de trouver le servage intolérable, la corvée
 criminelle et les expéditions punitives atroces, je me félicite
-|
-| els
 
 de l'être et M. Lorand sera certes de mon avis. {Nouvelle …
 Enfin M. Vandervelde conclut ainsi: En
@@ -2133,9 +2043,7 @@ et on n'en a plus jamais entendu parler. Il est allé rejoindre .
 le projet tendant à employer les millions de la Caisse 4
 d'épargne à des entreprises exotiques. Nous ne savons pas ‘4
 72 4
-#
 
-ti AN tt Un :
 encore si, en cas de reprise, on maintiendra l'absolutisme
 royal, ou le droit de contrôle!
 
@@ -2185,7 +2093,6 @@ commission, seule celle-ci, désignée bien malgré lui par 1%
 le roi Léopold lui-même, serait responsable de ces ‘4
 calomnies. L'embarras de M. de Favereau était si A
 visible que l'abbé Daëns, chef du parti démocrate
-chrétien, s'écria : SES
 ; — Remettons la discussion à demain, le ministre n'est ;
 pas armé pour répondre! s
 À M. l'abbé Daëns y mit de la courtoisie : il aurait pu |
@@ -2203,7 +2110,6 @@ M. Bertrand a critiqué la politique financière de l'État
 Au point de vue financier, k
 | l'État Indépendant a k
 : passé par trois périodes : la période de prudence, de 1885 à F
-1890; la période de tutelle, de 1891 à 1901, et la période de 1
 : prodigalité, depuis 1901. Au cours de la période de tutelle, 4
 lEtat Indépendant viola de façon flagrante la convention
 û passée avec la Belgique et en vertu de laquelle il ne pouvait k:
@@ -2218,8 +2124,6 @@ ra remboursé par le trésor belge.
 LA Voilà done 31.500.000 francs prêtés par la Belgique sans
 
 k intérêt. C'est un cadeau annuel de 1.200.000 francs !
-
-4 ÿ La troisième période, où il n'y a plus ni contrôle ni
 
 À garantie, débute par un emprunt de 50 millions à 4 0/0,
 
@@ -2261,8 +2165,6 @@ LA commença par faire l'éloge des progrès réalisés par
 
 a l'État Indépendant du Congo.
 de « La contrainte,
-
-ii dit-il,
 
 Li : est parfois nécessaire chez des peuples
 _ comme ceux du Congo. » ‘
@@ -2380,8 +2282,6 @@ est un homme d'une haute honorabilité. Quant à M. Morel, 4
 qu'on accuse volontiers de faire campagne contre le Congo, |
 tous les coloniaux que j'ai pu consulter attestent son hono-
 
-D rom DEVANT LA CHAMBRE BELGE Le,
-Ge: bilité et sa valeur et je constate au contraire qu'en fait ue:
 de marchands de Liverpool, leur président, dit M. Jones, in
 7 : consul du Congo, secrétaire d'une ligne de navigation à IE
 “al _ destination du Congo, est un congolais convaincu ! A
@@ -2393,7 +2293,6 @@ _ « Tout ne peut être fait en un jour. » Assurément ! Mais Le
 vi Mars, il n'en est pas moins vrai qu'on y met en pratique 74
 un système abominable d'exploitation ouvrière des nègres. si 4
 . La Commission d'enquête le reconnaît. i FC
-1 M. pr Smet pe NaEyERr. — La Commission d'enquête dé- a
 Der _clare que les principes juridiques appliqués au Congo ne } 4
 peuvent être critiqués. Elle se borne à constater quelques 4) 4
 ke abus que nous n'avons jamais déniés d'ailleurs. à 4
@@ -2410,14 +2309,12 @@ question du Congo! N'a-t-on pas aussi comparé les cruels pos We
 We gardes noirs, dont les crimes ne se comptent plus, à nos e D:
 = paisibles gardes champêtres? Si ces abus perdurent, c'est ST
 bg | sous la propre responsabilité de notre gouvernement qu'ils RE
-À à se commettront désormais! De
 ‘ a On n'a pas reconnu à ces malheureux noirs, nos frères 24
 9 n somme toute, les droits les plus élémentaires de l'humanité. t ‘0
 A 142 BeERNAERT. — C'est abominable! 4
 ……. M: Lorann. — On objecte que la corvée remplace la Ne:
 … monnaie chez les nègres; or, la corvée au Congo est une MS
 #3 honte pour ceux qui l'exigent! #0
-VE A JANSON. — Oui! nous devons nous en dégager : la 4 M:
 
 Belgique ne peut partager la honte des crimes que l'enquête ‘4
 a constatés. /Très bien! à l'extrême gauche) + 404
@@ -2469,7 +2366,6 @@ FR La politique coloniale a eu le plus souvent pour consé-
 4 n'a été aussi frappant qu'au Congo. CR
 É Il'y a les autres formes secondaires de l'impôt, mais la
 7 récolte du caoutchouc est le principal impôt. ,
-| M. VANDERVELDE. — L'ivoire, le caoutchouc et le copal
 : représentent 85 o/o des exportations. +
 M. Loranp. — La corvée du caoutchouc représente au
 Congo 53 o/o de l'impôt, tandis qu'elle ne représente que
@@ -2479,7 +2375,6 @@ Congo 53 o/o de l'impôt, tandis qu'elle ne représente que
 … elle consiste d'abord dans la surveillance de la « sentinelle » -
 U qui vole, qui viole et qui tue, et ensuite dans les cruelles
 we et dévastatrices « expéditions punitives ».
-L M. VANDERVELDE. — Et la Commission d'enquête constate
 À que ces expéditions frappent indifféremment les coupables
 À et les innocents. ;
 M. LorAnD. — Trop souvent, ces expéditions « amarrent »
@@ -2574,7 +2469,6 @@ Enfin, que le rapport justifiait la contrainte au travail ‘4
 par l'indolence atavique de l'indigène. 4
 ‘ Il est évident que si c'est là tout ce qui résulte, pour :
 le ‘gouvernement du roi Léopold, des constatations E
-de la Commission d'enquête, il n'y a plus rien à È
 faire, qu'à attendre la disparition, soit des indigènes, 4
 soit du caoutchouc, soit de ces deux facteurs du pro- j
 blème. Mais la Commission a dit tout autre chose, et 4
@@ -2601,7 +2495,6 @@ tement ce qui se passe en Belgique pour les volontaires.
 A l'honorable membre :
 Ë « Le chef Ngulu de Wangata est envoyé dans la Maringa
 $ pour m'y acheter des esclaves. /Nouvelles exclamations)
-; Prière à MM. les agents de l'A. B. I. R. de bien vouloir me
 ; signaler les méfaits que celui-ci pourrait commettre en
 ra Je le demande. Pouvons-nous prêter des ofliciers belges
 $ au Congo pour acheter des esclaves et lancer des menaces
@@ -2627,7 +2520,6 @@ _ appuyé par MM. Vandervelde, Janson, Neujean et
 # « La Chambre, prenant acte de la constitution d'une Com-
 ; mission de réformes à la suite des constatations faites par
 
-Pierre Mille L'AEE
 la Commission d'enquête instituée par l'État Indépendant : ER
 du Congo et attendant les effets de cette mesure; TT
 « Estimant qu'avant toute discussion sur la reprise évens  … À
@@ -2708,19 +2600,7 @@ de la cause devant les puissances signataires de l'Acte ‘à
 | de Berlin. le,
 Il en résulte que tôt ou tard la question du bassin
 conventionnel du Congo se posera devant une assem- A.
-ta
-#
 
-LR RAS ARE LOT ANT STATS DM E de 14 Xe
-# 4,7 MER EENENS n enr.
-
-FALSE Are K TES
-
-"NUMERO nt l'AS
-
-| DAME REC AA A : 'UAMEESSR
-
-CAHIERS DE LA QUINZAINE, 8, rue dela Sorbonne, À
 rez-de-chaussée, Paris, cinquième arrondissement. 0:
 Nos Cahiers sont édités par des souscriptions men- ee
 suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur ‘&l
@@ -2747,17 +2627,6 @@ naturellement aux inscriptions les plus anciennes; c'est i
 ce numéro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs ; ‘4
 l'édition sur whatman est strictement limitée au 4
-
-Le CORTE Con AE TR LE LE: Les PRE EU OUT TO ST CE PATES
-{x {Ru et Re ef NS NUS se LA TNT
-| NX LC ER JE Le TUE ' A1"
-| AIR TRS ) (FES
-| (TL TANNERES x NN
-| Fe Aer 0 ;:e\22 Le)
-L Ce « EMILE LEA es”
-| {TON NOTONS 14 fi Her 2
-| } £ Le FAT | TAPER FE "1 An
-| Fs SUP pat à l'E 'ORPAS AANGU : Le: "NES
 
 Pour tout changement d'adresse envoyer soixante 4
 centimes, quatre timbres de quinze centimes. ‘.

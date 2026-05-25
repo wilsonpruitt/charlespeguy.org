@@ -12,7 +12,6 @@ l'administration.
 
 Ces cahiers sont édités ‘ar des souscriptions mensuelles régulières et par d: souscriptions extraordinaires ; la souscriplion ne co! ère aucune autorité sur
 la rédaction ni sur l'admin. ‘ration : ces fonctions
-Nous servons : 218
 des abonnements de souscriptior: à cent franess L+
 des abonnements orainaires à vin, t francs; Hu te
 des abonnements de propagande à huit francs, 1.

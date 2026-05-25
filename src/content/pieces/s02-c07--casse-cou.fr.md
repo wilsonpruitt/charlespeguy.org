@@ -68,7 +68,6 @@ lées, qui vont plus vite.
 — Assieds-toi là, répondit Pierre Baudouin. Puisque
 
 tu es historien, tu découperas et tu colleras les fragj ments dont je ferai citation.
-à Mon cher Jaurès,
 Dans la Petite République datée du mardi 8 janvier
 6 1907, vous avez publié un article que je vous demande
 la permission de vous reproduire en entier
@@ -137,7 +136,6 @@ vérité que le citoyen Vaillant anime la classe ouvrière
 l'infatigable action, à l'effort continu de révolution.
 
 Cette philosophie politique et sociale du citoyen Vaillant
-se rattache à sa philosophie générale de l'univers et de la
 vie. Il déclare souvent qu'il est matérialiste et athée, et
 
 ‘ c'est bien, en effet, la traduction la plus populaire, et dans
@@ -213,7 +211,6 @@ autre, c'est par un sourd travail, c'est par un obscur réar-
 flot sur le roc, du désir et de l'action sur le privilège, que
 les transformations révolutionnaires sont préparées. Le citoyen Vaillant répugne à tout ce qui immobilise et catégorise. Ce qu'il reprochait, par exemple, au programme agraire
 
-c ice Cfeie Ve A TE SEA Pie LHPCULE NS ta EEE à a
 du Parti ouvrier français, ce n'était pas de maintenir provi-
 
 soirement la petite propriété paysanne, ce n'était pas d'in-

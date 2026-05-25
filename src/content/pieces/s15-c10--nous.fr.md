@@ -8,16 +8,9 @@ isAvertissement: false
 wordCount: 14151
 ocrSource: "Existing charlespeguy.com vision OCR (raw/s15-c10-ocr.txt); ingested 2026-05-25"
 ---
-
-Nous
-
 nous, parce qu'ils partaient de la même veine et qu'il était aisé de voir cette veine courir au travers de toute une œuvre.
 
 Je remercie grandement nos confrères et amis du Mercure de France et de la Nouvelle Revue Française qui nous ont permis avec une parfaite bonne grâce de nous saisir de ces textes et de les publier.
-
-Charles Péguy
-
-[p. 17]
 
 J'ai songé bien des fois à mon lointain ancêtre,
 A celui qui reçut le nom qu'il m'a légué
@@ -29,8 +22,6 @@ Alourdissait, le soir, son grand pas fatigué,
 Ou bien le gueux courait les bois pieds nus peut-être,
 Hirsute, à demi fol et sauvagement gai.
 
-[p. 18]
-
 Serf de condition sans en porter les chaînes,
 Il a passé ses jours à rêver sous les chênes,
 Et maintenant il n'a plus même de tombeau.
@@ -39,24 +30,12 @@ Mais, dans mon cœur, comme un reproche à ma faiblesse,
 Il revit. A chacun l'orgueil de sa noblesse !
 — Il faut aimer ton nom, mon fils, car il est beau.
 
-NOS PROVINCES
-
-[p. 23]
-
-NOS PROVINCES
-
-I
-
-A TRAVERS CHAMPS
-
 Le bruit à l'étranger court que la France est folle,
 Déchue. Encore quoi ? Malade. Est-ce tout ? Non.
 Morte. Morte à jamais, la nation frivole !
 Bien pis, pour entacher l'honneur de son doux nom :
 « Ah ! le vice, dit l'un, c'est ce qui l'a tuée ! »
 Et l'autre : « Enterrons-la, cette prostituée ! »
-
-[p. 24]
 
 Viens donc, et donne-moi ta main,
 Ma chère âme étrangère,
@@ -69,7 +48,6 @@ Les grandes marguerites des prairies
 Baiseront tes genoux !
 
 Vois comme ils ont des tailles fines,
-Nos peupliers d'argent,
 Comme le front de nos collines
 A l'air intelligent !
 
@@ -80,13 +58,9 @@ Où se repose l'œil.
 
 Quelle nature est plus humaine,
 Quelle belle a moins de dédain
-Que la France où l'on se promène
 Comme en un jardin ?
 
-[p. 25]
-
 Elle pourrait être inutile,
-Étant si jolie,
 Mais non, la coquette est fertile
 Pour mieux séduire, par folie !
 
@@ -94,10 +68,6 @@ Folle, en effet, la France est folle,
 Sa folie est l'esprit qu'elle a :
 Toute chose est folie, qui vole,
 Mais savoir voler, tout est là !
-
-II
-
-A TABLE
 
 Et de ce peuple fou le bon sens me confond.
 Veux-tu voir, sous nos murs ajourés en dentelle,
@@ -110,8 +80,6 @@ C'est une table ronde avec sa nappe blanche.
 La lumière de la croisée
 Comme un regard du ciel sur la nappe est posée,
 Sanctifiant la gourmandise du dimanche.
-
-[p. 26]
 
 Le vin joyeux, dans un flacon,
 Darde un œil qui vous brave,
@@ -143,8 +111,6 @@ Pour la fidélité de ton cœur ancien,
 Pour ton ventre de bon petit paroissien,
 Vieux buffet que je raille, au fond comme je t'aime !
 
-[p. 27]
-
 On te devine exact, honnête, mesuré,
 Moitié tabellion, moitié brave curé,
 Et, dans ton vernis clair, on dirait que se plisse
@@ -168,14 +134,11 @@ Mais une peur si douce, un peu feinte et rusée,
 Que mon âme excitait pour en être amusée !
 Oh ! les points lumineux des cristaux, autant d'yeux !
 Et j'imaginais l'Ogre en rêvant d'une bouche
-A la mesure de la louche,
 Et mon père et ma mère étaient pour moi des dieux.
 Je les vois tels qu'alors ils trônaient sous la lampe :
 Tout près de moi, si près que mon cœur est au chaud,
 Puis, tout à coup, parlant par énigmes, très haut,
 Très loin, parmi l'encens de la soupe qui trempe...
-
-[p. 28]
 
 Chère, s'il se pouvait que, par-dessus les blés,
 Les vignes et les bois, en ce moment, tu visses
@@ -199,18 +162,11 @@ C'est nous les Français dépravés !
 On médit de nous parce qu'on envie
 Ce grain de sel fin,
 Cet esprit qui donne en France à la vie
-Un goût si bon qu'on en a faim.
 
 Goûtez donc, ma chère, à tous nos plats, mais
 Si l'on vient vous dire
 Que nous nous mourons, il faudra sourire.
 C'est tout. Ne l'oubliez jamais.
-
-[p. 29]
-
-III
-
-LA PETITE VILLE
 
 La ville où je naquis, un fleuve étroit l'arrose ;
 L'eau coule sous le pont comme une claire prose,
@@ -236,8 +192,6 @@ Quand passe un chariot dehors, sur ta crédence
 La porcelaine tremble, et ton cœur tremble aussi.
 Ta chatte fronce le sourcil ;
 
-[p. 30]
-
 L'âme des choses sort à moitié du sommeil,
 Sourit, étonnée, au soleil,
 Puis, lasse d'un effort si grand, replonge
@@ -254,11 +208,6 @@ Et moi qui jadis me blottis,
 Enfant, contre la chaste robe,
 Bien qu'ayant perdu ma candeur,
 Je te dois de garder un fond naïf et probe
-Et le respect de la pudeur.
-
-IV
-
-LA CÔTE D'ARGENT
 
 1
 
@@ -266,8 +215,6 @@ Un petit coin de terre est mon seul juge au monde.
 Là, pied à pied, les pins combattent avec l'onde
 Pour la possession du sable. J'obéis
 Au doux charme voilé de ce vague pays,
-
-[p. 31]
 
 Bien qu'il m'ennuie un peu, parfois, comme un poème
 Trop sincère qui trop ressemble à mon cœur même.
@@ -277,7 +224,6 @@ Fils flottants de la pluie au loin, jaune lumière
 Dorant sur un fond noir les tuiles des maisons,
 C'est vous qui, par-dessus la route coutumière,
 M'attirez du côté des libres horizons
-Où va s'amincissant la ligne de la grève,
 Plate et pâle entre deux abîmes — dans le rêve.
 Ajoncs d'un vert malade et chardons d'un bleu gris,
 Dune rose ou blanchâtre ou mauve, selon l'heure,
@@ -301,8 +247,6 @@ A dix-huit ans, j'errais en déclamant des vers
 Sur la plage, de méchants vers dont j'étais ivre,
 Et j'invoquais la Mort, tant j'avais soif de vivre,
 
-[p. 32]
-
 Tant j'aspirais à tout aimer dans l'univers !
 La sirène qui gît dans les livres de classe
 M'apparaissait, vivante, à l'ombre d'un rocher ;
@@ -323,7 +267,6 @@ Ta pensée appartient à nous qui l'avons peinte
 De mille tons fondus l'un dans l'autre. Il est clair
 Que ton sort est pareil au goéland dans l'air,
 Lorsque, ne sachant plus où se poser, en butte
-A la tempête, il va de culbute en culbute.
 Mais nous, les pins, la mer, si nous t'avons versé
 Le poison sombre et doux qui rend l'âme inquiète,
 S'il est vrai que ce sont nos voix qui t'ont bercé,
@@ -335,8 +278,6 @@ Mais les vagues, chantant en chœur comme des chantres,
 Et la Beauté, la fleur divine, impérissable,
 Seule s'épanouit sur les pentes du sable. »
 
-[p. 33]
-
 2
 
 Mon cœur, ton sourd marteau fait trembler ma poitrine,
@@ -344,7 +285,6 @@ Que forges-tu dans l'ombre avec tant de chaleur ?
 
 O pins, douce résine où s'endort la douleur,
 Volutes de la vague, ô terrestre et marine
-Sérénité,
 Calmez, calmez ce cœur qui m'empêche d'entendre
 Les profondes voix de la vérité !
 
@@ -364,9 +304,6 @@ Les songes de ma tête,
 Comme un gros vin dont on s'enivre un soir de fête !
 Ah ! pauvre cœur, que ton ménage est triste !
 
-[p. 34]
-
-Nature, insiste,
 Pèse de tout ton poids sur ce cœur violent ;
 A son ardeur qui n'est que faiblesse brutale
 Impose ton pas grave et lent ;
@@ -379,10 +316,6 @@ Aux aspérités du rocher,
 Et, dentelé, perdu dans l'azur comme une île,
 Un nuage blanc, immobile...
 
-NOTRE PARIS
-
-[p. 39]
-
 Levez-vous de l'abîme éternel, ô vieux cris
 Du passé ! Remontez à nos yeux, vieilles larmes !
 Debout, vieilles douleurs qui dormiez sous les armes !
@@ -393,12 +326,6 @@ Tout ce que l'âge efface et tout ce qui s'est tu !
 Réveillez-vous, frottez votre paupière morte,
 Compagnons avec qui j'ai longtemps combattu,
 Venez faire à ma vie une royale escorte !
-
-[p. 41]
-
-NOTRE PARIS
-
-I
 
 Dix ans ont mis un voile au regard ingénu
 Qu'adolescent, provincial, nouveau venu,
@@ -411,16 +338,12 @@ Tout imprimait dans le miroir de mes paupières
 Une image accusée aux intenses couleurs.
 Mais je ne savais point maçonnés de douleurs
 
-[p. 42]
-
 Ces murs pareils, dans l'ombre, à de hautes falaises.
 Sans doute, ils me causaient déjà d'obscurs malaises ;
 Ils me semblaient cacher, sous un front menaçant,
 Quelque chose à la fois de triste et de puissant,
 Mais quelle chose ? Seul dans le grand labyrinthe,
 J'errais, sans découvrir de raisons à ma crainte.
-
-II
 
 Vague appréhension passagère ! La Ville
 Bien plutôt me montrait son doux masque facile,
@@ -431,7 +354,6 @@ Le premier sentiment qu'il eût de la Beauté.
 Je l'aimais. Que de fois, rêvant sur la terrasse
 D'un jardin ou le coude au balustre d'un pont,
 J'écoutai sa leçon de clarté qui répond
-A l'idéal de ma pensée et de ma race.
 C'est, au printemps, un soleil gris dans les nuées,
 A ciel fin comme un œil trop sensible qui cligne,
 Des colorations de pierre atténuées,
@@ -442,15 +364,11 @@ Mon âme, tour à tour enivrée, amusée,
 Allait, venait, flottait du théâtre au musée,
 Et parfois s'échappait vers les coteaux d'argent...
 
-[p. 43]
-
 Nul souci : j'étais fort et, surtout, j'étais libre,
 Et, très haut, dans les cieux d'après l'orage où vibre,
 Emporté d'eau bleuâtre, un rayon indulgent,
 Toute rose, au-dessus des champs d'Île-de-France,
 L'alouette jetait son cri fou d'espérance.
-
-III
 
 Mais le bonheur des yeux cache un piège, une pente
 Insensible qui mène au douloureux désir.
@@ -465,16 +383,12 @@ Dans un pas dont on suit le doux balancement !
 Vous riez : c'est ainsi que la douleur s'éclaire
 D'une gaîté d'enfant, lorsqu'elle veut nous plaire.
 
-IV
-
 Ah ! je sais, maintenant, lorsque, sous ma fenêtre,
 Paris gronde, et que j'ouvre aux échos tout mon être,
 Ou lorsque, dans la rue, ami, quelque embarras,
 Aux carrefours, m'oblige à prendre votre bras,
 Je sais de quels destins mornes, courbés, serviles,
 Sont faits l'encombrement et la rumeur des villes.
-
-[p. 44]
 
 Leurs murs fiévreux, leurs toits l'un sur l'autre entassés,
 La misère, la mort aux aguets dans leur brume,
@@ -484,8 +398,6 @@ Que chaque aurore ajoute aux peines de la veille ! »
 Et leurs nuits, ramenant de honteuses sueurs,
 Ont un aspect de jours bizarres, des lueurs
 Malsaines où l'on sent une angoisse qui veille.
-
-V
 
 Quelle uniformité du costume, aussi !
 De la forte laine poussiéreuse et terne,
@@ -498,14 +410,10 @@ Font un cheminement agile d'insectes !
 Mais que de souffrances, que d'après espoirs,
 Que de rêves, sous ces tristes chapeaux noirs !
 
-VI
-
 Comme un cri de douleur qu'étouffe un plafond bas,
 Les bruits lointains du soir assourdis par la pluie
 Ébranlent ma fenêtre où le brouillard s'appuie :
 Tous parlant à la fois, je ne les comprends pas.
-
-[p. 45]
 
 Je les écoute, ému de ces voix désolées
 Dont l'ardeur s'exaspère à la chute du jour,
@@ -538,8 +446,6 @@ Et dans le bien qu'on fait ménager son plaisir,
 Tous ils mêlent leur souffle au vent du crépuscule.
 Il en sort de partout, des faubourgs de Paris,
 
-[p. 46]
-
 Des vieux quartiers du centre aux ruelles infectes,
 Pleins de recoins qui font qu'on s'arrête surpris,
 Où d'étranges maux d'yeux avec d'étranges sectes
@@ -571,8 +477,6 @@ De quel droit troublez-vous ma féconde torpeur,
 Pour me glisser dans l'âme une horrible tendresse,
 Cette compassion qui ressemble à la peur ?
 
-[p. 47]
-
 Ils ne me verront plus, j'ai soufflé ma lumière,
 Et, caché dans mon lit, ma tête sous les draps,
 Je songe : Ils vont partir, ils seront bientôt las
@@ -585,8 +489,6 @@ Sans espoir de retour aux rivages funèbres.
 Mais, derrière mes yeux, au fond d'une autre nuit
 Où l'averse vient battre une fenêtre immense,
 La vision grandie à présent recommence.
-
-VII
 
 J'erre seul, mon regard droit devant moi s'enfonce
 Jusqu'où l'on voit les toits se toucher presque, où l'air
@@ -602,8 +504,6 @@ De ses courants hâtifs où, parfois, un arrêt
 Brusque soulève un cri de fureur dans la brume.
 Que d'yeux l'on croise alors, voilés ou transparaît
 
-[p. 48]
-
 La rancune, tentés pour qui le luxe allume
 Ses magasins de verre et le plaisir ses rampes,
 Pauvres yeux attirés, déçus par tant de lampes,
@@ -618,8 +518,6 @@ Et prompte, en tous sens, pour un sou, de main en main,
 Et toujours neuve, dans un frisson de dépêche,
 La haine court avec son odeur d'encre fraîche.
 
-VIII
-
 Bizarrerie, un clair de lune artificiel
 Inondait les gazons de sa nappe électrique,
 Tandis que, sans éclat, inutile, excentrique,
@@ -629,10 +527,6 @@ Qu'importait ! ce jardin faisait un beau mensonge :
 Dans un feuillage noir quelque échappée où l'air
 Frissonne tout lointain, mystérieux et clair,
 Et nos cœurs, dupes heureuses, s'ouvrent au songe.
-
-[p. 49]
-
-IX
 
 O mes amis, je vous reconnais : vous passez
 Dans les jardins au jour tombant, seuls, effacés,
@@ -660,8 +554,6 @@ D'autres fièvres, après ses sueurs, des sueurs
 Plus tristes, ô cité, fument dans tes lueurs !
 Ta nuit de joie en tous les coins nous tend ses lèvres,
 
-[p. 50]
-
 Et plus haut que tes bruits du soir va le tapage
 De notre sang. Il crie, il est trop jeune, hélas !
 Trop fou pour qu'en nos cours descende et se propage
@@ -669,11 +561,8 @@ Le grand silence des étoiles... Vous, si las,
 N'est-ce pas que voilà, mes amis, ressurgie
 Pour les souffrances du désir votre énergie ?
 
-X
-
 Ami, le pavé sec vibrait, la fièvre allègre
 D'un bel avril courait les boulevards...
-O maigre,
 
 Vieille terre de la cité, durcie, aride,
 Des tunnels, des égouts t'ont murée, et voilà
@@ -692,8 +581,6 @@ Votre main sur mon bras pèse, ami, je vous sens
 Langueur, du même flot qui baigne aussi mes sens,
 Pulsation divine, en vos jarrets abonde.
 
-[p. 51]
-
 Vous sortez des jours gris où le cerveau s'embrume
 De pensée et, vos doigts ayant posé la plume,
 Une ivresse, une force verdissante et douce
@@ -706,8 +593,6 @@ Par l'infiltration obscure de la joie,
 Pareil au marronnier des villes, quelle fleur
 En vous pointe et, déjà, tremblant qu'on ne la voie,
 Se cache aussi timide qu'hier la douleur
-
-XI
 
 Nous sommes quelque part assis dans la fumée,
 Sous l'épaisse clarté d'un lustre, et ne savons
@@ -724,10 +609,6 @@ Là-bas rejoindre un violoncelle qui pleure,
 Nos corps demeurent là tristes, appesantis,
 Sans plus bouger, sans plus s'inquiéter de l'heure...
 
-[p. 52]
-
-XII
-
 Mais dans la rue où le silence emplit l'espace,
 Vient toujours la minute extrême que l'on passe
 A marcher lentement ou bien à se tenir
@@ -743,8 +624,6 @@ Un peu gênés, n'osant faire un pas, morfondus,
 Le dos courbé, les pieds dans l'eau, les yeux perdus
 Dans la brume où la ligne des maisons s'efface...
 
-XIII
-
 C'est alors qu'une nuit une vieillarde errante
 Sortit de l'ombre et vint en riant nous offrir
 Un étrange laurier. Sa gaîté déchirante
@@ -752,16 +631,12 @@ Disait qu'on ne peut pas continûment souffrir,
 Que, les pleurs une fois taris, l'âme se brise
 Dans un rire qui fait branler la tête grise,
 
-[p. 53]
-
 Et que c'est la bonté suprême du malheur,
 Qu'il vient un jour où l'on ne sent plus la douleur.
 Pour le laurier, c'était un laurier sombre, tel
 Que je n'en vis jamais d'aussi noir, une plante
 De pauvreté, sans rien de la gloire insolente,
 Sans rien de toujours vert et sans rien d'immortel.
-
-XIV
 
 Comment un corps humain peut errer solitaire
 Dans une grande ville, un soir ; par quel mystère,
@@ -781,8 +656,6 @@ Est, pour le prisonnier du destin, aussi clos
 Et non moins étouffant, non moins sourd aux sanglots
 Qu'en un passage obscur la plus étroite chambre...
 
-[p. 54]
-
 Comment tout ce qui reste en lui de pauvre vie,
 Son seul dernier désir bien humble, est une envie
 De caresses ; comment, ayant soif de douceur,
@@ -792,8 +665,6 @@ A la seule qui veuille et sache encor le prendre
 Entre ses tristes bras, à la fille de joie...
 
 Ce sont des choses qu'un heureux ne peut comprendre.
-
-XV
 
 Ville de pluie où meurt le jour,
 Qui flottes noyée et t'allumes,
@@ -809,10 +680,6 @@ Aujourd'hui, murs ruisselants, boues,
 La fange est fange en toi, Paris,
 Écrase mon cœur sous tes roues,
 Que je n'entende plus ses cris !
-
-[p. 55]
-
-XVI
 
 O cité que j'avais dans ce rêve oubliée,
 Est-ce qu'à ton pavé ma souffrance est liée ?
@@ -835,14 +702,10 @@ Qu'on a de remonter, le soir, son escalier ;
 Avec le tour de clé pour ouvrir, et la porte
 Qu'on referme, et la chambre abandonnée et morte.
 
-XVII
-
 Donc j'ai voulu quitter Paris, quitter la France,
 Rompre tous les liens formés par la souffrance
 Entre leur ciel et moi, tenter quelque avenir
 Ailleurs, et, libre, errant, perdre le souvenir...
-
-[p. 56]
 
 Je me disais : « Partir, partir, oh ! ne plus voir
 Cette ville agiter ses lumières, le soir !
@@ -854,8 +717,6 @@ Et, quand Paris, demain, fera le même bruit
 Qui remplit mon oreille à cette heure, à entendre
 Que mon pas engagé dans un nouveau chemin,
 Qui s'éloigne... Être loin, être très loin, demain !
-
-XVIII
 
 Le train va partir. Ombres que je vois
 A travers la vitre embuée,
@@ -872,14 +733,10 @@ Ouvrent des trous noirs pleins de cris.
 J'ai vu sans entendre. Adieu ! j'ai compris
 Qu'il est des secondes farouches.
 
-[p. 57]
-
 Adieu, mes amis ! Pendant que je roule,
 Le corps affaissé dans un coin,
 Mon âme longtemps, longtemps suit de loin
 Votre retour lent dans la foule.
-
-XIX
 
 C'était hier, jour d'automne, à l'heure où la chaleur
 Déjà s'épuise et vers le soir penche,
@@ -901,14 +758,10 @@ Du côté des échos endormis,
 Des mots, des noms français, tous fiers, portant la marque
 De mon pays : vos noms, mes amis !
 
-[p. 58]
-
 Fidèles à ma voix, vos ombres sont venues :
 En se nommant elles ont passé ;
 Et des vents se levaient, doux comme des mains nues,
 Qui me tinrent longtemps embrassé.
-
-XX
 
 O soirs noirs de ma rue ancienne, à Paris,
 Quand, des gouttes de pluie en sa barbe, en décembre,
@@ -925,21 +778,11 @@ O pins ensoleillés de France, quand l'hiver
 Chasse la neige et rend la campagne lugubre,
 Quel vent m'apporte ici votre senteur salubre ?
 
-L'AÏEULE ET L'ENFANT
-
-[p. 63]
-
-L'AÏEULE ET L'ENFANT
-
-I
-
 Un jardin tout petit, là-bas,
 A des centaines de lieues ;
 Les ombres du soir y sont bleues
 Dans les feuilles, et les pas
 Si mystérieux sur le sable !
-
-[p. 64]
 
 Quel gris indéfinissable
 Revêt ton visage aimé,
@@ -967,14 +810,10 @@ Qui soit une longue sieste,
 Où l'on sente un grand ciel vermeil
 Qui sur les yeux toujours reste !
 
-[p. 65]
-
 Car l'on a bien quelque nausée
 Des gens et des choses, mais
 Le ciel est ami, la rosée
 Fidèle, et tu les aimais !
-
-II
 
 Sous le manteau de l'âtre où le tison charbonne,
 Une pauvre vieille âme bonne
@@ -996,24 +835,16 @@ Devenu profond comme un gouffre,
 Seul, un bout de fumée inquiétant à voir
 Se tord comme quelqu'un qui souffre.
 
-[p. 66]
-
 Pauvre vieille ! une larme a coulé de son œil,
 Car, au fond de son grand fauteuil,
 Elle a cette atroce pensée
 Que son propre foyer aussi l'a repoussée.
 
-III
-
 Humble face de femme âgée
-Que, détestable laboureur,
-Avec fureur
-Le Temps a ravagée ;
 
 Pâles yeux remplis d'une eau trouble
 Où chaque image se dédouble,
 Tous les vivants ayant près d'eux
-Des squelettes hideux ;
 
 Chère main qui vas de toi-même
 Te placer à l'endroit du corps
@@ -1023,9 +854,6 @@ Pour la parade suprême ;
 Poitrine si chaste et si douce
 Où le mal fouille, où le mal pousse,
 De quel mouvement horriblement lent !
-Son ongle sanglant ;
-
-[p. 67]
 
 Bonne aïeule transfigurée,
 Âme pure encore épurée
@@ -1036,8 +864,6 @@ C'est peu de dire que je baise
 Le bas de ta robe, non,
 Je fais plus, je fais de ton nom
 Un nom de sainte française.
-
-IV
 
 Car chez toi l'héroïsme est toujours de la grâce,
 Un trait d'esprit, la fleur d'un naturel charmant.
@@ -1055,15 +881,11 @@ Mais lorsque, coupant court à ta fine faconde,
 L'affreux mal dans ton sein se réveille et te mord,
 Sans un cri, pour mieux voir face à face la Mort,
 
-[p. 68]
-
 Tu fermes doucement les yeux une seconde...
 Puis — ce qui vient après est si poignant, si beau,
 Que c'est en affaiblir le sens que de le dire —
 Quand tu rouvres les yeux, pâle, au bord du tombeau,
 Tu fais un grand effort sublime pour sourire.
-
-V
 
 Et maintenant voici, rapetissé, vieilli,
 Sévère comme ceux qui n'ont jamais failli,
@@ -1083,8 +905,6 @@ Et toi, sœur, qui, le buste droit,
 Riant d'un rire aigu de nonne,
 As muré ta frêle personne
 Dans un catholicisme étroit ;
-
-[p. 69]
 
 Et toi, le compagnon de toute ma jeunesse,
 Des bons et des mauvais jours de Paris,
@@ -1116,10 +936,6 @@ La branche qui fut ton premier berceau ;
 Vibre, chante et, si notre amour te lie,
 Cesse d'être feuille et deviens oiseau !
 
-[p. 70]
-
-VI
-
 Un matin, on s'éveille, on est sans méfiance,
 On pose sur la vie un regard ni joyeux
 Ni triste. On ne sait rien. La lumière des cieux
@@ -1144,12 +960,6 @@ Dont le pas lourd franchit la porte la mieux close.
 Un papier cacheté qu'une servante apporte.
 Avant d'ouvrir, on sait. Et tout est changé.
 
-— Morte.
-
-[p. 71]
-
-VII
-
 Certes j'avais pensé bien souvent : C'est fini !
 Je ne reverrai plus tes rides me sourire,
 Pauvre cher visage jauni,
@@ -1170,15 +980,10 @@ Qui, le pied déjà dans la mort,
 Avait l'étrange aplomb de me dire à l'oreille :
 « Allons, mon cher enfant, sois fort ! »
 
-[p. 72]
-
-VIII
-
 C'est de loin que mon cœur assiste
 A la scène brutale et triste :
 Quatre hommes sont venus,
 Chaussés de gros souliers,
-Quatre inconnus,
 Quatre abominablement familiers.
 
 Ils ont chargé sur leur épaule,
@@ -1199,14 +1004,9 @@ Blessante. Aucun ménagement.
 Rien pour l'art. Peu lui chaut comme elle se présente.
 Elle vient, voilà tout, et sa main est pesante.
 
-[p. 73]
-
 Rien pour l'art, et pourtant le plus grand art, celui
 Qui, comme un éclair dans la nue,
 Fait tout pâlir quand il a lui :
-La vérité nue.
-
-IX
 
 J'ai retrouvé mon vieux père un peu plus voûté,
 Et ma mère et ma sœur toutes de noir vêtues,
@@ -1228,10 +1028,6 @@ Ne m'a, je l'avoue, effleuré :
 L'ombre est restée opaque et sourde, et j'ai pleuré,
 Le front contre la muraille éternelle.
 
-[p. 74]
-
-X
-
 Je n'osais pas entrer dans le petit salon,
 Mais du jardin, par la fenêtre, j'ai pu voir,
 Penchant ma tête à droite ou à gauche, selon
@@ -1245,16 +1041,12 @@ Le grand bruit de la mer, recouvrant comme un dais
 L'enclos où, pour mon cœur, ta mémoire chérie
 Ajoute un nouveau sens plus proche au mot « Patrie ».
 
-XI
-
 L'écho de vieilles voix mortes, avec ta voix
 S'éteint pour la seconde et la dernière fois ;
 Des regards qui brillaient encore dans des récits
 Se sont, en même temps que tes yeux, obscurcis.
 Au moment où cassa le fil de ta mémoire,
 Tout un long chapelet d'âmes dans la nuit noire
-
-[p. 75]
 
 A roulé. Toi, tu vis en nous malgré la tombe,
 Mais sur combien de ceux que tu connus retombe
@@ -1263,14 +1055,10 @@ L'ombre grandit en cercle autour de chaque deuil,
 Et, pour les morts anciens, chaque fosse qui s'ouvre
 Ajoute une épaisseur à l'oubli qui les couvre.
 
-XII
-
 Avant que l'océan qui vient battre la plage
 Ne les ait pour toujours emportés loin des bords,
 Oh ! je voudrais saisir par les cheveux ces morts
 Et les tirer sur le rivage.
-
-XIII
 
 O Vorteuil, vieux gros bourg de la vieille Charente,
 Sors de la nuit avec tes pignons du passé,
@@ -1281,8 +1069,6 @@ Fantômes, levez-vous, car cette heure où j'écris
 Apporte un miracle : ma plume
 Va vous redonner un frisson posthume,
 Vous rendre vos yeux et vos cris !
-
-[p. 76]
 
 C'est, de nouveau, l'ardeur de midi dans les rues,
 D'un midi lent qui sonne au cadran de jadis :
@@ -1312,8 +1098,6 @@ Le barbier du coin ;
 Mais les pannonceaux du notaire
 Sont fixes et d'un or poudreux, vétuste, austère.
 
-[p. 77]
-
 Et Verteuil serait-il Verteuil sans son château,
 Sans la cour d'honneur pavée et fleurie,
 Sans le parc vert d'abord, puis bleu sur le coteau,
@@ -1322,14 +1106,12 @@ Et sans l'orangerie ?
 Les orangers étaient si beaux que l'on raconte
 — Nul ne sait à quand l'histoire remonte —
 Que de Versailles l'ordre vint,
-Du roi jaloux,
 De couper les plus beaux : on en compta cent vingt
 Puis nouvel ordre : tous !
 
 Et cependant, le long des murs, dans l'ombre mauve,
 S'en vient, très rouge et le front haut,
 L'intendant de monsieur de La Rochefoucauld :
-Une poule se sauve.
 
 Puis voici le commis-voyageur d'autrefois,
 A cheval, avec sa valise en croupe,
@@ -1341,11 +1123,8 @@ Où les nobles menaient grand train dans la province,
 Cette musiquette qui grince
 Et chante les amours ?
 
-[p. 78]
-
 Que sa gaîté légère est pâlotte ! on dirait
 L'éclair d'un vin clairet
-A peine rose,
 D'un vin extrêmement vieux qui se décompose.
 
 O crincrin du ménétrier, mon trisaïeul,
@@ -1354,7 +1133,6 @@ Quand il s'est bien moqué des larmes qu'il me tire,
 Me laisse ensuite exilé, seul !
 
 Et pourtant, aigre voix,
-Violon villageois
 De mon ancêtre,
 Je t'ai compris, peut-être !
 
@@ -1371,11 +1149,6 @@ Laisse, Dieu te défend
 « De troubler la grandeur de la paix funéraire
 Par un vain bruit de mots,
 En drapant d'un chiffon de pourpre littéraire
-Quelques malheureux os ! »
-
-[p. 79]
-
-XIV
 
 Mais toi, grand'mère, tu n'es pas morte,
 Tu n'es point de ces cœurs qu'on emporte
@@ -1406,10 +1179,6 @@ Pour la seule raison que je t'aime,
 Je t'aurai réchauffée en mon sang,
 Puis transmise à meilleur que moi-même.
 
-[p. 80]
-
-XV
-
 Réveillez, mes bons amis,
 Vos cœurs d'enfants endormis.
 Mais, devant le ridicule,
@@ -1423,7 +1192,6 @@ Aura pris sur ses genoux
 Bébé qui rit sans comprendre.
 Le cercle sera choisi
 Car tous auront l'âme tendre.
-Et maintenant, allons-y !
 
 Battons des mains en cadence
 Pour accompagner la danse.
@@ -1437,23 +1205,17 @@ Aux danseurs de l'autre monde ;
 Des vides entre nos corps
 Pour la foule de nos morts ;
 
-[p. 81]
-
 Entre nos couplets, des pauses
 Pour les cris muets des choses,
 
 Pour mieux sentir sur nos pas
 Tous les pas qu'on n'entend pas.
 
-XVI
-
 Dans l'auge de bois taillée
 A même un tronc de bouleau,
 La bonne femme égayée
 Verse l'eau.
 
-La paupière écarquillée,
-Le visage épanoui,
 Dans la savonneuse mousse
 Tiède et douce
 L'enfant rose est enfoui.
@@ -1461,22 +1223,16 @@ L'enfant rose est enfoui.
 Comme un soupir de colombe
 Sort du mignon cou gonflé,
 Le gros ventre nu se bombe
-Tout musclé.
 
 Bébé s'agite : il attrape
-Une tape
 Qui résonne en quelque endroit ;
 C'est afin qu'il n'ait pas froid.
 
-[p. 82]
-
 Puis un silence ! la douche
-Interrompt
 Le souffle au bord de la bouche
 Et resserre le dos rond.
 
 L'eau semble une sœur câline
-Qui s'incline
 Sur un petit frère, et joue
 A lui chatouiller la joue,
 A le baiser dans l'oreille.
@@ -1486,11 +1242,8 @@ Qui a lavé tant de corps,
 Tant de vivants, tant de morts,
 Depuis que le monde est monde,
 L'eau, la grande vagabonde,
-L'eau profonde,
 Où tant d'êtres ont péri,
 Se fait innocente, et rit.
-
-XVII
 
 Si votre cœur n'est pas très pur,
 Éloignez-vous, nuage obscur,
@@ -1499,8 +1252,6 @@ Vous feriez tache sur l'azur.
 Partez aussi, dame bougonne,
 Pédante Raison qui raisonne,
 Et viens seule, âme simple et bonne.
-
-[p. 83]
 
 Venez seuls, pied fin qui trottine,
 Doux sourire, voix argentine,
@@ -1526,14 +1277,10 @@ Comme Moïse sur le Nil,
 Il flotte sur la vie, au fil
 De l'eau rapide. Qu'en sait-il ?
 
-XVIII
-
 O claire image adorable :
 Sa voiture d'osier blanc,
 Lorsque l'ombre de l'érable
 Brode un vif dessin tremblant
-
-[p. 84]
 
 De feuillage sur la toile
 Qu'un œil de soleil étoile !
@@ -1546,7 +1293,6 @@ Sur sa douceur coutumière ;
 Dans sa barbe de lumière
 L'azur floconneux sourit.
 Tout se transforme, tout cède
-Au minuscule enchanteur :
 Il n'est plus de chose laide,
 Il n'est plus d'espoir menteur !
 Une poule vient, picore,
@@ -1567,8 +1313,6 @@ Et mon noir chagrin le suit.
 La nature est bénévole,
 L'homme est bon...
 
-[p. 85]
-
 — « Oh ! une goutte,
 Dit la mère, sur ma main. »
 Et la voix prudente ajoute :
@@ -1577,8 +1321,6 @@ La blanche voiture glisse.
 Je reste seul. Le vent plisse
 L'herbe sombre ; le jardin
 Frissonne, attristé soudain.
-
-XIX
 
 Une voix qui chantonne, à midi, en été,
 Dans l'ombre d'une chambre,
@@ -1600,15 +1342,10 @@ Le silence ému vous écoute,
 Le miroir prend plaisir à vos gestes gentils,
 Mais ce n'est qu'une halte au bord de la route.
 
-[p. 86]
-
 L'heure viendra bientôt, demain,
 Où tous trois, la main dans la main,
 Nous sortirons sur le chemin :
 Moi, le plus fort, entre vous deux,
-La poitrine en avant,
-Bravant
-Le destin hasardeux,
 Tirant l'enfant contre le vent ;
 Et toi, ma femme, à ma hauteur,
 Allongeant le pas, délivrée
@@ -1619,14 +1356,6 @@ Après les chansons de la sieste,
 Un air réveillé, vif et preste
 Comme un pas sur le sol durci.
 
-ENCORE PARIS
-
-[p. 91]
-
-ENCORE PARIS
-
-I
-
 Puisque mon cœur est sot, que toujours je me plus
 Comme un enfant à de vives images,
 Et que les couleurs sont ce que j'aime le plus,
@@ -1634,15 +1363,12 @@ J'avais pensé recevoir les hommages
 D'un clair soleil au seuil de ma patrie. Hélas !
 Il m'a fallu perdre cette espérance !
 
-[p. 92]
-
 Lorsque enfin j'arrivai, c'était nuit, j'étais las ;
 Même il pleuvait dans le beau ciel de France.
 Une si fine pluie ! une poussière d'eau
 Qui partout filtrait d'invisibles nues,
 Et, distinctes à peine à travers ce rideau,
 Des terres qui me semblaient inconnues...
-La vitre du wagon ruisselait ; je n'ai su
 Qu'étudier longtemps ces gouttes pâles,
 Tandis que, dans mon cœur humilié, déçu,
 L'ombre se glissait avec de longs râles.
@@ -1655,8 +1381,6 @@ Quel écho dans mon cœur ! quelle secousse !
 Ah ! pardieu, le soleil que je cherchais aux cieux,
 Il brille là, dans cette langue douce !
 
-II
-
 A Nancy, le matin, qu'il faisait clair !
 Les femmes déjà là vous avaient un air
 Vif, une façon de marcher dansante,
@@ -1665,8 +1389,6 @@ Un sourire des yeux qui n'est pas dupe.
 La plus sage sait bien draper sa jupe.
 Oui, qu'il faisait clair, et que c'est étrange
 Comme, aussitôt le Rhin passé, tout change !
-
-[p. 93]
 
 Le cœur à l'évent, j'allais d'un pied gai
 A travers l'aimable ville, intrigué
@@ -1689,16 +1411,12 @@ Nation qui fais un bruit de volière,
 Frivole, dit-on, plutôt familière,
 Puissants sont tes secrets, peuple qui dures !
 
-III
-
 A travers les champs plats d'une morne banlieue
 Où, sur un fond de crépuscule humide et terne,
 Le rouge encrassé de la brique alterne
 Avec la vague clarté bleue
 Que jettent les châssis vitrés des potagers ;
 A travers des terrains recoupés, partagés,
-
-[p. 94]
 
 Entre des murs où le plâtre s'effrite
 Et d'innombrables toits dont chaque tuile abrite
@@ -1715,14 +1433,12 @@ A travers des signaux brillants comme les fleurs
 D'une fusée épanouie,
 Des croisements de trains hurleurs,
 Une gare aussitôt que vue évanouie ;
-A travers
 Mille sentiments divers,
 Si bousculés qu'on a peine,
 Dans le vent qui les entraîne
 Et les sème
 Comme de la poudre aux yeux,
 A bien distinguer soi-même,
-Au passage,
 L'insensé d'avec le sage
 Et le triste du joyeux ;
 
@@ -1731,24 +1447,18 @@ A travers tout ce qui luit
 Et se noie dans la nuit
 Aux tourbillons de notre âme ;
 
-[p. 95]
-
 Courir, s'élancer dans tous les combats,
 Courir et, pour prix de la course,
 Oh ! boire, boire à cette source
-De lumière, là-bas.
 
 Au foyer de toutes les fièvres
 Courir, et, le front en sueur,
 Embrasser, baiser sur les lèvres
-Cette lueur !
 
 Oh ! sans doute, pour qu'elle monte
 Dans les noirs nuages si haut,
-Il faut,
 Il faut qu'ici chauffent les fours
 Où s'opérera la refonte
-Des anciens jours !
 
 Il faut qu'ici soit engagée,
 Dans ce champ clos élu de Dieu,
@@ -1765,13 +1475,10 @@ Flotte sur cette cave aussi,
 Il faut bien admettre qu'ici
 L'Enfer a quelque succursale.
 
-[p. 96]
-
 Voici mon cœur, prenez, qu'il brûle
 Sur ce bûcher,
 Avec les autres cœurs en tas !
 Faites que j'aie une cellule —
-Un galetas —
 Dans le gigantesque rucher.
 
 Encore que tout bonnement
@@ -1779,11 +1486,8 @@ J'apporte dans l'immense ville
 Quel tribut ? le bourdonnement
 De l'abeille inutile,
 Vous qui m'aimez, qui sans mentir
-Souvent dites,
 Ne me laissez pas repartir :
 Au prix de mon exil mes plaintes sont petites !
-
-IV
 
 Et j'ai revu Paris. De la gare à l'hôtel
 Un fiacre négligé m'a conduit. Tout fut tel
@@ -1796,8 +1500,6 @@ La boule de douleur terrible d'un long jour,
 Et dont le triste enchantement, au carrefour,
 Fait lever du trottoir une mauvaise graine.
 
-[p. 97]
-
 Le pavé sale était tout jonché de débris,
 Et des passants aux traits trop fins, creusés, flétris,
 Semblaient les survivants d'une bataille obscure.
@@ -1807,16 +1509,11 @@ Paraissaient méditer, car, derrière les murs,
 Le sort remis, les lendemains meilleurs, plus mûrs,
 Hantaient dans leur sommeil des milliers de paupières.
 
-V
-
 Paris gronde, Paris
-Comme autrefois !
 
 D'un triangle gris
 Entre les toits
-Le brouillard tombe,
 Et, du pavé qu'on ne voit pas,
-En bas,
 Comme d'une tombe,
 Une chanson de pauvre monte.
 
@@ -1825,31 +1522,21 @@ De son poids de morte
 Pèse sur la porte
 De ma pensée ?
 
-[p. 98]
-
 Tout mon cœur s'arcboute
 Pour barrer la route,
 Mais elle, plus forte,
-Horriblement douce,
 Comme avec pitié
-Pousse...
 
 O douceur qui raille !
-La porte à moitié
-Bâille,
 Et la mauvaise heure
 Entre dans ma demeure...
 
 Un doigt sur la bouche,
 Elle vient s'asseoir
 Au bord de ma couche,
-Le soir,
 Et quand Paris éteint
 Sur ma vitre blafarde
-Son murmure lointain,
 Longtemps, longuement elle me regarde.
-
-VI
 
 Lorsque mon cœur cherchait un abri près du vôtre,
 Que nous vaguions, tous deux, dans Paris endormi,
@@ -1868,10 +1555,6 @@ Qu'un jour ta vie, enfin, lasse de tournoyer
 Dans l'ennui comme au fond d'une cour basse et noire,
 S'épanouirait d'aise aux rayons du foyer ?
 
-[p. 99]
-
-VII
-
 Que Paris, dans la nuit à peine commencée,
 Quand les lampes partout s'allument dans l'air bleu,
 Est délié, subtil et brillant de pensée !
@@ -1882,8 +1565,6 @@ Dans la rue, au milieu de ses cercles d'enfer,
 Des passants, arrêtés et le front dans un livre,
 Sourds au bruit, ne voient rien que le petit champ clair
 Du feuillet noir sur blanc dont leur tête s'enivre.
-
-[p. 100]
 
 O regard du liseur comme un piège tendu,
 Guettant le sens des mots dans un passage ardu,
@@ -1901,8 +1582,6 @@ Se plaisent au moelleux de la lumière jaune,
 Qui dore gravement la Beauté dans son lit
 Et met tant de douceur sur la page qu'on lit.
 
-VIII
-
 Qui n'a pas vu Paris en avril, à midi,
 Quand, d'un joli geste hardi,
 Rejetant le manteau fourré qui l'emmitouffle,
@@ -1910,13 +1589,9 @@ La Beauté livre au vent qui souffle
 Son cou de linot étourdi ;
 
 Qui n'a pas entendu le fifre
-Du faune citadin,
 Quand, d'un doigt frileux encore, il déchiffre,
 Sur le banc mouillé d'un jardin,
-Son premier air
 Où s'attarde un dernier frisson d'hiver ;
-
-[p. 101]
 
 Qui n'a pas respiré cette minute aiguë
 Comme la jeune feuille,
@@ -1930,10 +1605,8 @@ Un bloc d'un azur plus profond ;
 
 Alors l'aiguille d'or
 De la Sainte-Chapelle
-Rappelle,
 Clouant au sol Paris vermeil,
 Un trait planté par le soleil,
-Qui vibre encor ;
 
 D'un pont comme d'une avant-scène
 L'œil suit la courbe de la Seine,
@@ -1948,10 +1621,6 @@ Le doux émoi de vivre avec le temps perdu,
 Ne peut comprendre le prodige
 De la grâce à la force unie,
 Ce je ne sais quel feu voilé : notre génie.
-
-[p. 102]
-
-IX
 
 Oui, nous sommes une poignée,
 Une poignée et c'est assez,
@@ -1973,15 +1642,10 @@ A plus onduleux que les cygnes,
 Au corps des femmes de Paris,
 Des leçons de rythme et de lignes.
 
-*
-*   *
-
 Nous vous aimons comme vous êtes,
 Et toutes ensemble, ô mes sœurs,
 N'étant point, nous, des professeurs
 De morale, mais des poètes ;
-
-[p. 103]
 
 Nous vous aimons sans choix prudents
 Pourvu que vous soyez jolies,
@@ -1992,8 +1656,6 @@ Nous nous réglons sur votre allure,
 Sur tous vos pas de quatre, car
 C'est à vos danses que notre art
 Doit sa liberté d'encolure.
-
-X
 
 Je connais dans le vaste univers un espace
 Où mon cœur exilé souvent en rêve passe,
@@ -2009,8 +1671,6 @@ Que de fois, dans la steppe immense et monotone
 Où, lorsque sur le ciel virginalement clair
 Se profile un visage humain, l'oiseau s'étonne,
 Ou bien dans mon réduit, près du poêle, en hiver,
-
-[p. 104]
 
 Quand la neige, le froid, la mort partout s'étendent,
 Que l'oreille devient un pavillon géant
@@ -2040,14 +1700,9 @@ Et, tout de même, au fond de leur humeur facile,
 Quelque chose de consolant, d'apitoyé,
 Qui pour le malheureux est un suprême asile.
 
-[p. 105]
-
-XI
-
 Sous un filet d'eau fine
 Où la lumière est prise,
 D'un bleu si nuancé qu'elle semble un peu grise,
-Le gazon se devine.
 
 Le ciel s'y mire dans la perle
 Qui tremble ; un passage de merle
@@ -2061,7 +1716,6 @@ Une oasis qui m'accueille.
 C'est le soleil qui sous la feuille
 Bat des paupières.
 
-Là, j'ai ri, j'ai pleuré, suivant
 Que, sous les arbres, le vent
 Qui déplaçait l'azur et l'ombre,
 Faisait mon front clair ou sombre.
@@ -2070,8 +1724,6 @@ Plus j'y songe et moins je ne sais
 Si la plus grande gloire en vaut la peine et dure,
 Mais le bronze dans la verdure
 Est d'un bel effet. C'est assez.
-
-[p. 106]
 
 Paris, au jardin, prend aussi le masque
 D'un vieil épicurien :
@@ -2090,18 +1742,12 @@ Du juste ou de l'injuste, moi ?
 Là-bas c'était l'exil, l'interminable neige,
 Et voici Paris. Quel émoi !
 Sous un filet d'eau fine
-Le gazon se devine...
 Je n'ai pour horizon
 Que ce coin de gazon.
 
-XII
-
 Il pleut sur la Marne ! il pleut sur les îles !
 C'est pour le bonheur des feuilles dociles !
-Chacune se dilate
 Et se fait plate, plate...
-
-[p. 107]
 
 Chacune semble un petit miroir noir
 Sur lequel le ciel penche
@@ -2123,14 +1769,9 @@ Chaque feuille veut plaire,
 Chaque feuille est une langue d'azur
 Qui chante. O chant si pur !
 
-XIII
-
 Les arbres de Saint-Cloud portant un poids superbe
 De victoires et de revers,
 Courbent leurs fronts d'atlantes vers
-L'herbe.
-
-[p. 108]
 
 Nous étions quatre amis un jour sous cet ombrage,
 Paressant et rêvant,
@@ -2157,11 +1798,6 @@ O ma première jeunesse flétrie !
 Sombre humus des morts, sol de chair, accueille,
 Mêle à ta substance
 Aussi l'humble feuille,
-Ma pauvre existence.
-
-[p. 109]
-
-XIV
 
 Autrefois j'adorais Paris comme une femme,
 D'un amour de jeune homme émerveillé, soumis :
@@ -2176,8 +1812,6 @@ Une vigne verdit au soleil, dans un coin,
 Et, sous le pampre translucide, une fenêtre
 S'ouvre, et l'on voit la mer d'un gris d'argent, au loin.
 
-XV
-
 De grosses lanternes vermeilles,
 Dans le feuillage noir et bleu,
 Éclatent drôlement, pareilles
@@ -2188,9 +1822,6 @@ Levant mille visages verts
 Puis soudain écarlates vers
 L'azur sombre... Ah ! une fusée !
 
-[p. 110]
-
-Il pleut de l'or, un diamant
 Glisse au fond de l'eau qui se moire,
 Tant que le fil de ma mémoire
 Se perd. Où suis-je en ce moment ?
@@ -2205,19 +1836,13 @@ Ne pas trop savoir où j'existe,
 De peur de m'y retrouver triste,
 Et, bon badaud, bayer aux cieux !
 
-XVI
-
 Deux heures du matin :
 Nul bruit dans la nuit chaude
 Qu'un grelot lointain
-De fiacre en maraude.
 
 Et plus rien dans le cœur que de la lassitude
 Pour tout ce que jeune on rêva :
 Un pas se traîne et l'autre va
-Par habitude.
-
-[p. 111]
 
 Comme au Jardin des Oliviers saint Pierre,
 Un vagabond très vieux, ivre ou mort à demi,
@@ -2229,12 +1854,9 @@ Retroussant sa jupe de soie,
 Une fille de joie
 Veille avec le Seigneur sous la voûte éternelle.
 
-XVII
-
 Du moins jamais mon cœur n'a-t-il su blasphémer,
 Jamais n'a-t-il connu l'envie.
 Je n'ai pas attendu d'être heureux pour aimer
-La vie.
 
 Les pauvres m'ont appris qu'à côté de la mort
 Il n'est peine qui ne soit douce,
@@ -2246,12 +1868,7 @@ Dans la sienne où chante l'espoir,
 Et j'ai vu dans les pas de la foule, le soir,
 Une marche à la délivrance.
 
-[p. 112]
-
-XVIII
-
 Je regarde monter sur le versant des cieux
-Des escadrons silencieux :
 La pluie et les orages ;
 La ville en bas reluit sombre et toute trempée,
 Et chaque tour dresse une épée
@@ -2265,11 +1882,9 @@ Bordant des perspectives droites,
 Et le fleuve en travers.
 
 Lueur d'acier dans le jour faux,
-La Seine courbe
 Semble une faulx
 Que tiendraient d'invisibles mains
 Fauchant la tourbe
-Des humains.
 
 L'ombre approche, et Paris est pris
 Sous un immense réseau gris ;
@@ -2277,8 +1892,6 @@ On dirait un grand tas de bois mouillé qui fume
 Sur le ciel vague du couchant,
 Au bord d'un champ,
 Et qui soudain s'allume.
-
-[p. 113]
 
 Mais les vapeurs de l'air épaississent leurs voiles
 Entre la ville et les étoiles ;
@@ -2290,7 +1903,6 @@ Toujours dédaignant l'eau calme du port,
 Comme tu bondis, comme tu fais tête
 Aux trahisons du sort !
 
-O sublime navire,
 Laisse-moi m'accrocher
 A ton haut bord qui vire
 En frisant le rocher !
@@ -2305,17 +1917,7 @@ Malgré la nuit sans lune,
 J'attache à ta fortune
 Tout ce que j'ai d'espoir.
 
-RÊVERIE DERRIÈRE LES FAISCEAUX
-
-[p. 117]
-
-RÊVERIE DERRIÈRE LES FAISCEAUX
-
-I
-
 Nous étions sortis de nos baraquements... On s'équipe avec lenteur, avec une maladresse incroyable ; on rattache à tâtons, sous le sac, une courroie qui pendait ; d'une bouche qui bâille tombe une grosse plaisanterie, une de ces bourdes militaires qui reviennent toujours les mêmes, comme un hoquet d'ivrogne.
-
-[p. 118]
 
 Les pieds traînent, les corps titubent : un troupeau de somnambules.
 
@@ -2329,10 +1931,6 @@ Cette enveloppe flasque, cette peau d'éléphant, on l'avait dépouillée.
 
 Et maintenant, les faisceaux formés, nous restions derrière eux, au repos, comme des chevaux qui soufflent au sommet d'une côte.
 
-[p. 119]
-
-II
-
 C'est une chose étrange comme une troupe en armes communique à ce qui l'entoure un caractère de gravité : la nature elle-même en semble impressionnée.
 
 Banal duo, direz-vous, que le vert chante avec le rouge, effet si prévu qu'un bon peintre l'abandonne au chromo.
@@ -2344,8 +1942,6 @@ Ces ondulations de forêts tranquilles, ces plans allongés que la brume défini
 Cette ogive idéale du ciel qui s'élance de l'horizon et passe au-dessus de nos têtes, à des hauteurs qu'on ne sait plus, indifférentes.
 
 La lisière du bois, la ferme isolée, le mur de pierres sèches en avant du village.
-
-[p. 120]
 
 Ces lopins de terre cousus bout à bout, ourlés de haies vives et de peupliers.
 
@@ -2359,8 +1955,6 @@ A tel point que les variations de l'atmosphère, en ce qu'elles sont liées à c
 
 Cette patience, cette sérénité, ces traditions, ces recommencements, toutes ces antiques pensées, tous ces sentiments éternels qui montent des espaces cultivés comme une musique religieuse.
 
-[p. 121]
-
 Cette harmonie, pour la couvrir, ces douces images, pour les éclipser, il suffirait cependant que, partie d'un point invisible, s'élevât dans le lointain la grande voix sourde du canon.
 
 Comme un décor de toile soudain tremble et s'effondre dans l'obscurité d'un brusque changement de scène, le paysage que voici disparaîtrait en un clin d'œil.
@@ -2373,8 +1967,6 @@ Quelle répercussion aurait-il par le monde, quel retentissement dans l'avenir, 
 
 Le sort jeté, la partie engagée, la face de la vie brutalement retournée !
 
-[p. 122]
-
 Qu'un jour — un jour qui n'est pas loin, peut-être — cette rude voix pathétique puisse faire refluer depuis la frontière les nappes d'azur paisible étalées sur la France, comprenez donc que c'est cela, c'est le sentiment de cette menace qui donne à l'entour des soldats une expression sévère, concentrée, fatale, au plus riant tableau.
 
 Je vois, du tertre où je suis assis, l'horizon tendu comme une chaîne entre les faisceaux alignés : ne dirait-on pas qu'il s'appuie sur les trépieds des fusils, comme si, à l'approche d'un danger, le profil de ces plaines cherchait là sa défense ?
@@ -2386,10 +1978,6 @@ La nature entière se tient sur ses gardes : tout en elle, par avance, devient c
 Tenez, là-bas, cette prairie... Il se pourrait que demain, lancés au pas de charge dans un pré comme celui là...
 
 Mais enfin, s'il le fallait, saurions-nous du moins pourquoi ?
-
-[p. 123]
-
-III
 
 Ailleurs j'ai dit mon coin de terre
 Et mon adoration de Paris.
@@ -2417,8 +2005,6 @@ Un vieux libraire français.
 J'ai cet intime orgueil : je sais
 Que ce vieux sage m'a aimé.
 
-[p. 124]
-
 Quand je doute de moi, j'y repense.
 Voilà donc une image de la France :
 Cette jeunesse en cheveux gris,
@@ -2432,8 +2018,6 @@ Grâce à toi j'ai connu la douceur des minutes
 Où l'on rit en famille, à table, entre exilés,
 Et l'air de ta maison m'a cent fois rappelé
 Qu'honneur français n'est pas un mot dont on discute.
-
-IV
 
 Témoin encore ma servante,
 (Servante est plus noble que bonne,
@@ -2449,20 +2033,15 @@ Sans effort, sans parti pris,
 Aussi facile qu'un sourire.
 — Marguerite, je vous admire,
 
-[p. 125]
-
 J'admire en vous tout un passé
 De vaillance aimable et polie,
 Cet instinct d'un cœur bien placé
 Qui, mieux qu'un principe, vous lie
-Au devoir et à la raison,
 Vous le bon sens de la maison,
 La vertu qui n'a rien d'austère
 Mais va son train au jour le jour,
 Vertu du peuple de la terre
 Le plus indulgent à l'amour.
-
-V
 
 L'amour, qu'il vienne aussi témoigner ! Notre honneur
 Apparaîtrait sans lui comme un rosier sans fleur.
@@ -2478,8 +2057,6 @@ Quand mon cœur frémissant, armé pour sa défense,
 Veut peser tous les biens qui font l'orgueil français,
 Comment ne pas jeter l'amour dans la balance ?
 
-[p. 126]
-
 Vaut-il mieux, si la grâce est dans notre héritage,
 En rougir, la lâcher à l'instant du danger ?
 Non, venez plutôt nue et à votre avantage,
@@ -2490,7 +2067,6 @@ Manière à nous très sensuelle
 D'accoler la vie,
 Notre amour d'âme et de chair belle
 Où tout se mêle
-Et se confond,
 Notre amour profond !
 
 Notre amour, avec tout ce qui,
@@ -2512,18 +2088,13 @@ Notre amour, sous un ton badin
 Cachant parfois des pleurs de rage,
 Venez nous donner du courage.
 
-[p. 127]
-
 Notre amour qui toujours fut là
-Au moment grave,
 Notre amour qui toujours mêla
 L'heure du berger,
 L'heure du danger,
 Venez, notre amour qui rend brave.
 
 Venez, amour, tout voile ôté,
-Svelte beauté,
-Vénus française,
 Qui sur l'Olympe était si à l'aise ;
 Venez tout nu, cher corps doré,
 Le nu divin est seul secret,
@@ -2534,14 +2105,10 @@ Nos sculpteurs vous ont figurée :
 Rayonnante dans la lumière,
 Éternelle dans la durée !
 
-VI
-
 Enfin voici plus qu'un témoin,
 Voici mon juge :
 C'est mon enfant, dernier refuge
 D'un espoir qui m'échappe et fait son nid plus loin.
-
-[p. 128]
 
 Il a trois ans, il est si drôle
 Que nous rions, sa mère et moi ;
@@ -2553,7 +2120,6 @@ Bonheur et souci infini.
 Trois ans, et déjà il abuse, il flaire
 Sous les mots grondeurs ma faiblesse immense,
 Et saisit l'instant où dans la colère
-Le pardon commence.
 
 On dirait qu'il me nargue et lit sur mon visage
 L'amour craintif que j'ai pour lui,
@@ -2570,10 +2136,6 @@ Faudra-t-il que, vieillards tremblant sur leurs genoux,
 Pareils à des caissiers embrouillés dans leurs comptes,
 Nous sentions à nos fronts la rougeur de la honte ?
 
-[p. 129]
-
-VII
-
 D'un bond j'étais debout et, soudain, j'ai couru. Le poids du sac sur mon dos, le poids du fusil dans ma main : les faisceaux étaient rompus.
 
 J'avais entendu l'ordre sans l'avoir remarqué et, d'instinct, j'avais obéi.
@@ -2586,15 +2148,11 @@ Je crois plutôt que mes raisons s'agrégeaient en une seule masse, un seul bloc
 
 Plus d'images particulières, successives, dévidées : une certitude assez vaste pour englober tous mes souvenirs, pour contenir ma vie entière rassemblée, prête à s'élancer.
 
-[p. 130]
-
 Mais l'extase, la foi pure se soutient si difficilement ! Telle est notre infirmité que je cherchais déjà en dehors de moi quelque symbole matériel où appuyer mon enthousiasme, où m'en décharger sans crainte, avec l'assurance de le retrouver toujours.
 
 Immobile dans le rang, l'arme au pied, j'implorais de l'horizon le secours de quelque signe, un miracle, une apparition.
 
 Or, cette chose attendue se montra en effet, et, naturellement, c'était la chose la plus ancienne, la plus familière, la plus commune.
-
-VIII
 
 Un roulement lointain de tambours arrivait jusqu'à nous : comme un génie de la terre mal dégagé du sommeil, comme une âme à demi plongée dans l'argile gluante, ce bruit sourd rampait lourdement.
 
