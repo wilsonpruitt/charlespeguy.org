@@ -35,7 +35,7 @@ s02-c05,pour-moi,Pour moi,charles-peguy,1283,0.93,57,0.76,
 s02-c05,contribution-aux-preuves,Contribution aux Preuves,charles-peguy,308,0.95,57,0.75,
 s02-c05,courrier-de-chine,Courrier de Chine,lionel-landry,297,0.91,67,0.83,
 s02-c06,danton-trois-actes,"Danton, trois actes",romain-rolland,1272,0.89,987,0.50,
-s02-c07,administration,Administration,charles-peguy,0,0.00,1,0.33,EMPTY_FR|LOW_PROSE_EN
+s02-c07,administration,Administration,charles-peguy,3,1.00,1,0.33,LOW_PROSE_EN
 s02-c07,casse-cou,Casse-cou,charles-peguy,1310,0.96,131,0.94,
 s02-c07,librairie-des-cahiers,librairie des cahiers,charles-peguy,340,0.92,4,0.67,
 s02-c07,pour-et-contre-diderot,Pour et contre Diderot,charles-peguy,239,0.95,50,0.88,
@@ -123,7 +123,7 @@ s05-c20,congres-des-u-p-mai-1904,Congrès des U.P. mai 1904,charles-peguy,3230,0
 s06-c01,texte-sans-commentaires-catalogue-analytique-sommaire,Texte sans commentaires. Catalogue analytique sommaire,charles-peguy,3926,0.91,43,0.80,
 s06-c02,l-egalite-devant-l-instruction,L'égalité devant l'instruction,alexis-bertrand,7334,0.92,71,0.75,
 s06-c03,zangwill,Zangwill,charles-peguy,14499,0.92,478,0.89,
-s06-c03,chad-gadya,Chad Gadya!,israel-zangwill,0,0.00,64,0.82,EMPTY_FR
+s06-c03,chad-gadya,Chad Gadya!,israel-zangwill,60,0.88,64,0.82,
 s06-c04,un-essai-de-monopole,Un essai de monopole,charles-peguy,4607,0.91,19,0.95,
 s06-c04,l-enseignement-primaire-a-madagascar,L'enseignement primaire à Madagascar,raoul-allier,0,0.00,20,0.69,EMPTY_FR
 s06-c05,le-testament-politique-de-waldeck-rousseau,Le testament politique de Waldeck-Rousseau,charles-peguy,8146,0.91,9,0.90,
@@ -135,7 +135,7 @@ s06-c10,yves-madec-professeur-de-college,Yves Madec professeur de collège,brenn
 s06-c11,la-tragedie-d-elektre-et-oreste,La tragédie d'Elektre et Oreste,andre-suares,10077,0.86,23,0.77,
 s06-c12,spartacus,Spartacus,urbain-gohier,1018,0.92,12,0.80,
 s06-c13,l-eglise-et-l-etat,L'Eglise et l'Etat,leon-tolstoi,1037,0.91,1,0.50,
-s06-c13,les-evenements-actuels-en-russie,les événements actuels en Russie,leon-tolstoi,0,0.00,7,0.70,EMPTY_FR
+s06-c13,les-evenements-actuels-en-russie,les événements actuels en Russie,leon-tolstoi,50,0.86,7,0.70,
 s06-c14,la-separation-des-eglises-et-de-l-etat,La séparation des Eglises et de l'Etat,raoul-allier,14537,0.93,5,0.45,LOW_PROSE_EN
 s06-c15,la-tragedie-de-tristan-et-iseut,La tragédie de Tristan et Iseut,eddy-marix,2523,0.87,1,0.33,LOW_PROSE_EN
 s06-c16,la-vie-et-les-propheties-du-comte-de-gobineau,La vie et les prophéties du comte de Gobineau,robert-dreyfus,6977,0.93,6,0.60,
